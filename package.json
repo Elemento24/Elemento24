@@ -1,0 +1,22 @@
+{
+  "name": "elemento24",
+  "version": "1.0.0",
+  "description": "Portfolio",
+  "main": "index.js",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/Elemento24/Elemento24.git"
+  },
+  "author": "",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/Elemento24/Elemento24/issues"
+  },
+  "homepage": "https://github.com/Elemento24/Elemento24#readme",
+  "dependencies": {
+    "isomorphic-unfetch": "^3.1.0"
+  }
+}
