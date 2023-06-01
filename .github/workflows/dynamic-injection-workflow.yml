@@ -16,7 +16,8 @@ jobs:
         with:
           node-version: 14.6.0
 
-      - run: yarn
+      # - run: yarn
+      - run: npm install
 
       - run: node .
 
