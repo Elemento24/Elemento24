@@ -17,6 +17,8 @@
   },
   "homepage": "https://github.com/Elemento24/Elemento24#readme",
   "dependencies": {
-    "isomorphic-unfetch": "^3.1.0"
+    "isomorphic-unfetch": "^3.1.0",
+    "csv-parse": "^5.4.0",
+    "csv-reader": "^1.0.12"
   }
 }
