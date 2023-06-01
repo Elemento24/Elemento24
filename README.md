@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I vividly remember being 14. That was the age when I started to get happy: I started being a writer and stopped being a loser.</b>
-> <p><i>Anthony Horowitz</i></p>
+> <b>Love has no age, no limit and no death.</b>
+> <p><i>John Galsworthy</i></p>
 
 <br>
