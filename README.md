@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let me tell you something - being thought of as a beautiful woman has spared me nothing in life. No heartache, no trouble. Love has been difficult. Beauty is essentially meaningless and it is always transitory.</b>
-> <p><i>Halle Berry</i></p>
+> <b>I'll never forget that show season. It was completely mad. I was staying between Christy and Naomi's rooms and it was all limos and the Ritz Hotel and all that kind of business.</b>
+> <p><i>Kate Moss</i></p>
 
 <br>
