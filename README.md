@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But we cannot rely on memorials and museums alone. We can tell ourselves we will never forget and we likely won't. But we need to make sure that we teach history to those who never had the opportunity to remember in the first place.</b>
-> <p><i>Dan Rather</i></p>
+> <b>The upside to anger? Getting it out of your system. You got to express your anger. Then you have room for more positive things. If I hold something in a long time, and then I speak it, it's amazing how the light shines so much brighter.</b>
+> <p><i>Reba McEntire</i></p>
 
 <br>
