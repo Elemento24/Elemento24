@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The London games mark the 24th anniversary of my winning two golds and setting the world record in the heptathlon. Someone is going to want it records are made to be broken - it's only a matter of time. I hope mine will outlive me.</b>
-> <p><i>Jackie Joyner-Kersee</i></p>
+> <b>At a certain age, death becomes familiar to you-or a loss becomes familiar-the tragedies that are more commonplace in life.</b>
+> <p><i>Jessica Lange</i></p>
 
 <br>
