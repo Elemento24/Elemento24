@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'll never forget that show season. It was completely mad. I was staying between Christy and Naomi's rooms and it was all limos and the Ritz Hotel and all that kind of business.</b>
-> <p><i>Kate Moss</i></p>
+> <b>I vividly remember being 14. That was the age when I started to get happy: I started being a writer and stopped being a loser.</b>
+> <p><i>Anthony Horowitz</i></p>
 
 <br>
