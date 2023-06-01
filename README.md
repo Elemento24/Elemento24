@@ -1,4 +1,4 @@
-![Elemento's GitHub Banner](assets/cover.gif)
+![Elemento's GitHub Banner](https://github.com/Elemento24/Elemento24/assets/58396433/a3c83fda-873b-4c31-ac8f-6f45be92b28b)
 
 <!-- ![Visits](https://visitor-badge.laobi.icu/badge?page_id=elemento24.elemento24) -->
 [![LinkedIn Badge](https://img.shields.io/badge/LinkedIn-informational?style=for-the-badge&logo=linkedin&logoColor=white&color=379172)](https://www.linkedin.com/in/vishesh-mittal-9551a4199/)
@@ -13,7 +13,7 @@
 &nbsp;
 [![Gmail Badge](https://img.shields.io/badge/GMail-informational?style=for-the-badge&logo=gmail&logoColor=white&color=379172)](mailto:mittalvishesh021@gmail.com)
 
-## Hola Guys & Gals <img src="assets/wave.gif" width="24px" alt="Hi">
+## Hola Guys & Gals <img src="https://github.com/Elemento24/Elemento24/assets/58396433/e8c8dba8-e708-42be-b3f1-98a3aca013f6" width="24px" alt="Hi">
 
 I'm Elemento, an **Artificial Intelligence Enthusiast**. I am also a mentor at **DeepLearning.AI**, and I am fond of **Exploring & Learning** new things. Want to connect with <b>Me</b>? Check out my **Profiles** listed above ⏫
 <br>
