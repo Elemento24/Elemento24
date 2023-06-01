@@ -41,11 +41,12 @@ I'm Elemento, an **Artificial Intelligence Enthusiast**. I am also a mentor at *
 - [Linux VS Windows, Your Choice?](https://medium.com/developer-student-clubs-iiit-allahabad/linux-vs-windows-your-choice-76fad3ad6ce6)
 - [Living with Artificial Intelligence | Part 1](https://medium.com/mlearning-ai/living-with-artificial-intelligence-part-1-371182e9935d)
 - [Living with Artificial Intelligence | Part 2](https://medium.com/mlearning-ai/living-with-artificial-intelligence-part-2-4ec1f601780f)
+- [The Story of Modular](https://medium.com/@elemento/the-story-of-modular-2e3ef08fdc7)
 
 <br>
 
-## 📣 Quote of the Hour
-**Please Help Yourself with a Quote before you go. Check back at the top of the hour for a new Quote.**
+## Quote of the Hour 📣
+Please help yourself with a quote before you go. Check back at the top of the hour for a new quote.
 <br>
 <br>
 
