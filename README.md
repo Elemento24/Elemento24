@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to be certain, you should never get married. You should never change jobs. In fact, you might as well just stay home. Because I don't know anybody who is certain. That need to be certain is just procrastination.</b>
-> <p><i>Mark Burnett</i></p>
+> <b>Let me tell you something - being thought of as a beautiful woman has spared me nothing in life. No heartache, no trouble. Love has been difficult. Beauty is essentially meaningless and it is always transitory.</b>
+> <p><i>Halle Berry</i></p>
 
 <br>
