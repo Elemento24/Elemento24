@@ -30,18 +30,22 @@ async function main() {
       row.pop()
       data.push(row)
     })
-    .on("end", function () {
+    .on("end", async function () {
       console.log("No more rows!");
+      let index = Math.floor(Math.random() * data.length)
+      let quote = data[index];
+
+      const readme = readmeTemplate
+        .replace("{office_quote}", quote[0])
+        .replace("{office_character}", quote[1]);
+      await fs.writeFile("README.md", readme);
     });
 
-  let index = Math.floor(Math.random() * data.length)
-  quote = data[index]
+  // const readme = readmeTemplate
+  //   .replace("{office_quote}", quote[0])
+  //   .replace("{office_character}", quote[1])
 
-  const readme = readmeTemplate
-    .replace("{office_quote}", quote[0])
-    .replace("{office_character}", quote[1])
-
-  await fs.writeFile("README.md", readme);
+  // await fs.writeFile("README.md", readme);
 }
 
 main();

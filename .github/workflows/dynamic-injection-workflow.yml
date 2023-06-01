@@ -18,13 +18,13 @@ jobs:
 
       # - run: yarn
       - run: npm install
-
-      - run: node .
+      # - run: node .
 
       - name: Add to git repo
         run: |
           git config pull.rebase false
           git pull
+          node .
           git add .
           git config --global user.name "USERNAME"
           git config --global user.email "EMAIL"
