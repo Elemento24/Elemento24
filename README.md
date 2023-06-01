@@ -43,13 +43,13 @@ I'm Elemento, an **Artificial Intelligence Enthusiast**. I am also a mentor at *
 - [Living with Artificial Intelligence | Part 2](https://medium.com/mlearning-ai/living-with-artificial-intelligence-part-2-4ec1f601780f)
 
 <br>
- 
+
 ## 📣 Quote of the Hour
 **Please Help Yourself with a Quote before you go. Check back at the top of the hour for a new Quote.**
 <br>
 <br>
 
-> <b>Occasionally, I’ll hit somebody with my car. So sue me.</b>
-> <p><i>- Michael Scott</i></p>
+> <b>Art and works of art do not make an artist sense and enthusiasm and instinct do.</b>
+> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
 
 <br>
