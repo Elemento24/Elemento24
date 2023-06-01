@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At a certain age, death becomes familiar to you-or a loss becomes familiar-the tragedies that are more commonplace in life.</b>
-> <p><i>Jessica Lange</i></p>
+> <b>I have no business being a journalist. I'm the least, I'm the least - I'm the most trusting, I absolutely make a habit of believing anything that anybody tells me about themselves. I've never had any reason in the world to think that anyone has wanted to harm me, or lie to me. I believe whatever is being sold, most of the time.</b>
+> <p><i>Elizabeth Gilbert</i></p>
 
 <br>
