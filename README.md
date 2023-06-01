@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I change my mind so much I need two boyfriends and a girlfriend.</b>
-> <p><i>Pink</i></p>
+> <b>If you want to be certain, you should never get married. You should never change jobs. In fact, you might as well just stay home. Because I don't know anybody who is certain. That need to be certain is just procrastination.</b>
+> <p><i>Mark Burnett</i></p>
 
 <br>
