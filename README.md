@@ -45,7 +45,7 @@ I'm Elemento, an **Artificial Intelligence Enthusiast**. I am also a mentor at *
 <br>
  
 ## 📣 Quote of the Hour
-**Please Help Yourself with an Office Quote before you go. Check back at the top of the hour for a new Quote.**
+**Please Help Yourself with a Quote before you go. Check back at the top of the hour for a new Quote.**
 <br>
 <br>
 
