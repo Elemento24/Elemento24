@@ -49,7 +49,7 @@ I'm Elemento, an **Artificial Intelligence Enthusiast**. I am also a mentor at *
 <br>
 <br>
 
-> <b>Art and works of art do not make an artist sense and enthusiasm and instinct do.</b>
-> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
+> <b>But we cannot rely on memorials and museums alone. We can tell ourselves we will never forget and we likely won't. But we need to make sure that we teach history to those who never had the opportunity to remember in the first place.</b>
+> <p><i>Dan Rather</i></p>
 
 <br>
