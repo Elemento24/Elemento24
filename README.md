@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is at least one point in the history of any company when you have to change dramatically to rise to the next level of performance. Miss that moment - and you start to decline.</b>
-> <p><i>Andy Grove</i></p>
+> <b>It's amazing how good getting up and moving makes you feel.</b>
+> <p><i>Paula Deen</i></p>
 
 <br>
