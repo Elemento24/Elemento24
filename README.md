@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You always hear the phrase, money doesn't buy you happiness. But I always in the back of my mind figured a lot of money will buy you a little bit of happiness. But it's not really true. I got a new car because the old one's lease expired.</b>
-> <p><i>Sergey Brin</i></p>
+> <b>Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old.</b>
+> <p><i>Franz Kafka</i></p>
 
 <br>
