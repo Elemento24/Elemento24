@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Energy and environmental regulation, transportation, and broadband policy all benefit when legislators have a basic grounding in the technical concepts behind business models, products, and innovation.</b>
-> <p><i>John Sununu</i></p>
+> <b>Riding a race bike is an art - a thing that you do because you feel something inside.</b>
+> <p><i>Valentino Rossi</i></p>
 
 <br>
