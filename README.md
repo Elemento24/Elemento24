@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love a lot of things, and I'm pretty much obsessive about most things I do, whether it be gardening, or architecture, or music. I'd be an obsessive hairdresser.</b>
-> <p><i>Gates McFadden</i></p>
+> <b>Don't manage - lead change before you have to.</b>
+> <p><i>Jack Welch</i></p>
 
 <br>
