@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Up until age 40, most men are just not as mature as women. So, it makes sense that a lot of women date up in age a bit.</b>
-> <p><i>Patti Stanger</i></p>
+> <b>Few women, I fear, have had such reason as I have to think the long sad years of youth were worth living for the sake of middle age.</b>
+> <p><i>Dwight D. Eisenhower</i></p>
 
 <br>
