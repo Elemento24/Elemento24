@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life's too short when you find yourself sitting in a car for four hours every day trying to get from East L.A. to West L.A. to Hollywood and then back to East L.A.</b>
-> <p><i>Garrett Hedlund</i></p>
+> <b>I'm proof against that word failure. I've seen behind it. The only failure a man ought to fear is failure of cleaving to the purpose he sees to be best.</b>
+> <p><i>George Eliot</i></p>
 
 <br>
