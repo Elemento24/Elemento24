@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Riding a race bike is an art - a thing that you do because you feel something inside.</b>
-> <p><i>Valentino Rossi</i></p>
+> <b>Black Consciousness is an attitude of the mind and a way of life, the most positive call to emanate from the black world for a long time.</b>
+> <p><i>Steven Biko</i></p>
 
 <br>
