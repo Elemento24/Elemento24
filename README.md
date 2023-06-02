@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing that people who think we cannot afford to pay for doctors, hospitals, and medication somehow think that we can afford to pay for doctors, hospitals, medication and a government bureaucracy to administer it.</b>
-> <p><i>Thomas Sowell</i></p>
+> <b>I loved photography and everybody said it was a crazy thing to do because in those days nobody made it into the film business. I mean, unless you were related to somebody there was no way in.</b>
+> <p><i>George Lucas</i></p>
 
 <br>
