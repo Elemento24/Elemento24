@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm proof against that word failure. I've seen behind it. The only failure a man ought to fear is failure of cleaving to the purpose he sees to be best.</b>
-> <p><i>George Eliot</i></p>
+> <b>True art is characterized by an irresistible urge in the creative artist.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
