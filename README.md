@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you first get money, you buy all these things so no one thinks you're mean, and you spread it around. You get a chauffeur and you find yourself thrown around the back of this car and you think, I was happier when I had my own little car! I could drive myself!</b>
-> <p><i>Paul McCartney</i></p>
+> <b>As a girl, you're supposed to love Sleeping Beauty. I mean, who wants to love Sleeping Beauty when you can be Aladdin?</b>
+> <p><i>Ellen Page</i></p>
 
 <br>
