@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is desired in order that it may be befouled not for its own sake, but for the joy brought by the certainty of profaning it.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be.</b>
+> <p><i>Alan Watts</i></p>
 
 <br>
