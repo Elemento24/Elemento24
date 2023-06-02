@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how good getting up and moving makes you feel.</b>
-> <p><i>Paula Deen</i></p>
+> <b>Up until age 40, most men are just not as mature as women. So, it makes sense that a lot of women date up in age a bit.</b>
+> <p><i>Patti Stanger</i></p>
 
 <br>
