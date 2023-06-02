@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having a child makes you strong and gives you chutzpah. It relaxed my attitude to the job my center of focus shifted, which I think is very helpful, because even if you're not a very indulgent actor you spend a lot of time thinking about yourself. I don't think that is particularly healthy.</b>
-> <p><i>Imelda Staunton</i></p>
+> <b>Rashness belongs to youth prudence to old age.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
