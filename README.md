@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a girl, you're supposed to love Sleeping Beauty. I mean, who wants to love Sleeping Beauty when you can be Aladdin?</b>
-> <p><i>Ellen Page</i></p>
+> <b>Life's too short when you find yourself sitting in a car for four hours every day trying to get from East L.A. to West L.A. to Hollywood and then back to East L.A.</b>
+> <p><i>Garrett Hedlund</i></p>
 
 <br>
