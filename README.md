@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think of myself as a poor deprived ghetto girl who made good. I think of myself as somebody who from an early age knew I was responsible for myself, and I had to make good.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>Positive thinking is the key to success in business, education, pro football, anything that you can mention. I go out there thinking that I'm going to complete every pass.</b>
+> <p><i>Ron Jaworski</i></p>
 
 <br>
