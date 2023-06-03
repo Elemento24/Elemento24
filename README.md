@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Future shock is the shattering stress and disorientation that we induce in individuals by subjecting them to too much change in too short a time.</b>
-> <p><i>Alvin Toffler</i></p>
+> <b>I've tried everything other than jumping out of a plane, but nothing gives you an adrenaline rush like racing a car.</b>
+> <p><i>Nigel Mansell</i></p>
 
 <br>
