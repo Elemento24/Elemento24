@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always leaned toward a feminine, funky style, even in business settings. I used to paint my nails blue in 1993, before it was mainstream.</b>
-> <p><i>Sara Blakely</i></p>
+> <b>In any great organization it is far, far safer to be wrong with the majority than to be right alone.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
