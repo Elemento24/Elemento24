@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Surrealism: An archaic term. Formerly an art movement. No longer distinguishable from everyday life.</b>
-> <p><i>Brad Holland</i></p>
+> <b>When love is at its best, one loves so much that he cannot forget.</b>
+> <p><i>Helen Hunt Jackson</i></p>
 
 <br>
