@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Positive thinking is the key to success in business, education, pro football, anything that you can mention. I go out there thinking that I'm going to complete every pass.</b>
-> <p><i>Ron Jaworski</i></p>
+> <b>People can undergo a sudden change of thinking and loyalties under threat of death or intense social pressure and isolation from friends and family.</b>
+> <p><i>Keith Henson</i></p>
 
 <br>
