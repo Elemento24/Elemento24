@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who gave thee a body, furnished it with weakness but He who gave thee Soul, armed thee with resolution. Employ it, and thou art wise be wise and thou art happy.</b>
-> <p><i>Akhenaton</i></p>
+> <b>What if I couldn't handle people's opinions of me? I know that shouldn't dictate a person's degree of peace or happiness in life, but the problem is, I chose a business saturated in judgment.</b>
+> <p><i>Chris Evans</i></p>
 
 <br>
