@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you felt that excitement when you voted for Barack Obama, shouldn't you feel that way now that he's President Obama? You know there's something wrong with the kind of job he's done as president when the best feeling you had was the day you voted for him.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>Those who gave thee a body, furnished it with weakness but He who gave thee Soul, armed thee with resolution. Employ it, and thou art wise be wise and thou art happy.</b>
+> <p><i>Akhenaton</i></p>
 
 <br>
