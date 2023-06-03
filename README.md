@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>True life is lived when tiny changes occur.</b>
-> <p><i>Leo Tolstoy</i></p>
+> <b>Directing is a really kind of amazing thing, because you're helping others and, in the middle of that, you have to worry about yourself.</b>
+> <p><i>Philip Seymour Hoffman</i></p>
 
 <br>
