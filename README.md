@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Directing is a really kind of amazing thing, because you're helping others and, in the middle of that, you have to worry about yourself.</b>
-> <p><i>Philip Seymour Hoffman</i></p>
+> <b>I think the idea that you can go this alone is - was a huge mistake. And unfortunately, there was a price paid in terms of suffering and pain for people in New Orleans.</b>
+> <p><i>Michael Chertoff</i></p>
 
 <br>
