@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In any great organization it is far, far safer to be wrong with the majority than to be right alone.</b>
-> <p><i>John Kenneth Galbraith</i></p>
+> <b>Sometimes I think our problems are made worse by the kind of business we're in. Playing these road shows is a weird experience.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
