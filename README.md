@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A business of high principle generates greater drive and effectiveness because people know that they can do the right thing decisively and with confidence.</b>
-> <p><i>Marvin Bower</i></p>
+> <b>However, democracy cannot be defined as the existence of parliaments and elections alone.</b>
+> <p><i>Recep Tayyip Erdogan</i></p>
 
 <br>
