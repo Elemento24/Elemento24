@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No one is in control of your happiness but you therefore, you have the power to change anything about yourself or your life that you want to change.</b>
-> <p><i>Barbara de Angelis</i></p>
+> <b>I was at this casino minding my own business, and this guy came up to me and said, 'You're gonna have to move, you're blocking a fire exit.' As though if there was a fire, I wasn't gonna run. If you're flammible and have legs, you are never blocking a fire exit.</b>
+> <p><i>Mitch Hedberg</i></p>
 
 <br>
