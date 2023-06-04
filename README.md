@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any work that aspires, however humbly, to the condition of art should carry its justification in every line.</b>
-> <p><i>Joseph Conrad</i></p>
+> <b>The ideal beauty is a fugitive which is never found.</b>
+> <p><i>Joan Rivers</i></p>
 
 <br>
