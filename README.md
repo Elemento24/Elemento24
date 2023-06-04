@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What the mass media offers is not popular art, but entertainment which is intended to be consumed like food, forgotten, and replaced by a new dish.</b>
-> <p><i>W. H. Auden</i></p>
+> <b>Beauty is altogether in the eye of the beholder.</b>
+> <p><i>Lew Wallace</i></p>
 
 <br>
