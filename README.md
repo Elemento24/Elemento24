@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a Japanese proverb that literally goes 'Raise the sail with your stronger hand,' meaning you must go after the opportunities that arise in life that you are best equipped to do.</b>
-> <p><i>Soichiro Honda</i></p>
+> <b>Fear is that thing that keeps you up there on that other plateau. Fear is that thing that just keeps you closed down, and quite frankly, alone.</b>
+> <p><i>Andrew Shue</i></p>
 
 <br>
