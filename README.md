@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After all is said that can be said upon the liquor traffic, its influence is degrading upon the individual, the family, politics and business, and upon everything that you touch in this old world.</b>
-> <p><i>Billy Sunday</i></p>
+> <b>What the mass media offers is not popular art, but entertainment which is intended to be consumed like food, forgotten, and replaced by a new dish.</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
