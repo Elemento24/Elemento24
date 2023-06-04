@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is altogether in the eye of the beholder.</b>
-> <p><i>Lew Wallace</i></p>
+> <b>Middle age is when your old classmates are so grey and wrinkled and bald they don't recognize you.</b>
+> <p><i>Bennett Cerf</i></p>
 
 <br>
