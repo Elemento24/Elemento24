@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, when I was a kid waiting on the bus, I remember that was when I imagined my life. I imagined everything that I was gonna be when I grew up and I imagined all of these amazing journeys and amazing people I'd meet. Of course, all of it has kind of come to fruition.</b>
-> <p><i>Glen Hansard</i></p>
+> <b>A business of high principle generates greater drive and effectiveness because people know that they can do the right thing decisively and with confidence.</b>
+> <p><i>Marvin Bower</i></p>
 
 <br>
