@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>However, democracy cannot be defined as the existence of parliaments and elections alone.</b>
-> <p><i>Recep Tayyip Erdogan</i></p>
+> <b>There is a Japanese proverb that literally goes 'Raise the sail with your stronger hand,' meaning you must go after the opportunities that arise in life that you are best equipped to do.</b>
+> <p><i>Soichiro Honda</i></p>
 
 <br>
