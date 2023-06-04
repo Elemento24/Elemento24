@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Murals in restaurants are on a par with the food in museums.</b>
-> <p><i>Peter De Vries</i></p>
+> <b>After all is said that can be said upon the liquor traffic, its influence is degrading upon the individual, the family, politics and business, and upon everything that you touch in this old world.</b>
+> <p><i>Billy Sunday</i></p>
 
 <br>
