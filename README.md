@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not so much for its beauty that the forest makes a claim upon men's hearts, as for that subtle something, that quality of air that emanation from old trees, that so wonderfully changes and renews a weary spirit.</b>
-> <p><i>Robert Louis Stevenson</i></p>
+> <b>I'm sort of like a lame, single guy in a red sports car.</b>
+> <p><i>Billy Corgan</i></p>
 
 <br>
