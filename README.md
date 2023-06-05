@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no substitute for accurate knowledge. Know yourself, know your business, know your men.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>Every other artist begins with a blank canvas, a piece of paper the photographer begins with the finished product.</b>
+> <p><i>Edward Steichen</i></p>
 
 <br>
