@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are two types of poor people, those who are poor together and those who are poor alone. The first are the true poor, the others are rich people out of luck.</b>
-> <p><i>Jean-Paul Sartre</i></p>
+> <b>In the age of the individual's liquidation, the question of individuality must be raised anew.</b>
+> <p><i>Theodor Adorno</i></p>
 
 <br>
