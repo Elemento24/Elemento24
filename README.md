@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I shall not change my course because those who assume to be better than I desire it.</b>
-> <p><i>Victoria Woodhull</i></p>
+> <b>Personality is more important than beauty, but imagination is more important than both of them.</b>
+> <p><i>Laurette Taylor</i></p>
 
 <br>
