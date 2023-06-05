@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man who has never gone to school may steal from a freight car but if he has a university education, he may steal the whole railroad.</b>
-> <p><i>Theodore Roosevelt</i></p>
+> <b>The rewards of virtue alone abide secure.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
