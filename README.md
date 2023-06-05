@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're an entrepreneur and you think that the president makes a difference to your business, you should stay at your current job.</b>
-> <p><i>Guy Kawasaki</i></p>
+> <b>You know, it's amazing. I don't even have a car, would you believe it? I had a motorbike and it got stolen last year. So I've got to buy another one of those, I suppose. I can treat myself to that.</b>
+> <p><i>Michael Fassbender</i></p>
 
 <br>
