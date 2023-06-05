@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We say we want to create beauty, identity, quality, singularity. And yet, maybe in truth these cities that we have are desired. Maybe their very characterlessness provides the best context for living.</b>
-> <p><i>Rem Koolhaas</i></p>
+> <b>Religion is essentially the art and the theory of the remaking of man. Man is not a finished creation.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
