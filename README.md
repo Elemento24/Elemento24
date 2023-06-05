@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Personality is more important than beauty, but imagination is more important than both of them.</b>
-> <p><i>Laurette Taylor</i></p>
+> <b>Murals in restaurants are on a par with the food in museums.</b>
+> <p><i>Peter De Vries</i></p>
 
 <br>
