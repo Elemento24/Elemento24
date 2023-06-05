@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No, but way before that, I've been doing little dances in movies for years. Yeah, that was an amazing chance. You know, at my age to be able to do a music dance video, very unusual.</b>
-> <p><i>Christopher Walken</i></p>
+> <b>Many believe - and I believe - that I have been designated for this work by God. In spite of my old age, I do not want to give it up I work out of love for God and I put all my hope in Him.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
