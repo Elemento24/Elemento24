@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The primary distinction of the artist is that he must actively cultivate that state which most men, necessarily, must avoid the state of being alone.</b>
-> <p><i>James Baldwin</i></p>
+> <b>As the age of television progresses the Reagans will be the rule, not the exception. To be perfect for television is all a President has to be these days.</b>
+> <p><i>Gore Vidal</i></p>
 
 <br>
