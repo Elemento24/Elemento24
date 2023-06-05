@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every other artist begins with a blank canvas, a piece of paper the photographer begins with the finished product.</b>
-> <p><i>Edward Steichen</i></p>
+> <b>A man who has never gone to school may steal from a freight car but if he has a university education, he may steal the whole railroad.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
