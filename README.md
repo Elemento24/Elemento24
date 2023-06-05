@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As the age of television progresses the Reagans will be the rule, not the exception. To be perfect for television is all a President has to be these days.</b>
-> <p><i>Gore Vidal</i></p>
+> <b>There are two types of poor people, those who are poor together and those who are poor alone. The first are the true poor, the others are rich people out of luck.</b>
+> <p><i>Jean-Paul Sartre</i></p>
 
 <br>
