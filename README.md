@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the age of the individual's liquidation, the question of individuality must be raised anew.</b>
-> <p><i>Theodor Adorno</i></p>
+> <b>Though there might not be any easy answers to the problem of poverty, its most compelling scribes do not resign themselves to representation solely for the sake of those age-old verities of truth and beauty.</b>
+> <p><i>Leslie Jamison</i></p>
 
 <br>
