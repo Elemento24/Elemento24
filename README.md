@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To talk about a relationship trivializes something that's nobody's business.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>Can you imagine a guy breaking into your car, and he steals your guitar case 'cause he thinks it's a guitar, and he gets it home and opens it up and there's a rake inside it, an electric toilet plunger and a dog skull? That actually happened.</b>
+> <p><i>Eugene Chadbourne</i></p>
 
 <br>
