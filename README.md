@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing we do, however virtuous, can be accomplished alone therefore we are saved by love.</b>
-> <p><i>Reinhold Niebuhr</i></p>
+> <b>Right actions in the future are the best apologies for bad actions in the past.</b>
+> <p><i>Tryon Edwards</i></p>
 
 <br>
