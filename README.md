@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's your mental attitude. So many of us start dreading age in high school and that's a waste of a lovely life. 'Oh... I'm 30, oh, I'm 40, oh, 50.' Make the most of it.</b>
-> <p><i>Betty White</i></p>
+> <b>In the 1970s and 1980s there was so little decent fiction for young people, but we're now in a golden age that shows no sign of fading. Philip Pullman, J. K. Rowling, Lemony Snicket are only three of the best known among a good number of equals.</b>
+> <p><i>David Mitchell</i></p>
 
 <br>
