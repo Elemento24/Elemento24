@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The lover knows much more about absolute good and universal beauty than any logician or theologian, unless the latter, too, be lovers in disguise.</b>
-> <p><i>George Santayana</i></p>
+> <b>If there's one thing I really want for my birthday, that is for the mining company not to mine my daddy's reserve.</b>
+> <p><i>Bindi Irwin</i></p>
 
 <br>
