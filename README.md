@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With age, you get to a place where you don't want to knock people out. You just want to give people a hug.</b>
-> <p><i>Vin Diesel</i></p>
+> <b>I'm very much into the costuming of any character that I portray and it's one of the great things about making movies is it's a collaborative art form so you get all these artists who are looking specifically about for this instance your character's costume and what that might tell about your character.</b>
+> <p><i>Jeff Bridges</i></p>
 
 <br>
