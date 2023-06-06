@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a little silly to finally learn how to write at this age. But I long ago realized I was secretly sincere.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>Our best successes often come after our greatest disappointments.</b>
+> <p><i>Henry Ward Beecher</i></p>
 
 <br>
