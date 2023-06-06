@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But after the time there I'd had it with fashion again, so I left to go to architecture school in a summer course at Harvard, which didn't last very long.</b>
-> <p><i>Stephen Sprouse</i></p>
+> <b>I'm not really in the excuse business.</b>
+> <p><i>Bill Parcells</i></p>
 
 <br>
