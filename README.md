@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yoga's an amazing release.</b>
-> <p><i>Monica Keena</i></p>
+> <b>The lover knows much more about absolute good and universal beauty than any logician or theologian, unless the latter, too, be lovers in disguise.</b>
+> <p><i>George Santayana</i></p>
 
 <br>
