@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is parasitic on life, just as criticism is parasitic on art.</b>
-> <p><i>Harry S. Truman</i></p>
+> <b>I believe that no man who holds a leader's position should ever accept favors from either side. He is then committed to show favors. A leader must stand alone.</b>
+> <p><i>Mother Jones</i></p>
 
 <br>
