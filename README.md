@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was 100 feet of 16 mm black-and-white film of a car coming to a stop sign, and driving off. I had to decide how to frame and light it. It was magic. There was a sense of mystery.</b>
-> <p><i>Conrad Hall</i></p>
+> <b>Despite what anti-aging ads say, growing older can be better. I feel better in my skin, 100 percent. You have greater effects of gravity, but the better sense of yourself you have is something I wouldn't trade. Women who lie about their age - 'why?'</b>
+> <p><i>Demi Moore</i></p>
 
 <br>
