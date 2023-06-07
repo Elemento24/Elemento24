@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The aim of art is to represent not the outward appearance of things, but their inward significance.</b>
-> <p><i>Aristotle</i></p>
+> <b>Art is not a handicraft, it is the transmission of feeling the artist has experienced.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
