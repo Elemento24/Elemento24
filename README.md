@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have experienced some amazing food! Yet when I think about the most luxurious and exquisite meals I have had, visions of simple food made from a few natural ingredients are what most excite me.</b>
-> <p><i>Mark Hyman</i></p>
+> <b>(On seeing a former lover for the first time in years) I thought I told you to wait in the car.</b>
+> <p><i>Tallulah Bankhead</i></p>
 
 <br>
