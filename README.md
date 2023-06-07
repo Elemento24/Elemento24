@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age, calm, expanded, broad with the haughty breadth of the universe, old age flowing free with the delicious near-by freedom of death.</b>
-> <p><i>Edith Wharton</i></p>
+> <b>Egotism: The art of seeing in yourself what others cannot see.</b>
+> <p><i>George V. Higgins</i></p>
 
 <br>
