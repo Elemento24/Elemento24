@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the late '70s, maybe just before I started, there was still an attitude that if you did film you didn't do TV and vice versa, but that's gone now.</b>
-> <p><i>Robert Carlyle</i></p>
+> <b>American youth attributes much more importance to arriving at driver's license age than at voting age.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
