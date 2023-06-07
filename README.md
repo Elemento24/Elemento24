@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to wake up and not truly be enjoying my life and these amazing things around me.</b>
-> <p><i>LeAnn Rimes</i></p>
+> <b>Trust him not with your secrets, who, when left alone in your room, turns over your papers.</b>
+> <p><i>Johann Kaspar Lavater</i></p>
 
 <br>
