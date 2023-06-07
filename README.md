@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shakespeare is all big themes, like the most amazing love, or the most scary war.</b>
-> <p><i>Anna Torv</i></p>
+> <b>The aim of art is to represent not the outward appearance of things, but their inward significance.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
