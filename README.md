@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not someone who likes to have my picture taken, let alone see it plastered all over the place.</b>
-> <p><i>Laura Linney</i></p>
+> <b>Old age, calm, expanded, broad with the haughty breadth of the universe, old age flowing free with the delicious near-by freedom of death.</b>
+> <p><i>Edith Wharton</i></p>
 
 <br>
