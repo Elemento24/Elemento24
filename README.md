@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The words of the Bible, and the Bible alone, should be heard from the pulpit.</b>
-> <p><i>Ellen G. White</i></p>
+> <b>I'm not someone who likes to have my picture taken, let alone see it plastered all over the place.</b>
+> <p><i>Laura Linney</i></p>
 
 <br>
