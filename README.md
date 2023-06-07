@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Falling in love is the best way to kill your heart because then it's not yours anymore. It's laid in a coffin, waiting to be cremated.</b>
-> <p><i>Ville Valo</i></p>
+> <b>I have experienced some amazing food! Yet when I think about the most luxurious and exquisite meals I have had, visions of simple food made from a few natural ingredients are what most excite me.</b>
+> <p><i>Mark Hyman</i></p>
 
 <br>
