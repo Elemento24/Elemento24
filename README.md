@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>American youth attributes much more importance to arriving at driver's license age than at voting age.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>Fatigue is the best pillow.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
