@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything will change. The only question is growing up or decaying.</b>
-> <p><i>Nikki Giovanni</i></p>
+> <b>There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second.</b>
+> <p><i>Jeff Bezos</i></p>
 
 <br>
