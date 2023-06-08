@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The law does not pretend to punish everything that is dishonest. That would seriously interfere with business.</b>
-> <p><i>Clarence Darrow</i></p>
+> <b>What makes photography a strange invention is that its primary raw materials are light and time.</b>
+> <p><i>John Berger</i></p>
 
 <br>
