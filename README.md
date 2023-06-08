@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The task of art today is to bring chaos into order.</b>
-> <p><i>Theodor Adorno</i></p>
+> <b>The artist must create a spark before he can make a fire and before art is born, the artist must be ready to be consumed by the fire of his own creation.</b>
+> <p><i>Auguste Rodin</i></p>
 
 <br>
