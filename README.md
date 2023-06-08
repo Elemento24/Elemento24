@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In such ugly times, the only true protest is beauty.</b>
-> <p><i>Phil Ochs</i></p>
+> <b>How much more grievous are the consequences of anger than the causes of it.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
