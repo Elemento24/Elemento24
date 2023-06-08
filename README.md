@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will never be an old man. To me, old age is always 15 years older than I am.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>I will stay in the car until the last minute that I'm going to jump out and do a standup or jump out and do some interviews.</b>
+> <p><i>Martha Raddatz</i></p>
 
 <br>
