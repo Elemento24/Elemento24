@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second.</b>
-> <p><i>Jeff Bezos</i></p>
+> <b>That we find a crystal or a poppy beautiful means that we are less alone, that we are more deeply inserted into existence than the course of a single life would lead us to believe.</b>
+> <p><i>John Berger</i></p>
 
 <br>
