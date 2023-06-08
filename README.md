@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He's this amazing ambassador for all superheroes. What we've made as a film not only examines that but is also an amazing adventure story. It's been an honor to work on. As a comic book fan, Superman is like the Rosetta Stone of all superheroes.</b>
-> <p><i>Zack Snyder</i></p>
+> <b>When people align around shared political, social, economic or environmental values, and take collective action, thinking and behavior that compromises the lives of millions of people around the world can truly change.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
