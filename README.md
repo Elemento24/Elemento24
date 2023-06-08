@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That we find a crystal or a poppy beautiful means that we are less alone, that we are more deeply inserted into existence than the course of a single life would lead us to believe.</b>
-> <p><i>John Berger</i></p>
+> <b>Disney has the best casting. If he doesn't like an actor he just tears him up.</b>
+> <p><i>Alfred Hitchcock</i></p>
 
 <br>
