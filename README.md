@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time extracts various values from a painter's work. When these values are exhausted the pictures are forgotten, and the more a picture has to give, the greater it is.</b>
-> <p><i>Henri Matisse</i></p>
+> <b>Everything will change. The only question is growing up or decaying.</b>
+> <p><i>Nikki Giovanni</i></p>
 
 <br>
