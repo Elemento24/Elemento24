@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know a lot about cars, man. I can look at any car's headlights and tell you exactly which way it's coming.</b>
-> <p><i>Mitch Hedberg</i></p>
+> <b>He's this amazing ambassador for all superheroes. What we've made as a film not only examines that but is also an amazing adventure story. It's been an honor to work on. As a comic book fan, Superman is like the Rosetta Stone of all superheroes.</b>
+> <p><i>Zack Snyder</i></p>
 
 <br>
