@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Disney has the best casting. If he doesn't like an actor he just tears him up.</b>
-> <p><i>Alfred Hitchcock</i></p>
+> <b>Rumors sound of galleries asking artists for upsized art and more of it. I've heard of photographers asked to print larger to increase the wall power and salability of their work. Everything winds up set to maximum in order to feed the beast.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
