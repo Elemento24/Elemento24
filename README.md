@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rumors sound of galleries asking artists for upsized art and more of it. I've heard of photographers asked to print larger to increase the wall power and salability of their work. Everything winds up set to maximum in order to feed the beast.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>The information encoded in your DNA determines your unique biological characteristics, such as sex, eye color, age and Social Security number.</b>
+> <p><i>Dave Barry</i></p>
 
 <br>
