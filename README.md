@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart.</b>
-> <p><i>Helen Keller</i></p>
+> <b>And Seaman, just like a falling oak, manages to change direction.</b>
+> <p><i>John Motson</i></p>
 
 <br>
