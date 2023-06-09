@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not possible to overstate the influence of Paul Cezanne on twentieth-century art. He's the modern Giotto, someone who shattered one kind of picture-making and invented a new one that the world followed.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>In life, as in art, the beautiful moves in curves.</b>
+> <p><i>Edward G. Bulwer-Lytton</i></p>
 
 <br>
