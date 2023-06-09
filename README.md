@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Kids are brought into show business because they are cute and see truth and they're very bright. But there's a sense of doing it because you want the adults to be approving of you. You want to make them happy.</b>
-> <p><i>Anna Chlumsky</i></p>
+> <b>Because sorry to say, women run the house. They run the family. They hold things up. I mean, it's like you don't ever see your mom get sick because she handles everything. And it's kind of amazing I think to show people just how strong women are.</b>
+> <p><i>Sophia Bush</i></p>
 
 <br>
