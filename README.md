@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Experience is the best teacher of all. And for that, there are no guarantees that one will become an artist. Only the journey matters.</b>
-> <p><i>Harry Callahan</i></p>
+> <b>What would be a show that I would rescue? If I could bring anything back, it would be 'The Carol Burnett Show'. Tim Conway is just... I just watched him so many times do stuff over and over. He's just so amazing.</b>
+> <p><i>Tony Hale</i></p>
 
 <br>
