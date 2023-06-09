@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Emmanuel Lewis was amazing to work with. I'll love that guy to the end of time.</b>
-> <p><i>Corin Nemec</i></p>
+> <b>It is not possible to overstate the influence of Paul Cezanne on twentieth-century art. He's the modern Giotto, someone who shattered one kind of picture-making and invented a new one that the world followed.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
