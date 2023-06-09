@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In life, as in art, the beautiful moves in curves.</b>
-> <p><i>Edward G. Bulwer-Lytton</i></p>
+> <b>The cottage garden most for use designed, Yet not of beauty destitute.</b>
+> <p><i>Charlotte Smith</i></p>
 
 <br>
