@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Modernity is the transitory, the fugitive, the contingent, which make up one half of art, the other being the eternal and the immutable. This transitory fugitive element, which is constantly changing, must not be despised or neglected.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>Experience is the best teacher of all. And for that, there are no guarantees that one will become an artist. Only the journey matters.</b>
+> <p><i>Harry Callahan</i></p>
 
 <br>
