@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even God cannot change the past.</b>
-> <p><i>Agathon</i></p>
+> <b>Our business is infested with idiots who try to impress by using pretentious jargon.</b>
+> <p><i>David Ogilvy</i></p>
 
 <br>
