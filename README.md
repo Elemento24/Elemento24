@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And Seaman, just like a falling oak, manages to change direction.</b>
-> <p><i>John Motson</i></p>
+> <b>Even God cannot change the past.</b>
+> <p><i>Agathon</i></p>
 
 <br>
