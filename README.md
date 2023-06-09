@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The information encoded in your DNA determines your unique biological characteristics, such as sex, eye color, age and Social Security number.</b>
-> <p><i>Dave Barry</i></p>
+> <b>Anyone can write a story based on the kind of horror where you see a guy in car and then there's the bad guy in the back seat. It's infantile to rely on that for telling a story. That's like going to bed and thinking there's a monster under your bed. It's silly.</b>
+> <p><i>Sergio Aragones</i></p>
 
 <br>
