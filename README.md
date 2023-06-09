@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The artist must create a spark before he can make a fire and before art is born, the artist must be ready to be consumed by the fire of his own creation.</b>
-> <p><i>Auguste Rodin</i></p>
+> <b>Kids are brought into show business because they are cute and see truth and they're very bright. But there's a sense of doing it because you want the adults to be approving of you. You want to make them happy.</b>
+> <p><i>Anna Chlumsky</i></p>
 
 <br>
