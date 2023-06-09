@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The cottage garden most for use designed, Yet not of beauty destitute.</b>
-> <p><i>Charlotte Smith</i></p>
+> <b>Modernity is the transitory, the fugitive, the contingent, which make up one half of art, the other being the eternal and the immutable. This transitory fugitive element, which is constantly changing, must not be despised or neglected.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
