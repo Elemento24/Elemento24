@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our business is infested with idiots who try to impress by using pretentious jargon.</b>
-> <p><i>David Ogilvy</i></p>
+> <b>I'm 40 and I just got my first beauty campaign with Clairol Nice and Easy.</b>
+> <p><i>Teri Hatcher</i></p>
 
 <br>
