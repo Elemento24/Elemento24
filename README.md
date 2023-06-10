@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art in Nature is rhythmic and has a horror of constraint.</b>
-> <p><i>Robert Delaunay</i></p>
+> <b>Washington is still very much a male-oriented culture. Being from Los Angeles, I think it is less so there - there is less attachment to tradition, perhaps, there is more flexibility, more acceptance of change generally. That is partly because of Hollywood.</b>
+> <p><i>Dee Dee Myers</i></p>
 
 <br>
