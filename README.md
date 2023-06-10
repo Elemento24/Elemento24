@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well... I had braces and I had to wear headgear! I loved my braces, actually. For me, they were like a piece of jewelry! Instead of the silver or pewter I had gold braces. It was so much fun, I loved them. I got to change the colors and stuff and I had the rubber bands.</b>
-> <p><i>Jordin Sparks</i></p>
+> <b>The work of the individual still remains the spark that moves mankind ahead even more than teamwork.</b>
+> <p><i>Igor Sikorsky</i></p>
 
 <br>
