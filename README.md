@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Choose your companions from the best Who draws a bucket with the rest soon topples down the hill.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>Just do what you do best.</b>
+> <p><i>Red Auerbach</i></p>
 
 <br>
