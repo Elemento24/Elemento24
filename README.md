@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Loneliness is my least favorite thing about life. The thing that I'm most worried about is just being alone without anybody to care for or someone who will care for me.</b>
-> <p><i>Anne Hathaway</i></p>
+> <b>Not to expose your true feelings to an adult seems to be instinctive from the age of seven or eight onwards.</b>
+> <p><i>George Orwell</i></p>
 
 <br>
