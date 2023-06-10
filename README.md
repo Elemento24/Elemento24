@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every performance is different. That's the beauty of it.</b>
-> <p><i>Van Morrison</i></p>
+> <b>Nobody in life gets exactly what they thought they were going to get. But if you work really hard and you're kind, amazing things will happen.</b>
+> <p><i>Conan O'Brien</i></p>
 
 <br>
