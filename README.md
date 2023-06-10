@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Among the best traitors Ireland has ever had, Mother Church ranks at the very top, a massive obstacle in the path to equality and freedom. She has been a force for conservatism... to ward off threats to her own security and influence.</b>
-> <p><i>Bernadette Devlin</i></p>
+> <b>To catch a husband is an art to hold him is a job.</b>
+> <p><i>Simone de Beauvoir</i></p>
 
 <br>
