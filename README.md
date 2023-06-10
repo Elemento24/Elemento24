@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If one does not know to which port one is sailing, no wind is favorable.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>They say it's good but I didn't know what I was doing until I got into the suit and they put the moustache on me, and somehow, when I got all the drag on, it came out. It was the most amazing thing. I'm truly extraordinary.</b>
+> <p><i>Harvey Korman</i></p>
 
 <br>
