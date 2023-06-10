@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In life, as in art, the beautiful moves in curves.</b>
-> <p><i>Edward G. Bulwer-Lytton</i></p>
+> <b>Well... I had braces and I had to wear headgear! I loved my braces, actually. For me, they were like a piece of jewelry! Instead of the silver or pewter I had gold braces. It was so much fun, I loved them. I got to change the colors and stuff and I had the rubber bands.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
