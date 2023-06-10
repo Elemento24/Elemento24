@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The closest thing I use to beauty products is the grease on the pizza from John's Pizzeria.</b>
-> <p><i>Mark Feuerstein</i></p>
+> <b>It's easy to get wrapped up in sharing everyday life with a partner. It's fun to get lost in love and romance. It's the best. But holding on to yourself while doing that is the most important thing.</b>
+> <p><i>Brittany Murphy</i></p>
 
 <br>
