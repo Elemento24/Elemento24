@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men don't even ask me out. I can't remember the last time I was asked out on a date, and I'm talking years here. I spend my life more and more alone.</b>
-> <p><i>Anna Nicole Smith</i></p>
+> <b>Art in Nature is rhythmic and has a horror of constraint.</b>
+> <p><i>Robert Delaunay</i></p>
 
 <br>
