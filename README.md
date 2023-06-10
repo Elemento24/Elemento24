@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Football is an art, like dancing is an art - but only when it's well done does it become an art.</b>
-> <p><i>Arsene Wenger</i></p>
+> <b>In life, as in art, the beautiful moves in curves.</b>
+> <p><i>Edward G. Bulwer-Lytton</i></p>
 
 <br>
