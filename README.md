@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, there are some amazing storytelling being done on the small screen right now. That's what so cool about being in television right now. Studios, networks are starting to throw more resources, better writers, more production values... and to be part of that is awesome.</b>
-> <p><i>Ian Somerhalder</i></p>
+> <b>Irresponsibility is part of the pleasure of all art it is the part the schools cannot recognize.</b>
+> <p><i>James Joyce</i></p>
 
 <br>
