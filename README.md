@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are two ways to extend a business. Take inventory of what you're good at and extend out from your skills. Or determine what your customers need and work backward, even if it requires learning new skills. Kindle is an example of working backward.</b>
-> <p><i>Jeff Bezos</i></p>
+> <b>I went onto reality TV as a business decision.</b>
+> <p><i>Bethenny Frankel</i></p>
 
 <br>
