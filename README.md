@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All of Koons's best art - the encased vacuum cleaners, the stainless-steel Rabbit (the late-twentieth century's signature work of Simulationist sculpture), the amazing gleaming Balloon Dog, and the cast-iron re-creation of a Civil War mortar exhibited last month at the Armory - has simultaneously flaunted extreme realism, idealism, and fantasy.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I love clothes, but I don't know what to put on myself, let alone others. I have a lot of help getting dressed.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
