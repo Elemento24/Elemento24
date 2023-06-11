@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Democracy is the art and science of running the circus from the monkey cage.</b>
-> <p><i>H. L. Mencken</i></p>
+> <b>And Shanghai is amazing. I'm a fan of science fiction so when you're there in the night with all the lights and all this modernity, it's like a set in a movie.</b>
+> <p><i>Berenice Marlohe</i></p>
 
 <br>
