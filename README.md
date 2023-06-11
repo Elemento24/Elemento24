@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This great, though disastrous, culture can only change as we begin to stand off and see... the inveterate materialism which has become the model for cultures around the world.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>My overcoat is worn out my shirts also are worn out. And I ask to be allowed to have a lamp in the evening it is indeed wearisome sitting alone in the dark.</b>
+> <p><i>William Tyndale</i></p>
 
 <br>
