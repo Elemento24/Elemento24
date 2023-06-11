@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, certainly writing, painting, photography, dance, architecture, there is an aspect of almost every art form that is useful and that merges into film in some way.</b>
-> <p><i>Sydney Pollack</i></p>
+> <b>When things happen - you ask yourself why today, why not tomorrow, why not yesterday? That's the most amazing thing about time.</b>
+> <p><i>Ozwald Boateng</i></p>
 
 <br>
