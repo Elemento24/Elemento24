@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Irresponsibility is part of the pleasure of all art it is the part the schools cannot recognize.</b>
-> <p><i>James Joyce</i></p>
+> <b>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</b>
+> <p><i>Michael Jordan</i></p>
 
 <br>
