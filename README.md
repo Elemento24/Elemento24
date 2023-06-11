@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Celibacy is not just a matter of not having sex. It is a way of admiring a person for their humanity, maybe even for their beauty.</b>
-> <p><i>Timothy Radcliffe</i></p>
+> <b>All of Koons's best art - the encased vacuum cleaners, the stainless-steel Rabbit (the late-twentieth century's signature work of Simulationist sculpture), the amazing gleaming Balloon Dog, and the cast-iron re-creation of a Civil War mortar exhibited last month at the Armory - has simultaneously flaunted extreme realism, idealism, and fantasy.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
