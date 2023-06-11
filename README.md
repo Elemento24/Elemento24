@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no art to find the mind's construction in the face.</b>
-> <p><i>William Shakespeare</i></p>
+> <b>Democracy is the art and science of running the circus from the monkey cage.</b>
+> <p><i>H. L. Mencken</i></p>
 
 <br>
