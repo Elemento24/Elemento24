@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>There has been a change in attitude, though.</b>
+> <p><i>Daniel Petrie</i></p>
 
 <br>
