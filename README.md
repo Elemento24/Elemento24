@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And Shanghai is amazing. I'm a fan of science fiction so when you're there in the night with all the lights and all this modernity, it's like a set in a movie.</b>
-> <p><i>Berenice Marlohe</i></p>
+> <b>Design is not making beauty, beauty emerges from selection, affinities, integration, love.</b>
+> <p><i>Louis Kahn</i></p>
 
 <br>
