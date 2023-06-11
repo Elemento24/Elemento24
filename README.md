@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My overcoat is worn out my shirts also are worn out. And I ask to be allowed to have a lamp in the evening it is indeed wearisome sitting alone in the dark.</b>
-> <p><i>William Tyndale</i></p>
+> <b>So during those first moments of the day, which are yours and yours alone, you can circumvent these boundaries and concentrate fully on spiritual matters. And this gives you the opportunity to plan the time management of the entire day.</b>
+> <p><i>Menachem Mendel Schneerson</i></p>
 
 <br>
