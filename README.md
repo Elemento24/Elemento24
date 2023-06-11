@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went onto reality TV as a business decision.</b>
-> <p><i>Bethenny Frankel</i></p>
+> <b>This great, though disastrous, culture can only change as we begin to stand off and see... the inveterate materialism which has become the model for cultures around the world.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
