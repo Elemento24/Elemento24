@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When things happen - you ask yourself why today, why not tomorrow, why not yesterday? That's the most amazing thing about time.</b>
-> <p><i>Ozwald Boateng</i></p>
+> <b>I mean, I think we're put here on earth to make your own destiny, to begin with. I don't think there's anything you can do this way or that way to change anything.</b>
+> <p><i>Waylon Jennings</i></p>
 
 <br>
