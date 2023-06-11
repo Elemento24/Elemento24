@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love clothes, but I don't know what to put on myself, let alone others. I have a lot of help getting dressed.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>I'm from Naples. I was born in a poor neighborhood and I always, in my heart, felt like it would be amazing to be able to adopt a child from Naples. I could give someone the opportunity I had. I would love to give back in that way and pay it forward.</b>
+> <p><i>Giuliana Rancic</i></p>
 
 <br>
