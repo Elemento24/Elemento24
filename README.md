@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Design is not making beauty, beauty emerges from selection, affinities, integration, love.</b>
-> <p><i>Louis Kahn</i></p>
+> <b>I mean, certainly writing, painting, photography, dance, architecture, there is an aspect of almost every art form that is useful and that merges into film in some way.</b>
+> <p><i>Sydney Pollack</i></p>
 
 <br>
