@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So during those first moments of the day, which are yours and yours alone, you can circumvent these boundaries and concentrate fully on spiritual matters. And this gives you the opportunity to plan the time management of the entire day.</b>
-> <p><i>Menachem Mendel Schneerson</i></p>
+> <b>There's no art to find the mind's construction in the face.</b>
+> <p><i>William Shakespeare</i></p>
 
 <br>
