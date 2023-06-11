@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm from Naples. I was born in a poor neighborhood and I always, in my heart, felt like it would be amazing to be able to adopt a child from Naples. I could give someone the opportunity I had. I would love to give back in that way and pay it forward.</b>
-> <p><i>Giuliana Rancic</i></p>
+> <b>Come to West Virginia and we'll show you how to live... how to treat people. We're open for business. West Virginia is truly on the move.</b>
+> <p><i>Joe Manchin</i></p>
 
 <br>
