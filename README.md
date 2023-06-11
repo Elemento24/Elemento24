@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is now defined by your bones sticking out of your decolletage. For that to be the standard is really perilous for women.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>There is no end of craving. Hence contentment alone is the best way to happiness. Therefore, acquire contentment.</b>
+> <p><i>Sivananda</i></p>
 
 <br>
