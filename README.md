@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There has been a change in attitude, though.</b>
-> <p><i>Daniel Petrie</i></p>
+> <b>Love is the attempt to form a friendship inspired by beauty.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
