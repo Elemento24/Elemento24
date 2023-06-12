@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>Anger is a great force. If you control it, it can be transmuted into a power which can move the whole world.</b>
+> <p><i>William Shenstone</i></p>
 
 <br>
