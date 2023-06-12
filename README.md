@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty, sweet love, is like the morning dew, Whose short refresh upon tender green, Cheers for a time, but till the sun doth show And straight is gone, as it had never been.</b>
-> <p><i>Samuel Daniel</i></p>
+> <b>Beauty is everywhere a welcome guest.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
