@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't see it then, but it turned out that getting fired from Apple was the best thing that could have ever happened to me. The heaviness of being successful was replaced by the lightness of being a beginner again, less sure about everything. It freed me to enter one of the most creative periods of my life.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>Literature is the art of discovering something extraordinary about ordinary people, and saying with ordinary words something extraordinary.</b>
+> <p><i>Boris Pasternak</i></p>
 
 <br>
