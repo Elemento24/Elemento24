@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've traveled all over the country for years speaking in churches, teaching the Ten Commandments. It's amazing if 2 percent of any congregation knows the Ten Commandments.</b>
-> <p><i>Randall Terry</i></p>
+> <b>I owe my success to having listened respectfully to the very best advice, and then going away and doing the exact opposite.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
