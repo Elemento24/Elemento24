@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>IQ is a commodity, data is a commodity. I'm far more interested in watching people interact at a restaurant with their smartphone. We can all read 'Tech Crunch,' 'Ad Age.' I would rather be living in the trenches. I would rather be going to Whole Foods in Columbus Circle to watch people shop with their smartphones.</b>
-> <p><i>Gary Vaynerchuk</i></p>
+> <b>The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.</b>
+> <p><i>Paul Getty</i></p>
 
 <br>
