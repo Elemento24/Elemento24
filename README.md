@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't really think that there is anyone in the modern pop business who I feel I want to spar with.</b>
-> <p><i>George Michael</i></p>
+> <b>I've traveled all over the country for years speaking in churches, teaching the Ten Commandments. It's amazing if 2 percent of any congregation knows the Ten Commandments.</b>
+> <p><i>Randall Terry</i></p>
 
 <br>
