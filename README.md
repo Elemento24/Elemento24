@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is everything.</b>
-> <p><i>Jorja Fox</i></p>
+> <b>Music, art, theater. I'm just a big fan of beauty.</b>
+> <p><i>Jerry Hall</i></p>
 
 <br>
