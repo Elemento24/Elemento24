@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But what we can do, as flawed as we are, is still see God in other people, and do our best to help them find their own grace. That's what I strive to do, that's what I pray to do every day.</b>
-> <p><i>Barack Obama</i></p>
+> <b>We are at our very best, and we are happiest, when we are fully engaged in work we enjoy on the journey toward the goal we've established for ourselves. It gives meaning to our time off and comfort to our sleep. It makes everything else in life so wonderful, so worthwhile.</b>
+> <p><i>Earl Nightingale</i></p>
 
 <br>
