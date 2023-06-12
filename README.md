@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are at our very best, and we are happiest, when we are fully engaged in work we enjoy on the journey toward the goal we've established for ourselves. It gives meaning to our time off and comfort to our sleep. It makes everything else in life so wonderful, so worthwhile.</b>
-> <p><i>Earl Nightingale</i></p>
+> <b>I think sometimes all you need is to hear someone else say the same thing that you're going through to realize that you're not alone. I try to put some sense of hope into the songs, into whatever the situation is so that it's not just dirt, drudgery and a life of misery.</b>
+> <p><i>Sarah McLachlan</i></p>
 
 <br>
