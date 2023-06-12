@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The percentage you're paying is too high priced While you're living beyond all your means And the man in the suit has just bought a new car From the profit he's made on your dreams.</b>
-> <p><i>Steve Winwood</i></p>
+> <b>I think any opportunity you have to be green, whether it's in business or in everyday life, you should take it.</b>
+> <p><i>Lauren Conrad</i></p>
 
 <br>
