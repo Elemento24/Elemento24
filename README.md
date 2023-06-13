@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty can make you powerful in a way that isn't good for you. Being OK is better for the person I have become.</b>
-> <p><i>Felicity Huffman</i></p>
+> <b>Originality is the fine art of remembering what you hear but forgetting where you heard it.</b>
+> <p><i>Laurence J. Peter</i></p>
 
 <br>
