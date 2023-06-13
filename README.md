@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would love to work with Anthony Hopkins I would love to work with Meryl Streep I would love to work with DeNiro I would love to work with Johnny Depp I'd love to work with Brad Pitt, Matt Damon, Gwyneth Paltrow... I think she's amazing.</b>
-> <p><i>Tara Reid</i></p>
+> <b>He has spent his life best who has enjoyed it most. God will take care that we do not enjoy it any more than is good for us.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
