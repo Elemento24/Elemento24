@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The excess of our youth are checks written against our age and they are payable with interest thirty years later.</b>
-> <p><i>Charles Caleb Colton</i></p>
+> <b>Another night, I dreamed I saw my father sweeping out the barn floor clean, and would not suffer the wheat to be brought in the barn. He appeared to me to be in anger.</b>
+> <p><i>Joanna Southcott</i></p>
 
 <br>
