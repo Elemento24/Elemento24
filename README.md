@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To think that the new economy is over is like somebody in London in 1830 saying the entire industrial revolution is over because some textile manufacturers in Manchester went broke.</b>
-> <p><i>Alvin Toffler</i></p>
+> <b>The fact that I even get in Broadway shows is, to me, still amazing, but then to win a Tony was just incredible.</b>
+> <p><i>Jane Krakowski</i></p>
 
 <br>
