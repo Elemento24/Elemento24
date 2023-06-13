@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the basic things about a string is that it can vibrate in many different shapes or forms, which gives music its beauty.</b>
-> <p><i>Edward Witten</i></p>
+> <b>The best way to predict the future is to create it.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
