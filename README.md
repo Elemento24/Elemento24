@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since graduation, I have measured time in 4-by-5-inch pieces of paper, four days on the left and three on the right. Every social engagement, interview, reading, flight, doctor's appointment, birthday and dry-cleaning reminder has been handwritten between metal loops.</b>
-> <p><i>Sloane Crosley</i></p>
+> <b>I love each and every one of you but, like my own family, you thrill, you frustrate, you anger.</b>
+> <p><i>John Buchanan</i></p>
 
 <br>
