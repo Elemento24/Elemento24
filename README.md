@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The fact that I even get in Broadway shows is, to me, still amazing, but then to win a Tony was just incredible.</b>
-> <p><i>Jane Krakowski</i></p>
+> <b>Luckily, my husband is my business partner as well as my life partner, so I never had to do the heavy lifting alone, literally or figuratively.</b>
+> <p><i>Josie Maran</i></p>
 
 <br>
