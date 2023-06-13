@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The moment you cheat for the sake of beauty, you know you're an artist.</b>
-> <p><i>David Hockney</i></p>
+> <b>Beauty can make you powerful in a way that isn't good for you. Being OK is better for the person I have become.</b>
+> <p><i>Felicity Huffman</i></p>
 
 <br>
