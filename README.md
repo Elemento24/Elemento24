@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Its attitude, which it has preached and practiced, is skepticism. Now, it finds, the public is applying that skepticism to the press.</b>
-> <p><i>Thomas Griffith</i></p>
+> <b>Every Body has so good an Opinion of their own Understanding as to think their own way the best.</b>
+> <p><i>Mary Astell</i></p>
 
 <br>
