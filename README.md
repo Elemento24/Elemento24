@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every Body has so good an Opinion of their own Understanding as to think their own way the best.</b>
-> <p><i>Mary Astell</i></p>
+> <b>The key is to keep company only with people who uplift you, whose presence calls forth your best.</b>
+> <p><i>Epictetus</i></p>
 
 <br>
