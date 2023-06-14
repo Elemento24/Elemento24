@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up on the golden age of children's TV.</b>
-> <p><i>Edward Norton</i></p>
+> <b>I mean, you have a general tone of it but it's pretty much you get to come in and you're going to flip this car and it's going to blow up and you're going to come out on fire and you go oh, that's cool, and then you get paid a lot of money.</b>
+> <p><i>David R. Ellis</i></p>
 
 <br>
