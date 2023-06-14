@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the digital age of 'overnight' success stories such as Facebook, the hard slog is easily overlooked.</b>
-> <p><i>James Dyson</i></p>
+> <b>Sometimes the best lighting of all is a power failure.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
