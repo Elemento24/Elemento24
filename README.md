@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really would love to do a piece like Julia Roberts or Charlize Theron in 'Erin Brockovich' or 'North Country.' They were both so amazing and so inspiring. I would love to touch someone in the way their performances touched me.</b>
-> <p><i>Ashley Greene</i></p>
+> <b>Power and beauty come from a very deep place.</b>
+> <p><i>Brooke Burke</i></p>
 
 <br>
