@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The key is to keep company only with people who uplift you, whose presence calls forth your best.</b>
-> <p><i>Epictetus</i></p>
+> <b>I take sounds and change them into words.</b>
+> <p><i>Brian Eno</i></p>
 
 <br>
