@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman telling her true age is like a buyer confiding his final price to an Armenian rug dealer.</b>
-> <p><i>Mignon McLaughlin</i></p>
+> <b>It's amazing to me that they're cutting physical education programs in the school systems.</b>
+> <p><i>Shannon Miller</i></p>
 
 <br>
