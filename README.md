@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I haven't got a car or a house. I've got a wife, but I didn't pay for her! I spend all my money on my glorious wife. She's here with a knife at my throat!</b>
-> <p><i>Mackenzie Crook</i></p>
+> <b>This year, as we celebrate the 230th anniversary of America's independence, please remember the symbols that are sacred to this country. Fly Old Glory high and show your respect and admiration for this great nation and the values we hold dear.</b>
+> <p><i>Kenny Marchant</i></p>
 
 <br>
