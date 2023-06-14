@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes the best lighting of all is a power failure.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>I was advised by an American agent when I was about 19 to change my surname.</b>
+> <p><i>Rachel Weisz</i></p>
 
 <br>
