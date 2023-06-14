@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To look and feel my best, I watch my calories and exercise.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>I don't treat the band like I'm above them or that they're a hired hand for me. We've never worked that way. So I'm a team player. I would be very uncomfortable having to do this alone.</b>
+> <p><i>Tom Petty</i></p>
 
 <br>
