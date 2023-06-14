@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, you have a general tone of it but it's pretty much you get to come in and you're going to flip this car and it's going to blow up and you're going to come out on fire and you go oh, that's cool, and then you get paid a lot of money.</b>
-> <p><i>David R. Ellis</i></p>
+> <b>Its attitude, which it has preached and practiced, is skepticism. Now, it finds, the public is applying that skepticism to the press.</b>
+> <p><i>Thomas Griffith</i></p>
 
 <br>
