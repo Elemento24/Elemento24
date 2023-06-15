@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not by the gray of the hair that one knows the age of the heart.</b>
-> <p><i>Edward G. Bulwer-Lytton</i></p>
+> <b>We are not the same persons this year as last nor are those we love. It is a happy chance if we, changing, continue to love a changed person.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
