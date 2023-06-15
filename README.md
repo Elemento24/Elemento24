@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not trying to stump anybody... it's the beauty of the language that I'm interested in.</b>
-> <p><i>Buddy Holly</i></p>
+> <b>Change of weather is the discourse of fools.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
