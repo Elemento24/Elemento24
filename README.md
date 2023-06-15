@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get such lovely gifts from fans... amazing pictures, handmade jewellery. I'm very lucky!</b>
-> <p><i>Leona Lewis</i></p>
+> <b>I cry out for order and find it only in art.</b>
+> <p><i>Helen Hayes</i></p>
 
 <br>
