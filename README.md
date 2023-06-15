@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love my friends and family, but I also love it when they can't find me and I can spend all day reading or walking all alone, in silence, eight thousand miles away from everyone. All alone and unreachable in a foreign country is one my most favorite possible things to be.</b>
-> <p><i>Elizabeth Gilbert</i></p>
+> <b>We tell them that we believe it will be beautiful because that is our specialty, we only create joy and beauty. We have never done a sad work. Through the drawings, we hope a majority will be able to visualize it.</b>
+> <p><i>Christo</i></p>
 
 <br>
