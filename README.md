@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I take sounds and change them into words.</b>
-> <p><i>Brian Eno</i></p>
+> <b>It is the business of the future to be dangerous and it is among the merits of science that it equips the future for its duties.</b>
+> <p><i>Alfred North Whitehead</i></p>
 
 <br>
