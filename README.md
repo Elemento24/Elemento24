@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how much you can learn if your intentions are truly earnest.</b>
-> <p><i>Chuck Berry</i></p>
+> <b>I don't think your ability to fight has anything to do with how big you are. It's to do with how much anger is in you.</b>
+> <p><i>Amy Winehouse</i></p>
 
 <br>
