@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I film quite a bit of footage, then edit. Changes before your eyes, things you can do and things you can't. My attitude is always 'let it keep rolling.'</b>
-> <p><i>Terrence Malick</i></p>
+> <b>I'm not trying to stump anybody... it's the beauty of the language that I'm interested in.</b>
+> <p><i>Buddy Holly</i></p>
 
 <br>
