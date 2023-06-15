@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wars of nations are fought to change maps. But wars of poverty are fought to map change.</b>
-> <p><i>Muhammad Ali</i></p>
+> <b>I get such lovely gifts from fans... amazing pictures, handmade jewellery. I'm very lucky!</b>
+> <p><i>Leona Lewis</i></p>
 
 <br>
