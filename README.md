@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to navigate through life is to give up all of our controls.</b>
-> <p><i>Gerald Jampolsky</i></p>
+> <b>I'm flatchested, I'm short, I'm brunette, I have droopy eyes, and so people have a hard time casting me as a 'beauty.'</b>
+> <p><i>Selma Blair</i></p>
 
 <br>
