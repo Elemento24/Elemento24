@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change of weather is the discourse of fools.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>I basically left Texas with no money. I was making $3.50 working in some mall, so I didn't have a lot of cash. I took $1,000 and headed to California. Along the way I stopped in Vegas because I had always wanted to see Caesar's Palace. So I stopped there and won $2,500 on a slot machine! It was amazing.</b>
+> <p><i>Krista Allen</i></p>
 
 <br>
