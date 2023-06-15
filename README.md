@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are not the same persons this year as last nor are those we love. It is a happy chance if we, changing, continue to love a changed person.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>The best way to navigate through life is to give up all of our controls.</b>
+> <p><i>Gerald Jampolsky</i></p>
 
 <br>
