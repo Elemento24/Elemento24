@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Although born in a prosperous realm, we did not believe that its boundaries should limit our knowledge, and that the lore of the East should alone enlighten us.</b>
-> <p><i>Charles de Secondat</i></p>
+> <b>We used to think that revolutions are the cause of change. Actually it is the other way around: change prepares the ground for revolution.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
