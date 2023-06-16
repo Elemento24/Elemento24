@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you can't change your fate, change your attitude.</b>
-> <p><i>Charles Revson</i></p>
+> <b>If it's your job to eat a frog, it's best to do it first thing in the morning. And If it's your job to eat two frogs, it's best to eat the biggest one first.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
