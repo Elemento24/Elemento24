@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of your teachers are actually closer in age to you than you think.</b>
-> <p><i>Maya Lin</i></p>
+> <b>Your car should drive itself. It's amazing to me that we let humans drive cars... It's a bug that cars were invented before computers.</b>
+> <p><i>Eric Schmidt</i></p>
 
 <br>
