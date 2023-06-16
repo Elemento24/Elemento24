@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Events will take their course, it is no good of being angry at them he is happiest who wisely turns them to the best account.</b>
-> <p><i>Euripides</i></p>
+> <b>I feel more mature than most people my age.</b>
+> <p><i>Leighton Meester</i></p>
 
 <br>
