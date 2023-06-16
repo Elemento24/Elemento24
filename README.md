@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And we turned off and 30 miles south they're standing in the middle of our road blocking our way, stopped the car, got out, took us through the path in the woods, where the craft was on the ground.</b>
-> <p><i>Betty Hill</i></p>
+> <b>I want to apologize to all of the people I have let down because of my behavior which has reflected badly on my family, friends, co-workers, business associates and others.</b>
+> <p><i>Kate Moss</i></p>
 
 <br>
