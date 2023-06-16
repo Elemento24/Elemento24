@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your car should drive itself. It's amazing to me that we let humans drive cars... It's a bug that cars were invented before computers.</b>
-> <p><i>Eric Schmidt</i></p>
+> <b>Campaign behavior for wives: Always be on time. Do as little talking as humanly possible. Lean back in the parade car so everybody can see the president.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
