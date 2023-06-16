@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Amazement awaits us at every corner.</b>
-> <p><i>James Broughton</i></p>
+> <b>And we turned off and 30 miles south they're standing in the middle of our road blocking our way, stopped the car, got out, took us through the path in the woods, where the craft was on the ground.</b>
+> <p><i>Betty Hill</i></p>
 
 <br>
