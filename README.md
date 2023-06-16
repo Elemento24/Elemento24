@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel more mature than most people my age.</b>
-> <p><i>Leighton Meester</i></p>
+> <b>I kind of resent this attitude of men that we somehow must always look good.</b>
+> <p><i>Sharon Gless</i></p>
 
 <br>
