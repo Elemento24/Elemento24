@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to apologize to all of the people I have let down because of my behavior which has reflected badly on my family, friends, co-workers, business associates and others.</b>
-> <p><i>Kate Moss</i></p>
+> <b>The beauty of the world, which is so soon to perish, has two edges, one of laughter, one of anguish, cutting the heart asunder.</b>
+> <p><i>Virginia Woolf</i></p>
 
 <br>
