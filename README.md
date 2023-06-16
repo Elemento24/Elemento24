@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I kind of resent this attitude of men that we somehow must always look good.</b>
-> <p><i>Sharon Gless</i></p>
+> <b>But I absolutely believe that architecture is a social activity that has to do with some sort of communication or places of interaction, and that to change the environment is to change behaviour.</b>
+> <p><i>Thom Mayne</i></p>
 
 <br>
