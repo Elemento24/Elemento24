@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each age, it is found, must write its own books or rather, each generation for the next succeeding.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>Younger women have no problem in reconciling beauty with ambitions as a professional woman.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
