@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best book, like the best speech, will do it all - make us laugh, think, cry and cheer - preferably in that order.</b>
-> <p><i>Madeleine Albright</i></p>
+> <b>Art has a double face, of expression and illusion, just like science has a double face: the reality of error and the phantom of truth.</b>
+> <p><i>Publilius Syrus</i></p>
 
 <br>
