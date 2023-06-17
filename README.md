@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Where children are, there is the golden age.</b>
-> <p><i>Novalis</i></p>
+> <b>Each age, it is found, must write its own books or rather, each generation for the next succeeding.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
