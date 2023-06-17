@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best advice I ever got was that knowledge is power and to keep reading.</b>
-> <p><i>David Bailey</i></p>
+> <b>The best book, like the best speech, will do it all - make us laugh, think, cry and cheer - preferably in that order.</b>
+> <p><i>Madeleine Albright</i></p>
 
 <br>
