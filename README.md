@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nicole will come up in conversations where it's in a part of the conversation. Or we may be somewhere and I would tell some story about their mother and I. You know, we always honor her birthday.</b>
-> <p><i>O. J. Simpson</i></p>
+> <b>Most men are individuals no longer so far as their business, its activities, or its moralities are concerned. They are not units but fractions.</b>
+> <p><i>Charles Dickens</i></p>
 
 <br>
