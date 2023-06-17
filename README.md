@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Adulthood is the ever-shrinking period between childhood and old age. It is the apparent aim of modern industrial societies to reduce this period to a minimum.</b>
-> <p><i>Thomas Szasz</i></p>
+> <b>What men have called friendship is only a social arrangement, a mutual adjustment of interests, an interchange of services given and received it is, in sum, simply a business from which those involved propose to derive a steady profit for their own self-love.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
