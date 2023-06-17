@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I really tried to do with Helen was make her show this sad side of her. She was married off at 16, was so young and living in this castle that can't leave because of how she looks, and married to a man she hates and three times her age.</b>
-> <p><i>Diane Kruger</i></p>
+> <b>As I've gotten older I've occasionally found myself nostalgic for earlier periods of solitude, though I realize that's also likely a false nostalgia, as I know there was nothing I wanted more during those periods than to not be alone, whatever that means.</b>
+> <p><i>Chris Ware</i></p>
 
 <br>
