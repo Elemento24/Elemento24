@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Younger women have no problem in reconciling beauty with ambitions as a professional woman.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>What I really tried to do with Helen was make her show this sad side of her. She was married off at 16, was so young and living in this castle that can't leave because of how she looks, and married to a man she hates and three times her age.</b>
+> <p><i>Diane Kruger</i></p>
 
 <br>
