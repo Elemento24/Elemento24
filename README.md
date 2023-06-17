@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our best thoughts come from others.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>Canada's the best country in the world.</b>
+> <p><i>Justin Bieber</i></p>
 
 <br>
