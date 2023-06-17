@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really feel like life will dictate itself. You should allow it to unfold as naturally as possible. Just go with the flow. When you're really desperate, you say a few prayers and hope for the best. That's the way I've always lived my life.</b>
-> <p><i>Shania Twain</i></p>
+> <b>Adulthood is the ever-shrinking period between childhood and old age. It is the apparent aim of modern industrial societies to reduce this period to a minimum.</b>
+> <p><i>Thomas Szasz</i></p>
 
 <br>
