@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What saddens me is the corruption of youth and beauty, and the loss of soul, which is only replaced by money.</b>
-> <p><i>Lisa Bonet</i></p>
+> <b>I think permitting the game to become too physical takes away a little bit of the beauty.</b>
+> <p><i>John Wooden</i></p>
 
 <br>
