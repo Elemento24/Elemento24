@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're a basketball player and you don't stop and take pictures with your fans, you can have an amazing game and everyone still loves you.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>Wisdom doesn't necessarily come with age. Sometimes age just shows up all by itself.</b>
+> <p><i>Tom Wilson</i></p>
 
 <br>
