@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned you have to fight for yourself in the picture business.</b>
-> <p><i>Loretta Young</i></p>
+> <b>Even truth needs to be clad in new garments if it is to appeal to a new age.</b>
+> <p><i>Georg C. Lichtenberg</i></p>
 
 <br>
