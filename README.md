@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm afraid for all those who'll have the bread snatched from their mouths by these machines. What business has science and capitalism got, bringing all these new inventions into the works, before society has produced a generation educated up to using them!</b>
-> <p><i>Henrik Ibsen</i></p>
+> <b>In every age there has been a stream of popular opinion that has carried all before it, and given a family character, as it were, to the century.</b>
+> <p><i>Mary Wollstonecraft</i></p>
 
 <br>
