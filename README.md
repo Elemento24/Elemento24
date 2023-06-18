@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What makes old age so sad is not that our joys but our hopes cease.</b>
-> <p><i>Jean Paul</i></p>
+> <b>Barack Obama's life was so much simpler in 2009. Back then, he had refined the cold act of blaming others for the bad economy into an art form. Deficits? Blame Bush's tax cuts. Spending? Blame the wars in Iraq and Afghanistan. No business investment? Blame Wall Street.</b>
+> <p><i>John Sununu</i></p>
 
 <br>
