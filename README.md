@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wisdom doesn't necessarily come with age. Sometimes age just shows up all by itself.</b>
-> <p><i>Tom Wilson</i></p>
+> <b>My house is my refuge, an emotional piece of architecture, not a cold piece of convenience.</b>
+> <p><i>Luis Barragan</i></p>
 
 <br>
