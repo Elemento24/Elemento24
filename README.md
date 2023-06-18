@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just because you liked something as a youngster doesn't mean you have to like it as an adult. You can change your taste a little bit on the sweets and things like that.</b>
-> <p><i>Mike Ditka</i></p>
+> <b>Still and all, why bother? Here's my answer. Many people need desperately to receive this message: I feel and think much as you do, care about many of the things you care about, although most people do not care about them. You are not alone.</b>
+> <p><i>Kurt Vonnegut</i></p>
 
 <br>
