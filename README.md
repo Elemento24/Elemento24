@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think permitting the game to become too physical takes away a little bit of the beauty.</b>
-> <p><i>John Wooden</i></p>
+> <b>I learned you have to fight for yourself in the picture business.</b>
+> <p><i>Loretta Young</i></p>
 
 <br>
