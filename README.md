@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My house is my refuge, an emotional piece of architecture, not a cold piece of convenience.</b>
-> <p><i>Luis Barragan</i></p>
+> <b>I'm afraid for all those who'll have the bread snatched from their mouths by these machines. What business has science and capitalism got, bringing all these new inventions into the works, before society has produced a generation educated up to using them!</b>
+> <p><i>Henrik Ibsen</i></p>
 
 <br>
