@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A State without the means of some change is without the means of its conservation.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>Shadows sometimes people don't see shadows. The Chinese of course never paint them in pictures, oriental art never deals with shadow. But I noticed these shadows and I knew it meant it was sunny.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
