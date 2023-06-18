@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of all the lessons most relevant to architecture today, Japanese flexibility is the greatest.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>If the shoe doesn't fit, must we change the foot?</b>
+> <p><i>Gloria Steinem</i></p>
 
 <br>
