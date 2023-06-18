@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even truth needs to be clad in new garments if it is to appeal to a new age.</b>
-> <p><i>Georg C. Lichtenberg</i></p>
+> <b>I have always thought the actions of men the best interpreters of their thoughts.</b>
+> <p><i>John Locke</i></p>
 
 <br>
