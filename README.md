@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shadows sometimes people don't see shadows. The Chinese of course never paint them in pictures, oriental art never deals with shadow. But I noticed these shadows and I knew it meant it was sunny.</b>
-> <p><i>David Hockney</i></p>
+> <b>For the first time in my adult lifetime, I am really proud of my country. And not just because Barack has done well, but because I think people are hungry for change. And I have been desperate to see our country moving in that direction.</b>
+> <p><i>Michelle Obama</i></p>
 
 <br>
