@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In every age there has been a stream of popular opinion that has carried all before it, and given a family character, as it were, to the century.</b>
-> <p><i>Mary Wollstonecraft</i></p>
+> <b>What saddens me is the corruption of youth and beauty, and the loss of soul, which is only replaced by money.</b>
+> <p><i>Lisa Bonet</i></p>
 
 <br>
