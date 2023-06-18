@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I came on to the film with a very happy-go-lucky attitude which I think my character, Charlie, did when she went into the house. I expected it to be good, and then slowly things started to change for us all.</b>
-> <p><i>Jennifer Sky</i></p>
+> <b>A State without the means of some change is without the means of its conservation.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
