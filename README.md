@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a good thing that beauty is only skin deep, or I'd be rotten to the core.</b>
-> <p><i>Phyllis Diller</i></p>
+> <b>I really think it is amazing that people actually buy software.</b>
+> <p><i>Bill Budge</i></p>
 
 <br>
