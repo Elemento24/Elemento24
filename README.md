@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always thought the actions of men the best interpreters of their thoughts.</b>
-> <p><i>John Locke</i></p>
+> <b>I'm an introvert at heart... And show business - even though I've loved it so much - has always been hard for me.</b>
+> <p><i>Roy Rogers</i></p>
 
 <br>
