@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Blood alone moves the wheels of history.</b>
-> <p><i>Martin Luther</i></p>
+> <b>There's nothing wrong with anger provided you use it constructively.</b>
+> <p><i>Wayne Dyer</i></p>
 
 <br>
