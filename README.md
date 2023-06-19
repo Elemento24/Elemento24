@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God is not on the side of the big battalions, but on the side of those who shoot best.</b>
-> <p><i>Voltaire</i></p>
+> <b>I like the beauty of Faulkner's poetry. But I don't like his themes, not at all.</b>
+> <p><i>Manuel Puig</i></p>
 
 <br>
