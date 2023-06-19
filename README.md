@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really think it is amazing that people actually buy software.</b>
-> <p><i>Bill Budge</i></p>
+> <b>That feeds anger, and I mean when we went and at last thank heavens got towards peace in Northern Ireland we went for justice within Northern Ireland as well as using security well, as well as a political settlement, but surely that is the lesson.</b>
+> <p><i>Clare Short</i></p>
 
 <br>
