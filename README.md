@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like the beauty of Faulkner's poetry. But I don't like his themes, not at all.</b>
-> <p><i>Manuel Puig</i></p>
+> <b>God gave us the gift of life it is up to us to give ourselves the gift of living well.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
