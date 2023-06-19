@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not the normal way to look at things but I experienced death at a really young age and because of that it's been part of my mental landscape that death is really very possible.</b>
-> <p><i>Cate Blanchett</i></p>
+> <b>It's a good thing that beauty is only skin deep, or I'd be rotten to the core.</b>
+> <p><i>Phyllis Diller</i></p>
 
 <br>
