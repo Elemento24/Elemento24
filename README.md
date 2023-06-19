@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing about acting is that I get to lose myself in another character and actually get paid for it... It's a great outlet. I'm not really sure who I am - it seems I change every day.</b>
-> <p><i>Leonardo DiCaprio</i></p>
+> <b>I mean, language fascinates me anyway, and different words have different energies and you can change the whole drive of a sentence.</b>
+> <p><i>Alan Rickman</i></p>
 
 <br>
