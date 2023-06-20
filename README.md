@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is not just physical.</b>
-> <p><i>Halle Berry</i></p>
+> <b>Secrecy is the element of all goodness even virtue, even beauty is mysterious.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
