@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Secrecy is the element of all goodness even virtue, even beauty is mysterious.</b>
-> <p><i>Thomas Carlyle</i></p>
+> <b>Becoming food savvy is one thing, but it's amazing how fast savvy turns to snooty, and snooty leaves you preparing three-hour meals that break your budget and that the kids won't even eat.</b>
+> <p><i>Jeffrey Kluger</i></p>
 
 <br>
