@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men do change, and change comes like a little wind that ruffles the curtains at dawn, and it comes like the stealthy perfume of wildflowers hidden in the grass.</b>
-> <p><i>John Steinbeck</i></p>
+> <b>My father is an amazing man.</b>
+> <p><i>Sherman Alexie</i></p>
 
 <br>
