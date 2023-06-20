@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's every little girl's dream to have an exact look-alike doll. It's amazing.</b>
-> <p><i>Bindi Irwin</i></p>
+> <b>Men do change, and change comes like a little wind that ruffles the curtains at dawn, and it comes like the stealthy perfume of wildflowers hidden in the grass.</b>
+> <p><i>John Steinbeck</i></p>
 
 <br>
