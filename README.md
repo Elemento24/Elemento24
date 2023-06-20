@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When it comes to meat, change is almost always cast as an absolute. You are a vegetarian or you are not.</b>
-> <p><i>Jonathan Safran Foer</i></p>
+> <b>It's every little girl's dream to have an exact look-alike doll. It's amazing.</b>
+> <p><i>Bindi Irwin</i></p>
 
 <br>
