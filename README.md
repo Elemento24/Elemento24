@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Word of mouth is the best medium of all.</b>
-> <p><i>William Bernbach</i></p>
+> <b>Up until age 40, most men are just not as mature as women. So, it makes sense that a lot of women date up in age a bit.</b>
+> <p><i>Patti Stanger</i></p>
 
 <br>
