@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My father is an amazing man.</b>
-> <p><i>Sherman Alexie</i></p>
+> <b>Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.</b>
+> <p><i>Raymond Chandler</i></p>
 
 <br>
