@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it has something to do with being British. We don't take ourselves as seriously as some other countries do. I think a lot of people take themselves far too seriously I find that a very tedious attitude.</b>
-> <p><i>Joan Collins</i></p>
+> <b>The stars shall fade away, the sun himself Grow dim with age, and nature sink in years, But thou shalt flourish in immortal youth, Unhurt amidst the wars of elements, The wrecks of matter, and the crush of worlds.</b>
+> <p><i>Joseph Addison</i></p>
 
 <br>
