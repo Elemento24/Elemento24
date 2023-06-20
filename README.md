@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God gave us the gift of life it is up to us to give ourselves the gift of living well.</b>
-> <p><i>Voltaire</i></p>
+> <b>I'll watch a Pixar movie over and over and over again. I'll be with friends of mine who have kids, that want to watch 'Finding Nemo,' and I'm like, 'Yeah, okay, let's watch 'Nemo' again, for the seven billionth time!,' because they're amazing movies.</b>
+> <p><i>Zachary Levi</i></p>
 
 <br>
