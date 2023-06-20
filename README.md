@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who keeps his cool best wins.</b>
-> <p><i>Norman Cousins</i></p>
+> <b>Beauty is not just physical.</b>
+> <p><i>Halle Berry</i></p>
 
 <br>
