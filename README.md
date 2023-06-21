@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In almost every profession - whether it's law or journalism, finance or medicine or academia or running a small business - people rely on confidential communications to do their jobs. We count on the space of trust that confidentiality provides. When someone breaches that trust, we are all worse off for it.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>Anybody can have a birthday. It requires nothing. Murderers have birthdays. It's the opposite of anything that I believe in. And I don't like at work where you stop everything to sing 'Happy Birthday' to someone. I feel like that's for children.</b>
+> <p><i>Mindy Kaling</i></p>
 
 <br>
