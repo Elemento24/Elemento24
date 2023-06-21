@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When marrying, ask yourself this question: Do you believe that you will be able to converse well with this person into your old age? Everything else in marriage is transitory.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>When thinking about companions gone, we feel ourselves doubly alone.</b>
+> <p><i>Walter Scott</i></p>
 
 <br>
