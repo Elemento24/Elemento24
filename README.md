@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Freedom is the sure possession of those alone who have the courage to defend it.</b>
-> <p><i>Pericles</i></p>
+> <b>I can't bear art that you can walk round and admire. A book should be either a bandit or a rebel or a man in the crowd.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
