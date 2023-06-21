@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When thinking about companions gone, we feel ourselves doubly alone.</b>
-> <p><i>Walter Scott</i></p>
+> <b>Art begins in imitation and ends in innovation.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
