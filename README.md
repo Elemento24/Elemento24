@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Performing doesn't turn me on. It's an egomaniac business, filled with prima donnas - including this one.</b>
-> <p><i>Dan Rather</i></p>
+> <b>As a body everyone is single, as a soul never.</b>
+> <p><i>Hermann Hesse</i></p>
 
 <br>
