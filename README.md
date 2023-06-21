@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So little done, so much to do.</b>
-> <p><i>Cecil Rhodes</i></p>
+> <b>Success comes from knowing that you did your best to become the best that you are capable of becoming.</b>
+> <p><i>John Wooden</i></p>
 
 <br>
