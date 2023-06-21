@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are so bound together that no man can labor for himself alone. Each blow he strikes in his own behalf helps to mold the universe.</b>
-> <p><i>Jerome K. Jerome</i></p>
+> <b>I enjoyed being a teammate of Deion Sanders. He brings different elements to the game that many people would not even realize, and to watch and witness a superior talent like him and watch him prepare and train, and study the game is truly amazing.</b>
+> <p><i>Emmitt Smith</i></p>
 
 <br>
