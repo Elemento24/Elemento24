@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is well for people who think to change their minds occasionally in order to keep them clean. For those who do not think, it is best at least to rearrange their prejudices once in a while.</b>
-> <p><i>Luther Burbank</i></p>
+> <b>In almost every profession - whether it's law or journalism, finance or medicine or academia or running a small business - people rely on confidential communications to do their jobs. We count on the space of trust that confidentiality provides. When someone breaches that trust, we are all worse off for it.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
