@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Many people see technology as the problem behind the so-called digital divide. Others see it as the solution. Technology is neither. It must operate in conjunction with business, economic, political and social system.</b>
-> <p><i>Carly Fiorina</i></p>
+> <b>When marrying, ask yourself this question: Do you believe that you will be able to converse well with this person into your old age? Everything else in marriage is transitory.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
