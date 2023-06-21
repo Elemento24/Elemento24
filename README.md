@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who has played the game professionally, you're always taught that the ball is the most important, most precious thing, so when the ball hits the ground, it's always a mad scramble. It's amazing how many times there is a fumble, and the person who recovers it initially doesn't walk away with the ball.</b>
-> <p><i>Barry Sanders</i></p>
+> <b>Performing doesn't turn me on. It's an egomaniac business, filled with prima donnas - including this one.</b>
+> <p><i>Dan Rather</i></p>
 
 <br>
