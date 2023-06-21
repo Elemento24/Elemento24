@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't bear art that you can walk round and admire. A book should be either a bandit or a rebel or a man in the crowd.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>The moment you cheat for the sake of beauty, you know you're an artist.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
