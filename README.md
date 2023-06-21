@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anybody can have a birthday. It requires nothing. Murderers have birthdays. It's the opposite of anything that I believe in. And I don't like at work where you stop everything to sing 'Happy Birthday' to someone. I feel like that's for children.</b>
-> <p><i>Mindy Kaling</i></p>
+> <b>If art is to nourish the roots of our culture, society must set the artist free to follow his vision wherever it takes him.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
