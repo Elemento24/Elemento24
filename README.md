@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You should read history and look at ostracism, persecution, martyrdom, and that kind of thing. They always happen to the best men, you know.</b>
-> <p><i>George Eliot</i></p>
+> <b>So little done, so much to do.</b>
+> <p><i>Cecil Rhodes</i></p>
 
 <br>
