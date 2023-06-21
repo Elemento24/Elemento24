@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art begins in imitation and ends in innovation.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>There is nothing new in art except talent.</b>
+> <p><i>Anton Chekhov</i></p>
 
 <br>
