@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It wasn't so long ago that I was a working mom myself. And I know that sometimes, much as we all hate to admit it, it's just easier to park the kids in front of the TV for a few hours, so we can pay the bills or do the laundry or just have some peace and quiet for a change.</b>
-> <p><i>Michelle Obama</i></p>
+> <b>It doesn't take money to have style, it just takes a really good eye. Sometimes you can find amazing culinary antiques that will make it feel like an old French kitchen.</b>
+> <p><i>Tyler Florence</i></p>
 
 <br>
