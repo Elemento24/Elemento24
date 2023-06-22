@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love singin' in the car, it just makes me feel good.</b>
-> <p><i>Scotty McCreery</i></p>
+> <b>Well, there are better cartoonists now than there ever have been. I firmly believe that. There's some amazing work being done.</b>
+> <p><i>Chris Ware</i></p>
 
 <br>
