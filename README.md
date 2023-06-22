@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never seen a worse situation than that of young writers in the United States. The publishing business in North America is so commercialized.</b>
-> <p><i>Manuel Puig</i></p>
+> <b>It's that I don't like white paper backgrounds. A woman does not live in front of white paper. She lives on the street, in a motor car, in a hotel room.</b>
+> <p><i>Helmut Newton</i></p>
 
 <br>
