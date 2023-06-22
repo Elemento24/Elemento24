@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Enlightened leadership is spiritual if we understand spirituality not as some kind of religious dogma or ideology but as the domain of awareness where we experience values like truth, goodness, beauty, love and compassion, and also intuition, creativity, insight and focused attention.</b>
-> <p><i>Deepak Chopra</i></p>
+> <b>The best evaluation I can make of a player is to look in his eyes and see how scared they are.</b>
+> <p><i>Michael Jordan</i></p>
 
 <br>
