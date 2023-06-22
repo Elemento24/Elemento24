@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every science begins as philosophy and ends as art.</b>
-> <p><i>Will Durant</i></p>
+> <b>I think, if you put a camera in anyone's life and document it daily from the age of 21 to 27, there are going to be things that aren't always pretty.</b>
+> <p><i>Sienna Miller</i></p>
 
 <br>
