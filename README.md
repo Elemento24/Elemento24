@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Accuracy is, in every case, advantageous to beauty, and just reasoning to delicate sentiment. In vain would we exalt the one by depreciating the other.</b>
-> <p><i>David Hume</i></p>
+> <b>To my mind the old masters are not art their value is in their scarcity.</b>
+> <p><i>Thomas A. Edison</i></p>
 
 <br>
