@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I use the music to vent, and a lot of the stuff that I am writing about or was writing about contained a lot of anger and anxiety, stress and depression, so that's how the album came out so dark.</b>
-> <p><i>Vanilla Ice</i></p>
+> <b>I've never seen a worse situation than that of young writers in the United States. The publishing business in North America is so commercialized.</b>
+> <p><i>Manuel Puig</i></p>
 
 <br>
