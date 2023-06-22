@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can barely remember what I wrote yesterday, let alone 10 years ago.</b>
-> <p><i>Andrew Sullivan</i></p>
+> <b>I love singin' in the car, it just makes me feel good.</b>
+> <p><i>Scotty McCreery</i></p>
 
 <br>
