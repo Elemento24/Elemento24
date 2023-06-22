@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like video games, but they are very violent. I want to create a video game in which you have to help all the characters who have died in the other games. 'Hey, man, what are you playing?' 'Super Busy Hospital. Could you leave me alone? I'm performing surgery! This guy got shot in the head, like, 27 times!'</b>
-> <p><i>Demetri Martin</i></p>
+> <b>When he was born, I looked at my little boy and felt an unconditional love I never knew was inside me. As he grew, and I watched him stagger about, squeak his first words, and turn into a beautiful little boy, that feeling did not change.</b>
+> <p><i>Tony Parsons</i></p>
 
 <br>
