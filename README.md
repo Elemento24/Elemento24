@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's that I don't like white paper backgrounds. A woman does not live in front of white paper. She lives on the street, in a motor car, in a hotel room.</b>
-> <p><i>Helmut Newton</i></p>
+> <b>Enlightened leadership is spiritual if we understand spirituality not as some kind of religious dogma or ideology but as the domain of awareness where we experience values like truth, goodness, beauty, love and compassion, and also intuition, creativity, insight and focused attention.</b>
+> <p><i>Deepak Chopra</i></p>
 
 <br>
