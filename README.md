@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When he was born, I looked at my little boy and felt an unconditional love I never knew was inside me. As he grew, and I watched him stagger about, squeak his first words, and turn into a beautiful little boy, that feeling did not change.</b>
-> <p><i>Tony Parsons</i></p>
+> <b>Change is the law of life. And those who look only to the past or present are certain to miss the future.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
