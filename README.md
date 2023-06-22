@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When fish experience something that would cause other animals physical pain, they behave in ways suggestive of pain, and the change in behaviour may last several hours.</b>
-> <p><i>Peter Singer</i></p>
+> <b>The strength and power and goodness of America has always been based on the strength and power and goodness of our communities, our families, our faiths. That is the bedrock of what makes America, America. In our best days, we can feel the vibrancy of America's communities, large and small.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
