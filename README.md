@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our humor turns our anger into a fine art.</b>
-> <p><i>Mary Kay Blakely</i></p>
+> <b>It's an honor putting art above politics. Politics can be seductive in terms of things reductive to the soul.</b>
+> <p><i>Robert Redford</i></p>
 
 <br>
