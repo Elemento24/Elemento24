@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children, dear and loving children, can alone console a woman for the loss of her beauty.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>They saw me, those reckless seekers of beauty, and in a night I was famous.</b>
+> <p><i>Lillie Langtry</i></p>
 
 <br>
