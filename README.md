@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're going to shoot one Polaroid per show. I'm going to sign this before it even develops because I know that once it develops with my signature on it, it's worth a fortune. I'll make this a work of magic warlock art.</b>
-> <p><i>Charlie Sheen</i></p>
+> <b>In this business, my business, I get to meet all kinds of incredible people, fascinating people, glamorous people and sexy people and highly intellectual people. And you meet them and you go 'interesting, interesting, interesting'. They're interesting, but not very many people stop you in your tracks.</b>
+> <p><i>Madonna Ciccone</i></p>
 
 <br>
