@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best player I've ever played with was Paul Gascoigne. He had everything. He was amazing.</b>
-> <p><i>Paul Ince</i></p>
+> <b>Having George W. Bush giving a lecture on business ethics is like having a leper give you a facial, it just doesn't work!</b>
+> <p><i>Robin Williams</i></p>
 
 <br>
