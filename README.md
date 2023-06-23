@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is an outward gift which is seldom despised, except by those to whom it has been refused.</b>
-> <p><i>Edward Gibbon</i></p>
+> <b>Children, dear and loving children, can alone console a woman for the loss of her beauty.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
