@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The athlete of today is not an athlete alone. He's the center of a team - doctors, scientists, coaches, agents and so on.</b>
-> <p><i>Emil Zatopek</i></p>
+> <b>If you go on stage with the wrong attitude, or something in your performance is off, you can lose an audience in the first minute. That first minute is crucial.</b>
+> <p><i>Allan Carr</i></p>
 
 <br>
