@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think you have to feel comfortable with your car. You have to go into turn one, every lap, with confidence. You have to be sure of yourself and your equipment.</b>
-> <p><i>Danica Patrick</i></p>
+> <b>Beauty is being in harmony with what you are.</b>
+> <p><i>Peter Nivio Zarlenga</i></p>
 
 <br>
