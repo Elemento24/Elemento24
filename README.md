@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To give anything less than your best, is to sacrifice the gift.</b>
-> <p><i>Steve Prefontaine</i></p>
+> <b>Our humor turns our anger into a fine art.</b>
+> <p><i>Mary Kay Blakely</i></p>
 
 <br>
