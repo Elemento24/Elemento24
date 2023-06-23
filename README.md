@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is being in harmony with what you are.</b>
-> <p><i>Peter Nivio Zarlenga</i></p>
+> <b>The best player I've ever played with was Paul Gascoigne. He had everything. He was amazing.</b>
+> <p><i>Paul Ince</i></p>
 
 <br>
