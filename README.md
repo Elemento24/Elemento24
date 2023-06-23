@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate the idea that you shouldn't wear something just because you're a certain age.</b>
-> <p><i>Miuccia Prada</i></p>
+> <b>The athlete of today is not an athlete alone. He's the center of a team - doctors, scientists, coaches, agents and so on.</b>
+> <p><i>Emil Zatopek</i></p>
 
 <br>
