@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is the law of life. And those who look only to the past or present are certain to miss the future.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>I hate the idea that you shouldn't wear something just because you're a certain age.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
