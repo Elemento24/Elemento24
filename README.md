@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maria is the best reason to come home.</b>
-> <p><i>Arnold Schwarzenegger</i></p>
+> <b>Beauty is an outward gift which is seldom despised, except by those to whom it has been refused.</b>
+> <p><i>Edward Gibbon</i></p>
 
 <br>
