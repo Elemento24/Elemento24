@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They must often change, who would be constant in happiness or wisdom.</b>
-> <p><i>Confucius</i></p>
+> <b>And I trusted someone to look after me on the business side of life.</b>
+> <p><i>Elton John</i></p>
 
 <br>
