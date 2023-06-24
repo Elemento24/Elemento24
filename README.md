@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But the beauty of Einstein's equations, for example, is just as real to anyone who's experienced it as the beauty of music. We've learned in the 20th century that the equations that work have inner harmony.</b>
-> <p><i>Edward Witten</i></p>
+> <b>You don't have to save the world, but you can be in the world-that's where the beauty comes from.</b>
+> <p><i>Daphne Zuniga</i></p>
 
 <br>
