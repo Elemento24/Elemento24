@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who writes an autobiographical work at the age of 34 is, at best, presumptuous. It occurred to me that it was time to set the record straight.</b>
-> <p><i>Jessica Savitch</i></p>
+> <b>But the beauty of Einstein's equations, for example, is just as real to anyone who's experienced it as the beauty of music. We've learned in the 20th century that the equations that work have inner harmony.</b>
+> <p><i>Edward Witten</i></p>
 
 <br>
