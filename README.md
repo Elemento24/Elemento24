@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth is the gift of nature, but age is a work of art.</b>
-> <p><i>Stanislaw Lec</i></p>
+> <b>No community values entrepreneurship and small business more than the Hispanic community.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
