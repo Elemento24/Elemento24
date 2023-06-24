@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In this business you have to develop a thick skin, but I'm always going to feel everything. It's my nature.</b>
-> <p><i>Taylor Swift</i></p>
+> <b>Every night, half an hour before curtain up, the bells of St. Malachy's, the Actors' Chapel on New York's 49th Street, peal the tune of 'There's No Business Like Show Business.' If you walk the streets of the theatre district before a show and see the vast, enthusiastic lines it sounds like a calling: there is certainly no place like Broadway.</b>
+> <p><i>Dan Stevens</i></p>
 
 <br>
