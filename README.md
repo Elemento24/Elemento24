@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In an age of incompetence, I've been able to last in this crazy business. I actually know how to play my ax and write a song. That's my job.</b>
-> <p><i>Billy Joel</i></p>
+> <b>I've purged myself of bitterness and anger and remained open to love.</b>
+> <p><i>Tatum O'Neal</i></p>
 
 <br>
