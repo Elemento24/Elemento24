@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every night, half an hour before curtain up, the bells of St. Malachy's, the Actors' Chapel on New York's 49th Street, peal the tune of 'There's No Business Like Show Business.' If you walk the streets of the theatre district before a show and see the vast, enthusiastic lines it sounds like a calling: there is certainly no place like Broadway.</b>
-> <p><i>Dan Stevens</i></p>
+> <b>For the first time in my adult lifetime, I am really proud of my country. And not just because Barack has done well, but because I think people are hungry for change. And I have been desperate to see our country moving in that direction.</b>
+> <p><i>Michelle Obama</i></p>
 
 <br>
