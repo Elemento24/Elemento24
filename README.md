@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No community values entrepreneurship and small business more than the Hispanic community.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>In this business you have to develop a thick skin, but I'm always going to feel everything. It's my nature.</b>
+> <p><i>Taylor Swift</i></p>
 
 <br>
