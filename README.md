@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We Orientals find beauty not only in the thing itself but in the pattern of the shadows, the light and darkness which that thing provides.</b>
-> <p><i>Junichiro Tanizaki</i></p>
+> <b>The best part of the art of living is to know how to grow old gracefully.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
