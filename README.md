@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Former President Bill Clinton, who is widely regarded as a political mastermind, may have sounded like a traditional liberal at the beginning of his term in office. But what ultimately defined his presidency was his amazing pliability on matters of principle.</b>
-> <p><i>Thomas Frank</i></p>
+> <b>They must often change, who would be constant in happiness or wisdom.</b>
+> <p><i>Confucius</i></p>
 
 <br>
