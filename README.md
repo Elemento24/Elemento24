@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've purged myself of bitterness and anger and remained open to love.</b>
-> <p><i>Tatum O'Neal</i></p>
+> <b>Solitude is strength to depend on the presence of the crowd is weakness. The man who needs a mob to nerve him is much more alone than he imagines.</b>
+> <p><i>Paul Brunton</i></p>
 
 <br>
