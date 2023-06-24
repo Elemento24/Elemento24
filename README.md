@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the first time in my adult lifetime, I am really proud of my country. And not just because Barack has done well, but because I think people are hungry for change. And I have been desperate to see our country moving in that direction.</b>
-> <p><i>Michelle Obama</i></p>
+> <b>We Orientals find beauty not only in the thing itself but in the pattern of the shadows, the light and darkness which that thing provides.</b>
+> <p><i>Junichiro Tanizaki</i></p>
 
 <br>
