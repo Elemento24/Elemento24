@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part of the art of living is to know how to grow old gracefully.</b>
-> <p><i>Eric Hoffer</i></p>
+> <b>Anyone who writes an autobiographical work at the age of 34 is, at best, presumptuous. It occurred to me that it was time to set the record straight.</b>
+> <p><i>Jessica Savitch</i></p>
 
 <br>
