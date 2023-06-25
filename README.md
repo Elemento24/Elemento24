@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You always get a special kick on opening day, no matter how many you go through. You look forward to it like a birthday party when you're a kid. You think something wonderful is going to happen.</b>
-> <p><i>Joe DiMaggio</i></p>
+> <b>It's a business you go into because your an egocentric. It's a very embarrassing profession.</b>
+> <p><i>Katharine Hepburn</i></p>
 
 <br>
