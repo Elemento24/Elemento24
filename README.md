@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The history of my life must begin by the earliest circumstance which my memory can evoke it will therefore commence when I had attained the age of eight years and four months.</b>
-> <p><i>Giacomo Casanova</i></p>
+> <b>My first recognition of age setting in was exactly on my 36th birthday. I have no idea why, on this day of all days, I looked in the mirror and realized my face no longer looked young.</b>
+> <p><i>Paulina Porizkova</i></p>
 
 <br>
