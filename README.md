@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I think is amazing is not that 85% of people who get married under the age of 25 get divorced, it's that 15% of them stay together. How did they manage to pull that off? You almost can't wait too long. It's the single simplest measure to predict divorce.</b>
-> <p><i>Elizabeth Gilbert</i></p>
+> <b>That's what I love from metal, and that's what I love from hip-hop. That's what I love from any music that's hard, that's got an edge to it-The attitude in it.</b>
+> <p><i>Kid Rock</i></p>
 
 <br>
