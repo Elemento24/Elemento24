@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a tremendous difference between alone and lonely. You could be lonely in a group of people. I like being alone. I like eating by myself. I go home at night and just watch a movie or hang out with my dog. I have to exert myself and really say, oh God, I've got to see my friends 'cause I'm too content being by myself.</b>
-> <p><i>Drew Barrymore</i></p>
+> <b>That's what I love from metal, and that's what I love from hip-hop. That's what I love from any music that's hard, that's got an edge to it-The attitude in it.</b>
+> <p><i>Kid Rock</i></p>
 
 <br>
