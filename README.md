@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without art, the crudeness of reality would make the world unbearable.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>There are women who make things better, there are women who change things, there are women who make things happen, who make a difference. I want to be one of those women.</b>
+> <p><i>Vera Farmiga</i></p>
 
 <br>
