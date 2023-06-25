@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Barack Obama doesn't believe in free enterprise. He's never going to admit it. For instance, he's never going to come straight out and say, 'If you own a business you didn't build it.' Alright, maybe he will.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>You hear the best stories from ordinary people. That sense of immediacy is more real to me than a lot of writerly, literary-type crafted stories. I want that immediacy when I read a novel.</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
