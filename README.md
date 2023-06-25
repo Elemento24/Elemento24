@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The day before the anniversary of D-Day, we lost a man who was equaled by few and surpassed by none as a leader in the cause of freedom: Ronald Reagan.</b>
-> <p><i>Mac Thornberry</i></p>
+> <b>This is my 20th year in the sport. I've known swimming and that's it. I don't want to swim past age 30 if I continue after this Olympics, and come back in 2016, I'll be 31. I'm looking forward to being able to see the other side of the fence.</b>
+> <p><i>Michael Phelps</i></p>
 
 <br>
