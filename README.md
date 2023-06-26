@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Write it on your heart that every day is the best day in the year.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>Surfers have the most attitude.</b>
+> <p><i>Shaun White</i></p>
 
 <br>
