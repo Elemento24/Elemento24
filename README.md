@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like many women my age, I am 28 years old.</b>
-> <p><i>Mary Schmich</i></p>
+> <b>The one who cannot restrain their anger will wish undone, what their temper and irritation prompted them to do.</b>
+> <p><i>Horace</i></p>
 
 <br>
