@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The word 'geek' today does not mean what it used to mean. A geek isn't the skinny kid with a pocket protector and acne. There can be computer geeks, video game geeks, car geeks, military geeks, and sports geeks. Being a geek just means that you're passionate about something.</b>
-> <p><i>Olivia Munn</i></p>
+> <b>That government is best which governs least.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
