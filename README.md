@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Patience is the most necessary quality for business, many a man would rather you heard his story than grant his request.</b>
-> <p><i>Lord Chesterfield</i></p>
+> <b>Write it on your heart that every day is the best day in the year.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
