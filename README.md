@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best years of your life are the ones in which you decide your problems are your own. You do not blame them on your mother, the ecology, or the president. You realize that you control your own destiny.</b>
-> <p><i>Albert Ellis</i></p>
+> <b>I went to Zimbabwe. I know how white people feel in America now relaxed! Cause when I heard the police car I knew they weren't coming after me!</b>
+> <p><i>Richard Pryor</i></p>
 
 <br>
