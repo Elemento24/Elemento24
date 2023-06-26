@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That government is best which governs least.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Like many women my age, I am 28 years old.</b>
+> <p><i>Mary Schmich</i></p>
 
 <br>
