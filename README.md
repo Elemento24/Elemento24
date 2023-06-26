@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, I've never looked upon myself as being a beauty, per se.</b>
-> <p><i>Cate Blanchett</i></p>
+> <b>I know so many amazing actors who don't get work... and then there are a bunch of real duds that work all the time. The industry is just not fair in that way.</b>
+> <p><i>Jenna Fischer</i></p>
 
 <br>
