@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age considers youth ventures.</b>
-> <p><i>Rabindranath Tagore</i></p>
+> <b>Throughout the centuries, man has considered himself beautiful. I rather suppose that man only believes in his own beauty out of pride that he is not really beautiful and he suspects this himself for why does he look on the face of his fellow-man with such scorn?</b>
+> <p><i>Isidore Ducasse Lautreamont</i></p>
 
 <br>
