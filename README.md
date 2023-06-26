@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've also seen that great men are often lonely. This is understandable, because they have built such high standards for themselves that they often feel alone. But that same loneliness is part of their ability to create.</b>
-> <p><i>Yousuf Karsh</i></p>
+> <b>Perhaps the most effective way to describe the approach a brand must take is to think of themselves as social cartographers. By that I mean that brands must simultaneously inspire, engage and maintain a series of conversations taking place within certain cultural landscape specific to their business goal.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
