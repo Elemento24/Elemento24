@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art gods cooked up something special for James Ensor.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>When I'm alone, I work sometimes with music, sometimes without and sometimes just listening to NPR.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
