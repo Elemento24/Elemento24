@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really enjoy not getting in a car and running errands on bikes.</b>
-> <p><i>Stone Gossard</i></p>
+> <b>Being on 'Glee' was amazing. I remember my first day on set, my first day I arrived to the set I was in my trailer and all of the actors came and banged on my door - Lea Michele, Chris Colfer, Amber Riley, Naya Rivera. They all welcomed me with open arms, so it was a great experience. It felt like family, and I miss them a lot over there.</b>
+> <p><i>NeNe Leakes</i></p>
 
 <br>
