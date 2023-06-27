@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a fine level of recognition in the business and among the acting community now, so I consider myself one of the lucky ones. If I didn't think that, there would be something wrong with me. I'm grateful and thankful for what I've got.</b>
-> <p><i>Philip Seymour Hoffman</i></p>
+> <b>Nothing can stop the man with the right mental attitude from achieving his goal nothing on earth can help the man with the wrong mental attitude.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
