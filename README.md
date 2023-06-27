@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought I was dreaming. It was the most amazing moment of my entire life. Not only is Bill the love of my life, but he's also my best friend. I couldn't believe my dream guy was asking me to marry him!</b>
-> <p><i>Giuliana Rancic</i></p>
+> <b>The common question that gets asked in business is, 'why?' That's a good question, but an equally valid question is, 'why not?'</b>
+> <p><i>Jeff Bezos</i></p>
 
 <br>
