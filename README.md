@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing can stop the man with the right mental attitude from achieving his goal nothing on earth can help the man with the wrong mental attitude.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>I'm not interested in age. People who tell me their age are silly. You're as old as you feel.</b>
+> <p><i>Henri Frederic Amiel</i></p>
 
 <br>
