@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is one of the rare things which does not lead to doubt of God.</b>
-> <p><i>Jean Anouilh</i></p>
+> <b>I have a fine level of recognition in the business and among the acting community now, so I consider myself one of the lucky ones. If I didn't think that, there would be something wrong with me. I'm grateful and thankful for what I've got.</b>
+> <p><i>Philip Seymour Hoffman</i></p>
 
 <br>
