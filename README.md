@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The New York art world readily proves people wrong. Just when folks say that things stink and flibbertigibbet critics wish the worst on us all because we're not pure enough, good omens appear.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Beauty is one of the rare things which does not lead to doubt of God.</b>
+> <p><i>Jean Anouilh</i></p>
 
 <br>
