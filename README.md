@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to inspire people to superior performance is to convince them by everything you do and by your everyday attitude that you are wholeheartedly supporting them.</b>
-> <p><i>Harold S. Geneen</i></p>
+> <b>In this business you have to develop a thick skin, but I'm always going to feel everything. It's my nature.</b>
+> <p><i>Taylor Swift</i></p>
 
 <br>
