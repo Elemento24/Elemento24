@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought it might be a good move to get into a beauty contest so I tried for Miss Pennsylvania and won. I think that helped me get noticed, at least by the people of Pennsylvania.</b>
-> <p><i>Sharon Stone</i></p>
+> <b>It is veneer, rouge, aestheticism, art museums, new theaters, etc. that make America impotent. The good things are football, kindness, and jazz bands.</b>
+> <p><i>George Santayana</i></p>
 
 <br>
