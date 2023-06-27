@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People will buy anything that is 'one to a customer.'</b>
-> <p><i>Sinclair Lewis</i></p>
+> <b>The feeling of your baby taking nourishment from your body for the first time is amazing, and it remains the most touching moment of my life.</b>
+> <p><i>Laura Schlessinger</i></p>
 
 <br>
