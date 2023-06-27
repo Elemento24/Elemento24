@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In this business you have to develop a thick skin, but I'm always going to feel everything. It's my nature.</b>
-> <p><i>Taylor Swift</i></p>
+> <b>I thought it might be a good move to get into a beauty contest so I tried for Miss Pennsylvania and won. I think that helped me get noticed, at least by the people of Pennsylvania.</b>
+> <p><i>Sharon Stone</i></p>
 
 <br>
