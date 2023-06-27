@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not interested in age. People who tell me their age are silly. You're as old as you feel.</b>
-> <p><i>Henri Frederic Amiel</i></p>
+> <b>I thought I was dreaming. It was the most amazing moment of my entire life. Not only is Bill the love of my life, but he's also my best friend. I couldn't believe my dream guy was asking me to marry him!</b>
+> <p><i>Giuliana Rancic</i></p>
 
 <br>
