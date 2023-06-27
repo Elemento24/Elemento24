@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm alone, I work sometimes with music, sometimes without and sometimes just listening to NPR.</b>
-> <p><i>Mikhail Baryshnikov</i></p>
+> <b>My size has helped make me an amazing performer too. The cliche of the Funny Fat Friend: I absolutely was that character - I am that character... It's a complicated bag of tools I acquired, and I've put them all to work onstage.</b>
+> <p><i>Beth Ditto</i></p>
 
 <br>
