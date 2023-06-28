@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.</b>
-> <p><i>Moliere</i></p>
+> <b>I started writing when I had three kids under the age of 4. I used to write every ten minutes I got to sit in front of a computer. Now, when I have more time, I function the same way: if it's writing time, I write.</b>
+> <p><i>Jodi Picoult</i></p>
 
 <br>
