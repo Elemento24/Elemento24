@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The feeling of your baby taking nourishment from your body for the first time is amazing, and it remains the most touching moment of my life.</b>
-> <p><i>Laura Schlessinger</i></p>
+> <b>The jewelry business is a very, very tough business - tougher than the computer business. You truly have to understand how to take care of your customers.</b>
+> <p><i>Guy Kawasaki</i></p>
 
 <br>
