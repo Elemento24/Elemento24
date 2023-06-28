@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be able to look back and say, 'I've done everything I can, and I was successful.' I don't want to look back and say I should have done this or that. I'd like to change things for the younger generation of swimmers coming along.</b>
-> <p><i>Michael Phelps</i></p>
+> <b>The only thing better than singing is more singing.</b>
+> <p><i>Ella Fitzgerald</i></p>
 
 <br>
