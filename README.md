@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A truly great book should be read in youth, again in maturity and once more in old age, as a fine building should be seen by morning light, at noon and by moonlight.</b>
-> <p><i>Robertson Davies</i></p>
+> <b>It's been amazing to watch, because for 'Thor', which was always a mid-selling book, to be in the top ten for every single issue since the reboot is just a great compliment.</b>
+> <p><i>J. Michael Straczynski</i></p>
 
 <br>
