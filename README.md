@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The architect should strive continually to simplify the ensemble of the rooms should then be carefully considered that comfort and utility may go hand in hand with beauty.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>It's not fair the emphasis put on beauty, or on sexuality.</b>
+> <p><i>Rosanna Arquette</i></p>
 
 <br>
