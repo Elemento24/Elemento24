@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But on second thought, after I decreed the state of emergency, I came to the conclusion that that was impossible to achieve without bloodshed because the street protesters were full of anger and nearly out of control. This is why I thought we needed to find another way out.</b>
-> <p><i>Eduard Shevardnadze</i></p>
+> <b>The architect should strive continually to simplify the ensemble of the rooms should then be carefully considered that comfort and utility may go hand in hand with beauty.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
