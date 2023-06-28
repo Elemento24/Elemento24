@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone has a different beauty and different qualities and I think that women need to learn to love their qualities and be comfortable in the fact that everyone is different.</b>
-> <p><i>Miranda Kerr</i></p>
+> <b>In art, scandal is a false narrative, a smoke screen that camouflages rather than reveals. When we don't know what we're seeing, we overreact.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
