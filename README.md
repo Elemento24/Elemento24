@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In art, scandal is a false narrative, a smoke screen that camouflages rather than reveals. When we don't know what we're seeing, we overreact.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I had never been able to get a car that said how much I cared about the environment until I drove electric.</b>
+> <p><i>Alexandra Paul</i></p>
 
 <br>
