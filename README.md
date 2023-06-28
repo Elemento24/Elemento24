@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You must capture and keep the heart of the original and supremely able man before his brain can do its best.</b>
-> <p><i>Andrew Carnegie</i></p>
+> <b>It is unthinkable for a Frenchman to arrive at middle age without having syphilis and the Cross of the Legion of Honor.</b>
+> <p><i>Andre Gide</i></p>
 
 <br>
