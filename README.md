@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not fair the emphasis put on beauty, or on sexuality.</b>
-> <p><i>Rosanna Arquette</i></p>
+> <b>You must capture and keep the heart of the original and supremely able man before his brain can do its best.</b>
+> <p><i>Andrew Carnegie</i></p>
 
 <br>
