@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Later, my father died up in Marysville. So, my mother and I got in the car and came down to Hollywood.</b>
-> <p><i>Marc Davis</i></p>
+> <b>A truly great book should be read in youth, again in maturity and once more in old age, as a fine building should be seen by morning light, at noon and by moonlight.</b>
+> <p><i>Robertson Davies</i></p>
 
 <br>
