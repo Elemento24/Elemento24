@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is unthinkable for a Frenchman to arrive at middle age without having syphilis and the Cross of the Legion of Honor.</b>
-> <p><i>Andre Gide</i></p>
+> <b>Age does not protect you from love. But love, to some extent, protects you from age.</b>
+> <p><i>Jeanne Moreau</i></p>
 
 <br>
