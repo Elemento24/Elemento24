@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been amazing to watch, because for 'Thor', which was always a mid-selling book, to be in the top ten for every single issue since the reboot is just a great compliment.</b>
-> <p><i>J. Michael Straczynski</i></p>
+> <b>Everyone has a different beauty and different qualities and I think that women need to learn to love their qualities and be comfortable in the fact that everyone is different.</b>
+> <p><i>Miranda Kerr</i></p>
 
 <br>
