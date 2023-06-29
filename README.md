@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Growing up in the Midwest, people don't drive Porsches and Ferraris. They drive Fords and Chevys. And so even if you have the opportunity to buy a more expensive car, it doesn't occur to you because it's not what you relate to.</b>
-> <p><i>Luke Perry</i></p>
+> <b>An aristocratic culture does not advertise its emotions. In its forms of expression it is sober and reserved. Its general attitude is stoic.</b>
+> <p><i>Johan Huizinga</i></p>
 
 <br>
