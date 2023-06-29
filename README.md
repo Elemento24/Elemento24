@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To write a story about New York that only deals with people in your age and socioeconomic bracket, that feels dishonest to me. So much of New York comes from everyone bumping into each other.</b>
-> <p><i>Josh Radnor</i></p>
+> <b>If a person gets his attitude toward money straight, it will help straighten out almost every other area in his life.</b>
+> <p><i>Billy Graham</i></p>
 
 <br>
