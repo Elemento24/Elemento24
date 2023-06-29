@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whatever is begun in anger ends in shame.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>The challenge is not to replace Obama but with who. It's not enough to just change up the uniform, if we don't change the team and the game plan, we won't save our country.</b>
+> <p><i>Sarah Palin</i></p>
 
 <br>
