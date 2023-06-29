@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For most people, we often marvel at the beauty of a sunrise or the magnificence of a full moon, but it is impossible to fathom the magnitude of the universe that surrounds us.</b>
-> <p><i>Richard H. Baker</i></p>
+> <b>It's an amazing feeling to go into a studio and really be alone.</b>
+> <p><i>Joaquin Phoenix</i></p>
 
 <br>
