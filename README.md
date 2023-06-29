@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man does not die of love or his liver or even of old age he dies of being a man.</b>
-> <p><i>Miguel de Unamuno</i></p>
+> <b>Food is not just what we put in our mouths to fill up it is culture and identity. Reason plays some role in our decisions about food, but it's rarely driving the car.</b>
+> <p><i>Jonathan Safran Foer</i></p>
 
 <br>
