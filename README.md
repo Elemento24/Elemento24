@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In L.A., I don't really want to go out because traffic sucks so bad. I'm sorry, I'm not going to spend five hours a day in my car, so you have to choose where you live very carefully.</b>
-> <p><i>Holly Madison</i></p>
+> <b>Always write angry letters to your enemies. Never mail them.</b>
+> <p><i>James Fallows</i></p>
 
 <br>
