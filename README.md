@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want art to make me think. In order to do that, it may piss me off, or make me uncomfortable. That promotes awareness and change, or at least some discussion.</b>
-> <p><i>Pink</i></p>
+> <b>The secret of a happy marriage is finding the right person. You know they're right if you love to be with them all the time.</b>
+> <p><i>Julia Child</i></p>
 
 <br>
