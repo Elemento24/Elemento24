@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're in a giant car heading towards a brick wall and everyone's arguing over where they're going to sit.</b>
-> <p><i>David Suzuki</i></p>
+> <b>Maybe more climate activists will think about the climate change not as an international problem to be resolved in an air-conditioned meeting hall, but as a guerilla war to be fought in the streets.</b>
+> <p><i>Jeff Goodell</i></p>
 
 <br>
