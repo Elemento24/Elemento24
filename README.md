@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is literally true that you can succeed best and quickest by helping others to succeed.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>It's the most amazing cast, a dream cast. We laugh all the time.</b>
+> <p><i>Nicole Sullivan</i></p>
 
 <br>
