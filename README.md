@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The American people are smart. They've gotten sick of the predictable hyperpartisan talking points and canned anger.</b>
-> <p><i>John Avlon</i></p>
+> <b>To write a story about New York that only deals with people in your age and socioeconomic bracket, that feels dishonest to me. So much of New York comes from everyone bumping into each other.</b>
+> <p><i>Josh Radnor</i></p>
 
 <br>
