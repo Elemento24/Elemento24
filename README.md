@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The challenge is not to replace Obama but with who. It's not enough to just change up the uniform, if we don't change the team and the game plan, we won't save our country.</b>
-> <p><i>Sarah Palin</i></p>
+> <b>A man does not die of love or his liver or even of old age he dies of being a man.</b>
+> <p><i>Miguel de Unamuno</i></p>
 
 <br>
