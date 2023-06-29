@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An economist's guess is liable to be as good as anybody else's.</b>
-> <p><i>Will Rogers</i></p>
+> <b>Whatever is begun in anger ends in shame.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
