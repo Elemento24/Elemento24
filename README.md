@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An aristocratic culture does not advertise its emotions. In its forms of expression it is sober and reserved. Its general attitude is stoic.</b>
-> <p><i>Johan Huizinga</i></p>
+> <b>We're in a giant car heading towards a brick wall and everyone's arguing over where they're going to sit.</b>
+> <p><i>David Suzuki</i></p>
 
 <br>
