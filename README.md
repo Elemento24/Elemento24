@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember when I was 6 years old and my brother used to go seek out guys that were 13 to come over and play football against me while he was the 'permanent quarterback.' I didn't know exactly what the age difference was, but I was already playing against older guys.</b>
-> <p><i>Junior Seau</i></p>
+> <b>A successful economic development strategy must focus on improving the skills of the area's workforce, reducing the cost of doing business and making available the resources business needs to compete and thrive in today's global economy.</b>
+> <p><i>Rod Blagojevich</i></p>
 
 <br>
