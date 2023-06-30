@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success doesn't necessarily come from breakthrough innovation but from flawless execution. A great strategy alone won't win a game or a battle the win comes from basic blocking and tackling.</b>
-> <p><i>Naveen Jain</i></p>
+> <b>I remember when I was 6 years old and my brother used to go seek out guys that were 13 to come over and play football against me while he was the 'permanent quarterback.' I didn't know exactly what the age difference was, but I was already playing against older guys.</b>
+> <p><i>Junior Seau</i></p>
 
 <br>
