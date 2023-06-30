@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is a manifestation of a deeper issue... and that, for me, is based on insecurity, self-esteem and loneliness.</b>
-> <p><i>Naomi Campbell</i></p>
+> <b>When you have two busy kids running around the house, returning e-mails is a task, let alone surfing the web.</b>
+> <p><i>Tom Brady</i></p>
 
 <br>
