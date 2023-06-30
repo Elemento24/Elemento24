@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Brains don't really smell, but what's amazing about the brain is that it's almost like scrambled eggs or soft tofu, almost like a gel. The brain controls so much of what we do, but you could put your finger right through it.</b>
-> <p><i>Ellen Pompeo</i></p>
+> <b>The son has always felt like he was a footnote in one of the stories the father tells. The father is an amazing storyteller and one of the tales that he tells is how he met his wife.</b>
+> <p><i>Danny DeVito</i></p>
 
 <br>
