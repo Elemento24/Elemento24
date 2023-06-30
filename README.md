@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did 10 years of comedies and 10 years of Westerns. I really like to stay away from car chases. I prefer the more intimate film. You have a much more direct association with the emotions.</b>
-> <p><i>Elmer Bernstein</i></p>
+> <b>I was impressed by Hendrix. His attitude was brilliant. Even the way he walked was amazing.</b>
+> <p><i>Ritchie Blackmore</i></p>
 
 <br>
