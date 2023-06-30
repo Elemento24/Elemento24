@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In old age we are like a batch of letters that someone has sent. We are no longer in the past, we have arrived.</b>
-> <p><i>Knut Hamsun</i></p>
+> <b>The Republican platform specifically says we don't believe in bailing out private business, and yet we did.</b>
+> <p><i>Rand Paul</i></p>
 
 <br>
