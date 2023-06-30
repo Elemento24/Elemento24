@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Artists don't make objects. Artists make mythologies.</b>
-> <p><i>Anish Kapoor</i></p>
+> <b>The will to work of everyone in the country is the best guarantee of national survival.</b>
+> <p><i>Bhumibol Adulyadej</i></p>
 
 <br>
