@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Republican platform specifically says we don't believe in bailing out private business, and yet we did.</b>
-> <p><i>Rand Paul</i></p>
+> <b>French architecture always manages to combine the most magnificent underlying themes of architecture like Roman design, it looks to the community.</b>
+> <p><i>Stephen Gardiner</i></p>
 
 <br>
