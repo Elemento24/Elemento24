@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At some point, I would like to write a book and other things, but I work best when there is some sort of deadline in my own mind, but not when fifty people or fifty million people are breathing down the back of my neck.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>I'm the one who gets called up about a problem. I'm the one who gets called up about the street lighting and the abandoned car. I'm the one who gets blamed if the police don't arrive. I'm the one they blame if a city truck is broken down.</b>
+> <p><i>Richard M. Daley</i></p>
 
 <br>
