@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>French architecture always manages to combine the most magnificent underlying themes of architecture like Roman design, it looks to the community.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>Anger is a manifestation of a deeper issue... and that, for me, is based on insecurity, self-esteem and loneliness.</b>
+> <p><i>Naomi Campbell</i></p>
 
 <br>
