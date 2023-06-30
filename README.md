@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was impressed by Hendrix. His attitude was brilliant. Even the way he walked was amazing.</b>
-> <p><i>Ritchie Blackmore</i></p>
+> <b>I personally love to run outdoor fitness trails. I love the meditative value I get when out alone, challenging myself to run faster and higher.</b>
+> <p><i>Laurieann Gibson</i></p>
 
 <br>
