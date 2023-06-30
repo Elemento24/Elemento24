@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love the giver more than the gift.</b>
-> <p><i>Brigham Young</i></p>
+> <b>Success doesn't necessarily come from breakthrough innovation but from flawless execution. A great strategy alone won't win a game or a battle the win comes from basic blocking and tackling.</b>
+> <p><i>Naveen Jain</i></p>
 
 <br>
