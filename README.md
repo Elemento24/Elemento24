@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always vote for principle, though you may vote alone, and you may cherish the sweetest reflection that your vote is never lost.</b>
-> <p><i>John Quincy Adams</i></p>
+> <b>I did 10 years of comedies and 10 years of Westerns. I really like to stay away from car chases. I prefer the more intimate film. You have a much more direct association with the emotions.</b>
+> <p><i>Elmer Bernstein</i></p>
 
 <br>
