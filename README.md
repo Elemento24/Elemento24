@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The son has always felt like he was a footnote in one of the stories the father tells. The father is an amazing storyteller and one of the tales that he tells is how he met his wife.</b>
-> <p><i>Danny DeVito</i></p>
+> <b>Anger is an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
