@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When taxidermy is done well it's an amazing piece of art.</b>
-> <p><i>Amanda Seyfried</i></p>
+> <b>You change with the guys you date.</b>
+> <p><i>Jessica Simpson</i></p>
 
 <br>
