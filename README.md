@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In America, we no longer have an institutionalized, organized way of calling business to task - of taking them to account for what they've done - and this is especially true in the cultural realm.</b>
-> <p><i>Thomas Frank</i></p>
+> <b>I'm really proud of myself because I've pared my beauty regimen down to a cream blush and berry-tinted lip balm, which has saved me so much time.</b>
+> <p><i>Katherine Heigl</i></p>
 
 <br>
