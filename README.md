@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If Martin Scorsese calls, I am available. And then there the ones, well, you can just run down the list - any of those Oscar-nominated films, they have amazing directors across the board.</b>
-> <p><i>Timothy Olyphant</i></p>
+> <b>Every day I'm thinking about change.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
