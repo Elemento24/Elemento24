@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Journalists do not live by words alone, although sometimes they have to eat them.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>When you raise taxes on small business, from 35% to 40%, you will kill jobs.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
