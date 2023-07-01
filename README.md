@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dad needs to show an incredible amount of respect and humor and friendship toward his mate so the kids understand their parents are sexy, they're fun, they do things together, they're best friends. Kids learn by example. If I respect Mom, they're going to respect Mom.</b>
-> <p><i>Tim Allen</i></p>
+> <b>A man is rich in proportion to the number of things he can afford to let alone.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
