@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We didn't have a beauty shop as I grew up.</b>
-> <p><i>Jenifer Lewis</i></p>
+> <b>Anything that isn't opposed by about 40 percent of humanity is either an evil business or so unimportant that it simply doesn't matter.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
