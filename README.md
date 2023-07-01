@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man is rich in proportion to the number of things he can afford to let alone.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>I don't have an interest in any car that isn't good for the environment, other than maybe an aesthetic quality in a picture book.</b>
+> <p><i>Emile Hirsch</i></p>
 
 <br>
