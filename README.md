@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The '80s made up for all the abuse I took during the '70s. I outlived all my critics. By the time I retired, everybody saw me as a venerable institution. Things do change.</b>
-> <p><i>Kareem Abdul-Jabbar</i></p>
+> <b>Dad needs to show an incredible amount of respect and humor and friendship toward his mate so the kids understand their parents are sexy, they're fun, they do things together, they're best friends. Kids learn by example. If I respect Mom, they're going to respect Mom.</b>
+> <p><i>Tim Allen</i></p>
 
 <br>
