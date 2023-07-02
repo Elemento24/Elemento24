@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Weakness of attitude becomes weakness of character.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>The New York Quarterly is an amazing, intelligent, crazy, creative, strange, and indispensable magazine.</b>
+> <p><i>James Dickey</i></p>
 
 <br>
