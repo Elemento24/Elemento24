@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would have liked maybe to be in architecture or painting, something connected to the fine arts.</b>
-> <p><i>Catherine Deneuve</i></p>
+> <b>Good, better, best. Never let it rest. 'Til your good is better and your better is best.</b>
+> <p><i>St. Jerome</i></p>
 
 <br>
