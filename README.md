@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To refrain from imitation is the best revenge.</b>
-> <p><i>Marcus Aurelius</i></p>
+> <b>Politics is just show business for ugly people.</b>
+> <p><i>Jay Leno</i></p>
 
 <br>
