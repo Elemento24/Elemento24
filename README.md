@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty about the D-list is that people who are on it probably don't know they are.</b>
-> <p><i>Kathy Griffin</i></p>
+> <b>I am aware that in presenting myself as the advocate of the Indians and their rights, I shall stand very much alone.</b>
+> <p><i>Sam Houston</i></p>
 
 <br>
