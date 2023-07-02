@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am aware that in presenting myself as the advocate of the Indians and their rights, I shall stand very much alone.</b>
-> <p><i>Sam Houston</i></p>
+> <b>To refrain from imitation is the best revenge.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
