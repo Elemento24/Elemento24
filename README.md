@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good, better, best. Never let it rest. 'Til your good is better and your better is best.</b>
-> <p><i>St. Jerome</i></p>
+> <b>The best way to turn a woman's head is to tell her she has a beautiful profile.</b>
+> <p><i>Sacha Guitry</i></p>
 
 <br>
