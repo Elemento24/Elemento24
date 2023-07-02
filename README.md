@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to turn a woman's head is to tell her she has a beautiful profile.</b>
-> <p><i>Sacha Guitry</i></p>
+> <b>The most common error made in matters of appearance is the belief that one should disdain the superficial and let the true beauty of one's soul shine through. If there are places on your body where this is a possibility, you are not attractive - you are leaking.</b>
+> <p><i>Charles Lamb</i></p>
 
 <br>
