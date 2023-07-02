@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think beauty comes from within, and society paints a ridiculous picture.</b>
-> <p><i>Rachel Bilson</i></p>
+> <b>I separated from the Southern Baptists when they adopted the discriminatory attitude towards women, because I believe what Paul taught in Galatians that there is no distinction in God's eyes between men and women, slaves and masters, Jews and non-Jews - everybody is created equally in the eyes of God.</b>
+> <p><i>Jimmy Carter</i></p>
 
 <br>
