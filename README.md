@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think happiness comes from self-acceptance. We all try different things, and we find some comfortable sense of who we are. We look at our parents and learn and grow and move on. We change.</b>
-> <p><i>Jamie Lee Curtis</i></p>
+> <b>But no nation can base its survival and development on luck and prayers alone while its leadership fritters away every available opportunity for success and concrete achievement.</b>
+> <p><i>Ibrahim Babangida</i></p>
 
 <br>
