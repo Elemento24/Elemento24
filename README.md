@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think clothes should make you feel safe. I like clothes you want to go to sleep in. I sometimes stand in front of a mirror and change a million times because I know I really want to wear my nightgown.</b>
-> <p><i>Gilda Radner</i></p>
+> <b>I have believed the best of every man. And find that to believe is enough to make a bad man show him at his best, or even a good man swings his lantern higher.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
