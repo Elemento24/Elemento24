@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our task, of course, is to transmute the anger that is affliction into the anger that is determination to bring about change. I think, in fact, that one could give that as a definition of revolution.</b>
-> <p><i>Barbara Deming</i></p>
+> <b>I like to have Chinese furniture in my home as a constant and painful reminder of how much has been destroyed in China. The contrast between the beauty of the past and the ugliness of the modern is nowhere sharper than in China.</b>
+> <p><i>Jung Chang</i></p>
 
 <br>
