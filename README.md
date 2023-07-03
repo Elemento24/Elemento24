@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to have Chinese furniture in my home as a constant and painful reminder of how much has been destroyed in China. The contrast between the beauty of the past and the ugliness of the modern is nowhere sharper than in China.</b>
-> <p><i>Jung Chang</i></p>
+> <b>Spend a lot of time talking to customers face to face. You'd be amazed how many companies don't listen to their customers.</b>
+> <p><i>Ross Perot</i></p>
 
 <br>
