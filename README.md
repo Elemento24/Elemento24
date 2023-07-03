@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture, of all the arts, is the one which acts the most slowly, but the most surely, on the soul.</b>
-> <p><i>Ernest Dimnet</i></p>
+> <b>The art of progress is to preserve order amid change and to preserve change amid order.</b>
+> <p><i>Alfred North Whitehead</i></p>
 
 <br>
