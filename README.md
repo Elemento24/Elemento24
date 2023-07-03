@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always think of what is useful and not what is beautiful. Beauty will come of its own accord.</b>
-> <p><i>Nikolai Gogol</i></p>
+> <b>I had an amazing experience working with great people. I had a great family, a typical family with drama in certain areas, and that's pretty much everywhere in everyone's life.</b>
+> <p><i>Tina Yothers</i></p>
 
 <br>
