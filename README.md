@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that being successful means having a balance of success stories across the many areas of your life. You can't truly be considered successful in your business life if your home life is in shambles.</b>
-> <p><i>Zig Ziglar</i></p>
+> <b>While the river of life glides along smoothly, it remains the same river only the landscape on either bank seems to change.</b>
+> <p><i>Max Muller</i></p>
 
 <br>
