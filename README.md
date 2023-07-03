@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you raise taxes on small business, from 35% to 40%, you will kill jobs.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>I think happiness comes from self-acceptance. We all try different things, and we find some comfortable sense of who we are. We look at our parents and learn and grow and move on. We change.</b>
+> <p><i>Jamie Lee Curtis</i></p>
 
 <br>
