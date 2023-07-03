@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is Homer who has chiefly taught other poets the art of telling lies skillfully.</b>
-> <p><i>Aristotle</i></p>
+> <b>Architecture, of all the arts, is the one which acts the most slowly, but the most surely, on the soul.</b>
+> <p><i>Ernest Dimnet</i></p>
 
 <br>
