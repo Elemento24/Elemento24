@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man growing old becomes a child again.</b>
-> <p><i>Sophocles</i></p>
+> <b>I'd love to write something for a male protagonist. That's sort of the next frontier for me. I think it'd be really amazing to write the kind of parts that I love for women but for a guy.</b>
+> <p><i>Lena Dunham</i></p>
 
 <br>
