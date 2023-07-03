@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Spend a lot of time talking to customers face to face. You'd be amazed how many companies don't listen to their customers.</b>
-> <p><i>Ross Perot</i></p>
+> <b>A man growing old becomes a child again.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
