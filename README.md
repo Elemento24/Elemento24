@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While the river of life glides along smoothly, it remains the same river only the landscape on either bank seems to change.</b>
-> <p><i>Max Muller</i></p>
+> <b>I think clothes should make you feel safe. I like clothes you want to go to sleep in. I sometimes stand in front of a mirror and change a million times because I know I really want to wear my nightgown.</b>
+> <p><i>Gilda Radner</i></p>
 
 <br>
