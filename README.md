@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You watch yourself age and it's hard to feel like a sex symbol.</b>
-> <p><i>Idris Elba</i></p>
+> <b>Although my family - parents and sister - all work in the personnel management business, their real passion is performing, amateur operatic societies and so on.</b>
+> <p><i>Michael Sheen</i></p>
 
 <br>
