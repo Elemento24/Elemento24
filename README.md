@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A race is a work of art that people can look at and be affected in as many ways they're capable of understanding.</b>
-> <p><i>Steve Prefontaine</i></p>
+> <b>Mattresses! Beautiful! Let's go buy a couple of mattresses. Give 'em to people for their birthday.</b>
+> <p><i>Lawrence Tierney</i></p>
 
 <br>
