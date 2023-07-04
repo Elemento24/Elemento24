@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life doesn't imitate art, it imitates bad television.</b>
-> <p><i>Woody Allen</i></p>
+> <b>My best friend is the man who in wishing me well wishes it for my sake.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
