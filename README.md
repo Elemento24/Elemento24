@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother was 45 when she had me, so when I was in high school my parents were the same age as my friends' grandparents.</b>
-> <p><i>Jack White</i></p>
+> <b>A race is a work of art that people can look at and be affected in as many ways they're capable of understanding.</b>
+> <p><i>Steve Prefontaine</i></p>
 
 <br>
