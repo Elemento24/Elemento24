@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My wife wants sex in the back of the car and she wants me to drive.</b>
-> <p><i>Rodney Dangerfield</i></p>
+> <b>In an age of incompetence, I've been able to last in this crazy business. I actually know how to play my ax and write a song. That's my job.</b>
+> <p><i>Billy Joel</i></p>
 
 <br>
