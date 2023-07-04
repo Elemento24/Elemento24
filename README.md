@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Picture yourself vividly as winning, and that alone will contribute immeasurably to success.</b>
-> <p><i>Harry Emerson Fosdick</i></p>
+> <b>Let me tell you quite bluntly that this king business has given me personally nothing but headaches.</b>
+> <p><i>Mohammed Reza Pahlavi</i></p>
 
 <br>
