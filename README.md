@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the age when Bengali youth almost inevitably writes poetry, I was listening to European classical music.</b>
-> <p><i>Satyajit Ray</i></p>
+> <b>One of my favorite activities as a teen-ager was to watch television over the phone with my best friend.</b>
+> <p><i>Susan Orlean</i></p>
 
 <br>
