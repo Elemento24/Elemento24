@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean one of the things about being alone is that you've no people to define yourself off, I mean, people are like all-round mirrors, because let's face it, we don't often see ourselves all round in a mirror anyway, do we.</b>
-> <p><i>Diana Wynne Jones</i></p>
+> <b>Disneyland is a work of love. We didn't go into Disneyland just with the idea of making money.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
