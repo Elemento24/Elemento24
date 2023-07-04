@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Disneyland is a work of love. We didn't go into Disneyland just with the idea of making money.</b>
-> <p><i>Walt Disney</i></p>
+> <b>Life doesn't imitate art, it imitates bad television.</b>
+> <p><i>Woody Allen</i></p>
 
 <br>
