@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love is the beauty of the soul.</b>
-> <p><i>Saint Augustine</i></p>
+> <b>I have several computer companies. One of them I have a program for wide-format printing. I have a beauty program. So I have several different programs that I own for printing.</b>
+> <p><i>Jerry Mathers</i></p>
 
 <br>
