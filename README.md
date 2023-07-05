@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love physical kinds of comedy and getting down and dirty and doing stunts. When I was growing up, I was always getting into fights with guys and usually punching out boys my age because I was a lot bigger and tougher. So I'm naturally accustomed to putting myself into the headspace of a girl who can take care of herself.</b>
-> <p><i>Cameron Diaz</i></p>
+> <b>I've been screaming at the top of my lungs at my family, 'Work out! Work out! Old age is coming!'</b>
+> <p><i>Cher</i></p>
 
 <br>
