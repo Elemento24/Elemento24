@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have three dogs, a cat, fish. I'm a huge animal lover. They're amazing.</b>
-> <p><i>Willow Shields</i></p>
+> <b>My philosophy is: It's none of my business what people say of me and think of me.</b>
+> <p><i>Anthony Hopkins</i></p>
 
 <br>
