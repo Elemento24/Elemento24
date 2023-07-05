@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty that addresses itself to the eyes is only the spell of the moment the eye of the body is not always that of the soul.</b>
-> <p><i>George Sand</i></p>
+> <b>If you write a novel alone you sit and you weave a little narrative. And it's O.K., but it's of no account.</b>
+> <p><i>V. S. Naipaul</i></p>
 
 <br>
