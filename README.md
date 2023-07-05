@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People may hear your words, but they feel your attitude.</b>
-> <p><i>John C. Maxwell</i></p>
+> <b>The beauty that addresses itself to the eyes is only the spell of the moment the eye of the body is not always that of the soul.</b>
+> <p><i>George Sand</i></p>
 
 <br>
