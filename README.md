@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is only a number, a cipher for the records. A man can't retire his experience. He must use it. Experience achieves more with less energy and time.</b>
-> <p><i>Bernard Baruch</i></p>
+> <b>Self-reverence, self-knowledge, self-control these three alone lead one to sovereign power.</b>
+> <p><i>Alfred Lord Tennyson</i></p>
 
 <br>
