@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Resolve and thou art free.</b>
-> <p><i>Henry Wadsworth Longfellow</i></p>
+> <b>The best minds are not in government. If any were, business would steal them away.</b>
+> <p><i>Ronald Reagan</i></p>
 
 <br>
