@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marilyn Monroe wasn't even her real name, Charles Manson isn't his real name, and now, I'm taking that to be my real name. But what's real? You can't find the truth, you just pick the lie you like the best.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>I always had the attitude that I wanted to throw a no-hitter every game.</b>
+> <p><i>Dennis Eckersley</i></p>
 
 <br>
