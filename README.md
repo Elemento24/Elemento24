@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My philosophy is: It's none of my business what people say of me and think of me.</b>
-> <p><i>Anthony Hopkins</i></p>
+> <b>Marilyn Monroe wasn't even her real name, Charles Manson isn't his real name, and now, I'm taking that to be my real name. But what's real? You can't find the truth, you just pick the lie you like the best.</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
