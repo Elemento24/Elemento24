@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always had the attitude that I wanted to throw a no-hitter every game.</b>
-> <p><i>Dennis Eckersley</i></p>
+> <b>One irreducible residual of 38 years in the business is the number of lasting, loving friendships I have made.</b>
+> <p><i>Carroll O'Connor</i></p>
 
 <br>
