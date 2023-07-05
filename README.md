@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One irreducible residual of 38 years in the business is the number of lasting, loving friendships I have made.</b>
-> <p><i>Carroll O'Connor</i></p>
+> <b>The scientific theory I like best is that the rings of Saturn are composed entirely of lost airline luggage.</b>
+> <p><i>Mark Russell</i></p>
 
 <br>
