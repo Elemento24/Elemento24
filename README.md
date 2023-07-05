@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way out is always through.</b>
-> <p><i>Robert Frost</i></p>
+> <b>Age is only a number, a cipher for the records. A man can't retire his experience. He must use it. Experience achieves more with less energy and time.</b>
+> <p><i>Bernard Baruch</i></p>
 
 <br>
