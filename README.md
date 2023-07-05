@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been screaming at the top of my lungs at my family, 'Work out! Work out! Old age is coming!'</b>
-> <p><i>Cher</i></p>
+> <b>My parents were dishonest people. If it was my birthday, I knew my mother took me to the K-Mart and she stole my toy. She'd put it in the shopping cart and we'd walk out. I was raised with that.</b>
+> <p><i>Vincent Gallo</i></p>
 
 <br>
