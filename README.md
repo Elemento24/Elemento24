@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents were dishonest people. If it was my birthday, I knew my mother took me to the K-Mart and she stole my toy. She'd put it in the shopping cart and we'd walk out. I was raised with that.</b>
-> <p><i>Vincent Gallo</i></p>
+> <b>Discount air fares, a car in every parking space and the interstate highway system have made every place accessible - and every place alike.</b>
+> <p><i>Ronald Steel</i></p>
 
 <br>
