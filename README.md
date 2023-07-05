@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wigs have always been a part of my life and have become a staple accessory in my closet. I can remember being a little girl and hearing all the commotion in my house from my mom, aunts and grandmother when picking out their wigs for the day. It was such a good time for them and part of their everyday beauty routine.</b>
-> <p><i>Sherri Shepherd</i></p>
+> <b>One of the most amazing locations I've ever been is the top of the volcano in Tanzania, Africa. It's an actual volcano where you really have this lava every day.</b>
+> <p><i>Jan de Bont</i></p>
 
 <br>
