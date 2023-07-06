@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I work alone, my process is like painting. With Fleetwood Mac, it's more like movie making.</b>
-> <p><i>Lindsey Buckingham</i></p>
+> <b>Since we cannot change reality, let us change the eyes which see reality.</b>
+> <p><i>Nikos Kazantzakis</i></p>
 
 <br>
