@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every time I hear, Cut. Print, something cold and electrical goes off in my head, because I'm never going to change that film.</b>
-> <p><i>David Ogden Stiers</i></p>
+> <b>Progress is impossible without change, and those who cannot change their minds cannot change anything.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
