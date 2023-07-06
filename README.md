@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since we cannot change reality, let us change the eyes which see reality.</b>
-> <p><i>Nikos Kazantzakis</i></p>
+> <b>Yoga's an amazing release.</b>
+> <p><i>Monica Keena</i></p>
 
 <br>
