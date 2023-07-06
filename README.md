@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yoga's an amazing release.</b>
-> <p><i>Monica Keena</i></p>
+> <b>In true dialogue, both sides are willing to change.</b>
+> <p><i>Nhat Hanh</i></p>
 
 <br>
