@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is in moments of illness that we are compelled to recognize that we live not alone but chained to a creature of a different kingdom, whole worlds apart, who has no knowledge of us and by whom it is impossible to make ourselves understood: our body.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>Deals are my art form. Other people paint beautifully on canvas or write wonderful poetry. I like making deals, preferably big deals. That's how I get my kicks.</b>
+> <p><i>Edward Koch</i></p>
 
 <br>
