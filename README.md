@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me, the best times are always going to be the most intense, the ones with the highest highs and the lowest lows.</b>
-> <p><i>Fiona Apple</i></p>
+> <b>It is in moments of illness that we are compelled to recognize that we live not alone but chained to a creature of a different kingdom, whole worlds apart, who has no knowledge of us and by whom it is impossible to make ourselves understood: our body.</b>
+> <p><i>Marcel Proust</i></p>
 
 <br>
