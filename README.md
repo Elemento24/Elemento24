@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Deals are my art form. Other people paint beautifully on canvas or write wonderful poetry. I like making deals, preferably big deals. That's how I get my kicks.</b>
-> <p><i>Edward Koch</i></p>
+> <b>I have always been a business person.</b>
+> <p><i>Bethenny Frankel</i></p>
 
 <br>
