@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I enjoy trying to develop a car and Mercedes are one of the biggest car manufacturers in the world.</b>
-> <p><i>Lewis Hamilton</i></p>
+> <b>Every time I hear, Cut. Print, something cold and electrical goes off in my head, because I'm never going to change that film.</b>
+> <p><i>David Ogden Stiers</i></p>
 
 <br>
