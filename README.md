@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe the best service to the child is the service closest to the child, and children who are victims of neglect, abuse, or abandonment must not also be victims of bureaucracy. They deserve our devoted attention, not our divided attention.</b>
-> <p><i>Kenny Guinn</i></p>
+> <b>To be happy, we must be true to nature and carry our age along with us.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
