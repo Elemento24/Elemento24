@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Discount air fares, a car in every parking space and the interstate highway system have made every place accessible - and every place alike.</b>
-> <p><i>Ronald Steel</i></p>
+> <b>For me, the best times are always going to be the most intense, the ones with the highest highs and the lowest lows.</b>
+> <p><i>Fiona Apple</i></p>
 
 <br>
