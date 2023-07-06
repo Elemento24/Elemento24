@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not longer loved or fostered by religion, beauty is lifted from its face as a mask, and its absence exposes features on that face which threaten to become incomprehensible to man.</b>
-> <p><i>Hans Urs von Balthasar</i></p>
+> <b>Everyone knows that by far the happiest and universally enjoyable age of man is the first. What is there about babies which makes us hug and kiss and fondle them, so that even an enemy would give them help at that age?</b>
+> <p><i>Desiderius Erasmus</i></p>
 
 <br>
