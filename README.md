@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No architecture is so haughty as that which is simple.</b>
-> <p><i>John Ruskin</i></p>
+> <b>Architecture can't fully represent the chaos and turmoil that are part of the human personality, but you need to put some of that turmoil into the architecture, or it isn't real.</b>
+> <p><i>Frank Stella</i></p>
 
 <br>
