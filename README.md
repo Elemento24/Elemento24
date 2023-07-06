@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone knows that by far the happiest and universally enjoyable age of man is the first. What is there about babies which makes us hug and kiss and fondle them, so that even an enemy would give them help at that age?</b>
-> <p><i>Desiderius Erasmus</i></p>
+> <b>You cannot expect the guy who drove the car into the ditch to navigate it out of the ditch. You have to put a new driver in the seat. I'm not saying the new driver is going to be any better, but we need a new driver. Kerry is the only choice.</b>
+> <p><i>John Mellencamp</i></p>
 
 <br>
