@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You cannot expect the guy who drove the car into the ditch to navigate it out of the ditch. You have to put a new driver in the seat. I'm not saying the new driver is going to be any better, but we need a new driver. Kerry is the only choice.</b>
-> <p><i>John Mellencamp</i></p>
+> <b>No architecture is so haughty as that which is simple.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
