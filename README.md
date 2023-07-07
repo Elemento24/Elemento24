@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant.</b>
-> <p><i>Tony Robbins</i></p>
+> <b>I understand Tea Partyers' anger with the system, but they are in way over their heads and often racially motivated, and I can't be part of that.</b>
+> <p><i>Zach Galifianakis</i></p>
 
 <br>
