@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that the way people live can be directed a little by architecture.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>In art, scandal is a false narrative, a smoke screen that camouflages rather than reveals. When we don't know what we're seeing, we overreact.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
