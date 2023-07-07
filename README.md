@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Facts which at first seem improbable will, even on scant explanation, drop the cloak which has hidden them and stand forth in naked and simple beauty.</b>
-> <p><i>Galileo Galilei</i></p>
+> <b>As far as I'm aware, everybody in the shadow cabinet accepts that there's a compelling case on climate change and a strong scientific case.</b>
+> <p><i>William Hague</i></p>
 
 <br>
