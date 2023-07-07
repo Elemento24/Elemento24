@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I choose a block of marble and chop off whatever I don't need.</b>
-> <p><i>Auguste Rodin</i></p>
+> <b>Someday we'll look back on this moment and plow into a parked car.</b>
+> <p><i>Evan Davis</i></p>
 
 <br>
