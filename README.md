@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way to get things done is not to mind who gets the credit for doing them.</b>
-> <p><i>Benjamin Jowett</i></p>
+> <b>Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant.</b>
+> <p><i>Tony Robbins</i></p>
 
 <br>
