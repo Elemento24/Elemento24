@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing in this world can take the place of persistence. Talent will not nothing is more common than unsuccessful people with talent. Genius will not unrewarded genius is almost a proverb. Education will not the world is full of educated failures. Persistence and determination alone are omnipotent.</b>
-> <p><i>Calvin Coolidge</i></p>
+> <b>I choose a block of marble and chop off whatever I don't need.</b>
+> <p><i>Auguste Rodin</i></p>
 
 <br>
