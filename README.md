@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An archaeologist is the best husband a woman can have. The older she gets the more interested he is in her.</b>
-> <p><i>Agatha Christie</i></p>
+> <b>I rememeber one time we were getting ready to go to South America and everything was packed up and in the car ready to go and I hid and I was crying because I really did not want to go, I wanted to play. I did not want to go.</b>
+> <p><i>Michael Jackson</i></p>
 
 <br>
