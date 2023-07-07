@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You must do as your people do. If my people are poor, I must be poor. People ask me, 'Why don't you find a personal coach or a private car?' I can't. Then I won't be part of my people.</b>
-> <p><i>Haile Gebrselassie</i></p>
+> <b>Facts which at first seem improbable will, even on scant explanation, drop the cloak which has hidden them and stand forth in naked and simple beauty.</b>
+> <p><i>Galileo Galilei</i></p>
 
 <br>
