@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is a short madness.</b>
-> <p><i>Horace</i></p>
+> <b>The harvest of old age is the recollection and abundance of blessing previously secured.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
