@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our favorite holding period is forever.</b>
-> <p><i>Warren Buffett</i></p>
+> <b>I believe that the way people live can be directed a little by architecture.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
