@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The harvest of old age is the recollection and abundance of blessing previously secured.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>An archaeologist is the best husband a woman can have. The older she gets the more interested he is in her.</b>
+> <p><i>Agatha Christie</i></p>
 
 <br>
