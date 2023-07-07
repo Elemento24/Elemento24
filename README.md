@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I understand Tea Partyers' anger with the system, but they are in way over their heads and often racially motivated, and I can't be part of that.</b>
-> <p><i>Zach Galifianakis</i></p>
+> <b>I've watched my peers get better with age and hoped that would happen with me.</b>
+> <p><i>Bonnie Raitt</i></p>
 
 <br>
