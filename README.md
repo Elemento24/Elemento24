@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What other people think about me is not my business.</b>
-> <p><i>Michael J. Fox</i></p>
+> <b>You must do as your people do. If my people are poor, I must be poor. People ask me, 'Why don't you find a personal coach or a private car?' I can't. Then I won't be part of my people.</b>
+> <p><i>Haile Gebrselassie</i></p>
 
 <br>
