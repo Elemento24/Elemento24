@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was fired at the pinnacle of my career, on my 39th birthday. And in the year that followed, I learned that there are many psychological phases of being 'let go.'</b>
-> <p><i>Mika Brzezinski</i></p>
+> <b>Our favorite holding period is forever.</b>
+> <p><i>Warren Buffett</i></p>
 
 <br>
