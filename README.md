@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's an amazing quality to be able to roll with the punches and not be totally ruined as a person because life's been rough for you. That's a really admirable way to go through your life.</b>
-> <p><i>Anna Paquin</i></p>
+> <b>We must stop thinking of the individual and start thinking about what is best for society.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
