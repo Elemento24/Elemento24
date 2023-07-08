@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I consider skateboarding an art form, a lifestyle and a sport. 'Action sport' would be the least offensive categorization.</b>
-> <p><i>Tony Hawk</i></p>
+> <b>I think it's an amazing quality to be able to roll with the punches and not be totally ruined as a person because life's been rough for you. That's a really admirable way to go through your life.</b>
+> <p><i>Anna Paquin</i></p>
 
 <br>
