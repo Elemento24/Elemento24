@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the First Amendment means anything, it means that a state has no business telling a man, sitting alone in his house, what books he may read or what films he may watch.</b>
-> <p><i>Thurgood Marshall</i></p>
+> <b>In the modern media age we are rarely surprised by what we see. Whether it's on television or film or in the theatre, everything is so advertised, so trailed, that most entertainment is merely what you thought it was going to be like.</b>
+> <p><i>Rowan Atkinson</i></p>
 
 <br>
