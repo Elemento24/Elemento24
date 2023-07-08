@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I can change than anyone can change. I promise you that.</b>
-> <p><i>Brett Favre</i></p>
+> <b>A large income is the best recipe for happiness I ever heard of.</b>
+> <p><i>Jane Austen</i></p>
 
 <br>
