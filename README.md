@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I once bought an old car back after I sold it because I missed it so much and I had forgotten that it never ran. It was a British racing car. You know, because I just wanted it back. I could only remember what was good about it.</b>
-> <p><i>Connie Chung</i></p>
+> <b>We also listen to PJ Harvey a lot of driving music. You need something a little more relaxing in the car.</b>
+> <p><i>Brody Armstrong</i></p>
 
 <br>
