@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you are interested enough in the climate crisis to read this post, you probably know that 2 degrees Centigrade of warming (or 3.6 degrees Fahrenheit) is the widely acknowledged threshold for "dangerous" climate change.</b>
-> <p><i>Jeff Goodell</i></p>
+> <b>Virtue alone has majesty in death.</b>
+> <p><i>Edward Young</i></p>
 
 <br>
