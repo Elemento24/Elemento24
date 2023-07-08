@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Painting, n.: The art of protecting flat surfaces from the weather, and exposing them to the critic.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>When I was little, I saw the play 'Les Miserables' on Broadway, I thought it was the most amazing thing I have ever seen.</b>
+> <p><i>Ashley Tisdale</i></p>
 
 <br>
