@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today osteoporosis affects more than 75 million people in the United States, Europe and Japan and causes more than 2.3 million fractures in the USA and Europe alone.</b>
-> <p><i>Gro Harlem Brundtland</i></p>
+> <b>If I can change than anyone can change. I promise you that.</b>
+> <p><i>Brett Favre</i></p>
 
 <br>
