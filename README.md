@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A large income is the best recipe for happiness I ever heard of.</b>
-> <p><i>Jane Austen</i></p>
+> <b>I love the fact we're still on the road. I was born to be a factory worker really, so for me the chance to get on stage at Wembley 30 years after we started is amazing.</b>
+> <p><i>Joe Elliott</i></p>
 
 <br>
