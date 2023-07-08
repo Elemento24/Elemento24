@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Virtue alone has majesty in death.</b>
-> <p><i>Edward Young</i></p>
+> <b>I consider skateboarding an art form, a lifestyle and a sport. 'Action sport' would be the least offensive categorization.</b>
+> <p><i>Tony Hawk</i></p>
 
 <br>
