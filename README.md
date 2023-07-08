@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We also listen to PJ Harvey a lot of driving music. You need something a little more relaxing in the car.</b>
-> <p><i>Brody Armstrong</i></p>
+> <b>Hatred is settled anger.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
