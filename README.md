@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>History develops, art stands still.</b>
-> <p><i>E. M. Forster</i></p>
+> <b>Sales are contingent upon the attitude of the salesman - not the attitude of the prospect.</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
