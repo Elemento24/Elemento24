@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love the fact we're still on the road. I was born to be a factory worker really, so for me the chance to get on stage at Wembley 30 years after we started is amazing.</b>
-> <p><i>Joe Elliott</i></p>
+> <b>My parents were dishonest people. If it was my birthday, I knew my mother took me to the K-Mart and she stole my toy. She'd put it in the shopping cart and we'd walk out. I was raised with that.</b>
+> <p><i>Vincent Gallo</i></p>
 
 <br>
