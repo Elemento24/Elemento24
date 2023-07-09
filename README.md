@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Come rain or shine I walk short distances rather than taking my car.</b>
-> <p><i>Sophie Ellis-Bextor</i></p>
+> <b>Everything that has happened to me has been amazing and surprising.</b>
+> <p><i>R. L. Stine</i></p>
 
 <br>
