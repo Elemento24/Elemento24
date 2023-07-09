@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Imagination disposes of everything it creates beauty, justice, and happiness, which are everything in this world.</b>
-> <p><i>Blaise Pascal</i></p>
+> <b>I'm not sure I make old bones in parliament. It's an amazing experience to have had but I can't see myself being Mother of the House.</b>
+> <p><i>Louise Mensch</i></p>
 
 <br>
