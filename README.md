@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A thing of beauty is a joy forever: its loveliness increases it will never pass into nothingness.</b>
-> <p><i>John Keats</i></p>
+> <b>Come rain or shine I walk short distances rather than taking my car.</b>
+> <p><i>Sophie Ellis-Bextor</i></p>
 
 <br>
