@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you can kill animals, the same attitude can kill human beings. The mentality is the same which exploits nature and which creates wars.</b>
-> <p><i>Satish Kumar</i></p>
+> <b>Mattresses! Beautiful! Let's go buy a couple of mattresses. Give 'em to people for their birthday.</b>
+> <p><i>Lawrence Tierney</i></p>
 
 <br>
