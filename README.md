@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I started auditioning when I was about 10 and I didn't get my first job until I was 12, and two years at that age is really hard.</b>
-> <p><i>Anna Kendrick</i></p>
+> <b>I do not want to admit to the world that I can be a bad person. It is just that I don't want anyone to have false expectations. Moviemaking is a harsh, volatile business, and unless you can be ruthless, too, there's a good chance that you are going to disappear off the scene pretty quickly.</b>
+> <p><i>Tom Hanks</i></p>
 
 <br>
