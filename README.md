@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was living on the street I would be standing out in front of Grauman's Chinese Theater, leaning against my car and signing autographs and nobody had any idea that I was living in it.</b>
-> <p><i>Danny Bonaduce</i></p>
+> <b>Imagination disposes of everything it creates beauty, justice, and happiness, which are everything in this world.</b>
+> <p><i>Blaise Pascal</i></p>
 
 <br>
