@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The spirit of democracy is not a mechanical thing to be adjusted by abolition of forms. It requires change of heart.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>If it's your job to eat a frog, it's best to do it first thing in the morning. And If it's your job to eat two frogs, it's best to eat the biggest one first.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
