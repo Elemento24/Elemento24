@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know a lot of Eastern Europeans, and because of what they have been through and what they have seen, they have an attitude where they are not easily fooled.</b>
-> <p><i>Francine Prose</i></p>
+> <b>And I think there's something about conservatives frankly - and the Left, when it comes to their channels of persuasion, are unpersuasive. They are, most of them are hate-filled, obscenity-clogged rants of anger and hatred.</b>
+> <p><i>Karl Rove</i></p>
 
 <br>
