@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I don't make the team out of spring training, I'll keep a good attitude. I'll just go polish up the parts of my game that made me not stay in the big leagues.</b>
-> <p><i>Cory Lidle</i></p>
+> <b>I've had an amazing professional life, personal life, but at 64 to have a son who gives us that much love and enjoyment is, wow!</b>
+> <p><i>Elton John</i></p>
 
 <br>
