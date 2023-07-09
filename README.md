@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything that has happened to me has been amazing and surprising.</b>
-> <p><i>R. L. Stine</i></p>
+> <b>If you can kill animals, the same attitude can kill human beings. The mentality is the same which exploits nature and which creates wars.</b>
+> <p><i>Satish Kumar</i></p>
 
 <br>
