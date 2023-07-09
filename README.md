@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would like to say to people, open your eyes and find beauty where you normally don't expect it.</b>
-> <p><i>Jean Paul Gaultier</i></p>
+> <b>When I was living on the street I would be standing out in front of Grauman's Chinese Theater, leaning against my car and signing autographs and nobody had any idea that I was living in it.</b>
+> <p><i>Danny Bonaduce</i></p>
 
 <br>
