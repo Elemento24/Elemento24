@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've done my best to work from a place of humility - always looking over your shoulder saying, 'Does this suck?' and I think that's a good way to work. The other way to work is where you start to think, 'I'm on fire, I'm amazing!' and I don't think that's the way to work.</b>
-> <p><i>David O. Russell</i></p>
+> <b>I started auditioning when I was about 10 and I didn't get my first job until I was 12, and two years at that age is really hard.</b>
+> <p><i>Anna Kendrick</i></p>
 
 <br>
