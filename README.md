@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You watch yourself age and it's hard to feel like a sex symbol.</b>
-> <p><i>Idris Elba</i></p>
+> <b>Heat of blood makes young people change their inclinations often, and habit makes old ones keep to theirs a great while.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
