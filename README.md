@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You will reciprocally promise love, loyalty and matrimonial honesty. We only want for you this day that these words constitute the principle of your entire life and that with the help of divine grace you will observe these solemn vows that today, before God, you formulate.</b>
-> <p><i>Pope John Paul II</i></p>
+> <b>Art is nothing but the expression of our dream the more we surrender to it the closer we get to the inner truth of things, our dream-life, the true life that scorns questions and does not see them.</b>
+> <p><i>Franz Marc</i></p>
 
 <br>
