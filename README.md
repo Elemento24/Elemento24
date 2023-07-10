@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best protection any woman can have... is courage.</b>
-> <p><i>Elizabeth Cady Stanton</i></p>
+> <b>No change in musical style will survive unless it is accompanied by a change in clothing style. Rock is to dress up to.</b>
+> <p><i>Frank Zappa</i></p>
 
 <br>
