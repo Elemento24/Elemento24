@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are volcanoes. When we women offer our experience as our truth, as human truth, all the maps change. There are new mountains.</b>
-> <p><i>Ursula K. Le Guin</i></p>
+> <b>Of course, everybody makes mistakes, and we've all been young and stupid. But people need to have a sense of respect, particularly in this business, because hundreds of people are ready to take your place at any time. Maybe some people should think about that.</b>
+> <p><i>Sophia Bush</i></p>
 
 <br>
