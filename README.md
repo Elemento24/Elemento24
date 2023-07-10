@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even before he came to power in 1997, Gordon Brown promised to change the accounts to parliament from simple litanies of cash in and cash out, to a more commercial system that took notice of the public property the departments were using. This system is known as resource accounting.</b>
-> <p><i>James Buchan</i></p>
+> <b>We are volcanoes. When we women offer our experience as our truth, as human truth, all the maps change. There are new mountains.</b>
+> <p><i>Ursula K. Le Guin</i></p>
 
 <br>
