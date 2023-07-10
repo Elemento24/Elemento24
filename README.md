@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No change in musical style will survive unless it is accompanied by a change in clothing style. Rock is to dress up to.</b>
-> <p><i>Frank Zappa</i></p>
+> <b>I mean Buckingham Palace has never hired a professional public relations outfit let alone a Madison Avenue type and they would throw up their hands in horror at the very idea.</b>
+> <p><i>Anthony Holden</i></p>
 
 <br>
