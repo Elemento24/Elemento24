@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Are we changing the idea of what beauty is? Let's hope so. I'm not the typical Hollywood beauty. Let's hope we're looking at the insides of people a little more.</b>
-> <p><i>Anne Heche</i></p>
+> <b>If you don't understand the details of your business you are going to fail.</b>
+> <p><i>Jeff Bezos</i></p>
 
 <br>
