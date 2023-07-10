@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not possible to overstate the influence of Paul Cezanne on twentieth-century art. He's the modern Giotto, someone who shattered one kind of picture-making and invented a new one that the world followed.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Even before he came to power in 1997, Gordon Brown promised to change the accounts to parliament from simple litanies of cash in and cash out, to a more commercial system that took notice of the public property the departments were using. This system is known as resource accounting.</b>
+> <p><i>James Buchan</i></p>
 
 <br>
