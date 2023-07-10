@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Paul is Starsky, and I met him before shooting. He was very kind and encouraged us to go with what we wanted to do. It was very sweet to see them back with the car after 25 years.</b>
-> <p><i>Ben Stiller</i></p>
+> <b>I began to speak well at a very advanced age - 15, 16, 17 years old. It was psychological: the trauma of war, my family and growing up on my own. I was more or less a street kid.</b>
+> <p><i>Roberto Cavalli</i></p>
 
 <br>
