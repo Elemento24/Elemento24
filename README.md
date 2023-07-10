@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have got to change our ethics and our financial system and our whole way of understanding the world. It has to be a world in which people live rather than die a sustainable world. It could be great.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>The love of beauty in its multiple forms is the noblest gift of the human cerebrum.</b>
+> <p><i>Alexis Carrel</i></p>
 
 <br>
