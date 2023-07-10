@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're not uncomfortable with it, and we've already been through enough of the music business where I'm not really worried that commercial success is going to in some way - we're already past saving, you know what I mean? It's too late for us.</b>
-> <p><i>Jerry Garcia</i></p>
+> <b>We have got to change our ethics and our financial system and our whole way of understanding the world. It has to be a world in which people live rather than die a sustainable world. It could be great.</b>
+> <p><i>Vivienne Westwood</i></p>
 
 <br>
