@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean Buckingham Palace has never hired a professional public relations outfit let alone a Madison Avenue type and they would throw up their hands in horror at the very idea.</b>
-> <p><i>Anthony Holden</i></p>
+> <b>TV is sort of the only way to go for an actress my age to make a decent salary with independent films, you just can't.</b>
+> <p><i>Jessica Lange</i></p>
 
 <br>
