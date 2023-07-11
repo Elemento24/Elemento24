@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to own an NFL franchise. I understand the business of football.</b>
-> <p><i>Jon Bon Jovi</i></p>
+> <b>That's double-edged: it's amazing that they're bringing me in and showing people new ideas, and at the same time it's a little hard because seventy percent of the time or even higher I'm not going to get those roles.</b>
+> <p><i>Rachel True</i></p>
 
 <br>
