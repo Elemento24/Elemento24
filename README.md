@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never looked forward to a birthday like I'm looking forward to my new daughter's birthday, because two days after that is when I can apply for reinstatement.</b>
-> <p><i>Pete Rose</i></p>
+> <b>Global political conditions make a direct American intervention difficult, but President Reagan's messianic and visceral attitude toward the Nicaraguan revolution could mean it will happen as an act of desperation.</b>
+> <p><i>Tomas Borge</i></p>
 
 <br>
