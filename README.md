@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body is your instrument in dance, but your art is outside that creature, the body.</b>
-> <p><i>Martha Graham</i></p>
+> <b>When I'm alone, I work sometimes with music, sometimes without and sometimes just listening to NPR.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
