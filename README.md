@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always concerned with writing to my age at a particular moment. That was the way I would keep faith with the audience that supported me as I went along.</b>
-> <p><i>Bruce Springsteen</i></p>
+> <b>I want to own an NFL franchise. I understand the business of football.</b>
+> <p><i>Jon Bon Jovi</i></p>
 
 <br>
