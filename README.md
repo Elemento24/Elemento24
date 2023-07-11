@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm alone, I work sometimes with music, sometimes without and sometimes just listening to NPR.</b>
-> <p><i>Mikhail Baryshnikov</i></p>
+> <b>I'm vulnerable to criticism. Any artist is, because you work alone in your studio and, until recently, critics were the only way you'd get any feedback.</b>
+> <p><i>Howard Hodgkin</i></p>
 
 <br>
