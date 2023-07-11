@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up in the business since I was three years old so I've always kind of been in front of the camera and grew up in commercials and I knew that I wanted to do it no matter what, I just loved it.</b>
-> <p><i>Ashley Tisdale</i></p>
+> <b>In the laughing times we know that we are lucky, and in the quiet times we know that we are blessed. And we will not be alone.</b>
+> <p><i>Dar Williams</i></p>
 
 <br>
