@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think I'm such an amazing person who needs to be written about.</b>
-> <p><i>Amy Winehouse</i></p>
+> <b>The best mind-altering drug is the truth.</b>
+> <p><i>Lily Tomlin</i></p>
 
 <br>
