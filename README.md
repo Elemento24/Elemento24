@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not just the kid who's spent every penny from his job to upgrade his car to tell the world he cares about sports cars, it's also the person driving around in a fuel-conscious hybrid electric car, because it's more a message to the world than an effective means of saving fuel, to be quite honest.</b>
-> <p><i>Richard Hammond</i></p>
+> <b>I don't think I'm such an amazing person who needs to be written about.</b>
+> <p><i>Amy Winehouse</i></p>
 
 <br>
