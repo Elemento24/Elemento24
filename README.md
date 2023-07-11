@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is nothing but the expression of our dream the more we surrender to it the closer we get to the inner truth of things, our dream-life, the true life that scorns questions and does not see them.</b>
-> <p><i>Franz Marc</i></p>
+> <b>Endeavour to be faithful, and if there is any beauty in your thought, your style will be beautiful if there is any real emotion to express, the expression will be moving.</b>
+> <p><i>George Henry Lewes</i></p>
 
 <br>
