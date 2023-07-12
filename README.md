@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Racism has been for everyone like a horrible, tragic car crash, and we've all been heavily sedated from it. If we don't come into consciousness of this tragedy, there's going to be a violent awakening we don't want. The question is, can we wake up?</b>
-> <p><i>Anna Deavere Smith</i></p>
+> <b>Presently, the Commission for Commemorating 350 Years of American Jewish History has been brought about to encourage and sponsor a variety of historical activities that advance our understanding of the American Jewish experience as it marks this milestone anniversary.</b>
+> <p><i>Jon Porter</i></p>
 
 <br>
