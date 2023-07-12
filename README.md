@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As long as I love Beauty I am young.</b>
-> <p><i>W. H. Davies</i></p>
+> <b>When taxidermy is done well it's an amazing piece of art.</b>
+> <p><i>Amanda Seyfried</i></p>
 
 <br>
