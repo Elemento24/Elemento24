@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An angry man opens his mouth and shuts his eyes.</b>
-> <p><i>Cato</i></p>
+> <b>Company cultures are like country cultures. Never try to change one. Try, instead, to work with what you've got.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
