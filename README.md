@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to get old gracefully. I want to have good posture, I want to be healthy and be an example to my children.</b>
-> <p><i>Sting</i></p>
+> <b>He who rejects change is the architect of decay. The only human institution which rejects progress is the cemetery.</b>
+> <p><i>Harold Wilson</i></p>
 
 <br>
