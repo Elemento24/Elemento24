@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We should so provide for old age that it may have no urgent wants of this world to absorb it from meditation on the next. It is awful to see the lean hands of dotage making a coffer of the grave.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>Racism has been for everyone like a horrible, tragic car crash, and we've all been heavily sedated from it. If we don't come into consciousness of this tragedy, there's going to be a violent awakening we don't want. The question is, can we wake up?</b>
+> <p><i>Anna Deavere Smith</i></p>
 
 <br>
