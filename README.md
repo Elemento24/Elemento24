@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who rejects change is the architect of decay. The only human institution which rejects progress is the cemetery.</b>
-> <p><i>Harold Wilson</i></p>
+> <b>Fair peace becomes men ferocious anger belongs to beasts.</b>
+> <p><i>Ovid</i></p>
 
 <br>
