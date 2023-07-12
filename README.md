@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to keep your friends is not to give them away.</b>
-> <p><i>Wilson Mizner</i></p>
+> <b>Georgian architecture respected the scale of both the individual and the community.</b>
+> <p><i>Stephen Gardiner</i></p>
 
 <br>
