@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Georgian architecture respected the scale of both the individual and the community.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>An angry man opens his mouth and shuts his eyes.</b>
+> <p><i>Cato</i></p>
 
 <br>
