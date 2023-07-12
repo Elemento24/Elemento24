@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Company cultures are like country cultures. Never try to change one. Try, instead, to work with what you've got.</b>
-> <p><i>Peter Drucker</i></p>
+> <b>It's amazing what we can get away with and what we can't. But it's not for me to decide.</b>
+> <p><i>Mike Judge</i></p>
 
 <br>
