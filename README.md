@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When taxidermy is done well it's an amazing piece of art.</b>
-> <p><i>Amanda Seyfried</i></p>
+> <b>I want to get old gracefully. I want to have good posture, I want to be healthy and be an example to my children.</b>
+> <p><i>Sting</i></p>
 
 <br>
