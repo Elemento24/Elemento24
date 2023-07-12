@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that the biggest beauty essential is as simple as a good, full night's sleep.</b>
-> <p><i>Angela Kinsey</i></p>
+> <b>There is one other business where the customer is always wrong and that's the media.</b>
+> <p><i>Rush Limbaugh</i></p>
 
 <br>
