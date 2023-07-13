@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the art of making man ethical.</b>
-> <p><i>Georg Wilhelm Friedrich Hegel</i></p>
+> <b>I like pens. My writing is so amazing there's never a need to erase.</b>
+> <p><i>Todd Barry</i></p>
 
 <br>
