@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know how to drive a car.</b>
-> <p><i>Javier Bardem</i></p>
+> <b>Going online and asking questions is the best way to learn.</b>
+> <p><i>Tom Felton</i></p>
 
 <br>
