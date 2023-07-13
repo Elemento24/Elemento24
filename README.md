@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing that so much gratifies an ill tongue as when it finds an angry heart.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>Madonna remains the most visible performer on the planet, as well as one of the wealthiest, but would anyone seriously say that artistic self-development is her primary motivating principle? She is too busy with Kabbalah, fashion merchandising, adoption melodramas, the gym, and ill-starred horseback riding to study art.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
