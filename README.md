@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like pens. My writing is so amazing there's never a need to erase.</b>
-> <p><i>Todd Barry</i></p>
+> <b>Art is good, bad, boring, ugly, useful to us or not.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
