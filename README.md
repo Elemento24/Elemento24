@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most women set out to try to change a man, and when they have changed him they do not like him.</b>
-> <p><i>Marlene Dietrich</i></p>
+> <b>I'm not ugly, but my beauty is a total creation.</b>
+> <p><i>Georg Wilhelm Friedrich Hegel</i></p>
 
 <br>
