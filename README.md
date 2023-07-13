@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>She had lost the art of conversation but not, unfortunately, the power of speech.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>It is the artist's business to create sunshine when the sun fails.</b>
+> <p><i>Romain Rolland</i></p>
 
 <br>
