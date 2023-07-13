@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Space isn't remote at all. It's only an hour's drive away if your car could go straight upwards.</b>
-> <p><i>Fred Hoyle</i></p>
+> <b>Patience is the art of concealing your impatience.</b>
+> <p><i>Guy Kawasaki</i></p>
 
 <br>
