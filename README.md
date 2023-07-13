@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The truth sets you free. It's a very liberating thing, when you say this is who I am warts and all and then you can just get on with life. It's amazing.</b>
-> <p><i>Geri Halliwell</i></p>
+> <b>I don't know how to drive a car.</b>
+> <p><i>Javier Bardem</i></p>
 
 <br>
