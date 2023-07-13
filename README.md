@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is good, bad, boring, ugly, useful to us or not.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Space isn't remote at all. It's only an hour's drive away if your car could go straight upwards.</b>
+> <p><i>Fred Hoyle</i></p>
 
 <br>
