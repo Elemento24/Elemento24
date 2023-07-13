@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My whole family actually, but my parents. I had such a normal and amazing childhood. I've been so lucky. My parents are cool and normal. They don't talk about the business and I still have stuff to do at their house.</b>
-> <p><i>Kaley Cuoco</i></p>
+> <b>In our open society, we are inclined to give to the less fortunate for the pure goodness of giving. We open our home to those who are alone on this holiday to spread some warmth into the life of another.</b>
+> <p><i>Jeff Miller</i></p>
 
 <br>
