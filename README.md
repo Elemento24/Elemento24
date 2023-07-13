@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wish I'd gotten sober at a younger age.</b>
-> <p><i>Janice Dickinson</i></p>
+> <b>It's an amazing thing to say, 'I'm beautiful,' without feeling like you're cocky.</b>
+> <p><i>Christina Aguilera</i></p>
 
 <br>
