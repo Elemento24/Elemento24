@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The human species, according to the best theory I can form of it, is composed of two distinct races, the men who borrow and the men who lend.</b>
-> <p><i>Charles Lamb</i></p>
+> <b>I've watched my peers get better with age and hoped that would happen with me.</b>
+> <p><i>Bonnie Raitt</i></p>
 
 <br>
