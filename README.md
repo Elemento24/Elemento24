@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I very much wished not to be noticed, and to be left alone, and I sort of succeeded.</b>
-> <p><i>Mary Oliver</i></p>
+> <b>I wanted to raise the voice of a lot of the people that I knew growing up, and this was, for the most part, poor people who had extraordinary dreams but also very amazing obstacles.</b>
+> <p><i>Edwidge Danticat</i></p>
 
 <br>
