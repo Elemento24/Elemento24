@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's an amazing thing to say, 'I'm beautiful,' without feeling like you're cocky.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>The human species, according to the best theory I can form of it, is composed of two distinct races, the men who borrow and the men who lend.</b>
+> <p><i>Charles Lamb</i></p>
 
 <br>
