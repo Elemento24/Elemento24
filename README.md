@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shortly thereafter, some friends encouraged me to try out for the Miss South Carolina World beauty pageant. To my surprise, I won - and was sent to New York City to compete nationally.</b>
-> <p><i>Donna Rice</i></p>
+> <b>Artists who seek perfection in everything are those who cannot attain it in anything.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
