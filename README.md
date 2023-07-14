@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way of removing negativity is to laugh and be joyous.</b>
-> <p><i>David Icke</i></p>
+> <b>I think every girl needs to love herself, regardless of anything. Like if you're having a bad day, if you don't like your hair, if you don't have the best family situation, whatever, you have to love yourself and you can't do anything until you love yourself first.</b>
+> <p><i>Julianne Hough</i></p>
 
 <br>
