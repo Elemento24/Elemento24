@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
-> <p><i>Euripides</i></p>
+> <b>The way that people show me love on Twitter? I don't know man. It's amazing.</b>
+> <p><i>T-Pain</i></p>
 
 <br>
