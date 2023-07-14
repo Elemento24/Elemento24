@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way that people show me love on Twitter? I don't know man. It's amazing.</b>
-> <p><i>T-Pain</i></p>
+> <b>The best way of removing negativity is to laugh and be joyous.</b>
+> <p><i>David Icke</i></p>
 
 <br>
