@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing more requisite in business than despatch.</b>
-> <p><i>Joseph Addison</i></p>
+> <b>Shortly thereafter, some friends encouraged me to try out for the Miss South Carolina World beauty pageant. To my surprise, I won - and was sent to New York City to compete nationally.</b>
+> <p><i>Donna Rice</i></p>
 
 <br>
