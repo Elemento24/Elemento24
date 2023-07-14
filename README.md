@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've watched my peers get better with age and hoped that would happen with me.</b>
-> <p><i>Bonnie Raitt</i></p>
+> <b>We are all of us failures, at least, the best of us are.</b>
+> <p><i>James M. Barrie</i></p>
 
 <br>
