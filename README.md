@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I suddenly realized how much I loved her when we attended Alfred Hitchcock's 75th birthday party last August. There was something magical about that night, and it made me see how much she really meant to me.</b>
-> <p><i>Rod Taylor</i></p>
+> <b>There is nothing more requisite in business than despatch.</b>
+> <p><i>Joseph Addison</i></p>
 
 <br>
