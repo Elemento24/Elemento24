@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best things in life are unexpected - because there were no expectations.</b>
-> <p><i>Eli Khamarov</i></p>
+> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
+> <p><i>Euripides</i></p>
 
 <br>
