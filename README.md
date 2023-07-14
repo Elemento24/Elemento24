@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else you are the one who gets burned.</b>
-> <p><i>Buddha</i></p>
+> <b>Being nerdy just means being passionate about something, including everyone - the coolest people on Earth are passionate and therefore nerdy about something whatever it is, whether it's sports, or gaming, or technology, or fashion, or beauty, or food, or whatever.</b>
+> <p><i>Zachary Levi</i></p>
 
 <br>
