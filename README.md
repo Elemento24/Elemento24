@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are no secrets to success. It is the result of preparation, hard work, and learning from failure.</b>
-> <p><i>Colin Powell</i></p>
+> <b>Getting money is not all a man's business: to cultivate kindness is a valuable part of the business of life.</b>
+> <p><i>Samuel Johnson</i></p>
 
 <br>
