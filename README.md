@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have an uncanny ability to make birds do what we want them to do. In Blood Simple there's a shot from the bumper of a car and it's going up this road and a huge flock of birds takes off at the perfect moment.</b>
-> <p><i>Joel Coen</i></p>
+> <b>The irony is that it was tougher to rent a car from Cerberus when it owned Alamo than to buy a semi-automatic. To rent a car, one had to provide ID, a drivers' license, and get insurance coverage. To buy a gun? Cash and carry, from the back of a station wagon at a gun show. No concerns about downstream liability or risk.</b>
+> <p><i>Eliot Spitzer</i></p>
 
 <br>
