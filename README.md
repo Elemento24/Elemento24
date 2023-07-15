@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youngsters of the age of two and three are endowed with extraordinary strength. They can lift a dog twice their own weight and dump him into the bathtub.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>I mean one of the things about being alone is that you've no people to define yourself off, I mean, people are like all-round mirrors, because let's face it, we don't often see ourselves all round in a mirror anyway, do we.</b>
+> <p><i>Diana Wynne Jones</i></p>
 
 <br>
