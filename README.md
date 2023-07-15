@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't stay the same. If you're a musician and a singer, you have to change, that's the way it works.</b>
-> <p><i>Van Morrison</i></p>
+> <b>Common sense is the collection of prejudices acquired by age eighteen.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
