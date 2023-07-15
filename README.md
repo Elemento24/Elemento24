@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vision without action is merely a dream. Action without vision just passes the time. Vision with action can change the world.</b>
-> <p><i>Joel A. Barker</i></p>
+> <b>Man has no Body distinct from his Soul for that called Body is a portion of Soul discerned by the five Senses, the chief inlets of Soul in this age.</b>
+> <p><i>William Blake</i></p>
 
 <br>
