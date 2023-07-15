@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Beauty is truth, truth beauty,' - that is all ye know on earth, and all ye need to know.</b>
-> <p><i>John Keats</i></p>
+> <b>There are no secrets to success. It is the result of preparation, hard work, and learning from failure.</b>
+> <p><i>Colin Powell</i></p>
 
 <br>
