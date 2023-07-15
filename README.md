@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art begins in imitation and ends in innovation.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>I've always believed that there are funny people everywhere, but they're just not comedians. In fact, some of my best comedic inspirations were not professional entertainers.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
