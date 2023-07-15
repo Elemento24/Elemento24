@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had to calm down, I have a kid! It is amazing. It's the best thing ever. Nothing better than it.</b>
-> <p><i>Kevin Pietersen</i></p>
+> <b>Youngsters of the age of two and three are endowed with extraordinary strength. They can lift a dog twice their own weight and dump him into the bathtub.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
