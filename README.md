@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The great increase of our population throughout the Union will alone produce an important effect, and in no quarter will it be so sensibly felt as in those in contemplation.</b>
-> <p><i>James Monroe</i></p>
+> <b>Vision without action is merely a dream. Action without vision just passes the time. Vision with action can change the world.</b>
+> <p><i>Joel A. Barker</i></p>
 
 <br>
