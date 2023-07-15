@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Getting money is not all a man's business: to cultivate kindness is a valuable part of the business of life.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>Remember, each one of us has the power to change the world. Just start thinking peace, and the message will spread quicker than you think.</b>
+> <p><i>Yoko Ono</i></p>
 
 <br>
