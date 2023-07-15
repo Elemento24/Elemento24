@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was born at the age of twelve on an MGM lot.</b>
-> <p><i>Judy Garland</i></p>
+> <b>'Beauty is truth, truth beauty,' - that is all ye know on earth, and all ye need to know.</b>
+> <p><i>John Keats</i></p>
 
 <br>
