@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The counterfeit and counterpart of Nature is reproduced in art.</b>
-> <p><i>Henry Wadsworth Longfellow</i></p>
+> <b>A police force, wherever they are, is made up of amazing people, and I respect them a great deal.</b>
+> <p><i>Nancy McKeon</i></p>
 
 <br>
