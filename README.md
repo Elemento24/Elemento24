@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never felt like I was in the cookie business. I've always been in a feel good feeling business. My job is to sell joy. My job is to sell happiness. My job is to sell an experience.</b>
-> <p><i>Debbi Fields</i></p>
+> <b>I can not believe that war is the best solution. No one won the last war, and no one will win the next war.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
