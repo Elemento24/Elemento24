@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A police force, wherever they are, is made up of amazing people, and I respect them a great deal.</b>
-> <p><i>Nancy McKeon</i></p>
+> <b>I've never felt like I was in the cookie business. I've always been in a feel good feeling business. My job is to sell joy. My job is to sell happiness. My job is to sell an experience.</b>
+> <p><i>Debbi Fields</i></p>
 
 <br>
