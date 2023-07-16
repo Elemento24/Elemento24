@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's an amazing thing to say, 'I'm beautiful,' without feeling like you're cocky.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>Our fathers valued change for the sake of its results we value it in the act.</b>
+> <p><i>Alice Meynell</i></p>
 
 <br>
