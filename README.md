@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way you can get good, unless you're a genius, is to copy. That's the best thing. Just steal.</b>
-> <p><i>Ritchie Blackmore</i></p>
+> <b>I married two weeks after my 18th birthday, far too young, and by the time I was 23 I was a single mother of three small children, Sean, Daniel and Victoria, living in a prefab house.</b>
+> <p><i>Sue Townsend</i></p>
 
 <br>
