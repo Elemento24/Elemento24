@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I married two weeks after my 18th birthday, far too young, and by the time I was 23 I was a single mother of three small children, Sean, Daniel and Victoria, living in a prefab house.</b>
-> <p><i>Sue Townsend</i></p>
+> <b>Physical beauty isn't so impressive to me.</b>
+> <p><i>Dita Von Teese</i></p>
 
 <br>
