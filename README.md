@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People want change but not too much change. Finding that balance is tricky for every politician.</b>
-> <p><i>Eleanor Clift</i></p>
+> <b>I paint with shapes.</b>
+> <p><i>Alexander Calder</i></p>
 
 <br>
