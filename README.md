@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are at a crossroads in the music business: with the rise of the internet, the world we live in has changed, and the past is not coming back. But I see the glass as half-full: the internet and social networking are new avenues for the next Bob Dylan to be born on.</b>
-> <p><i>Jon Bon Jovi</i></p>
+> <b>I thought, after the Pulitzer, at least nothing will surprise me quite that much in my life. And another one happened. It was quite amazing.</b>
+> <p><i>Rita Dove</i></p>
 
 <br>
