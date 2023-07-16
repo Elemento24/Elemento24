@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My grandma's the most careful, safe driver in the world. You put her in a rental car, and she's doing doughnuts in the K-Mart parking lot!</b>
-> <p><i>Jeff Foxworthy</i></p>
+> <b>People want change but not too much change. Finding that balance is tricky for every politician.</b>
+> <p><i>Eleanor Clift</i></p>
 
 <br>
