@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Physical beauty isn't so impressive to me.</b>
-> <p><i>Dita Von Teese</i></p>
+> <b>Because primarily of the power of the Internet, people of modest means can band together and amass vast sums of money that can change the world for some public good if they all agree.</b>
+> <p><i>William J. Clinton</i></p>
 
 <br>
