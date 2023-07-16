@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got Asperger's syndrome and I'm not a very good people person, so I've always been more comfortable around machinery. Not in a weird way - I don't want to marry my car or anything stupid like that!</b>
-> <p><i>Gary Numan</i></p>
+> <b>I accept the Old Testament as more of an action movie: blood, car chases, evacuations, a lot of special effects, seas dividing, mass murder, adultery. The children of God are running amok, wayward. Maybe that's why they're so relatable.</b>
+> <p><i>Bono</i></p>
 
 <br>
