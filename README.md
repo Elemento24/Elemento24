@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I accept the Old Testament as more of an action movie: blood, car chases, evacuations, a lot of special effects, seas dividing, mass murder, adultery. The children of God are running amok, wayward. Maybe that's why they're so relatable.</b>
-> <p><i>Bono</i></p>
+> <b>It is a matter of public shame that while we have now commemorated our hundredth anniversary, not one in every ten children attending Public schools throughout the colonies is acquainted with a single historical fact about Australia.</b>
+> <p><i>Henry Lawson</i></p>
 
 <br>
