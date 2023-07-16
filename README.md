@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am hoping for peaceful transition into a new age. Obama has already played a great role in initiating us into that vision. If he were to be harmed in any way, it would spawn the birth of a million Obamas.</b>
-> <p><i>Saul Williams</i></p>
+> <b>We are at a crossroads in the music business: with the rise of the internet, the world we live in has changed, and the past is not coming back. But I see the glass as half-full: the internet and social networking are new avenues for the next Bob Dylan to be born on.</b>
+> <p><i>Jon Bon Jovi</i></p>
 
 <br>
