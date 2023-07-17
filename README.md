@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You do what you can for as long as you can, and when you finally can't, you do the next best thing. You back up but you don't give up.</b>
-> <p><i>Chuck Yeager</i></p>
+> <b>I want to serve chess through games, books that are works of art. I would like to bring the game closer to many people all over the world.</b>
+> <p><i>Garry Kasparov</i></p>
 
 <br>
