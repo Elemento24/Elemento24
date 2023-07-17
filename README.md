@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The '80s made up for all the abuse I took during the '70s. I outlived all my critics. By the time I retired, everybody saw me as a venerable institution. Things do change.</b>
-> <p><i>Kareem Abdul-Jabbar</i></p>
+> <b>For every quarrel a man and wife have before others, they have a hundred when alone.</b>
+> <p><i>E. W. Howe</i></p>
 
 <br>
