@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My aim is to put down on paper what I see and what I feel in the best and simplest way.</b>
-> <p><i>Ernest Hemingway</i></p>
+> <b>Young women from a very young age are taught that life will be easier if you can just turn on the charming smile and say very little and be complacent and docile and sweet.</b>
+> <p><i>Amber Heard</i></p>
 
 <br>
