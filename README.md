@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a grandmother now, and that means age is creeping on, creeping on.</b>
-> <p><i>Lillie Langtry</i></p>
+> <b>Hawaii was beautiful of course, we played at Turtle Bay an amazing resort right on the ocean.</b>
+> <p><i>Natalie Gulbis</i></p>
 
 <br>
