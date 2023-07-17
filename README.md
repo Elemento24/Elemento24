@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Young women from a very young age are taught that life will be easier if you can just turn on the charming smile and say very little and be complacent and docile and sweet.</b>
-> <p><i>Amber Heard</i></p>
+> <b>I do believe very much in the idea of unexpected or 'convulsive' beauty - beauty in the service of liberty.</b>
+> <p><i>Jeff Vandermeer</i></p>
 
 <br>
