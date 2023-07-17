@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I crashed my boyfriend's birthday when I was 12 years old. He didn't invite me and so I showed up.</b>
-> <p><i>Isla Fisher</i></p>
+> <b>The best book, like the best speech, will do it all - make us laugh, think, cry and cheer - preferably in that order.</b>
+> <p><i>Madeleine Albright</i></p>
 
 <br>
