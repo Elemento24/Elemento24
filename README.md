@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to serve chess through games, books that are works of art. I would like to bring the game closer to many people all over the world.</b>
-> <p><i>Garry Kasparov</i></p>
+> <b>You and I and everybody in show business and the entertainment industry fly by the seat of our pants. We don't know quite what is going to happen.</b>
+> <p><i>William Shatner</i></p>
 
 <br>
