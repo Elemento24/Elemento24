@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am prepared for the worst, but hope for the best.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>So it was good for me to play a likable person and it was just an amazing situation to be in.</b>
+> <p><i>Kristin Davis</i></p>
 
 <br>
