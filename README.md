@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best author will be the one who is ashamed to become a writer.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>Being on 'Glee' was amazing. I remember my first day on set, my first day I arrived to the set I was in my trailer and all of the actors came and banged on my door - Lea Michele, Chris Colfer, Amber Riley, Naya Rivera. They all welcomed me with open arms, so it was a great experience. It felt like family, and I miss them a lot over there.</b>
+> <p><i>NeNe Leakes</i></p>
 
 <br>
