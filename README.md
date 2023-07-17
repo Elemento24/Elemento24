@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because primarily of the power of the Internet, people of modest means can band together and amass vast sums of money that can change the world for some public good if they all agree.</b>
-> <p><i>William J. Clinton</i></p>
+> <b>Perhaps people, and kids especially, are spoiled today, because all the kids today have cars, it seems. When I was young you were lucky to have a bike.</b>
+> <p><i>James Cagney</i></p>
 
 <br>
