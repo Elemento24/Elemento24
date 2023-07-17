@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love singin' in the car, it just makes me feel good.</b>
-> <p><i>Scotty McCreery</i></p>
+> <b>It is awfully important to know what is and what is not your business.</b>
+> <p><i>Gertrude Stein</i></p>
 
 <br>
