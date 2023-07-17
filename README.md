@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is awfully important to know what is and what is not your business.</b>
-> <p><i>Gertrude Stein</i></p>
+> <b>The best author will be the one who is ashamed to become a writer.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
