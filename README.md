@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hawaii was beautiful of course, we played at Turtle Bay an amazing resort right on the ocean.</b>
-> <p><i>Natalie Gulbis</i></p>
+> <b>You do what you can for as long as you can, and when you finally can't, you do the next best thing. You back up but you don't give up.</b>
+> <p><i>Chuck Yeager</i></p>
 
 <br>
