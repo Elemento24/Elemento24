@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you work alone, you need to socialize at some level.</b>
-> <p><i>Jeffery Deaver</i></p>
+> <b>To say nothing, especially when speaking, is half the art of diplomacy.</b>
+> <p><i>Will Durant</i></p>
 
 <br>
