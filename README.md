@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The principle of all successful effort is to try to do not what is absolutely the best, but what is easily within our power, and suited for our temperament and condition.</b>
-> <p><i>John Ruskin</i></p>
+> <b>I think it's particularly a distinctively American concept that resonates with American culture through biker culture. A motorcycle is an independent thing. You're like, 'I don't want to ride in a car with this person. I want to be independent and ride by myself. But, let's ride in a group. Let's be independent, together.'</b>
+> <p><i>Ryan Hurst</i></p>
 
 <br>
