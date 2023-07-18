@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part of beauty is that which no picture can express.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>I had an amazing childhood, lots of love. But my dad worked his tail off, getting up at 4 in the morning and going off at 5, 6 o'clock, yet he always had time to spend with his kids and his wife.</b>
+> <p><i>Criss Angel</i></p>
 
 <br>
