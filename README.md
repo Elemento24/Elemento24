@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had an amazing childhood, lots of love. But my dad worked his tail off, getting up at 4 in the morning and going off at 5, 6 o'clock, yet he always had time to spend with his kids and his wife.</b>
-> <p><i>Criss Angel</i></p>
+> <b>It got very tedious saying the same jokes in the same way with the same attitude.</b>
+> <p><i>Norm MacDonald</i></p>
 
 <br>
