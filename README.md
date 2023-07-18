@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What an amazing opportunity to do something like direct a movie and step out of your creative comfort zone and yet do something that is also so familiar at the same time. I was also just excited to have the chance to direct, which I may never get to do again.</b>
-> <p><i>Georgina Chapman</i></p>
+> <b>I like the desert for short periods of time, from inside a car, with the windows rolled up, and the doors locked. I prefer beach resorts with room service.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
