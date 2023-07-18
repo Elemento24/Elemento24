@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Before 'Twilight,' occasionally I would get the 'Hey are you that girl from that movie?' but no one knew my first and last name. The fans of the saga are amazing, and it's very flattering.</b>
-> <p><i>Nikki Reed</i></p>
+> <b>Don't count out other amazing programming like Frontline. You will still find more hours of in-depth news programming, investigative journalism and analysis on PBS than on any other outlet.</b>
+> <p><i>Gwen Ifill</i></p>
 
 <br>
