@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Spinning has been such an amazing part of my exercise. I love the music, the energy, and the sweat. It's a tough class, which makes me feel like I've really accomplished something. It's a great way to burn fat and lean out the body. An all-around win!</b>
-> <p><i>Alison Sweeney</i></p>
+> <b>I don't really count myself as a very sophisticated businessperson. I'm a creative artist. All I know from business I've picked up along the way.</b>
+> <p><i>Mick Jagger</i></p>
 
 <br>
