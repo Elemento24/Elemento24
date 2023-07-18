@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would have probably stolen cars - it would have given me the same adrenaline rush as racing.</b>
-> <p><i>Valentino Rossi</i></p>
+> <b>Most of what we call management consists of making it difficult for people to get their work done.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
