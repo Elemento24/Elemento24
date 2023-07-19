@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every year of my life I grow more convinced that it is wisest and best to fix our attention on the beautiful and the good, and dwell as little as possible on the evil and the false.</b>
-> <p><i>Richard Cecil</i></p>
+> <b>But it seems that the judging maybe they shouldn't at least see the practices all week long. That can taint the way they go into the judging and the outlook of what's going to happen, instead of just watching those four minutes and judging on those minutes alone.</b>
+> <p><i>Nancy Kerrigan</i></p>
 
 <br>
