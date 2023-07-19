@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no secret, once we go to qualifying, we all seem to enjoy it. Qualifying is all about putting everything that you have and that the car has in one lap. It's like a rush, I really enjoy that.</b>
-> <p><i>Sebastian Vettel</i></p>
+> <b>It seems to me I spent my life in car pools, but you know, that's how I kept track of what was going on.</b>
+> <p><i>Barbara Bush</i></p>
 
 <br>
