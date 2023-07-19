@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty has been democratised. No longer the preserve of movie stars and models but available to all. But while the invitation to beauty is welcomed, it has become not so much an option as an imperative.</b>
-> <p><i>Susie Orbach</i></p>
+> <b>When you have a tough loss, go through it and agonize. I had one loss that I still want to change, but at the same time I realize it is an important part of who I am.</b>
+> <p><i>Andrew Shue</i></p>
 
 <br>
