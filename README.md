@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I promise you a police car on every sidewalk.</b>
-> <p><i>Marion Berry</i></p>
+> <b>Remember, each one of us has the power to change the world. Just start thinking peace, and the message will spread quicker than you think.</b>
+> <p><i>Yoko Ono</i></p>
 
 <br>
