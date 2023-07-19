@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>We start 'The Butler' in June and that's incredibly exciting for me because I get to work with the amazing Forest Whitaker again. It's a phenomenal script and a great, great role - I play his son. Oprah Winfrey is his wife and my mother. My character is a radical civil rights activist.</b>
+> <p><i>David Oyelowo</i></p>
 
 <br>
