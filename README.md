@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you've got to my age, you've probably had your heart broken many times. So it's not that difficult to unpack a bit of grief from some little corner of your heart and cry over it.</b>
-> <p><i>Emma Thompson</i></p>
+> <b>There is no secret, once we go to qualifying, we all seem to enjoy it. Qualifying is all about putting everything that you have and that the car has in one lap. It's like a rush, I really enjoy that.</b>
+> <p><i>Sebastian Vettel</i></p>
 
 <br>
