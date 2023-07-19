@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only I can change my life. No one can do it for me.</b>
-> <p><i>Carol Burnett</i></p>
+> <b>To share our stories is not only a worthwhile endeavor for the storyteller, but for those who hear our stories and feel less alone because of it.</b>
+> <p><i>Joyce Maynard</i></p>
 
 <br>
