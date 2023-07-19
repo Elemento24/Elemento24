@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To share our stories is not only a worthwhile endeavor for the storyteller, but for those who hear our stories and feel less alone because of it.</b>
-> <p><i>Joyce Maynard</i></p>
+> <b>When you get to my age life seems little more than one long march to and from the lavatory.</b>
+> <p><i>A. C. Benson</i></p>
 
 <br>
