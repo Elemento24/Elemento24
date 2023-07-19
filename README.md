@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you get to my age life seems little more than one long march to and from the lavatory.</b>
-> <p><i>A. C. Benson</i></p>
+> <b>The American formula for creating business is not to have the government create business.</b>
+> <p><i>John Sununu</i></p>
 
 <br>
