@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't even know how to use a parking meter, let alone a phone box.</b>
-> <p><i>Princess Diana</i></p>
+> <b>If you've got to my age, you've probably had your heart broken many times. So it's not that difficult to unpack a bit of grief from some little corner of your heart and cry over it.</b>
+> <p><i>Emma Thompson</i></p>
 
 <br>
