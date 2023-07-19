@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I still have a lot to learn - about the business, about music, and about myself. Its exciting.</b>
-> <p><i>Britney Spears</i></p>
+> <b>What is important, then, is not that the critic should possess a correct abstract definition of beauty for the intellect, but a certain kind of temperament, the power of being deeply moved by the presence of beautiful objects.</b>
+> <p><i>Walter Pater</i></p>
 
 <br>
