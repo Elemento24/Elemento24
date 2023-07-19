@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Characters do not change. Opinions alter, but characters are only developed.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
