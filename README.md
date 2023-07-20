@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The more specific idea of Evolution now reached is - a change from an indefinite, incoherent homogeneity to a definite, coherent heterogeneity, accompanying the dissipation of motion and integration of matter.</b>
-> <p><i>Herbert Spencer</i></p>
+> <b>Each year on the anniversary of Martin Luther King Jr.'s birth, America has the opportunity to reflect on our nation's progress towards the realization of his dream.</b>
+> <p><i>Adam Schiff</i></p>
 
 <br>
