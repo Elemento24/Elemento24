@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first resistance to social change is to say it's not necessary.</b>
-> <p><i>Gloria Steinem</i></p>
+> <b>God writes the Gospel not in the Bible alone, but also on trees, and in the flowers and clouds and stars.</b>
+> <p><i>Martin Luther</i></p>
 
 <br>
