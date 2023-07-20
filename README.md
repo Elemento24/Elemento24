@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems to me I spent my life in car pools, but you know, that's how I kept track of what was going on.</b>
-> <p><i>Barbara Bush</i></p>
+> <b>Don't change on me. Don't extort me unless you intend to do it forever.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
