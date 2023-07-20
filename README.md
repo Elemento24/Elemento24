@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Heat cannot be separated from fire, or beauty from The Eternal.</b>
-> <p><i>Dante Alighieri</i></p>
+> <b>Whenever you're in conflict with someone, there is one factor that can make the difference between damaging your relationship and deepening it. That factor is attitude.</b>
+> <p><i>William James</i></p>
 
 <br>
