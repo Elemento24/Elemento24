@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whenever you're in conflict with someone, there is one factor that can make the difference between damaging your relationship and deepening it. That factor is attitude.</b>
-> <p><i>William James</i></p>
+> <b>No woman has to be a victim of physical abuse. Women have to feel like they are not alone.</b>
+> <p><i>Salma Hayek</i></p>
 
 <br>
