@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't change on me. Don't extort me unless you intend to do it forever.</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>For me the greatest beauty always lies in the greatest clarity.</b>
+> <p><i>Gotthold Ephraim Lessing</i></p>
 
 <br>
