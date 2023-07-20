@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God writes the Gospel not in the Bible alone, but also on trees, and in the flowers and clouds and stars.</b>
-> <p><i>Martin Luther</i></p>
+> <b>The more specific idea of Evolution now reached is - a change from an indefinite, incoherent homogeneity to a definite, coherent heterogeneity, accompanying the dissipation of motion and integration of matter.</b>
+> <p><i>Herbert Spencer</i></p>
 
 <br>
