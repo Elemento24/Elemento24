@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're all outsiders in a way. We're all alone and can become very lonely.</b>
-> <p><i>Hugo Weaving</i></p>
+> <b>I was about 14, and my friend's stepdad asked me to do a 10K with him because his son - who was more into basketball - didn't want to. It was amazing, and I still remember the time I got: 48:23.</b>
+> <p><i>Sean Astin</i></p>
 
 <br>
