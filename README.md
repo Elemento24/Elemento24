@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No woman has to be a victim of physical abuse. Women have to feel like they are not alone.</b>
-> <p><i>Salma Hayek</i></p>
+> <b>Interest in business ethics courses has surged, and student activities at leading business schools are more focused than ever before on making business serve long-term social values.</b>
+> <p><i>Peter Singer</i></p>
 
 <br>
