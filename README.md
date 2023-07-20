@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our judgments judge us, and nothing reveals us, exposes our weaknesses, more ingeniously than the attitude of pronouncing upon our fellows.</b>
-> <p><i>Paul Valery</i></p>
+> <b>I've been all over the world. I love New York, I love Paris, San Francisco, so many places. But there's no place like New Orleans. It's got the best food. It's got the best music. It's got the best people. It's got the most fun stuff to do.</b>
+> <p><i>Harry Connick, Jr.</i></p>
 
 <br>
