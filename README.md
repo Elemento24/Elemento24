@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today more than ever we need creative minds to address the issues of the age. And one of the most urgent is this: How can humanity know so much, achieve so much, and still fail so many people so badly?</b>
-> <p><i>King Abdullah II</i></p>
+> <b>As the time goes by, you change, your learn new things, your attitude is different. For the moment, I'm still enjoying ski racing so much that it would be difficult for me to think about ending my career.</b>
+> <p><i>Hermann Maier</i></p>
 
 <br>
