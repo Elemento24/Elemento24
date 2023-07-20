@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now I'm having to live with sales of around 50,000 per album - but I'm pretty content with my place in the general scheme of things, even if it's meant I don't drive a fancy car and can't afford grand vacations.</b>
-> <p><i>David Knopfler</i></p>
+> <b>We're all outsiders in a way. We're all alone and can become very lonely.</b>
+> <p><i>Hugo Weaving</i></p>
 
 <br>
