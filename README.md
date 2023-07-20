@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I conceived in art college at the age of 20, near the end of term.</b>
-> <p><i>Joni Mitchell</i></p>
+> <b>Heat cannot be separated from fire, or beauty from The Eternal.</b>
+> <p><i>Dante Alighieri</i></p>
 
 <br>
