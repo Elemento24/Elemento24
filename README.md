@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each year on the anniversary of Martin Luther King Jr.'s birth, America has the opportunity to reflect on our nation's progress towards the realization of his dream.</b>
-> <p><i>Adam Schiff</i></p>
+> <b>A lot of times I find that people who are blessed with the most talent don't ever develop that attitude, and the ones who aren't blessed in that way are the most competitive and have the biggest heart.</b>
+> <p><i>Tom Brady</i></p>
 
 <br>
