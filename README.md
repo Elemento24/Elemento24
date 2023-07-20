@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me the greatest beauty always lies in the greatest clarity.</b>
-> <p><i>Gotthold Ephraim Lessing</i></p>
+> <b>I don't want life to imitate art. I want life to be art.</b>
+> <p><i>Ernst Fischer</i></p>
 
 <br>
