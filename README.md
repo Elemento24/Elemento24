@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was about 14, and my friend's stepdad asked me to do a 10K with him because his son - who was more into basketball - didn't want to. It was amazing, and I still remember the time I got: 48:23.</b>
-> <p><i>Sean Astin</i></p>
+> <b>The first resistance to social change is to say it's not necessary.</b>
+> <p><i>Gloria Steinem</i></p>
 
 <br>
