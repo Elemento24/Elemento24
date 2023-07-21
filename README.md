@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Romance and novel paint beauty in colors more charming than nature, and describe a happiness that humans never taste. How deceptive and destructive are those pictures of consummate bliss!</b>
-> <p><i>Oliver Goldsmith</i></p>
+> <b>A sculptor wields The chisel, and the stricken marble grows To beauty.</b>
+> <p><i>William C. Bryant</i></p>
 
 <br>
