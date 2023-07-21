@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know. I think it's funny! I think it's funny! I go, what? It's so absurd. I'm alone.</b>
-> <p><i>Danny DeVito</i></p>
+> <b>In the social business marketplace, brands that hope to build loyal and growing communities do so most effectively when they demonstrate their core values and allow a community to build and engage around it.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
