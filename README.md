@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Generalised anger and frustration is something that gets you in the studio, and gets you to work - though it's not necessarily evident in anything that's finished.</b>
-> <p><i>Bruce Nauman</i></p>
+> <b>It becomes more necessary to see the truth as it is if you realize that the only vehicle for change are these people who have lost their personality.</b>
+> <p><i>Steven Biko</i></p>
 
 <br>
