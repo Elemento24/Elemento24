@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It becomes more necessary to see the truth as it is if you realize that the only vehicle for change are these people who have lost their personality.</b>
-> <p><i>Steven Biko</i></p>
+> <b>I had a friend whose family had dinner together. The mother would tuck you in at night and make breakfast in the morning. They even had a spare bike for a friend. It just seemed so amazing to me.</b>
+> <p><i>Moon Unit Zappa</i></p>
 
 <br>
