@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just call me a family man and an actor who digs his whole scene, side interests and all. Just say I feel mighty good at the ripe old age of 27.</b>
-> <p><i>Bobby Darin</i></p>
+> <b>Soap and water and common sense are the best disinfectants.</b>
+> <p><i>William Osler</i></p>
 
 <br>
