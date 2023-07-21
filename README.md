@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Young lawyers attend the courts, not because they have business there, but because they have no business.</b>
-> <p><i>Washington Irving</i></p>
+> <b>You have to have your heart in the business and the business in your heart.</b>
+> <p><i>An Wang</i></p>
 
 <br>
