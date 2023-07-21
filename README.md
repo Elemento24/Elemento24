@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All species capable of grasping this fact manage better in the struggle for existence than those which rely upon their own strength alone: the wolf, which hunts in a pack, has a greater chance of survival than the lion, which hunts alone.</b>
-> <p><i>Christian Lous Lange</i></p>
+> <b>Generalised anger and frustration is something that gets you in the studio, and gets you to work - though it's not necessarily evident in anything that's finished.</b>
+> <p><i>Bruce Nauman</i></p>
 
 <br>
