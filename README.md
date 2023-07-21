@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If we're going to change the laws, let's change them in ways which makes it easier to catch criminals, and yet at the same time protect the Second Amendment rights of our law-abiding citizens.</b>
-> <p><i>John Dingell</i></p>
+> <b>There are people whose watch stops at a certain hour and who remain permanently at that age.</b>
+> <p><i>Helen Rowland</i></p>
 
 <br>
