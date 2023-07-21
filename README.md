@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are people whose watch stops at a certain hour and who remain permanently at that age.</b>
-> <p><i>Helen Rowland</i></p>
+> <b>I don't know. I think it's funny! I think it's funny! I go, what? It's so absurd. I'm alone.</b>
+> <p><i>Danny DeVito</i></p>
 
 <br>
