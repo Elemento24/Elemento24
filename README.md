@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Imperfection is beauty, madness is genius and it's better to be absolutely ridiculous than absolutely boring.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>You don't despair about something like the Middle East, you just do the best you can.</b>
+> <p><i>P. J. O'Rourke</i></p>
 
 <br>
