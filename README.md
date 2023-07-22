@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, the print business model is so simple, where readers pay a dollar for all the content within, and that supports the enterprise.</b>
-> <p><i>Dave Eggers</i></p>
+> <b>The art of interpretation is not to play what is written.</b>
+> <p><i>Pablo Casals</i></p>
 
 <br>
