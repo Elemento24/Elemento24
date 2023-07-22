@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of interpretation is not to play what is written.</b>
-> <p><i>Pablo Casals</i></p>
+> <b>I am alone I am always alone no matter what.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
