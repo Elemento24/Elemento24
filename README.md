@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you first get money, you buy all these things so no one thinks you're mean, and you spread it around. You get a chauffeur and you find yourself thrown around the back of this car and you think, I was happier when I had my own little car! I could drive myself!</b>
-> <p><i>Paul McCartney</i></p>
+> <b>The secret to being a writer is that you have to write. It's not enough to think about writing or to study literature or plan a future life as an author. You really have to lock yourself away, alone, and get to work.</b>
+> <p><i>Augusten Burroughs</i></p>
 
 <br>
