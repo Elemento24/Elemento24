@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man needs, for his happiness, not only the enjoyment of this or that, but hope and enterprise and change.</b>
-> <p><i>Bertrand Russell</i></p>
+> <b>Ah, mon cher, for anyone who is alone, without God and without a master, the weight of days is dreadful.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
