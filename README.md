@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am alone I am always alone no matter what.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>The attempt to devote oneself to literature alone is a most deceptive thing, and often, paradoxically, it is literature that suffers for it.</b>
+> <p><i>Vaclav Havel</i></p>
 
 <br>
