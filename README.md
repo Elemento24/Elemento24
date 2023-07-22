@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't get anything for free. I pay for all my beauty treatments.</b>
-> <p><i>Jennifer Lopez</i></p>
+> <b>When I tour, it's like, well, like a food tour as much as a comedy tour. I try to eat at all the weird places, the obscure barbecue joints, burger places. There are a few spots in L.A. that I'm obsessed with - one of them is the Taco Zone taco truck on Alvarado. There are secret off-menu items that are amazing.</b>
+> <p><i>Aziz Ansari</i></p>
 
 <br>
