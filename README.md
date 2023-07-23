@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My recipe for dealing with anger and frustration: set the kitchen timer for twenty minutes, cry, rant, and rave, and at the sound of the bell, simmer down and go about business as usual.</b>
-> <p><i>Phyllis Diller</i></p>
+> <b>So what we have tried to do in our later buildings is to try to be completely consistent, as a painter is consistent or as a sculptor is consistent. Architecture also must be very consistent.</b>
+> <p><i>Minoru Yamasaki</i></p>
 
 <br>
