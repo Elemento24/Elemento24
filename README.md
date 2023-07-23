@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is also submitted to the taste of time, so a beautiful woman from the Belle Epoch is not exactly the perfect beauty of today, so beauty is something that changes with time.</b>
-> <p><i>Karl Lagerfeld</i></p>
+> <b>The best thing about animals is that they don't talk much.</b>
+> <p><i>Thornton Wilder</i></p>
 
 <br>
