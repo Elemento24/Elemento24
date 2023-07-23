@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best weapon of a dictatorship is secrecy, but the best weapon of a democracy should be the weapon of openness.</b>
-> <p><i>Niels Bohr</i></p>
+> <b>I have some anger issues.</b>
+> <p><i>Bryan Cranston</i></p>
 
 <br>
