@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can love more than one person in your life, but things will be different. There'll be a different dynamic. Needs and desires change.</b>
-> <p><i>Francesca Annis</i></p>
+> <b>The best years of your life are the ones in which you decide your problems are your own. You do not blame them on your mother, the ecology, or the president. You realize that you control your own destiny.</b>
+> <p><i>Albert Ellis</i></p>
 
 <br>
