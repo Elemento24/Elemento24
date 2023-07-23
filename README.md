@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are many little ways to enlarge your child's world. Love of books is the best of all.</b>
-> <p><i>Jackie Kennedy</i></p>
+> <b>Beauty is also submitted to the taste of time, so a beautiful woman from the Belle Epoch is not exactly the perfect beauty of today, so beauty is something that changes with time.</b>
+> <p><i>Karl Lagerfeld</i></p>
 
 <br>
