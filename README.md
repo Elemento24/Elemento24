@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no prejudice that the work of art does not finally overcome.</b>
-> <p><i>Andre Gide</i></p>
+> <b>The best weapon of a dictatorship is secrecy, but the best weapon of a democracy should be the weapon of openness.</b>
+> <p><i>Niels Bohr</i></p>
 
 <br>
