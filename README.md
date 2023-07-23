@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We should learn to accept that change is truly the only thing that's going on always, and learn to ride with it and enjoy it.</b>
-> <p><i>Alice Walker</i></p>
+> <b>You can love more than one person in your life, but things will be different. There'll be a different dynamic. Needs and desires change.</b>
+> <p><i>Francesca Annis</i></p>
 
 <br>
