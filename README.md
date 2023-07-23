@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have some anger issues.</b>
-> <p><i>Bryan Cranston</i></p>
+> <b>Accuracy is, in every case, advantageous to beauty, and just reasoning to delicate sentiment. In vain would we exalt the one by depreciating the other.</b>
+> <p><i>David Hume</i></p>
 
 <br>
