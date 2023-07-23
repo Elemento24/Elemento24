@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No change of circumstances can repair a defect of character.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>Becoming a mother cannot help but change things. An author's life is reflected in their writing, whether they want it to be or not, and parenthood is one of the biggest life changes there is.</b>
+> <p><i>Sarah Zettel</i></p>
 
 <br>
