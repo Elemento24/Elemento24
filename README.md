@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The great secret that all old people share is that you really haven't changed in seventy or eighty years. Your body changes, but you don't change at all. And that, of course, causes great confusion.</b>
-> <p><i>Doris Lessing</i></p>
+> <b>There is a limit to the application of democratic methods. You can inquire of all the passengers as to what type of car they like to ride in, but it is impossible to question them as to whether to apply the brakes when the train is at full speed and accident threatens.</b>
+> <p><i>Leon Trotsky</i></p>
 
 <br>
