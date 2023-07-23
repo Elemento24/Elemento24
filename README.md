@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Accuracy is, in every case, advantageous to beauty, and just reasoning to delicate sentiment. In vain would we exalt the one by depreciating the other.</b>
-> <p><i>David Hume</i></p>
+> <b>The best of artists has no conception that the marble alone does not contain within itself.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
