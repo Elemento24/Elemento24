@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So what we have tried to do in our later buildings is to try to be completely consistent, as a painter is consistent or as a sculptor is consistent. Architecture also must be very consistent.</b>
-> <p><i>Minoru Yamasaki</i></p>
+> <b>The great secret that all old people share is that you really haven't changed in seventy or eighty years. Your body changes, but you don't change at all. And that, of course, causes great confusion.</b>
+> <p><i>Doris Lessing</i></p>
 
 <br>
