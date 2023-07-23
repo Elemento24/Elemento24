@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best of artists has no conception that the marble alone does not contain within itself.</b>
-> <p><i>Michelangelo</i></p>
+> <b>I love to collect modern art.</b>
+> <p><i>Maria Sharapova</i></p>
 
 <br>
