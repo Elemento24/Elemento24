@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My 'Movember' moustache was never going to be as big as Nigel Mansell's, but I tried my best. The amazing thing is that when you try to grow a moustache, you notice everyone else's. There are some amazing moustaches on the grid.</b>
-> <p><i>Jenson Button</i></p>
+> <b>There is no time for cut-and-dried monotony. There is time for work. And time for love. That leaves no other time!</b>
+> <p><i>Coco Chanel</i></p>
 
 <br>
