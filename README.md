@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love things that age well - things that don't date, that stand the test of time and that become living examples of the absolute best.</b>
-> <p><i>Giorgio Armani</i></p>
+> <b>When you are a mother, you are never really alone in your thoughts. A mother always has to think twice, once for herself and once for her child.</b>
+> <p><i>Sophia Loren</i></p>
 
 <br>
