@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to be good with kids, but as I get older, I'm grumpy and terrible with them. As for doing a gig at a 6-year old's birthday party, you couldn't pay me enough.</b>
-> <p><i>Johnny Vegas</i></p>
+> <b>There are no college courses to build up self-esteem or high school or elementary school. If you don't get those values at a early age, nurtured in your home, you don't get them.</b>
+> <p><i>T. D. Jakes</i></p>
 
 <br>
