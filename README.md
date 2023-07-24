@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are a mother, you are never really alone in your thoughts. A mother always has to think twice, once for herself and once for her child.</b>
-> <p><i>Sophia Loren</i></p>
+> <b>Art is a revolt against fate. All art is a revolt against man's fate.</b>
+> <p><i>Andre Malraux</i></p>
 
 <br>
