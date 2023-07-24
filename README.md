@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I've gone back to work, it's always with that sense of inevitability. That may be a complete delusion, but it's the one that I need to get out of bed and go about my business. That sense that I can't avoid this thing. I better just get on with it.</b>
-> <p><i>Daniel Day-Lewis</i></p>
+> <b>The art world is molting - some would say melting. Galleries are closing museums are scaling back.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
