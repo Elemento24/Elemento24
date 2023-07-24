@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents were what I like to call proper musical fans. Lots of Sondheim was played in the car.</b>
-> <p><i>Daniel Radcliffe</i></p>
+> <b>I used to be good with kids, but as I get older, I'm grumpy and terrible with them. As for doing a gig at a 6-year old's birthday party, you couldn't pay me enough.</b>
+> <p><i>Johnny Vegas</i></p>
 
 <br>
