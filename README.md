@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no time for cut-and-dried monotony. There is time for work. And time for love. That leaves no other time!</b>
-> <p><i>Coco Chanel</i></p>
+> <b>The greatest thing about doing this movie was that Chris and I both were involved in folk music in the '60s. I had a group, but I don't think it was at the same level as Chris, because he's an amazing musician.</b>
+> <p><i>Eugene Levy</i></p>
 
 <br>
