@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best argument against democracy is a five-minute conversation with the average voter.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>My parents were what I like to call proper musical fans. Lots of Sondheim was played in the car.</b>
+> <p><i>Daniel Radcliffe</i></p>
 
 <br>
