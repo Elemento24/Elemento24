@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Homer has taught all other poets the art of telling lies skillfully.</b>
-> <p><i>Aristotle</i></p>
+> <b>Wisdom I know is social. She seeks her fellows. But Beauty is jealous, and illy bears the presence of a rival.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
