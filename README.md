@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Virtue is not left to stand alone. He who practices it will have neighbors.</b>
-> <p><i>Confucius</i></p>
+> <b>I told my father I wanted to play the banjo, and so he saved the money and got ready to give me a banjo for my next birthday, and between that time and my birthday, I lost interest in the banjo and was playing guitar.</b>
+> <p><i>Jackson Browne</i></p>
 
 <br>
