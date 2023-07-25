@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An art which isn't based on feeling isn't an art at all.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>I hope to bring much more attention to important issues and change for issues and practices that are harming animals.</b>
+> <p><i>Kesha</i></p>
 
 <br>
