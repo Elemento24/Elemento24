@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is everlasting And dust is for a time.</b>
-> <p><i>Marianne Moore</i></p>
+> <b>Virtue is not left to stand alone. He who practices it will have neighbors.</b>
+> <p><i>Confucius</i></p>
 
 <br>
