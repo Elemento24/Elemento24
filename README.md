@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another belief of mine that everyone else my age is an adult, whereas I am merely in disguise.</b>
-> <p><i>Margaret Atwood</i></p>
+> <b>I separated from the Southern Baptists when they adopted the discriminatory attitude towards women, because I believe what Paul taught in Galatians that there is no distinction in God's eyes between men and women, slaves and masters, Jews and non-Jews - everybody is created equally in the eyes of God.</b>
+> <p><i>Jimmy Carter</i></p>
 
 <br>
