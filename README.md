@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Tell me thy company, and I'll tell thee what thou art.</b>
-> <p><i>Miguel de Cervantes</i></p>
+> <b>Romance and novel paint beauty in colors more charming than nature, and describe a happiness that humans never taste. How deceptive and destructive are those pictures of consummate bliss!</b>
+> <p><i>Oliver Goldsmith</i></p>
 
 <br>
