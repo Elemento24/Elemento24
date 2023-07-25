@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I told my father I wanted to play the banjo, and so he saved the money and got ready to give me a banjo for my next birthday, and between that time and my birthday, I lost interest in the banjo and was playing guitar.</b>
-> <p><i>Jackson Browne</i></p>
+> <b>Never to lie is to have no lock on your door, you are never wholly alone.</b>
+> <p><i>Elizabeth Bowen</i></p>
 
 <br>
