@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best director is the one you don't see.</b>
-> <p><i>Billy Wilder</i></p>
+> <b>I walked to Seward School first through fourth grade. It's just amazing to me now that we'd walk down 10th Avenue on Capitol Hill.</b>
+> <p><i>Stone Gossard</i></p>
 
 <br>
