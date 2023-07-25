@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no one looking out for us. We are all alone.</b>
-> <p><i>M. Night Shyamalan</i></p>
+> <b>Tell me thy company, and I'll tell thee what thou art.</b>
+> <p><i>Miguel de Cervantes</i></p>
 
 <br>
