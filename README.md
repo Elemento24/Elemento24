@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never to lie is to have no lock on your door, you are never wholly alone.</b>
-> <p><i>Elizabeth Bowen</i></p>
+> <b>Because beauty isn't enough, there must be something more.</b>
+> <p><i>Eva Herzigova</i></p>
 
 <br>
