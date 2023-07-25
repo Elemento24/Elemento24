@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hope to bring much more attention to important issues and change for issues and practices that are harming animals.</b>
-> <p><i>Kesha</i></p>
+> <b>The best director is the one you don't see.</b>
+> <p><i>Billy Wilder</i></p>
 
 <br>
