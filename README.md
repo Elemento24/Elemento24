@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What today's business reality makes clear is that brands cannot survive in a society that is failing economically, socially, ethically, and morally.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Contrary to popular opinion, things don't go stale particularly fast in the art world.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
