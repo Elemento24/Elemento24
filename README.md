@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He was afflicted by the thought that where Beauty was, nothing ever ran quite straight, which no doubt, was why so many people looked on it as immoral.</b>
-> <p><i>John Galsworthy</i></p>
+> <b>Here I am paying big money to you writers and what for? All you do is change the words.</b>
+> <p><i>Samuel Goldwyn</i></p>
 
 <br>
