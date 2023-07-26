@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Toyota was the first to put a commercial fuel cell powered car on the road, and I have no doubt that Toyota will continue to be in the front lines in the development of competitive fuel cell vehicles.</b>
-> <p><i>Maurice Strong</i></p>
+> <b>This was meaningful that at almost 41 years old, I could be getting my first beauty campaign.</b>
+> <p><i>Teri Hatcher</i></p>
 
 <br>
