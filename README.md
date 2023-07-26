@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only thing I fear more than change is no change. The business of being static makes me nuts.</b>
-> <p><i>Twyla Tharp</i></p>
+> <b>The place of chess in the society is closely related to the attitude of young people towards our game.</b>
+> <p><i>Boris Spassky</i></p>
 
 <br>
