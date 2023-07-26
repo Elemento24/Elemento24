@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think most artists would be happy to have bigger audiences rather than smaller ones. It doesn't mean that they are going to change their work in order necessarily to get it, but they're happy if they do get it.</b>
-> <p><i>Brian Eno</i></p>
+> <b>Toyota was the first to put a commercial fuel cell powered car on the road, and I have no doubt that Toyota will continue to be in the front lines in the development of competitive fuel cell vehicles.</b>
+> <p><i>Maurice Strong</i></p>
 
 <br>
