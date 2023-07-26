@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have never once regretted missing a business opportunity so that I could be with my children and grandchildren.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>We live in an age of mediocrity.</b>
+> <p><i>Lauren Bacall</i></p>
 
 <br>
