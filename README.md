@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Here I am paying big money to you writers and what for? All you do is change the words.</b>
-> <p><i>Samuel Goldwyn</i></p>
+> <b>The secret of genius is to carry the spirit of the child into old age, which mean never losing your enthusiasm.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
