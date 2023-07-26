@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The secret of genius is to carry the spirit of the child into old age, which mean never losing your enthusiasm.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>For an introvert his environment is himself and can never be subject to startling or unforeseen change.</b>
+> <p><i>Quentin Crisp</i></p>
 
 <br>
