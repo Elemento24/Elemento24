@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To attract men, I wear a perfume called 'New Car Interior.'</b>
-> <p><i>Rita Rudner</i></p>
+> <b>What today's business reality makes clear is that brands cannot survive in a society that is failing economically, socially, ethically, and morally.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
