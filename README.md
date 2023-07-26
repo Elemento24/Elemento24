@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to play with architecture! It's my favorite game.</b>
-> <p><i>Jean Nouvel</i></p>
+> <b>To attract men, I wear a perfume called 'New Car Interior.'</b>
+> <p><i>Rita Rudner</i></p>
 
 <br>
