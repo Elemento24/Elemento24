@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For an introvert his environment is himself and can never be subject to startling or unforeseen change.</b>
-> <p><i>Quentin Crisp</i></p>
+> <b>I think most artists would be happy to have bigger audiences rather than smaller ones. It doesn't mean that they are going to change their work in order necessarily to get it, but they're happy if they do get it.</b>
+> <p><i>Brian Eno</i></p>
 
 <br>
