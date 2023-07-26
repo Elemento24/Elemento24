@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Contrary to popular opinion, things don't go stale particularly fast in the art world.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>A positive attitude is not going to save you. What it's going to do is, everyday, between now and the day you die, whether that's a short time from now or a long time from now, that every day, you're going to actually live.</b>
+> <p><i>Elizabeth Edwards</i></p>
 
 <br>
