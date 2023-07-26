@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in an age of mediocrity.</b>
-> <p><i>Lauren Bacall</i></p>
+> <b>I know some people say it's not the best to work with your family, but I have never understood that because it's always worked so well for me.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
