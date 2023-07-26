@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This was meaningful that at almost 41 years old, I could be getting my first beauty campaign.</b>
-> <p><i>Teri Hatcher</i></p>
+> <b>The only thing I fear more than change is no change. The business of being static makes me nuts.</b>
+> <p><i>Twyla Tharp</i></p>
 
 <br>
