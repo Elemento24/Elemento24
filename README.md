@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art world is an all-volunteer force. No one has to be here if he or she doesn't want to be, and we should be associating with anyone we want to.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>He was afflicted by the thought that where Beauty was, nothing ever ran quite straight, which no doubt, was why so many people looked on it as immoral.</b>
+> <p><i>John Galsworthy</i></p>
 
 <br>
