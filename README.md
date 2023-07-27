@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your most precious, valued possessions and your greatest powers are invisible and intangible. No one can take them. You, and you alone, can give them. You will receive abundance for your giving.</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>It is not the body's posture, but the heart's attitude that counts when we pray.</b>
+> <p><i>Billy Graham</i></p>
 
 <br>
