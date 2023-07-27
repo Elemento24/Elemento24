@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's why I do this music business thing, it's communication with people without having the extreme inconvenience of actually phoning anybody up.</b>
-> <p><i>Steven Morrissey</i></p>
+> <b>A lot of people resist transition and therefore never allow themselves to enjoy who they are. Embrace the change, no matter what it is once you do, you can learn about the new world you're in and take advantage of it.</b>
+> <p><i>Nikki Giovanni</i></p>
 
 <br>
