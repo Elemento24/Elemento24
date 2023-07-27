@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bullfighting is the only art in which the artist is in danger of death and in which the degree of brilliance in the performance is left to the fighter's honor.</b>
-> <p><i>Ernest Hemingway</i></p>
+> <b>Your most precious, valued possessions and your greatest powers are invisible and intangible. No one can take them. You, and you alone, can give them. You will receive abundance for your giving.</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
