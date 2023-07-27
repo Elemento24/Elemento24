@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of people resist transition and therefore never allow themselves to enjoy who they are. Embrace the change, no matter what it is once you do, you can learn about the new world you're in and take advantage of it.</b>
-> <p><i>Nikki Giovanni</i></p>
+> <b>Beauty is an outward gift, which is seldom despised, except by those to whom it has been refused.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
