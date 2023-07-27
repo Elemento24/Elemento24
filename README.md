@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not the body's posture, but the heart's attitude that counts when we pray.</b>
-> <p><i>Billy Graham</i></p>
+> <b>We are in danger of making our cities places where business goes on but where life, in its real sense, is lost.</b>
+> <p><i>Hubert H. Humphrey</i></p>
 
 <br>
