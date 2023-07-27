@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On the surface, rock and roll changes at an amazing pace. The influence of a figure like the Maharishi can appear and disappear in a matter of months. Talk about old fashioned rock and roll finds itself dead before it begins.</b>
-> <p><i>Jon Landau</i></p>
+> <b>How much more grievous are the consequences of anger than the causes of it.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
