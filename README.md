@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For changes to be of any true value, they've got to be lasting and consistent.</b>
-> <p><i>Tony Robbins</i></p>
+> <b>On stage, I make love to 25,000 different people, then I go home alone.</b>
+> <p><i>Janis Joplin</i></p>
 
 <br>
