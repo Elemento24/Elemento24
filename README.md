@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How much more grievous are the consequences of anger than the causes of it.</b>
-> <p><i>Marcus Aurelius</i></p>
+> <b>The key to education is the experience of beauty.</b>
+> <p><i>Friedrich Schiller</i></p>
 
 <br>
