@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our world is so glutted with useless information, images, useless images, sounds, all this sort of thing. It's a cacophony, it's like a madness I think that's been happening in the past twenty-five years. And I think anything that can help a person sit in a room alone and not worry about it is good.</b>
-> <p><i>Martin Scorsese</i></p>
+> <b>I want to talk to the bullied kids of the world. Tell them to hang on, it will get better. Know that an 'Iron Chef,' actors, musicians, artists and all successful people have probably been bullied in their life. And the best part of your life is yet to come. Whatever it takes to live, do it!</b>
+> <p><i>Cat Cora</i></p>
 
 <br>
