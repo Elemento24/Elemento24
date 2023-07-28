@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to go to the mall, you have to take security. But it's always cool. The kids are amazing.</b>
-> <p><i>Aaliyah</i></p>
+> <b>I'm proud of the U.S.A. We've done some amazing things. To wear our flag in the Olympics is an honor.</b>
+> <p><i>Shaun White</i></p>
 
 <br>
