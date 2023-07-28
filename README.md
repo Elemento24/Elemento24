@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Swing voters are more appropriately known as the 'idiot voters' because they have no set of philosophical principles. By the age of fourteen, you're either a Conservative or a Liberal if you have an IQ above a toaster.</b>
-> <p><i>Ann Coulter</i></p>
+> <b>I've never really had a hobby, unless you count art, which the IRS once told me I had to declare as a hobby since I hadn't made money with it.</b>
+> <p><i>Laurie Anderson</i></p>
 
 <br>
