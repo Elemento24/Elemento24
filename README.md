@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Contrary to popular opinion, things don't go stale particularly fast in the art world.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Best of all is it to preserve everything in a pure, still heart, and let there be for every pulse a thanksgiving, and for every breath a song.</b>
+> <p><i>Konrad von Gesner</i></p>
 
 <br>
