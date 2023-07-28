@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marilyn Monroe wasn't even her real name, Charles Manson isn't his real name, and now, I'm taking that to be my real name. But what's real? You can't find the truth, you just pick the lie you like the best.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>The principle of all successful effort is to try to do not what is absolutely the best, but what is easily within our power, and suited for our temperament and condition.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
