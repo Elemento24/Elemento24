@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom FedExes a red velvet cake she makes from scratch to me every birthday.</b>
-> <p><i>Molly Sims</i></p>
+> <b>Beauty is unbearable, drives us to despair, offering us for a minute the glimpse of an eternity that we should like to stretch out over the whole of time.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
