@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm proud of the U.S.A. We've done some amazing things. To wear our flag in the Olympics is an honor.</b>
-> <p><i>Shaun White</i></p>
+> <b>People believe that photographs are true and therefore cannot be art.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
