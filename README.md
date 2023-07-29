@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The goal seems to me at times just to be business first.</b>
-> <p><i>Laura Linney</i></p>
+> <b>An artist is never ahead of his time but most people are far behind theirs.</b>
+> <p><i>Edgard Varese</i></p>
 
 <br>
