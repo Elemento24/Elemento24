@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're looking for can-do, earthy-crunchy attitude then you've got to go to Wisconsin.</b>
-> <p><i>Dar Williams</i></p>
+> <b>Speak when you are angry and you will make the best speech you will ever regret.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
