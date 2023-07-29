@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Speak when you are angry and you will make the best speech you will ever regret.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>When you think of what Americans accomplished, building these amazing cities and all the good it's done in the world, it's kind of disheartening to hear so much hatred of America, not just from abroad, but internally.</b>
+> <p><i>Frank Miller</i></p>
 
 <br>
