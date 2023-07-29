@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are a lot of downsides to being male. We age faster and die younger. But give us this: we're lifetime baby-making machines. Women's reproductive abilities start to wane when they're as young as 35. Men? We're good to go pretty much till we're dead.</b>
-> <p><i>Jeffrey Kluger</i></p>
+> <b>Faith goes out through the window when beauty comes in at the door.</b>
+> <p><i>George Edward Moore</i></p>
 
 <br>
