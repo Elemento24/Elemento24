@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In business or in life, don't follow the wagon tracks too closely.</b>
-> <p><i>H. Jackson Brown, Jr.</i></p>
+> <b>I love singin' in the car, it just makes me feel good.</b>
+> <p><i>Scotty McCreery</i></p>
 
 <br>
