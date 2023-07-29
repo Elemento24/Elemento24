@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I think is amazing is not that 85% of people who get married under the age of 25 get divorced, it's that 15% of them stay together. How did they manage to pull that off? You almost can't wait too long. It's the single simplest measure to predict divorce.</b>
-> <p><i>Elizabeth Gilbert</i></p>
+> <b>Among the best traitors Ireland has ever had, Mother Church ranks at the very top, a massive obstacle in the path to equality and freedom. She has been a force for conservatism... to ward off threats to her own security and influence.</b>
+> <p><i>Bernadette Devlin</i></p>
 
 <br>
