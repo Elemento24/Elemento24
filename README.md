@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Faith goes out through the window when beauty comes in at the door.</b>
-> <p><i>George Edward Moore</i></p>
+> <b>It's great that in the German language I've sold almost 30 million books. Isn't that amazing?</b>
+> <p><i>Ken Follet</i></p>
 
 <br>
