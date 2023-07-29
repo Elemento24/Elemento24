@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I think it's a little different in Europe, because 40 is really the best age for a woman. That's when we hit our peak and become this ripe fruit.</b>
-> <p><i>Juliette Binoche</i></p>
+> <b>A geek isn't the skinny kid with a pocket protector and acne. There can be computer geeks, video game geeks, car geeks, military geeks, and sports geeks. Being a geek just means that you're passionate about something.</b>
+> <p><i>Olivia Munn</i></p>
 
 <br>
