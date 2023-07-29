@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age: the crown of life, our play's last act.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>The goal seems to me at times just to be business first.</b>
+> <p><i>Laura Linney</i></p>
 
 <br>
