@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Expect the best, Prepare for the worst.</b>
-> <p><i>Muhammad Ali Jinnah</i></p>
+> <b>But I think it's a little different in Europe, because 40 is really the best age for a woman. That's when we hit our peak and become this ripe fruit.</b>
+> <p><i>Juliette Binoche</i></p>
 
 <br>
