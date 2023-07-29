@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love singin' in the car, it just makes me feel good.</b>
-> <p><i>Scotty McCreery</i></p>
+> <b>If you're looking for can-do, earthy-crunchy attitude then you've got to go to Wisconsin.</b>
+> <p><i>Dar Williams</i></p>
 
 <br>
