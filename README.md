@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I look into the crowd, I see young and old, black and white - it's amazing that I'm able to connect with so many different kinds of people.</b>
-> <p><i>Patti LaBelle</i></p>
+> <b>To be honest, everything in my life outside of tennis is great. I'm doing amazing projects that, if I didn't have time off, I wouldn't be able to focus on.</b>
+> <p><i>Maria Sharapova</i></p>
 
 <br>
