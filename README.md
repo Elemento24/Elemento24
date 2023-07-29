@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Bible was a consolation to a fellow alone in the old cell. The lovely thin paper with a bit of matress stuffing in it, if you could get a match, was as good a smoke as I ever tasted.</b>
-> <p><i>Brendan Behan</i></p>
+> <b>The employee is regarded by the employer merely in the light of his value as an operative. His productive capacity alone is taken into account.</b>
+> <p><i>Leland Stanford</i></p>
 
 <br>
