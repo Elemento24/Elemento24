@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once you grow past Mommy and Daddy coming running when you're hurt, you're really on your own. You're alone, and there's no one to help you.</b>
-> <p><i>Octavia Butler</i></p>
+> <b>All the principles of heaven and earth are living inside you. Life itself is truth, and this will never change. Everything in heaven and earth breathes. Breath is the thread that ties creation together.</b>
+> <p><i>Morihei Ueshiba</i></p>
 
 <br>
