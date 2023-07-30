@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have nothing to hide in art. The initial force alone can bring anyone to the end he must attain.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>It is the glory and good of Art, That Art remains the one way possible Of speaking truth, to mouths like mine at least.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
