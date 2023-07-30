@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's great about TV, and what I love about being on 'Parenthood,' is you have this family. I'm now going on four years of working with the same 100 people, and that helps you feel like your life has more roots. It's more conducive to having a family, and you're staying in town. So that part is amazing.</b>
-> <p><i>Dax Shepard</i></p>
+> <b>In art or architecture your project is only done when you say it's done. If you want to rip it apart at the eleventh hour and start all over again, you never finish. I was one of those crazy creatures.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
