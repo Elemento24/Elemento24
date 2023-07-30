@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been through the process qualifying for the World Cup, which is an amazing, two-year process. It was an honor to represent the U.S. and to represent the city of Los Angeles and California.</b>
-> <p><i>Cobi Jones</i></p>
+> <b>If I am a cup maker, I'm interested in making the best cup I possibly can. My effort goes into that cup, not what people think about it.</b>
+> <p><i>Denzel Washington</i></p>
 
 <br>
