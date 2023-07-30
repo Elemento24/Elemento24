@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vampires have always held a very seductive kind of lore and have always been some variety of attractive, whether it's attractiveness that's born of just the physical attributes that they have - this kind of ethereal beauty or translucent pallor - or whether it is more to do with the way they carry themselves.</b>
-> <p><i>Colin Farrell</i></p>
+> <b>I've been through the process qualifying for the World Cup, which is an amazing, two-year process. It was an honor to represent the U.S. and to represent the city of Los Angeles and California.</b>
+> <p><i>Cobi Jones</i></p>
 
 <br>
