@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change occurs in direct proportion to dissatisfaction, but dissatisfaction never changes.</b>
-> <p><i>Douglas Horton</i></p>
+> <b>The best weapon against an enemy is another enemy.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
