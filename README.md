@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Modern poets talk against business, poor things, but all of us write for money. Beginners are subjected to trial by market.</b>
-> <p><i>Robert Frost</i></p>
+> <b>Words can be said in bitterness and anger, and often there seems to be an element of truth in the nastiness. And words don't go away, they just echo around.</b>
+> <p><i>Jane Goodall</i></p>
 
 <br>
