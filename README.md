@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the glory and good of Art, That Art remains the one way possible Of speaking truth, to mouths like mine at least.</b>
-> <p><i>Robert Browning</i></p>
+> <b>I was born at the age of twelve on a Metro-Goldwyn-Mayer lot.</b>
+> <p><i>Edward Koch</i></p>
 
 <br>
