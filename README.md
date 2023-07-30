@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of jazz is that it's malleable. People are addressing it to suit their own personalities.</b>
-> <p><i>Pat Metheny</i></p>
+> <b>When you pray for anyone you tend to modify your personal attitude toward him.</b>
+> <p><i>Norman Vincent Peale</i></p>
 
 <br>
