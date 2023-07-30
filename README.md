@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not meddle in the affairs of wizards, for they are subtle and quick to anger.</b>
-> <p><i>J. R. R. Tolkien</i></p>
+> <b>Once you grow past Mommy and Daddy coming running when you're hurt, you're really on your own. You're alone, and there's no one to help you.</b>
+> <p><i>Octavia Butler</i></p>
 
 <br>
