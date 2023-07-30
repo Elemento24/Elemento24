@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Over my lifetime, the car had actually transcended the fact that it is a car. It has become a venue.</b>
-> <p><i>Eric Bana</i></p>
+> <b>A merchant who approaches business with the idea of serving the public well has nothing to fear from the competition.</b>
+> <p><i>James Cash Penney</i></p>
 
 <br>
