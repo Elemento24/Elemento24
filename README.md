@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had to weave and play around with a honey bear, you know, and I could wrestle with him a little bit, but there's no way you can even wrestle a honey bear, let alone a grizzly bear that's standing ten feet to eleven feet tall! Can you imagine? But it was fascinating to work that close to that kind of animal.</b>
-> <p><i>Leslie Nielsen</i></p>
+> <b>Do not meddle in the affairs of wizards, for they are subtle and quick to anger.</b>
+> <p><i>J. R. R. Tolkien</i></p>
 
 <br>
