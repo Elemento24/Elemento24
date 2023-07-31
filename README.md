@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not interested in age. People who tell me their age are silly. You're as old as you feel.</b>
-> <p><i>Henri Frederic Amiel</i></p>
+> <b>For me from a pretty young age up until about 21 years old hallucinogenics had a huge place in my life.</b>
+> <p><i>Jon Fishman</i></p>
 
 <br>
