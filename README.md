@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I walk into a kids' store, and it's amazing, the types of instruments - little squeaky things, rattling things, spinning tops.</b>
-> <p><i>Evelyn Glennie</i></p>
+> <b>I mean, there is amazing amount of oil and gas and other resources out beneath the sea. It's staggering.</b>
+> <p><i>Robert Ballard</i></p>
 
 <br>
