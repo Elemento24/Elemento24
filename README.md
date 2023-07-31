@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, there is amazing amount of oil and gas and other resources out beneath the sea. It's staggering.</b>
-> <p><i>Robert Ballard</i></p>
+> <b>I love my friends and family, but I also love it when they can't find me and I can spend all day reading or walking all alone, in silence, eight thousand miles away from everyone. All alone and unreachable in a foreign country is one my most favorite possible things to be.</b>
+> <p><i>Elizabeth Gilbert</i></p>
 
 <br>
