@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whoever, fleeing marriage and the sorrows that women cause, does not wish to wed comes to a deadly old age.</b>
-> <p><i>Hesiod</i></p>
+> <b>I walk into a kids' store, and it's amazing, the types of instruments - little squeaky things, rattling things, spinning tops.</b>
+> <p><i>Evelyn Glennie</i></p>
 
 <br>
