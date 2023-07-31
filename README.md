@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My husband had a very strong identity and was successful in his life. Thank God for that. There's no way I can control him. I wouldn't stay married to him if I felt I could. I can readily take my business personality into the home. But he forces me to be a partner rather than the boss.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>I am aware that in presenting myself as the advocate of the Indians and their rights, I shall stand very much alone.</b>
+> <p><i>Sam Houston</i></p>
 
 <br>
