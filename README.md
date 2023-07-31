@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our dilemma is that we hate change and love it at the same time what we really want is for things to remain the same but get better.</b>
-> <p><i>Sydney J. Harris</i></p>
+> <b>I feel fortunate I have this amazing relationship with so many people in America, because I was in their homes at a very private time of day. They probably might have still had their robe on and their slippers and haven't made the beds.</b>
+> <p><i>Joan Lunden</i></p>
 
 <br>
