@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beautiful seems right by force of beauty and the feeble wrong because of weakness.</b>
-> <p><i>Elizabeth Barrett Browning</i></p>
+> <b>It's important to say that actors can't act alone, it's impossible. What we have to do is support each other.</b>
+> <p><i>Philip Seymour Hoffman</i></p>
 
 <br>
