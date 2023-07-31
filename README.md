@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In passing, we should note this curious mark of our own age: the only absolute allowed is the absolute insistence that there is no absolute.</b>
-> <p><i>Francis Schaeffer</i></p>
+> <b>I also had a mistaken attitude towards certain comrades.</b>
+> <p><i>Bela Kun</i></p>
 
 <br>
