@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel fortunate I have this amazing relationship with so many people in America, because I was in their homes at a very private time of day. They probably might have still had their robe on and their slippers and haven't made the beds.</b>
-> <p><i>Joan Lunden</i></p>
+> <b>If only we could persuade galleries to observe a fallow period in which, for two months every other year, new and old works of art could be sold in back rooms and all main galleries would be devoted to revisiting shows gone by.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
