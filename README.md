@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not materialistic. I believe in presents from the heart, like a drawing that a child does.</b>
-> <p><i>Victoria Beckham</i></p>
+> <b>Whoever, fleeing marriage and the sorrows that women cause, does not wish to wed comes to a deadly old age.</b>
+> <p><i>Hesiod</i></p>
 
 <br>
