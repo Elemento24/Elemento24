@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wrote and produced millions and millions of selling records, so my publishing company alone was worth millions of dollars. I didn't have to work anymore in life because when the rappers started sampling... I'm the most sampled artist in history.</b>
-> <p><i>Rick James</i></p>
+> <b>I got a lot of problems, but I'm really good at intuiting what I need to do to be happy with whatever I create. I know when to stop myself, I know when to start, I know when to leave something alone. I guess I just kind of indulge that completely, and so I just take my time.</b>
+> <p><i>Fiona Apple</i></p>
 
 <br>
