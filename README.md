@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If only we could persuade galleries to observe a fallow period in which, for two months every other year, new and old works of art could be sold in back rooms and all main galleries would be devoted to revisiting shows gone by.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>My beauty secret is absolutely no sun.</b>
+> <p><i>Vivienne Westwood</i></p>
 
 <br>
