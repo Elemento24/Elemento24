@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is it not by love alone that we succeed in penetrating to the very essence of being?</b>
-> <p><i>Igor Stravinsky</i></p>
+> <b>The best protection any woman can have... is courage.</b>
+> <p><i>Elizabeth Cady Stanton</i></p>
 
 <br>
