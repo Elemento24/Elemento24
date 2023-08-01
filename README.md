@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>100 million iphones don't lie. What an amazing man. He is the apple of all of our i's. We have an i everything and its all so amazing.</b>
-> <p><i>Billy Bush</i></p>
+> <b>Myspace alone has just over 80 million users and ranks as the sixth most popular English language website and the eighth most popular site in the world.</b>
+> <p><i>Mike Fitzpatrick</i></p>
 
 <br>
