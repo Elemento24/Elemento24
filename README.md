@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Myspace alone has just over 80 million users and ranks as the sixth most popular English language website and the eighth most popular site in the world.</b>
-> <p><i>Mike Fitzpatrick</i></p>
+> <b>The best liar is he who makes the smallest amount of lying go the longest way.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
