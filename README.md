@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With so many amazing artists on one bill, we expect this concert to be incredibly powerful in its ability to raise both money and awareness for the long-term rebuilding effort we must all support.</b>
-> <p><i>Brad Delson</i></p>
+> <b>Most high courts in other nations do not have discretion, such as we enjoy, in selecting the cases that the high court reviews. Our court is virtually alone in the amount of discretion it has.</b>
+> <p><i>Sandra Day O'Connor</i></p>
 
 <br>
