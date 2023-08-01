@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Giving money and power to government is like giving whiskey and car keys to teenage boys.</b>
-> <p><i>P. J. O'Rourke</i></p>
+> <b>We succeed in enterprises which demand the positive qualities we possess, but we excel in those which can also make use of our defects.</b>
+> <p><i>Alexis de Tocqueville</i></p>
 
 <br>
