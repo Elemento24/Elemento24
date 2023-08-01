@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So I was getting into my car, and this bloke says to me 'Can you give me a lift?' I said 'Sure, you look great, the world's your oyster, go for it.'</b>
-> <p><i>Tommy Cooper</i></p>
+> <b>Money is a strange business. People who haven't got it aim it strongly. People who have are full of troubles.</b>
+> <p><i>Ayrton Senna</i></p>
 
 <br>
