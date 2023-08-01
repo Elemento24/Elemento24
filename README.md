@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I gave my beauty and my youth to men. I am going to give my wisdom and experience to animals.</b>
-> <p><i>Brigitte Bardot</i></p>
+> <b>So I was getting into my car, and this bloke says to me 'Can you give me a lift?' I said 'Sure, you look great, the world's your oyster, go for it.'</b>
+> <p><i>Tommy Cooper</i></p>
 
 <br>
