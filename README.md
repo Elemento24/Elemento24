@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best liar is he who makes the smallest amount of lying go the longest way.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>I gave my beauty and my youth to men. I am going to give my wisdom and experience to animals.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
