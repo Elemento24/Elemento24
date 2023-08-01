@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The strength and power and goodness of America has always been based on the strength and power and goodness of our communities, our families, our faiths. That is the bedrock of what makes America, America. In our best days, we can feel the vibrancy of America's communities, large and small.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>The development of beauty in chess never depends on you alone. No matter how much imagination and creativity you invest, you still do not create beauty. Your opponent must react at the same highest level.</b>
+> <p><i>Vladimir Kramnik</i></p>
 
 <br>
