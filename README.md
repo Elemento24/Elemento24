@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The development of beauty in chess never depends on you alone. No matter how much imagination and creativity you invest, you still do not create beauty. Your opponent must react at the same highest level.</b>
-> <p><i>Vladimir Kramnik</i></p>
+> <b>100 million iphones don't lie. What an amazing man. He is the apple of all of our i's. We have an i everything and its all so amazing.</b>
+> <p><i>Billy Bush</i></p>
 
 <br>
