@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art and works of art do not make an artist sense and enthusiasm and instinct do.</b>
-> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
+> <b>Diplomats make it their business to conceal the facts.</b>
+> <p><i>Margaret Sanger</i></p>
 
 <br>
