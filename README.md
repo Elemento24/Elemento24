@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diplomats make it their business to conceal the facts.</b>
-> <p><i>Margaret Sanger</i></p>
+> <b>Fatigue is the best pillow.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
