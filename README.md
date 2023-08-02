@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hold fast to youth and beauty.</b>
-> <p><i>Elizabeth Arden</i></p>
+> <b>The principle of art is to pause, not bypass.</b>
+> <p><i>Jerzy Kosinski</i></p>
 
 <br>
