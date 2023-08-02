@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not necessary that you leave the house. Remain at your table and listen. Do not even listen, only wait. Do not even wait, be wholly still and alone. The world will present itself to you for its unmasking, it can do no other, in ecstasy it will writhe at your feet.</b>
-> <p><i>Franz Kafka</i></p>
+> <b>When I was in college, I was debating to try my hand at show business, or to become a professor. I just thought of the risk of not going into show business and always wondering if I would've had a chance. Because that's where my real heart was.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
