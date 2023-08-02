@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bader's philosophy was my philosophy. His whole attitude to life was mine.</b>
-> <p><i>Kenneth More</i></p>
+> <b>Less is more.</b>
+> <p><i>Ludwig Mies van der Rohe</i></p>
 
 <br>
