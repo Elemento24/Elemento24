@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best place a person can die, is where they die for others.</b>
-> <p><i>James M. Barrie</i></p>
+> <b>Be true to yourself, help others, make each day your masterpiece, make friendship a fine art, drink deeply from good books - especially the Bible, build a shelter against a rainy day, give thanks for your blessings and pray for guidance every day.</b>
+> <p><i>John Wooden</i></p>
 
 <br>
