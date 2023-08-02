@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We succeed in enterprises which demand the positive qualities we possess, but we excel in those which can also make use of our defects.</b>
-> <p><i>Alexis de Tocqueville</i></p>
+> <b>We are rarely proud when we are alone.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
