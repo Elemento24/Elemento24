@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I took guitar a while back, and my heart wasn't in it at the time, but I'm ready to try it again. I sing in the car, at home - it's a huge part of my life, especially since I'm from Tennessee.</b>
-> <p><i>Lucy Hale</i></p>
+> <b>Comedy may be big business but it isn't pretty.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
