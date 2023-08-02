@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know I'm not the best. I'm not the best singer, I'm not the best songwriter, I'm not the best player.</b>
-> <p><i>Kid Rock</i></p>
+> <b>And I'm afraid, in this day and age, trust, which I count so, you know, I love loyalty. I love trust.</b>
+> <p><i>Elton John</i></p>
 
 <br>
