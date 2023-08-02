@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You watch an old 'Jeopardy!' and the categories alone are very plain. 'Poetry,' or 'Movies,' or 'Physics.' If you watch it now, though, there'll be a theme board where the categories are all Hitchcock movies. Lots more jokes, lots more high-concept categories and questions.</b>
-> <p><i>Ken Jennings</i></p>
+> <b>If the world could remain within a frame like a painting on the wall, I think we'd see the beauty then and stand staring in awe.</b>
+> <p><i>Conor Oberst</i></p>
 
 <br>
