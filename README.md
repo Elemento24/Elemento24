@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I'm afraid, in this day and age, trust, which I count so, you know, I love loyalty. I love trust.</b>
-> <p><i>Elton John</i></p>
+> <b>In a secular age, an authentic miracle must purport to be a hoax, in order to gain credit in the world.</b>
+> <p><i>Angela Carter</i></p>
 
 <br>
