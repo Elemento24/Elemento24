@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a secular age, an authentic miracle must purport to be a hoax, in order to gain credit in the world.</b>
-> <p><i>Angela Carter</i></p>
+> <b>Sex and beauty are inseparable, like life and consciousness. And the intelligence which goes with sex and beauty, and arises out of sex and beauty, is intuition.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
