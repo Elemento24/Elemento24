@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we all have a lot of darkness in our bellies. As an actor, the challenge of tapping into that, reaching down into that sadness or anger, is very therapeutic.</b>
-> <p><i>Kevin Bacon</i></p>
+> <b>The best place a person can die, is where they die for others.</b>
+> <p><i>James M. Barrie</i></p>
 
 <br>
