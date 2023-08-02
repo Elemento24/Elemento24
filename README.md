@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Amazing that the human race has taken enough time out from thinking about food or sex to create the arts and sciences.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>By making a comeback, I'm changing the attitude of people toward me. If I'd known that people would react so enthusiastically, I'd have done it years ago.</b>
+> <p><i>Mark Spitz</i></p>
 
 <br>
