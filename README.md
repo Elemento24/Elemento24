@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I started the business, I hardly went home. I became very driven about work and about my career.</b>
-> <p><i>Calvin Klein</i></p>
+> <b>Bader's philosophy was my philosophy. His whole attitude to life was mine.</b>
+> <p><i>Kenneth More</i></p>
 
 <br>
