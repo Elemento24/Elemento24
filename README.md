@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are rarely proud when we are alone.</b>
-> <p><i>Voltaire</i></p>
+> <b>Amazing that the human race has taken enough time out from thinking about food or sex to create the arts and sciences.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
