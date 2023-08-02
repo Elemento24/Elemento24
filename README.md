@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Comedy may be big business but it isn't pretty.</b>
-> <p><i>Steve Martin</i></p>
+> <b>Hold fast to youth and beauty.</b>
+> <p><i>Elizabeth Arden</i></p>
 
 <br>
