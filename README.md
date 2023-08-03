@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The American attitude is 'We're the best'. That's why the NBA guys who come from other countries, the Europeans, all sort of stick together away from the game.</b>
-> <p><i>Andrew Bogut</i></p>
+> <b>This is why cup finals are so special because on the day anyone can beat anyone. That's what it's all about and that's why for me the FA Cup and the Carling Cup are the best cups in the world. That's the beauty of the cup.</b>
+> <p><i>Ian Rush</i></p>
 
 <br>
