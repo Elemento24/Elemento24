@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Whitman more than any other poet possessed the gift of revealing to others the beauty of everything around us, the beauty of nature, the beauty of human beings.</b>
-> <p><i>Ella R. Bloor</i></p>
+> <b>One of the many pleasures of old age is giving things up.</b>
+> <p><i>Malcolm Muggeridge</i></p>
 
 <br>
