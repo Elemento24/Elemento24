@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'UFO's' attitude toward the subject is very similar to mine. It's not an advocacy its philosophy is more 'I want to believe this, but I want it proved.'</b>
-> <p><i>Dwight Schultz</i></p>
+> <b>I think Whitman more than any other poet possessed the gift of revealing to others the beauty of everything around us, the beauty of nature, the beauty of human beings.</b>
+> <p><i>Ella R. Bloor</i></p>
 
 <br>
