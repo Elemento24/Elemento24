@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's every little girl's dream to have an exact look-alike doll. It's amazing.</b>
-> <p><i>Bindi Irwin</i></p>
+> <b>All those who offer an opinion on any doubtful point should first clear their minds of every sentiment of dislike, friendship, anger or pity.</b>
+> <p><i>Sallust</i></p>
 
 <br>
