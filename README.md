@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is best to rise from life as from a banquet, neither thirsty nor drunken.</b>
-> <p><i>Aristotle</i></p>
+> <b>In the U.S. alone, weather disasters caused $50 billion in economic damages in 2010.</b>
+> <p><i>Jeff Goodell</i></p>
 
 <br>
