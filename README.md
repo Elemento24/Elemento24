@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But in the end, in the end one is alone. We are all of us alone. I mean I'm told these days we have to consider ourselves as being in society... but in the end one knows one is alone, that one lives at the heart of a solitude.</b>
-> <p><i>Harold Bloom</i></p>
+> <b>'UFO's' attitude toward the subject is very similar to mine. It's not an advocacy its philosophy is more 'I want to believe this, but I want it proved.'</b>
+> <p><i>Dwight Schultz</i></p>
 
 <br>
