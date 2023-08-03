@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not necessary at all. All that is necessary to make this world a better place to live in is to love - to love as Christ loved, as Buddha loved.</b>
-> <p><i>Isadora Duncan</i></p>
+> <b>To be happy, we must be true to nature and carry our age along with us.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
