@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get such lovely gifts from fans... amazing pictures, handmade jewellery. I'm very lucky!</b>
-> <p><i>Leona Lewis</i></p>
+> <b>It is best to rise from life as from a banquet, neither thirsty nor drunken.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
