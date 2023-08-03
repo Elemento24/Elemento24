@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be happy, we must be true to nature and carry our age along with us.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>You watch yourself age and it's hard to feel like a sex symbol.</b>
+> <p><i>Idris Elba</i></p>
 
 <br>
