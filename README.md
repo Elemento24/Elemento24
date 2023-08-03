@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the many pleasures of old age is giving things up.</b>
-> <p><i>Malcolm Muggeridge</i></p>
+> <b>Music's always been really cathartic. It's the best drug for me to get away from the everyday pressures just for a second via a good song.</b>
+> <p><i>Ville Valo</i></p>
 
 <br>
