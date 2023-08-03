@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the world could remain within a frame like a painting on the wall, I think we'd see the beauty then and stand staring in awe.</b>
-> <p><i>Conor Oberst</i></p>
+> <b>The American attitude is 'We're the best'. That's why the NBA guys who come from other countries, the Europeans, all sort of stick together away from the game.</b>
+> <p><i>Andrew Bogut</i></p>
 
 <br>
