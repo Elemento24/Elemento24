@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music's always been really cathartic. It's the best drug for me to get away from the everyday pressures just for a second via a good song.</b>
-> <p><i>Ville Valo</i></p>
+> <b>I get such lovely gifts from fans... amazing pictures, handmade jewellery. I'm very lucky!</b>
+> <p><i>Leona Lewis</i></p>
 
 <br>
