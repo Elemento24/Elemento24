@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The promises of this world are, for the most part, vain phantoms and to confide in one's self, and become something of worth and value is the best and safest course.</b>
-> <p><i>Michelangelo</i></p>
+> <b>My dad used to love Steely Dan, the Stones, Jethro Tull and all that. There was always Steely Dan going in my dad's car, but I remember The Royal Scam in particular because it has 'Kid Charlemagne' on it.</b>
+> <p><i>St. Vincent</i></p>
 
 <br>
