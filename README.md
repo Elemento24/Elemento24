@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's an unseen force which lets birds know when you've just washed your car.</b>
-> <p><i>Denis Norden</i></p>
+> <b>Some people think my father was a spy, because of working for that government agency in Vietnam, but he can't find his car keys, much less keep a national secret.</b>
+> <p><i>Lauren Graham</i></p>
 
 <br>
