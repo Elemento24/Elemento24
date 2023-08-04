@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is your own experience, your own thoughts, your wisdom. If you don't live it, it won't come out of your horn. They teach you there's a boundary line to music. But, man, there's no boundary line to art.</b>
-> <p><i>Charlie Parker</i></p>
+> <b>There's an unseen force which lets birds know when you've just washed your car.</b>
+> <p><i>Denis Norden</i></p>
 
 <br>
