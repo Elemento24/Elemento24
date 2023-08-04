@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone discusses my art and pretends to understand, as if it were necessary to understand, when it is simply necessary to love.</b>
-> <p><i>Claude Monet</i></p>
+> <b>The promises of this world are, for the most part, vain phantoms and to confide in one's self, and become something of worth and value is the best and safest course.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
