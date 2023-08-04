@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people think my father was a spy, because of working for that government agency in Vietnam, but he can't find his car keys, much less keep a national secret.</b>
-> <p><i>Lauren Graham</i></p>
+> <b>I'll keep on acting 'til they wipe the drool. I like the business. I like to do different parts and diverse characters. I haven't lost my enthusiasm yet!</b>
+> <p><i>Robert Duvall</i></p>
 
 <br>
