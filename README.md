@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Creativity is allowing yourself to make mistakes. Art is knowing which ones to keep.</b>
-> <p><i>Scott Adams</i></p>
+> <b>The genius of the United States is not best or most in its executives or legislatures, nor in its ambassadors or authors or colleges, or churches, or parlors, nor even in its newspapers or inventors, but always most in the common people.</b>
+> <p><i>Walt Whitman</i></p>
 
 <br>
