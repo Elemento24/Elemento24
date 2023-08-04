@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dad used to love Steely Dan, the Stones, Jethro Tull and all that. There was always Steely Dan going in my dad's car, but I remember The Royal Scam in particular because it has 'Kid Charlemagne' on it.</b>
-> <p><i>St. Vincent</i></p>
+> <b>I used to wear a lot of red lipstick, and when I got a pimple, I'd cover it up with eyeliner to turn it into a beauty mark.</b>
+> <p><i>Selma Blair</i></p>
 
 <br>
