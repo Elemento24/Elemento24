@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like being in houses alone.</b>
-> <p><i>Martin Scorsese</i></p>
+> <b>Everyone discusses my art and pretends to understand, as if it were necessary to understand, when it is simply necessary to love.</b>
+> <p><i>Claude Monet</i></p>
 
 <br>
