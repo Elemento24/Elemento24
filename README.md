@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to wear a lot of red lipstick, and when I got a pimple, I'd cover it up with eyeliner to turn it into a beauty mark.</b>
-> <p><i>Selma Blair</i></p>
+> <b>Beauty is worse than wine, it intoxicates both the holder and beholder.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
