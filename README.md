@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only a mediocre person is always at his best.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>Trifles make perfection, and perfection is no trifle.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
