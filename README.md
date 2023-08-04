@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'll keep on acting 'til they wipe the drool. I like the business. I like to do different parts and diverse characters. I haven't lost my enthusiasm yet!</b>
-> <p><i>Robert Duvall</i></p>
+> <b>Editing yourself is like an irksome coin toss. You've got to strip yourself of super ego and operate from the id. Maybe I've got my Freud mixed up. It's just hard to trade a beauty shot for the performance with truth and a brightly lit zit.</b>
+> <p><i>Vera Farmiga</i></p>
 
 <br>
