@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love photography. My boyfriend's got a great camera, which I bought for his birthday.</b>
-> <p><i>Sarah Sutton</i></p>
+> <b>I think it is an immutable law in business that words are words, explanations are explanations, promises are promises - but only performance is reality.</b>
+> <p><i>Harold S. Geneen</i></p>
 
 <br>
