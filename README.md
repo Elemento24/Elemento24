@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Where thou art, that is home.</b>
-> <p><i>Emily Dickinson</i></p>
+> <b>A representative is free delivery she's a personal beauty consultant. Some people want that high touch.</b>
+> <p><i>Andrea Jung</i></p>
 
 <br>
