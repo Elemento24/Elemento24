@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am constantly amazed by Tina Fey. And I am Tina Fey.</b>
-> <p><i>Tina Fey</i></p>
+> <b>Where thou art, that is home.</b>
+> <p><i>Emily Dickinson</i></p>
 
 <br>
