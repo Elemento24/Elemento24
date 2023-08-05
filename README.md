@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My love of fine art increased - the more of it I saw, the more of it I wanted to see.</b>
-> <p><i>Paul Getty</i></p>
+> <b>I went through life like an idiot for a great deal of the time, saying there's nothing I would change. That was a very arrogant thing to say. There's a lot I would change. There are people I would have steered clear of.</b>
+> <p><i>Hugh Leonard</i></p>
 
 <br>
