@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, when you're the youngest of five, parents kind of lose interest more and more through the children. I think my eldest brother was under loads of pressure to do something amazing with his life, but by the time I came around they were like, 'Well, let's hope he doesn't kill a guy.'</b>
-> <p><i>Chris O'Dowd</i></p>
+> <b>I hooked up my accelerator pedal in my car to my brake lights. I hit the gas, people behind me stop, and I'm gone.</b>
+> <p><i>Steven Wright</i></p>
 
 <br>
