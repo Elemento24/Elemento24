@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always admired and had enormous respect for Elizabeth Taylor. She was not only an incredible actress but an amazing woman as well.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>At a car dealership, the person who sells the car is the hero, and also gets the commission. But if the mechanics don't service that car well, the customer won't return.</b>
+> <p><i>Roger Staubach</i></p>
 
 <br>
