@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A representative is free delivery she's a personal beauty consultant. Some people want that high touch.</b>
-> <p><i>Andrea Jung</i></p>
+> <b>Our competition for American business is no longer in the next county or the next state, it's around the world.</b>
+> <p><i>Karl Rove</i></p>
 
 <br>
