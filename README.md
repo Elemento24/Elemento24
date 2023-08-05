@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're all entitled to opinions about how art institutions should behave, and entitled to voicing those opinions through whatever means available to us. We're also allowed to change or modify our opinions.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Nature scarcely ever gives us the very best for that we must have recourse to art.</b>
+> <p><i>Baltasar Gracian</i></p>
 
 <br>
