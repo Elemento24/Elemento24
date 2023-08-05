@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our competition for American business is no longer in the next county or the next state, it's around the world.</b>
-> <p><i>Karl Rove</i></p>
+> <b>The best player I've ever played with was Paul Gascoigne. He had everything. He was amazing.</b>
+> <p><i>Paul Ince</i></p>
 
 <br>
