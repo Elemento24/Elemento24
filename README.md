@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nature scarcely ever gives us the very best for that we must have recourse to art.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>That's an amazing moment, the first time you hear yourself on radio. It's still thrilling.</b>
+> <p><i>Janis Ian</i></p>
 
 <br>
