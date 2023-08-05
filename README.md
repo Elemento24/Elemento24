@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's an amazing moment, the first time you hear yourself on radio. It's still thrilling.</b>
-> <p><i>Janis Ian</i></p>
+> <b>I love photography. My boyfriend's got a great camera, which I bought for his birthday.</b>
+> <p><i>Sarah Sutton</i></p>
 
 <br>
