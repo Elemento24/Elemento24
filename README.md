@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Luck, like a Russian car, generally only works if you push it.</b>
-> <p><i>Tom Holt</i></p>
+> <b>It's kind of awkward to eat alone in a restaurant because everybody's looking at me.</b>
+> <p><i>Louis C. K.</i></p>
 
 <br>
