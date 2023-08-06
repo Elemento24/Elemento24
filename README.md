@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's your mental attitude. So many of us start dreading age in high school and that's a waste of a lovely life. 'Oh... I'm 30, oh, I'm 40, oh, 50.' Make the most of it.</b>
-> <p><i>Betty White</i></p>
+> <b>This nation has always struggled with how it was going to deal with poor people and people of color. Every few years you will see some great change in the way that they approach this. We've had the war on poverty that never really got into waging a real war on poverty.</b>
+> <p><i>Maxine Waters</i></p>
 
 <br>
