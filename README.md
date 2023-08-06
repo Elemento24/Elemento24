@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's best to have failure happen early in life. It wakes up the Phoenix bird in you so you rise from the ashes.</b>
-> <p><i>Anne Baxter</i></p>
+> <b>You are educated. Your certification is in your degree. You may think of it as the ticket to the good life. Let me ask you to think of an alternative. Think of it as your ticket to change the world.</b>
+> <p><i>Tom Brokaw</i></p>
 
 <br>
