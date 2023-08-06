@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm on an Isabel Marant kick. She does an amazing job of making things that are everyday-wearable but also special and a little bit different. I definitely like that she has a '70s western vibe. There's something that's very fun and vintage in what she's doing.</b>
-> <p><i>Jennifer Morrison</i></p>
+> <b>I think the best thing I can do is to be a distraction. A husband lives and breathes his work all day long. If he comes home to more table thumping, how can the poor man ever relax?</b>
+> <p><i>Jackie Kennedy</i></p>
 
 <br>
