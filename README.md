@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I try to keep a low profile in general. Not with my art, but just as a person.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>I like to pretend that my art has nothing to do with me.</b>
+> <p><i>Roy Lichtenstein</i></p>
 
 <br>
