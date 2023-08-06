@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Baseball was, is and always will be to me the best game in the world.</b>
-> <p><i>Babe Ruth</i></p>
+> <b>It's best to have failure happen early in life. It wakes up the Phoenix bird in you so you rise from the ashes.</b>
+> <p><i>Anne Baxter</i></p>
 
 <br>
