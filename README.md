@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Warren Spector is amazing, and his team is as good as any in the business. Shame to see all the revenues from their game entangled with all the madness of the Dallas office.</b>
-> <p><i>Mike Wilson</i></p>
+> <b>Under Barack Obama, the only 'Change' is that 'Hope' has been hard to find. Now millions of Americans are insecure about their future. But instead of inspiring us by reminding us of what makes us special, he divides us against each other. He tells Americans they're worse off because others are better off. That people got rich by making others poor.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
