@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know what men want. Men want to be really, really close to someone who will leave them alone.</b>
-> <p><i>Elayne Boosler</i></p>
+> <b>When I get in the car I love my wife and kids more than anything, but I'm not thinking about that side of things. I'm thinking about the car, I'm thinking about the race and I'm thinking about how to make the car faster.</b>
+> <p><i>Scott Dixon</i></p>
 
 <br>
