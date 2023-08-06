@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just because you liked something as a youngster doesn't mean you have to like it as an adult. You can change your taste a little bit on the sweets and things like that.</b>
-> <p><i>Mike Ditka</i></p>
+> <b>Mass transportation is doomed to failure in North America because a person's car is the only place where he can be alone and think.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
