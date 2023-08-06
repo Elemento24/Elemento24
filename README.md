@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As strong as the United States is, we can't deal with terrorism alone.</b>
-> <p><i>Madeleine Albright</i></p>
+> <b>Warren Spector is amazing, and his team is as good as any in the business. Shame to see all the revenues from their game entangled with all the madness of the Dallas office.</b>
+> <p><i>Mike Wilson</i></p>
 
 <br>
