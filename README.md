@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cried when I found out I was a finalist, I kind of went limp when they called my name. I felt like my spirit jumped out of my body, and I was just flesh - it was just amazing.</b>
-> <p><i>Naima Adedapo</i></p>
+> <b>I think it's your mental attitude. So many of us start dreading age in high school and that's a waste of a lovely life. 'Oh... I'm 30, oh, I'm 40, oh, 50.' Make the most of it.</b>
+> <p><i>Betty White</i></p>
 
 <br>
