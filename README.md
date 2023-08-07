@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There were two things going on: 1) I had already established in my own mind where I wanted to go with the next series, and having James around as a Grey Eminence would have complicated matters. He had had an amazing life and it was time to bid him good-bye.</b>
-> <p><i>Raymond E. Feist</i></p>
+> <b>We tend to think of age only in time, but I don't think it has much to do with time at all there's a whole load of other things. I've met 16-year-olds who are old and 90-year-olds who are young.</b>
+> <p><i>Roger Daltrey</i></p>
 
 <br>
