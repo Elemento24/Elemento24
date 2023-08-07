@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Tis the business of little minds to shrink but he whose heart is firm, and whose conscience approves his conduct, will pursue his principles unto death.</b>
-> <p><i>Thomas Paine</i></p>
+> <b>Truth is a thing immortal and perpetual, and it gives to us a beauty that fades not away in time.</b>
+> <p><i>Frank Norris</i></p>
 
 <br>
