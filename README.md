@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have found the best way to give advice to your children is to find out what they want and then advise them to do it.</b>
-> <p><i>Harry S. Truman</i></p>
+> <b>Obama and his attack dogs have nothing but hate and anger in their hearts and spew it whenever possible.</b>
+> <p><i>Donald Trump</i></p>
 
 <br>
