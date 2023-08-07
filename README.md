@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how people will give when you don't ask. Many of them send money because they believe in the message.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>Which goes to show you, you can make all the laws you want, but you cannot change people's ways. If you must change them, you have to understand that it will take a long time.</b>
+> <p><i>Miriam Makeba</i></p>
 
 <br>
