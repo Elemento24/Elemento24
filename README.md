@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is mysterious as well as terrible. God and devil are fighting there, and the battlefield is the heart of man.</b>
-> <p><i>Fyodor Dostoevsky</i></p>
+> <b>People are generally amazed that I would take an interest in any form that would require me to stop talking for three hours.</b>
+> <p><i>Henry A. Kissinger</i></p>
 
 <br>
