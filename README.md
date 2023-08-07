@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Truth is a thing immortal and perpetual, and it gives to us a beauty that fades not away in time.</b>
-> <p><i>Frank Norris</i></p>
+> <b>You can construct the character of a man and his age not only from what he does and says, but from what he fails to say and do.</b>
+> <p><i>Norman Douglas</i></p>
 
 <br>
