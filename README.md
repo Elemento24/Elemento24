@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obama and his attack dogs have nothing but hate and anger in their hearts and spew it whenever possible.</b>
-> <p><i>Donald Trump</i></p>
+> <b>Beauty is mysterious as well as terrible. God and devil are fighting there, and the battlefield is the heart of man.</b>
+> <p><i>Fyodor Dostoevsky</i></p>
 
 <br>
