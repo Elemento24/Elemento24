@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We tend to think of age only in time, but I don't think it has much to do with time at all there's a whole load of other things. I've met 16-year-olds who are old and 90-year-olds who are young.</b>
-> <p><i>Roger Daltrey</i></p>
+> <b>I filmed 'Albatross' before I got 'Downton.' It's a coming-of-age movie about this girl who leaps into this family's life, like a whirlwind. She's ballsy and brash and wonderful, it was such an amazing character to play.</b>
+> <p><i>Jessica Brown Findlay</i></p>
 
 <br>
