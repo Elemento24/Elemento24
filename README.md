@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Before 'Gangnam Style' I was not a good attitude artist.</b>
-> <p><i>PSY</i></p>
+> <b>I am a child but I have to think and act like a woman, this business forces you to.</b>
+> <p><i>Rihanna</i></p>
 
 <br>
