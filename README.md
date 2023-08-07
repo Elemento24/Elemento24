@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love her attitude, but as much as I'd like to bring my medals to a speech or appearance, I never do.</b>
-> <p><i>Mary Lou Retton</i></p>
+> <b>There is no absurdity so palpable but that it may be firmly planted in the human head if you only begin to inculcate it before the age of five, by constantly repeating it with an air of great solemnity.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
