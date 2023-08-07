@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Which goes to show you, you can make all the laws you want, but you cannot change people's ways. If you must change them, you have to understand that it will take a long time.</b>
-> <p><i>Miriam Makeba</i></p>
+> <b>Before 'Gangnam Style' I was not a good attitude artist.</b>
+> <p><i>PSY</i></p>
 
 <br>
