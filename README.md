@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are generally amazed that I would take an interest in any form that would require me to stop talking for three hours.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>It's amazing how people will give when you don't ask. Many of them send money because they believe in the message.</b>
+> <p><i>Joel Osteen</i></p>
 
 <br>
