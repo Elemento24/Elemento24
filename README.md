@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Japanese traditional architecture is created based on these conditions. This is the reason you have a very high degree of connection between the outside and inside in architecture.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>Life is the art of drawing sufficient conclusions from insufficient premises.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
