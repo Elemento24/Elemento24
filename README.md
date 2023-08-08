@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.</b>
-> <p><i>Henri Bergson</i></p>
+> <b>Simplicity and repose are the qualities that measure the true value of any work of art.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
