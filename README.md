@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I accept the Old Testament as more of an action movie: blood, car chases, evacuations, a lot of special effects, seas dividing, mass murder, adultery. The children of God are running amok, wayward. Maybe that's why they're so relatable.</b>
-> <p><i>Bono</i></p>
+> <b>Be able to live alone, even if you don't want to and think you will never find it necessary.</b>
+> <p><i>Marilyn vos Savant</i></p>
 
 <br>
