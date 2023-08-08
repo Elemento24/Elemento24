@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Immature artists imitate. Mature artists steal.</b>
-> <p><i>Lionel Trilling</i></p>
+> <b>Each one of us requires the spur of insecurity to force us to do our best.</b>
+> <p><i>Harold W. Dodds</i></p>
 
 <br>
