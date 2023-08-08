@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are women who make things better, there are women who change things, there are women who make things happen, who make a difference. I want to be one of those women.</b>
-> <p><i>Vera Farmiga</i></p>
+> <b>Don't ever let economic alone determine your career or how you spend the majority of your time.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
