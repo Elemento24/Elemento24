@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is commonly supposed that the art of pleasing is a wonderful aid in the pursuit of fortune but the art of being bored is infinitely more successful.</b>
-> <p><i>Nicolas Chamfort</i></p>
+> <b>There are women who make things better, there are women who change things, there are women who make things happen, who make a difference. I want to be one of those women.</b>
+> <p><i>Vera Farmiga</i></p>
 
 <br>
