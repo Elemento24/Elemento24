@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I often buy myself presents. Sometimes I will spend $100,000 in one day in a posh boutique.</b>
-> <p><i>Celine Dion</i></p>
+> <b>Lord, where we are wrong, make us willing to change where we are right, make us easy to live with.</b>
+> <p><i>Peter Marshall</i></p>
 
 <br>
