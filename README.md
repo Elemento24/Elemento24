@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I told my father I wanted to play the banjo, and so he saved the money and got ready to give me a banjo for my next birthday, and between that time and my birthday, I lost interest in the banjo and was playing guitar.</b>
-> <p><i>Jackson Browne</i></p>
+> <b>Photography records the gamut of feelings written on the human face, the beauty of the earth and skies that man has inherited, and the wealth and confusion man has created. It is a major force in explaining man to man.</b>
+> <p><i>Edward Steichen</i></p>
 
 <br>
