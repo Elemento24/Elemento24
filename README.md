@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each one of us requires the spur of insecurity to force us to do our best.</b>
-> <p><i>Harold W. Dodds</i></p>
+> <b>The American attitude is 'We're the best'. That's why the NBA guys who come from other countries, the Europeans, all sort of stick together away from the game.</b>
+> <p><i>Andrew Bogut</i></p>
 
 <br>
