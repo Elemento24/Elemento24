@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Simplicity and repose are the qualities that measure the true value of any work of art.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>While I relish our warm months, winter forms our character and brings out our best.</b>
+> <p><i>Tom Allen</i></p>
 
 <br>
