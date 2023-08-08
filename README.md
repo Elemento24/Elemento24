@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While I relish our warm months, winter forms our character and brings out our best.</b>
-> <p><i>Tom Allen</i></p>
+> <b>Japanese traditional architecture is created based on these conditions. This is the reason you have a very high degree of connection between the outside and inside in architecture.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
