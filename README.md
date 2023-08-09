@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is a momentary madness, so control your passion or it will control you.</b>
-> <p><i>G. M. Trevelyan</i></p>
+> <b>Beauty is the oracle that speaks to us all.</b>
+> <p><i>Luis Barragan</i></p>
 
 <br>
