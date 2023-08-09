@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a kid I had buck teeth and braces and acne. I hated what I saw. I'm still not comfortable, but that's why I change and adapt the way I look.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>I just want to go in with the right attitude and from Day 1 make a difference.</b>
+> <p><i>Freddy Adu</i></p>
 
 <br>
