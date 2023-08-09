@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first rule of business is: Do other men for they would do you.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>As a kid I had buck teeth and braces and acne. I hated what I saw. I'm still not comfortable, but that's why I change and adapt the way I look.</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
