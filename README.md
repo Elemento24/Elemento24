@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Photography records the gamut of feelings written on the human face, the beauty of the earth and skies that man has inherited, and the wealth and confusion man has created. It is a major force in explaining man to man.</b>
-> <p><i>Edward Steichen</i></p>
+> <b>Change is not merely necessary to life - it is life.</b>
+> <p><i>Alvin Toffler</i></p>
 
 <br>
