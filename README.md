@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>IQ is a commodity, data is a commodity. I'm far more interested in watching people interact at a restaurant with their smartphone. We can all read 'Tech Crunch,' 'Ad Age.' I would rather be living in the trenches. I would rather be going to Whole Foods in Columbus Circle to watch people shop with their smartphones.</b>
-> <p><i>Gary Vaynerchuk</i></p>
+> <b>They were so good that you just had to sing the song to them once and they got it. It's amazing. Sometimes it didn't come out the way you wanted, but it was good.</b>
+> <p><i>Chris LeDoux</i></p>
 
 <br>
