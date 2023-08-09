@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For a change, lady luck seemed to be smiling on me. Then again, maybe the fickle wench was just lulling me into a false sense of security while she reached for a rock.</b>
-> <p><i>Timothy Zahn</i></p>
+> <b>IQ is a commodity, data is a commodity. I'm far more interested in watching people interact at a restaurant with their smartphone. We can all read 'Tech Crunch,' 'Ad Age.' I would rather be living in the trenches. I would rather be going to Whole Foods in Columbus Circle to watch people shop with their smartphones.</b>
+> <p><i>Gary Vaynerchuk</i></p>
 
 <br>
