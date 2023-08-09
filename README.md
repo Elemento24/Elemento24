@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not for nothing is their motto TGIF - 'Thank God It's Friday.' They live for the weekends, when they can go do what they really want to do.</b>
-> <p><i>Richard Nelson Bolles</i></p>
+> <b>The art of interpretation is not to play what is written.</b>
+> <p><i>Pablo Casals</i></p>
 
 <br>
