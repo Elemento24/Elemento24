@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the oracle that speaks to us all.</b>
-> <p><i>Luis Barragan</i></p>
+> <b>Not for nothing is their motto TGIF - 'Thank God It's Friday.' They live for the weekends, when they can go do what they really want to do.</b>
+> <p><i>Richard Nelson Bolles</i></p>
 
 <br>
