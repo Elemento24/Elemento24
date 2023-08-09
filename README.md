@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who find beauty in all of nature will find themselves at one with the secrets of life itself.</b>
-> <p><i>L. Wolfe Gilbert</i></p>
+> <b>For a change, lady luck seemed to be smiling on me. Then again, maybe the fickle wench was just lulling me into a false sense of security while she reached for a rock.</b>
+> <p><i>Timothy Zahn</i></p>
 
 <br>
