@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just want to go in with the right attitude and from Day 1 make a difference.</b>
-> <p><i>Freddy Adu</i></p>
+> <b>Love grows more tremendously full, swift, poignant, as the years multiply.</b>
+> <p><i>Zane Grey</i></p>
 
 <br>
