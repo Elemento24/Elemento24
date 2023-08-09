@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They were so good that you just had to sing the song to them once and they got it. It's amazing. Sometimes it didn't come out the way you wanted, but it was good.</b>
-> <p><i>Chris LeDoux</i></p>
+> <b>Anger is a momentary madness, so control your passion or it will control you.</b>
+> <p><i>G. M. Trevelyan</i></p>
 
 <br>
