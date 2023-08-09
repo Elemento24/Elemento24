@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All men's misfortunes spring from their hatred of being alone.</b>
-> <p><i>Jean de la Bruyere</i></p>
+> <b>I think we're in good hands. There's definitely much more momentum in bringing in good things to help support the show. Everyone's got a good attitude about it and I think that makes all the difference.</b>
+> <p><i>Crystal Chappell</i></p>
 
 <br>
