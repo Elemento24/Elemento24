@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of interpretation is not to play what is written.</b>
-> <p><i>Pablo Casals</i></p>
+> <b>It was really fun being in Tara's trailer, working on my lines. Tara is such an amazing actress. She's so good at what she does. I learned a lot from watching her.</b>
+> <p><i>Carson Daly</i></p>
 
 <br>
