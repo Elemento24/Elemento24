@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All we ask is to be let alone.</b>
-> <p><i>Jefferson Davis</i></p>
+> <b>So when I go home, sometimes, even when I had an amazing game, I always think about what I missed.</b>
+> <p><i>Thierry Henry</i></p>
 
 <br>
