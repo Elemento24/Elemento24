@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So when I go home, sometimes, even when I had an amazing game, I always think about what I missed.</b>
-> <p><i>Thierry Henry</i></p>
+> <b>All men's misfortunes spring from their hatred of being alone.</b>
+> <p><i>Jean de la Bruyere</i></p>
 
 <br>
