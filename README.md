@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A great source of calamity lies in regret and anticipation therefore a person is wise who thinks of the present alone, regardless of the past or future.</b>
-> <p><i>Oliver Goldsmith</i></p>
+> <b>All we ask is to be let alone.</b>
+> <p><i>Jefferson Davis</i></p>
 
 <br>
