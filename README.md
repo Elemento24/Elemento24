@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You may keep your beauty and your health, unless you destroy them yourself, or discourage them to stay with you, by using them ill.</b>
-> <p><i>William Temple</i></p>
+> <b>To improve is to change to be perfect is to change often.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
