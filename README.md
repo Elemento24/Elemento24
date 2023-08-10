@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life doesn't imitate art, it imitates bad television.</b>
-> <p><i>Woody Allen</i></p>
+> <b>You may keep your beauty and your health, unless you destroy them yourself, or discourage them to stay with you, by using them ill.</b>
+> <p><i>William Temple</i></p>
 
 <br>
