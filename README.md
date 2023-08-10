@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just always expect the best because I'm a competitor and if I'm competing, then obviously I'm trying to be better in everything.</b>
-> <p><i>Lil Wayne</i></p>
+> <b>I arrived in California with no job, no car, and no money, but, like millions of other girls, a dream.</b>
+> <p><i>Victoria Principal</i></p>
 
 <br>
