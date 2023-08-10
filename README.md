@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All I wanted was to connect my moods with those of Paris. Beauty paints and when it painted most, I shot.</b>
-> <p><i>Ernst Haas</i></p>
+> <b>You don't have to worry about whether the car is set up right or not, you know it is, and it's down to you. Ultimately, that's what every driver wants.</b>
+> <p><i>Bobby Rahal</i></p>
 
 <br>
