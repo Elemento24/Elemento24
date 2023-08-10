@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In real life, one of my friends was killed in a car accident during our sophomore year.</b>
-> <p><i>Beverley Mitchell</i></p>
+> <b>All I wanted was to connect my moods with those of Paris. Beauty paints and when it painted most, I shot.</b>
+> <p><i>Ernst Haas</i></p>
 
 <br>
