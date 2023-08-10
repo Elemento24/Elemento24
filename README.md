@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not possible to overstate the influence of Paul Cezanne on twentieth-century art. He's the modern Giotto, someone who shattered one kind of picture-making and invented a new one that the world followed.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I get such lovely gifts from fans... amazing pictures, handmade jewellery. I'm very lucky!</b>
+> <p><i>Leona Lewis</i></p>
 
 <br>
