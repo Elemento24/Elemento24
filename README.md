@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great buildings that move the spirit have always been rare. In every case they are unique, poetic, products of the heart.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>The best proof of love is trust.</b>
+> <p><i>Joyce Brothers</i></p>
 
 <br>
