@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rock isn't art, it's the way ordinary people talk.</b>
-> <p><i>Billy Idol</i></p>
+> <b>Each new situation requires a new architecture.</b>
+> <p><i>Jean Nouvel</i></p>
 
 <br>
