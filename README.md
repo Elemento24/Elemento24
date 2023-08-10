@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is always and everywhere the secret confession, and at the same time the immortal movement of its time.</b>
-> <p><i>Karl Marx</i></p>
+> <b>In real life, one of my friends was killed in a car accident during our sophomore year.</b>
+> <p><i>Beverley Mitchell</i></p>
 
 <br>
