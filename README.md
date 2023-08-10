@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I arrived in California with no job, no car, and no money, but, like millions of other girls, a dream.</b>
-> <p><i>Victoria Principal</i></p>
+> <b>Were I called on to define, very briefly, the term Art, I should call it 'the reproduction of what the Senses perceive in Nature through the veil of the soul.' The mere imitation, however accurate, of what is in Nature, entitles no man to the sacred name of 'Artist.'</b>
+> <p><i>Edgar Allan Poe</i></p>
 
 <br>
