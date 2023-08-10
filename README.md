@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Intelligent life on a planet comes of age when it first works out the reason for its own existence.</b>
-> <p><i>Richard Dawkins</i></p>
+> <b>Life doesn't imitate art, it imitates bad television.</b>
+> <p><i>Woody Allen</i></p>
 
 <br>
