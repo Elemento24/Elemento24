@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best proof of love is trust.</b>
-> <p><i>Joyce Brothers</i></p>
+> <b>The best interpreter of the law is custom.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
