@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think when the full horror of being fifty hits you, you should stay home and have a good cry.</b>
-> <p><i>Josh Billings</i></p>
+> <b>Great buildings that move the spirit have always been rare. In every case they are unique, poetic, products of the heart.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
