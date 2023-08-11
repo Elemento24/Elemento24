@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even though I build buildings and I pursue my architecture, I pursue it as an artist. I deliberately keep a tiny studio. I don't want to be an architectural firm. I want to remain an artist.</b>
-> <p><i>Maya Lin</i></p>
+> <b>In principle, there are only three main components of spending that much matter to monetary policy: consumer spending, business investment and exports and trade.</b>
+> <p><i>Evan Davis</i></p>
 
 <br>
