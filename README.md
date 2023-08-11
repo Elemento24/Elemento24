@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the history of the world, no one has ever washed a rented car.</b>
-> <p><i>Lawrence Summers</i></p>
+> <b>Even though I build buildings and I pursue my architecture, I pursue it as an artist. I deliberately keep a tiny studio. I don't want to be an architectural firm. I want to remain an artist.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
