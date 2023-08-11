@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You marry somebody you love everything about them. You grow to learn about them. You never learn everything.</b>
-> <p><i>Chris Daughtry</i></p>
+> <b>Life has got a habit of not standing hitched. You got to ride it like you find it. You got to change with it. If a day goes by that don't change some of your old notions for new ones, that is just about like trying to milk a dead cow.</b>
+> <p><i>Woody Guthrie</i></p>
 
 <br>
