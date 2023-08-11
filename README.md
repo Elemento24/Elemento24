@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like making films about old people because they are repositories of amazing stories that they tell well. And they're incredibly good telly.</b>
-> <p><i>Ian Hislop</i></p>
+> <b>You marry somebody you love everything about them. You grow to learn about them. You never learn everything.</b>
+> <p><i>Chris Daughtry</i></p>
 
 <br>
