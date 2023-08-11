@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first trip I remember taking was on the train from Virginia up to New York City, watching the summertime countryside rolling past the window. They used white linen tablecloths in the dining car in those days, and real silver. I love trains to this day. Maybe that was the beginning of my fixation with leisurely modes of travel.</b>
-> <p><i>Billy Campbell</i></p>
+> <b>I like making films about old people because they are repositories of amazing stories that they tell well. And they're incredibly good telly.</b>
+> <p><i>Ian Hislop</i></p>
 
 <br>
