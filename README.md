@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As winter strips the leaves from around us, so that we may see the distant regions they formerly concealed, so old age takes away our enjoyments only to enlarge the prospect of the coming eternity.</b>
-> <p><i>Jean Paul</i></p>
+> <b>Deliver me from writers who say the way they live doesn't matter. I'm not sure a bad person can write a good book, If art doesn't make us better, then what on earth is it for.</b>
+> <p><i>Alice Walker</i></p>
 
 <br>
