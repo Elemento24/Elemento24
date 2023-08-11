@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first show I ever did, singing and dancing, was 'Beauty and the Beast.' I was playing Gaston. Gaston has red tights, knee high boots, and it's very physical. I had headaches every day for two months.</b>
-> <p><i>Hugh Jackman</i></p>
+> <b>I quit high school on my birthday. It was my senior year and I didn't see the point. This was 1962, and I was ready to make music.</b>
+> <p><i>Barry White</i></p>
 
 <br>
