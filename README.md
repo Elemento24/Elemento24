@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We will see that our new attitude toward liquor has been given to us without any thought or effort on our part. It just comes! That is the miracle of it.</b>
-> <p><i>William Griffith Wilson</i></p>
+> <b>There's a lot of people out there who go through hard times, and they feel alone. They feel like nobody is there. But I'm in the same boat.</b>
+> <p><i>Brandy Norwood</i></p>
 
 <br>
