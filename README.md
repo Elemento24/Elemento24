@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One travels more usefully when alone, because he reflects more.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>I've always been a bit of a car freak.</b>
+> <p><i>Eric Bana</i></p>
 
 <br>
