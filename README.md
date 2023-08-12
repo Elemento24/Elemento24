@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to own an NFL franchise. I understand the business of football.</b>
-> <p><i>Jon Bon Jovi</i></p>
+> <b>Old age is no place for sissies.</b>
+> <p><i>Bette Davis</i></p>
 
 <br>
