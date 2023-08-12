@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been a bit of a car freak.</b>
-> <p><i>Eric Bana</i></p>
+> <b>And if you don't believe the sun will rise, stand alone and greet the coming night in the last remaining light.</b>
+> <p><i>Chris Cornell</i></p>
 
 <br>
