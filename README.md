@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have a powerful potential in out youth, and we must have the courage to change old ideas and practices so that we may direct their power toward good ends.</b>
-> <p><i>Mary McLeod Bethune</i></p>
+> <b>When you have two busy kids running around the house, returning e-mails is a task, let alone surfing the web.</b>
+> <p><i>Tom Brady</i></p>
 
 <br>
