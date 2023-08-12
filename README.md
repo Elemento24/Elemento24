@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything in life that we really accept undergoes a change.</b>
-> <p><i>Katherine Mansfield</i></p>
+> <b>The greater the decrease in the social significance of an art form, the sharper the distinction between criticism and enjoyment by the public. The conventional is uncritically enjoyed, and the truly new is criticized with aversion.</b>
+> <p><i>Walter Benjamin</i></p>
 
 <br>
