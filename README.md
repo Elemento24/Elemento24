@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pursuit of beauty is much more dangerous nonsense than the pursuit of truth or goodness, because it affords a stronger temptation to the ego.</b>
-> <p><i>Northrop Frye</i></p>
+> <b>One travels more usefully when alone, because he reflects more.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
