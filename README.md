@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is ready to undertake tasks that youth shirked because they would take too long.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>I allow myself one nice car.</b>
+> <p><i>Slash</i></p>
 
 <br>
