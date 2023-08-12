@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you have two busy kids running around the house, returning e-mails is a task, let alone surfing the web.</b>
-> <p><i>Tom Brady</i></p>
+> <b>The greatest remedy for anger is delay.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
