@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest remedy for anger is delay.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>As an actress, emotions are my business, my stock-in-trade. As such, I've dealt with them nearly all my life.</b>
+> <p><i>Loretta Young</i></p>
 
 <br>
