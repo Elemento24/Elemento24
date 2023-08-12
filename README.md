@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As the third anniversary of the September 11th attacks draws near we must ensure our nation is prepared to handle the continued threat of violence and terrorism on our country.</b>
-> <p><i>Leonard Boswell</i></p>
+> <b>Logic is neither an art nor a science but a dodge.</b>
+> <p><i>Stendhal</i></p>
 
 <br>
