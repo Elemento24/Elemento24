@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is like those ruins which smash themselves on what they fall.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>The best way to be boring is to leave nothing out.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
