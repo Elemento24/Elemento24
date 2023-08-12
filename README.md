@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The compensation of a very early success is a conviction that life is a romantic matter. In the best sense one stays young.</b>
-> <p><i>F. Scott Fitzgerald</i></p>
+> <b>As the third anniversary of the September 11th attacks draws near we must ensure our nation is prepared to handle the continued threat of violence and terrorism on our country.</b>
+> <p><i>Leonard Boswell</i></p>
 
 <br>
