@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very manipulative towards directors. My theory is that everyone on the set is directing the film, we're all receiving art messages from the universe on how we should do the film.</b>
-> <p><i>Jeff Bridges</i></p>
+> <b>At its best our age is an age of searchers and discoverers, and at its worst, an age that has domesticated despair and learned to live with it happily.</b>
+> <p><i>Flannery O'Connor</i></p>
 
 <br>
