@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a world that is constantly changing, there is no one subject or set of subjects that will serve you for the foreseeable future, let alone for the rest of your life. The most important skill to acquire now is learning how to learn.</b>
-> <p><i>John Naisbitt</i></p>
+> <b>Design can never be an ultimate explanation for anything. It can only be a proximate explanation. A plane or a car is explained by a designer but that's because the designer himself, the engineer, is explained by natural selection.</b>
+> <p><i>Richard Dawkins</i></p>
 
 <br>
