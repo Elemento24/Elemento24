@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude is more important than the past, than education, than money, than circumstances, than what people do or say. It is more important than appearance, giftedness, or skill.</b>
-> <p><i>Charles R. Swindoll</i></p>
+> <b>We have the power to make this the best generation of mankind in the history of the world or to make it the last.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
