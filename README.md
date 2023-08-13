@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work of art assumes the existence of the perfect spectator, and is indifferent to the fact that no such person exists.</b>
-> <p><i>E. M. Forster</i></p>
+> <b>Our age knows nothing but reaction, and leaps from one extreme to another.</b>
+> <p><i>Reinhold Niebuhr</i></p>
 
 <br>
