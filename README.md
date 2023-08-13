@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm always going to get more of a charge playing Chicago than I will Duluth or some place like that. Just because of the history and the people there are way more knowledgeable than a lot of other cities. It's an amazing music scene with some great bands and great musicians.</b>
-> <p><i>Matt Cameron</i></p>
+> <b>The work of art assumes the existence of the perfect spectator, and is indifferent to the fact that no such person exists.</b>
+> <p><i>E. M. Forster</i></p>
 
 <br>
