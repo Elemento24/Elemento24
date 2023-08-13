@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our age knows nothing but reaction, and leaps from one extreme to another.</b>
-> <p><i>Reinhold Niebuhr</i></p>
+> <b>For my birthday my husband learned to cook and is cooking one day a week for me. But he only likes to do fancy dishes. So we end up with weird, obscure things in the refrigerator.</b>
+> <p><i>Cheryl Hines</i></p>
 
 <br>
