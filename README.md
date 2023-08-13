@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To speak of morals in art is to speak of legislature in sex. Art is the sex of the imagination.</b>
-> <p><i>George Jean Nathan</i></p>
+> <b>There are elements of intrinsic beauty in the simplification of a house built on the log cabin idea.</b>
+> <p><i>Gustav Stickley</i></p>
 
 <br>
