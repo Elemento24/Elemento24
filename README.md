@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, we've built a lot of products that we think are good, and will help people share photos and share videos and write messages to each other. But it's really all about how people are spreading Facebook around the world in all these different countries. And that's what's so amazing about the scale that it's at today.</b>
-> <p><i>Mark Zuckerberg</i></p>
+> <b>I borrowed my friend's car the other day in an attempt to persuade my husband that we needed a car and literally this is true, in the first day of borrowing the car, I got three tickets and I rear-ended it.</b>
+> <p><i>Emily Mortimer</i></p>
 
 <br>
