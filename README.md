@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that the rights of women and girls is the unfinished business of the 21st century.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>Success breeds volume, and it's just amazing how many young writers, artists, and musicians there are in town.</b>
+> <p><i>Steven Curtis Chapman</i></p>
 
 <br>
