@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are elements of intrinsic beauty in the simplification of a house built on the log cabin idea.</b>
-> <p><i>Gustav Stickley</i></p>
+> <b>I must be more sensible and realize that at my age, illusions are hardly permitted and they will always destroy me.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
