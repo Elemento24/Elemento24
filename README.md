@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have the power to make this the best generation of mankind in the history of the world or to make it the last.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>My philosophy is that not only are you responsible for your life, but doing the best at this moment puts you I the best place for the next moment.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
