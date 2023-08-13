@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He never is alone that is accompanied with noble thoughts.</b>
-> <p><i>John Fletcher</i></p>
+> <b>While I had often said that I wanted to die in bed, what I really meant was that in my old age I wanted to be stepped on by an elephant while making love.</b>
+> <p><i>Roger Zelazny</i></p>
 
 <br>
