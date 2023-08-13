@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At its best our age is an age of searchers and discoverers, and at its worst, an age that has domesticated despair and learned to live with it happily.</b>
-> <p><i>Flannery O'Connor</i></p>
+> <b>I'm always going to get more of a charge playing Chicago than I will Duluth or some place like that. Just because of the history and the people there are way more knowledgeable than a lot of other cities. It's an amazing music scene with some great bands and great musicians.</b>
+> <p><i>Matt Cameron</i></p>
 
 <br>
