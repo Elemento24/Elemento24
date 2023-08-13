@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The trite saying that honesty is the best policy has met with the just criticism that honesty is not policy. The real honest man is honest from conviction of what is right, not from policy.</b>
-> <p><i>Robert E. Lee</i></p>
+> <b>I believe that the rights of women and girls is the unfinished business of the 21st century.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
