@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I must be more sensible and realize that at my age, illusions are hardly permitted and they will always destroy me.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Attitude is more important than the past, than education, than money, than circumstances, than what people do or say. It is more important than appearance, giftedness, or skill.</b>
+> <p><i>Charles R. Swindoll</i></p>
 
 <br>
