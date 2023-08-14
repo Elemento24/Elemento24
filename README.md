@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I've discovered is that in art, as in music, there's a lot of truth-and then there's a lie. The artist is essentially creating his work to make this lie a truth, but he slides it in amongst all the others. The tiny little lie is the moment I live for, my moment. It's the moment that the audience falls in love.</b>
-> <p><i>Lady Gaga</i></p>
+> <b>But after the time there I'd had it with fashion again, so I left to go to architecture school in a summer course at Harvard, which didn't last very long.</b>
+> <p><i>Stephen Sprouse</i></p>
 
 <br>
