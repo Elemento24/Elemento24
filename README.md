@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have discovered the art of deceiving diplomats. I tell them the truth and they never believe me.</b>
-> <p><i>Camillo di Cavour</i></p>
+> <b>I was so wild and crazy and dumb in my car. It didn't run but 30 miles an hour. You made do.</b>
+> <p><i>Muddy Waters</i></p>
 
 <br>
