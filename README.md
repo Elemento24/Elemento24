@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of 'The Walking Dead' and the beauty of being on a television show for a while, is that, it's your backstory, it's part of what you are, it's what you carry with you every day.</b>
-> <p><i>Laurie Holden</i></p>
+> <b>I have discovered the art of deceiving diplomats. I tell them the truth and they never believe me.</b>
+> <p><i>Camillo di Cavour</i></p>
 
 <br>
