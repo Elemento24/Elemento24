@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But after the time there I'd had it with fashion again, so I left to go to architecture school in a summer course at Harvard, which didn't last very long.</b>
-> <p><i>Stephen Sprouse</i></p>
+> <b>Despite the fact that in America we incarcerate more juveniles for life terms than in any other country in the world, the truth is that the vast majority of youth offenders will one day be released. The question is simple and stark. Do we want to help them change or do we want to help them become even more violent and dangerous?</b>
+> <p><i>Ayelet Waldman</i></p>
 
 <br>
