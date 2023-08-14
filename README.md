@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Honesty is the best policy.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>I thought, after the Pulitzer, at least nothing will surprise me quite that much in my life. And another one happened. It was quite amazing.</b>
+> <p><i>Rita Dove</i></p>
 
 <br>
