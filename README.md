@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't possibly fathom the ins and outs of a prepubescent beauty treatment until you've felt the strange but exhilarating tingle of a cottage-cheese-and-Pop-Rocks facial.</b>
-> <p><i>Sloane Crosley</i></p>
+> <b>Almost all institutions own a lot more art than they can ever show, much of it revealing for its timeliness, genius, or sheer weirdness.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
