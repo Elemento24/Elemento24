@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of a woman must be seen from in her eyes, because that is the doorway to her heart, the place where love resides.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>Charles was very intent to use his years as Prince of Wales to make his mark while he still had freedom of maneuver that he wouldn't have as King. The first subject he really went for was architecture. It made an impact.</b>
+> <p><i>Anthony Holden</i></p>
 
 <br>
