@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To the man who loves art for its own sake, it is frequently in its least important and lowliest manifestations that the keenest pleasure is to be derived.</b>
-> <p><i>Arthur Conan Doyle</i></p>
+> <b>To me, a building - if it's beautiful - is the love of one man, he's made it out of his love for space, materials, things like that.</b>
+> <p><i>Martha Graham</i></p>
 
 <br>
