@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all have a social mask, right? We put it on, we go out, put our best foot forward, our best image. But behind that social mask is a personal truth, what we really, really believe about who we are and what we're capable of.</b>
-> <p><i>Phil McGraw</i></p>
+> <b>You can't possibly fathom the ins and outs of a prepubescent beauty treatment until you've felt the strange but exhilarating tingle of a cottage-cheese-and-Pop-Rocks facial.</b>
+> <p><i>Sloane Crosley</i></p>
 
 <br>
