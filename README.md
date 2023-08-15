@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All species capable of grasping this fact manage better in the struggle for existence than those which rely upon their own strength alone: the wolf, which hunts in a pack, has a greater chance of survival than the lion, which hunts alone.</b>
-> <p><i>Christian Lous Lange</i></p>
+> <b>The red carpet is kind of a surreal experience. There's nothing normal about it, so for me the most important thing is to maintain some normality right until the point you get out of the car.</b>
+> <p><i>Samantha Barks</i></p>
 
 <br>
