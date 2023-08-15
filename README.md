@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The leader who exercises power with honor will work from the inside out, starting with himself.</b>
-> <p><i>Blaine Lee</i></p>
+> <b>If you hear a voice within you say 'you cannot paint,' then by all means paint, and that voice will be silenced.</b>
+> <p><i>Vincent Van Gogh</i></p>
 
 <br>
