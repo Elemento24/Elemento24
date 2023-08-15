@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Absolutely lonely people have few personal interactions of any kind.</b>
-> <p><i>Martha Beck</i></p>
+> <b>I'm at the age where food has taken the place of sex in my life. In fact, I've just had a mirror put over my kitchen table.</b>
+> <p><i>Rodney Dangerfield</i></p>
 
 <br>
