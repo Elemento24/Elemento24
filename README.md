@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The red carpet is kind of a surreal experience. There's nothing normal about it, so for me the most important thing is to maintain some normality right until the point you get out of the car.</b>
-> <p><i>Samantha Barks</i></p>
+> <b>If you love somebody, you love them. My parents had a 25-year age gap between them and my mum was the breadwinner, my dad the house husband. I'm a strong believer that a good relationship can work, whatever the situation.</b>
+> <p><i>Katherine Jenkins</i></p>
 
 <br>
