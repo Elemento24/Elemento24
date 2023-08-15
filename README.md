@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone enjoys doing the kind of work for which he is best suited.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>Our spiritual attitude is determined by our conception of our relation to infinite spirit.</b>
+> <p><i>Paul Twitchell</i></p>
 
 <br>
