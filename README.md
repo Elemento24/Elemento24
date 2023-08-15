@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Taking joy in living is a woman's best cosmetic.</b>
-> <p><i>Rosalind Russell</i></p>
+> <b>The leader who exercises power with honor will work from the inside out, starting with himself.</b>
+> <p><i>Blaine Lee</i></p>
 
 <br>
