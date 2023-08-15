@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is whatever you think it is. You are as old as you think you are.</b>
-> <p><i>Muhammad Ali</i></p>
+> <b>I'm not interested in age. People who tell me their age are silly. You're as old as you feel.</b>
+> <p><i>Henri Frederic Amiel</i></p>
 
 <br>
