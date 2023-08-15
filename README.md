@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I stayed in show business to pay for my animal business.</b>
-> <p><i>Betty White</i></p>
+> <b>The only real failure in life is not to be true to the best one knows.</b>
+> <p><i>Buddha</i></p>
 
 <br>
