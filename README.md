@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you hear a voice within you say 'you cannot paint,' then by all means paint, and that voice will be silenced.</b>
-> <p><i>Vincent Van Gogh</i></p>
+> <b>Loss is nothing else but change, and change is Nature's delight.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
