@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The forgotten man... He works, he votes, generally he prays, but his chief business in life is to pay.</b>
-> <p><i>William Graham Sumner</i></p>
+> <b>I went to Zimbabwe. I know how white people feel in America now relaxed! Cause when I heard the police car I knew they weren't coming after me!</b>
+> <p><i>Richard Pryor</i></p>
 
 <br>
