@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The comic book world is a tough business.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>I was bullied as a kid, and I got a job on television. And I had a camera. And so I wanted to go after those business bullies. And I just have been following that instinct.</b>
+> <p><i>John Stossel</i></p>
 
 <br>
