@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only person who is educated is the one who has learned how to learn and change.</b>
-> <p><i>Carl Rogers</i></p>
+> <b>Both tears and sweat are salty, but they render a different result. Tears will get you sympathy sweat will get you change.</b>
+> <p><i>Jesse Jackson</i></p>
 
 <br>
