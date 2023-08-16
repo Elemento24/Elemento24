@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Successful crimes alone are justified.</b>
-> <p><i>John Dryden</i></p>
+> <b>Sometimes movie-making happens like clockwork other times, like a car accident.</b>
+> <p><i>Eric Roberts</i></p>
 
 <br>
