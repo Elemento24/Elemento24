@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I appreciate simplicity, true beauty that lasts over time, and a little wit and eclecticism that make life more fun.</b>
-> <p><i>Elliott Erwitt</i></p>
+> <b>There are pros and cons of experience. A con is that you can't look at the business with a fresh pair of eyes and as objectively as if you were a new CEO. Fire yourself on a Friday night and come in on Monday morning as if a search firm put you there as a turn-around leader. Can you be objective and make the bold change?</b>
+> <p><i>Andrea Jung</i></p>
 
 <br>
