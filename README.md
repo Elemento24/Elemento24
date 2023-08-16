@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I live to hail that season by gifted one foretold, when men shall live by reason, and not alone by gold.</b>
-> <p><i>George Linnaeus Banks</i></p>
+> <b>I appreciate simplicity, true beauty that lasts over time, and a little wit and eclecticism that make life more fun.</b>
+> <p><i>Elliott Erwitt</i></p>
 
 <br>
