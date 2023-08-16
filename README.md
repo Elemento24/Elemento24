@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes movie-making happens like clockwork other times, like a car accident.</b>
-> <p><i>Eric Roberts</i></p>
+> <b>Alone we can do so little together we can do so much.</b>
+> <p><i>Helen Keller</i></p>
 
 <br>
