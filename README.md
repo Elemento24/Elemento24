@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The image is where you have dinner at night, who you're seeing. It's what car you drive and how you dress. People in the industry sell that, and it creates a dream. There's nothing else.</b>
-> <p><i>Elle Macpherson</i></p>
+> <b>The best form of flattery is to be admired, imitated or respected. I've always felt proud our fans look up to us or feel we are inspirational.</b>
+> <p><i>Cheryl James</i></p>
 
 <br>
