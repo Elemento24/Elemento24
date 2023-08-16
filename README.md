@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The anger that appears to be building up between the sexes becomes more virulent with every day that passes. And far from women taking the blame... the fact is that men are invariably portrayed as the bad guys. Being a good man is like being a good Nazi.</b>
-> <p><i>Dave Thomas</i></p>
+> <b>Successful crimes alone are justified.</b>
+> <p><i>John Dryden</i></p>
 
 <br>
