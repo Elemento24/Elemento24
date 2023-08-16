@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Both tears and sweat are salty, but they render a different result. Tears will get you sympathy sweat will get you change.</b>
-> <p><i>Jesse Jackson</i></p>
+> <b>I live to hail that season by gifted one foretold, when men shall live by reason, and not alone by gold.</b>
+> <p><i>George Linnaeus Banks</i></p>
 
 <br>
