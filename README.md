@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was bullied as a kid, and I got a job on television. And I had a camera. And so I wanted to go after those business bullies. And I just have been following that instinct.</b>
-> <p><i>John Stossel</i></p>
+> <b>The best cure for the body is a quiet mind.</b>
+> <p><i>Napoleon Bonaparte</i></p>
 
 <br>
