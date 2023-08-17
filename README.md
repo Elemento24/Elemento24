@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A picture is worth a thousand words.</b>
-> <p><i>Napoleon Bonaparte</i></p>
+> <b>No man is a success in business unless he loves his work.</b>
+> <p><i>Florence Scovel Shinn</i></p>
 
 <br>
