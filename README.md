@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the nineteenth century was the age of the editorial chair, ours is the century of the psychiatrist's couch.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>Medicine is a science of uncertainty and an art of probability.</b>
+> <p><i>William Osler</i></p>
 
 <br>
