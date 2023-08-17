@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Few will have the greatness to bend history itself but each of us can work to change a small portion of events, and in the total of all those acts will be written the history of this generation.</b>
-> <p><i>Robert Kennedy</i></p>
+> <b>I do not know what the spirit of a philosopher could more wish to be than a good dancer. For the dance is his ideal, also his fine art, finally also the only kind of piety he knows, his 'divine service.'</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
