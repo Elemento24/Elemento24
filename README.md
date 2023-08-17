@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vulgar and obscene, the papers run rumors daily about people in show business, tales of wicked ways and witless affairs.</b>
-> <p><i>Carroll O'Connor</i></p>
+> <b>My size has helped make me an amazing performer too. The cliche of the Funny Fat Friend: I absolutely was that character - I am that character... It's a complicated bag of tools I acquired, and I've put them all to work onstage.</b>
+> <p><i>Beth Ditto</i></p>
 
 <br>
