@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can work myself up into a fearful, paralyzing state of mind that can last for days, weeks even months where I feel mad, totally isolated and alone, overwhelmed and completely out of control.</b>
-> <p><i>Vinny Guadagnino</i></p>
+> <b>Few will have the greatness to bend history itself but each of us can work to change a small portion of events, and in the total of all those acts will be written the history of this generation.</b>
+> <p><i>Robert Kennedy</i></p>
 
 <br>
