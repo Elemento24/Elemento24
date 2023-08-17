@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The cottage garden most for use designed, Yet not of beauty destitute.</b>
-> <p><i>Charlotte Smith</i></p>
+> <b>The best intelligence test is what we do with our leisure.</b>
+> <p><i>Laurence J. Peter</i></p>
 
 <br>
