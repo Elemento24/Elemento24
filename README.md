@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My best birth control now is just to leave the lights on.</b>
-> <p><i>Joan Rivers</i></p>
+> <b>Outside museums, in noisy public squares, people look at people. Inside museums, we leave that realm and enter what might be called the group-mind, getting quiet to look at art.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
