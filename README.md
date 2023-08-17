@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Outside museums, in noisy public squares, people look at people. Inside museums, we leave that realm and enter what might be called the group-mind, getting quiet to look at art.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Since change is constant, you wonder if people crave death because it's the only way they can get anything really finished.</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
