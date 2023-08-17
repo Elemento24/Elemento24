@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to tell my jokes. I want to have time with my children. I want to entertain people. And at one point, I'll walk away from show business. But I don't want to walk away empty-handed.</b>
-> <p><i>Dave Chappelle</i></p>
+> <b>I can work myself up into a fearful, paralyzing state of mind that can last for days, weeks even months where I feel mad, totally isolated and alone, overwhelmed and completely out of control.</b>
+> <p><i>Vinny Guadagnino</i></p>
 
 <br>
