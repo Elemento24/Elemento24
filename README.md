@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man is a success in business unless he loves his work.</b>
-> <p><i>Florence Scovel Shinn</i></p>
+> <b>If the nineteenth century was the age of the editorial chair, ours is the century of the psychiatrist's couch.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
