@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a little silly to finally learn how to write at this age. But I long ago realized I was secretly sincere.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>I want to tell my jokes. I want to have time with my children. I want to entertain people. And at one point, I'll walk away from show business. But I don't want to walk away empty-handed.</b>
+> <p><i>Dave Chappelle</i></p>
 
 <br>
