@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As soon as beauty is sought not from religion and love, but for pleasure, it degrades the seeker.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>A gift, with a kind countenance, is a double present.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
