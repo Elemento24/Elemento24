@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had this really great amazing thing happen where I almost finished the book and I really needed to come up with an ending and I decided to go back and re-read the book and see if I could come up with an ending.</b>
-> <p><i>Cory Doctorow</i></p>
+> <b>I don't know why I've always been so captivated by architecture.</b>
+> <p><i>Tim Gunn</i></p>
 
 <br>
