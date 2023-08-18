@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude is that if you push me towards something that you think is a weakness, then I will turn that perceived weakness into a strength.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>You can calculate the worth of a man by the number of his enemies, and the importance of a work of art by the harm that is spoken of it.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
