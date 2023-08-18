@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can calculate the worth of a man by the number of his enemies, and the importance of a work of art by the harm that is spoken of it.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>I had this really great amazing thing happen where I almost finished the book and I really needed to come up with an ending and I decided to go back and re-read the book and see if I could come up with an ending.</b>
+> <p><i>Cory Doctorow</i></p>
 
 <br>
