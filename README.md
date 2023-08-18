@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I admire the wonders of a sunset or the beauty of the moon, my soul expands in the worship of the creator.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>Anger may repast with thee for an hour, but not repose for a night the continuance of anger is hatred, the continuance of hatred turns malice.</b>
+> <p><i>Francis Quarles</i></p>
 
 <br>
