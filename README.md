@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't mind my age.</b>
-> <p><i>Heather Mills</i></p>
+> <b>My passion and energy get mistaken for anger.</b>
+> <p><i>Gary Oldman</i></p>
 
 <br>
