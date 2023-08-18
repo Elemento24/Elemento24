@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The law does not pretend to punish everything that is dishonest. That would seriously interfere with business.</b>
-> <p><i>Clarence Darrow</i></p>
+> <b>The desire to hit a big home run is dominating the music business.</b>
+> <p><i>Billy Corgan</i></p>
 
 <br>
