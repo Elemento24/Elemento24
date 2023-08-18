@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm lucky. The best possible place in the world for training is Addis Ababa, so I am home all the time except when I am racing. I like to be there, near my family, my kids, also the real estate business I run with my wife.</b>
-> <p><i>Haile Gebrselassie</i></p>
+> <b>The law does not pretend to punish everything that is dishonest. That would seriously interfere with business.</b>
+> <p><i>Clarence Darrow</i></p>
 
 <br>
