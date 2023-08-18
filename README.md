@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even in this day and age, if you're not married, there are people who are like, 'Awww! Don't worry, it'll happen for you someday.'</b>
-> <p><i>Kristen Wiig</i></p>
+> <b>As soon as beauty is sought not from religion and love, but for pleasure, it degrades the seeker.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
