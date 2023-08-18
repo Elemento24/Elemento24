@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The desire to hit a big home run is dominating the music business.</b>
-> <p><i>Billy Corgan</i></p>
+> <b>My attitude is that if you push me towards something that you think is a weakness, then I will turn that perceived weakness into a strength.</b>
+> <p><i>Michael Jordan</i></p>
 
 <br>
