@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The time you spend alone with God will transform your character and increase your devotion. Then your integrity and godly behavior in an unbelieving world will make others long to know the Lord.</b>
-> <p><i>Charles Stanley</i></p>
+> <b>I don't mind my age.</b>
+> <p><i>Heather Mills</i></p>
 
 <br>
