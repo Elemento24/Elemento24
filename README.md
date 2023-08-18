@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not saying I wasn't flawed or amateurish. But you can never say I did anything to appease the music business.</b>
-> <p><i>Patti Smith</i></p>
+> <b>Even in this day and age, if you're not married, there are people who are like, 'Awww! Don't worry, it'll happen for you someday.'</b>
+> <p><i>Kristen Wiig</i></p>
 
 <br>
