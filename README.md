@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wisdom alone is true ambition's aim, wisdom is the source of virtue and of fame obtained with labour, for mankind employed, and then, when most you share it, best enjoyed.</b>
-> <p><i>Alfred North Whitehead</i></p>
+> <b>I cried on my 18th birthday. I thought 17 was such a nice age. You're young enough to get away with things, but you're old enough, too.</b>
+> <p><i>Liv Tyler</i></p>
 
 <br>
