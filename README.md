@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to understand the tone of the movie, because if it's supposed to be funny, it can be funny violent like the Home Alone stuff, but you have to really understand the tone of what you're doing and make the action work for that and for the character.</b>
-> <p><i>David R. Ellis</i></p>
+> <b>I think the biggest disease the world suffers from in this day and age is the disease of people feeling unloved. I know that I can give love for a minute, for half an hour, for a day, for a month, but I can give. I am very happy to do that, I want to do that.</b>
+> <p><i>Princess Diana</i></p>
 
 <br>
