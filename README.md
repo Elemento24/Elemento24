@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Allowing children to show their guilt, show their grief, show their anger, takes the sting out of the situation.</b>
-> <p><i>Martha Beck</i></p>
+> <b>John D. Rockefeller wanted to dominate oil, but Microsoft wants it all, you name it: cable, media, banking, car dealerships.</b>
+> <p><i>Ralph Nader</i></p>
 
 <br>
