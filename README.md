@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>John D. Rockefeller wanted to dominate oil, but Microsoft wants it all, you name it: cable, media, banking, car dealerships.</b>
-> <p><i>Ralph Nader</i></p>
+> <b>Wisdom alone is true ambition's aim, wisdom is the source of virtue and of fame obtained with labour, for mankind employed, and then, when most you share it, best enjoyed.</b>
+> <p><i>Alfred North Whitehead</i></p>
 
 <br>
