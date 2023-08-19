@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that one's art is a growth inside one. I do not think one can explain growth. It is silent and subtle. One does not keep digging up a plant to see how it grows.</b>
-> <p><i>Emily Carr</i></p>
+> <b>I had to stop driving my car for a while... the tires got dizzy.</b>
+> <p><i>Steven Wright</i></p>
 
 <br>
