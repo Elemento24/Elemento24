@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a car fanatic and each morning I wake up with a smile on my face, whether I'm commentating on the Formula One or at Silver Hatch racetrack in Roary the Racing Car.</b>
-> <p><i>Murray Walker</i></p>
+> <b>The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life and the procedure , the process is its own reward.</b>
+> <p><i>Amelia Earhart</i></p>
 
 <br>
