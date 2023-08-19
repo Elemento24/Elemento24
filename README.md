@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I believe that the best buy in public health today must be a combination of regular physical exercise and a healthy diet.</b>
-> <p><i>Julie Bishop</i></p>
+> <b>Allowing children to show their guilt, show their grief, show their anger, takes the sting out of the situation.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
