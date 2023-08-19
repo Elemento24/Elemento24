@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist cannot speak about his art any more than a plant can discuss horticulture.</b>
-> <p><i>Jean Cocteau</i></p>
+> <b>Ford used to come to work in a big car with two Admiral's flags, on each side of the car. His assistant would be there with his accordion, playing, Hail to the Chief.</b>
+> <p><i>Richard Widmark</i></p>
 
 <br>
