@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had to stop driving my car for a while... the tires got dizzy.</b>
-> <p><i>Steven Wright</i></p>
+> <b>I was kicked out of school because of my attitude. I was not assimilating. So I went to work, taking any jobs I could get.</b>
+> <p><i>Richard Pryor</i></p>
 
 <br>
