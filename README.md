@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Raising a small child as a woman while travelling 10 months out of the year would, I believe, be something I would not be able or even want to do, although with the amazing example of Leila, I am no longer so sure.</b>
-> <p><i>Lara St. John</i></p>
+> <b>Through loyalty to the past, our mind refuses to realize that tomorrow's joy is possible only if today's makes way for it that each wave owes the beauty of its line only to the withdrawal of the preceding one.</b>
+> <p><i>Andre Gide</i></p>
 
 <br>
