@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The effort of art is to keep what is interesting in existence, to recreate it in the eternal.</b>
-> <p><i>George Santayana</i></p>
+> <b>Unless action is taken soon - unless we can display the same vision of that earlier period - we will lose the treasure of California's open space and environmental beauty.</b>
+> <p><i>Adam Schiff</i></p>
 
 <br>
