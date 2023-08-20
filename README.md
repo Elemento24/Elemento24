@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unless action is taken soon - unless we can display the same vision of that earlier period - we will lose the treasure of California's open space and environmental beauty.</b>
-> <p><i>Adam Schiff</i></p>
+> <b>Personality is everything in art and poetry.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
