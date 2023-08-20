@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to find yourself is to lose yourself in the service of others.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>Testing oneself is best when done alone.</b>
+> <p><i>Jimmy Carter</i></p>
 
 <br>
