@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>Nobody's ever asked me to pay for a meal before I've eaten it, I've never been pulled over just because I was driving the wrong kind of car in the wrong kind of area at the wrong time of night.</b>
+> <p><i>Wentworth Miller</i></p>
 
 <br>
