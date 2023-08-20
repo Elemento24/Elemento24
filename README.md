@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tend to not watch things that are current. And then if everybody swears it's amazing then I'll like watch the whole series in a weekend.</b>
-> <p><i>Hank Azaria</i></p>
+> <b>I acquired an admiration for Japanese culture, art, and architecture, and learned of the existence of the game of GO, which I still play.</b>
+> <p><i>Philip Warren Anderson</i></p>
 
 <br>
