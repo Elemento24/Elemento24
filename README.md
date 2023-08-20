@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now that women are jockeys, baseball umpires, atomic scientists, and business executives, maybe someday they can master parallel parking.</b>
-> <p><i>Bill Vaughan</i></p>
+> <b>The best way to find yourself is to lose yourself in the service of others.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
