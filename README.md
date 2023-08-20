@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cried on my 18th birthday. I thought 17 was such a nice age. You're young enough to get away with things, but you're old enough, too.</b>
-> <p><i>Liv Tyler</i></p>
+> <b>Unfortunately we don't have all the bits and pieces on the car that we had hoped to have by this stage so we've got to make as good a job as we can with what we have and we feel we are doing well with that at the moment.</b>
+> <p><i>David Leslie</i></p>
 
 <br>
