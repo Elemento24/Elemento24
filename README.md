@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Personality is everything in art and poetry.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>When angry count to ten before you speak. If very angry, count to one hundred.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
