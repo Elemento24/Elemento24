@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the first convention of the space age - where a candidate can promise the moon and mean it.</b>
-> <p><i>David Brinkley</i></p>
+> <b>Art is not the application of a canon of beauty but what the instinct and the brain can conceive beyond any canon. When we love a woman we don't start measuring her limbs.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
