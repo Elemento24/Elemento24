@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My wife has brought great beauty into my life. And my daughter has brought me nothing but joy. Those qualities were greatly lacking.</b>
-> <p><i>Christopher Meloni</i></p>
+> <b>The Romans were not inventors of the supporting arch, but its extended use in vaults and intersecting barrel shapes and domes is theirs.</b>
+> <p><i>Harry Seidler</i></p>
 
 <br>
