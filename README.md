@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Acting is still, of course, what I love to do most. The beauty of it is that by changing characters, it never gets boring.</b>
-> <p><i>Christopher Lambert</i></p>
+> <b>There are two types of poor people, those who are poor together and those who are poor alone. The first are the true poor, the others are rich people out of luck.</b>
+> <p><i>Jean-Paul Sartre</i></p>
 
 <br>
