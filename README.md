@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The truth is that we can learn to condition our minds, bodies, and emotions to link pain or pleasure to whatever we choose. By changing what we link pain and pleasure to, we will instantly change our behaviors.</b>
-> <p><i>Tony Robbins</i></p>
+> <b>It's been really fun to see with each album when I change to see the fans of the show emulate my style and with the first record a lot of the kids in the crowd were wearing neck ties like I was and now you'll see a lot of girls with pink hair. It's cool, it's actually really neat.</b>
+> <p><i>Avril Lavigne</i></p>
 
 <br>
