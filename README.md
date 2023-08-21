@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The moment you think you understand a great work of art, it's dead for you.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>I always have one or two, sometimes more, Navajo or other tribes' cultural elements in mind when I start a plot. In Thief of Time, I wanted to make readers aware of Navajo attitude toward the dead, respect for burial sites.</b>
+> <p><i>Tony Hillerman</i></p>
 
 <br>
