@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't need a friend who changes when I change and who nods when I nod my shadow does that much better.</b>
-> <p><i>Plutarch</i></p>
+> <b>I genuinely believe that if you want to get in the film business, get in the film business.</b>
+> <p><i>Daniel Craig</i></p>
 
 <br>
