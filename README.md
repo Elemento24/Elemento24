@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best music is essentially there to provide you something to face the world with.</b>
-> <p><i>Bruce Springsteen</i></p>
+> <b>A work of art that contains theories is like an object on which the price tag has been left.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
