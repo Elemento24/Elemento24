@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When the best leader's work is done the people say, 'We did it ourselves.'</b>
-> <p><i>Lao Tzu</i></p>
+> <b>The moment you think you understand a great work of art, it's dead for you.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
