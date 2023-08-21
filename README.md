@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been really fun to see with each album when I change to see the fans of the show emulate my style and with the first record a lot of the kids in the crowd were wearing neck ties like I was and now you'll see a lot of girls with pink hair. It's cool, it's actually really neat.</b>
-> <p><i>Avril Lavigne</i></p>
+> <b>The best music is essentially there to provide you something to face the world with.</b>
+> <p><i>Bruce Springsteen</i></p>
 
 <br>
