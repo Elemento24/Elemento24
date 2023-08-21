@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A work of art that contains theories is like an object on which the price tag has been left.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>We live in a state with a wonderful climate and plenty of natural beauty, from the shores of Cumberland Island to the Chattahoochee River to the Blue Ridge Mountains.</b>
+> <p><i>Roy Barnes</i></p>
 
 <br>
