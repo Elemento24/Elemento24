@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody's ever asked me to pay for a meal before I've eaten it, I've never been pulled over just because I was driving the wrong kind of car in the wrong kind of area at the wrong time of night.</b>
-> <p><i>Wentworth Miller</i></p>
+> <b>A work of art which did not begin in emotion is not art.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
