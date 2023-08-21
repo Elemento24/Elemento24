@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my youth I stressed freedom, and in my old age I stress order. I have made the great discovery that liberty is a product of order.</b>
-> <p><i>Will Durant</i></p>
+> <b>I don't need a friend who changes when I change and who nods when I nod my shadow does that much better.</b>
+> <p><i>Plutarch</i></p>
 
 <br>
