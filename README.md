@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I genuinely believe that if you want to get in the film business, get in the film business.</b>
-> <p><i>Daniel Craig</i></p>
+> <b>When the best leader's work is done the people say, 'We did it ourselves.'</b>
+> <p><i>Lao Tzu</i></p>
 
 <br>
