@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time is neutral and does not change things. With courage and initiative, leaders change things.</b>
-> <p><i>Jesse Jackson</i></p>
+> <b>Goals allow you to control the direction of change in your favor.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
