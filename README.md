@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always have one or two, sometimes more, Navajo or other tribes' cultural elements in mind when I start a plot. In Thief of Time, I wanted to make readers aware of Navajo attitude toward the dead, respect for burial sites.</b>
-> <p><i>Tony Hillerman</i></p>
+> <b>Time is neutral and does not change things. With courage and initiative, leaders change things.</b>
+> <p><i>Jesse Jackson</i></p>
 
 <br>
