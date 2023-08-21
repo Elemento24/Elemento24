@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in a state with a wonderful climate and plenty of natural beauty, from the shores of Cumberland Island to the Chattahoochee River to the Blue Ridge Mountains.</b>
-> <p><i>Roy Barnes</i></p>
+> <b>In my youth I stressed freedom, and in my old age I stress order. I have made the great discovery that liberty is a product of order.</b>
+> <p><i>Will Durant</i></p>
 
 <br>
