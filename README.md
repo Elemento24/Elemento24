@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a big believer in everybody being themselves. If not doing a swimsuit calendar is yourself, that's great. But if doing a swimsuit calendar is yourself, then you should be able to do it. What I do outside the car adds to who I am and expresses a different side of me.</b>
-> <p><i>Danica Patrick</i></p>
+> <b>You're not going to say anything about me that I'm not going to say about myself. There's so many things that I think about myself if someone really wanted to get at me, they could say this and this and this. So I'm going to say it before they can. It's the best policy for me.</b>
+> <p><i>Eminem</i></p>
 
 <br>
