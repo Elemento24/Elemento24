@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It usually takes me more than three weeks to prepare a good impromptu speech.</b>
-> <p><i>Mark Twain</i></p>
+> <b>When thou art at Rome, do as they do at Rome.</b>
+> <p><i>Miguel de Cervantes</i></p>
 
 <br>
