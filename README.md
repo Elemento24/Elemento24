@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm so happy to be able to give kids the opportunity to learn about amazing world of dance and music that I've have been lucky enough to make such a big part of my own life.</b>
-> <p><i>Britney Spears</i></p>
+> <b>It's amazing people get so detached from what they eat and what they wear. No one has any contact with how things are made that are put in their body and put in their mouths and I just find it alarming that no one questions it.</b>
+> <p><i>Emma Watson</i></p>
 
 <br>
