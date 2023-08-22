@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Truth isn't always beauty, but the hunger for it is.</b>
-> <p><i>Nadine Gordimer</i></p>
+> <b>Informed decision-making comes from a long tradition of guessing and then blaming others for inadequate results.</b>
+> <p><i>Scott Adams</i></p>
 
 <br>
