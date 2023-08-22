@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Opinions alter, manners change, creeds rise and fall, but the moral laws are written on the table of eternity.</b>
-> <p><i>Lord Acton</i></p>
+> <b>Architecture starts when you carefully put two bricks together. There it begins.</b>
+> <p><i>Ludwig Mies van der Rohe</i></p>
 
 <br>
