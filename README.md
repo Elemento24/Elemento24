@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's sad when girls think they don't have anything going on except being pretty.</b>
-> <p><i>Keri Russell</i></p>
+> <b>It usually takes me more than three weeks to prepare a good impromptu speech.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
