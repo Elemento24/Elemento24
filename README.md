@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another night, I dreamed I saw my father sweeping out the barn floor clean, and would not suffer the wheat to be brought in the barn. He appeared to me to be in anger.</b>
-> <p><i>Joanna Southcott</i></p>
+> <b>When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.</b>
+> <p><i>Charles R. Swindoll</i></p>
 
 <br>
