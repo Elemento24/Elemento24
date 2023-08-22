@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Informed decision-making comes from a long tradition of guessing and then blaming others for inadequate results.</b>
-> <p><i>Scott Adams</i></p>
+> <b>When museums are built these days, architects, directors, and trustees seem most concerned about social space: places to have parties, eat dinner, wine-and-dine donors. Sure, these are important these days - museums have to bring in money - but they gobble up space and push the art itself far away from the entrance.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
