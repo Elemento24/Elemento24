@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Goals allow you to control the direction of change in your favor.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>For beautiful eyes, look for the good in others for beautiful lips, speak only words of kindness and for poise, walk with the knowledge that you are never alone.</b>
+> <p><i>Audrey Hepburn</i></p>
 
 <br>
