@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are unjust to anger - it can be enlivening and a lot of fun.</b>
-> <p><i>Philip Roth</i></p>
+> <b>I've purged myself of bitterness and anger and remained open to love.</b>
+> <p><i>Tatum O'Neal</i></p>
 
 <br>
