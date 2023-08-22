@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only failure one should fear, is not hugging to the purpose they see as best.</b>
-> <p><i>George Eliot</i></p>
+> <b>I don't even own a car.</b>
+> <p><i>Bill Nighy</i></p>
 
 <br>
