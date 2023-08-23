@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've also long since realized that the way to really engage children is to give out prizes it's amazing how it concentrates their minds.</b>
-> <p><i>Alexander McCall Smith</i></p>
+> <b>I have very high expectations of myself. I'm a very competitive person but competitive with myself. I want to be the best that I can be and if that means that I'm eventually better than everyone else then so be it.</b>
+> <p><i>Wentworth Miller</i></p>
 
 <br>
