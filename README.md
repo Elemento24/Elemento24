@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My heart has been heavy and I have deliberated within my own conscience, knowing that my decision should not come out of my initial emotion of anger toward the President for such reckless behavior, but should be based on the facts.</b>
-> <p><i>Blanche Lincoln</i></p>
+> <b>Let us take things as we find them: let us not attempt to distort them into what they are not... We cannot make facts. All our wishing cannot change them. We must use them.</b>
+> <p><i>John Henry Newman</i></p>
 
 <br>
