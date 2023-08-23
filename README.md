@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It bothers me when I hear it in a car commercial or some such. But for the most part, it's better than seeing sacred music relegated to the scrap heap.</b>
-> <p><i>Richard Morris</i></p>
+> <b>My heart has been heavy and I have deliberated within my own conscience, knowing that my decision should not come out of my initial emotion of anger toward the President for such reckless behavior, but should be based on the facts.</b>
+> <p><i>Blanche Lincoln</i></p>
 
 <br>
