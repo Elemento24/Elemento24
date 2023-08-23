@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When thou art at Rome, do as they do at Rome.</b>
-> <p><i>Miguel de Cervantes</i></p>
+> <b>The movie business is very difficult but the music business is just impossible. So I'll play in bands and record and play songs with other people, but for me it's a form of expression that all I need is me. I don't need cameras or agents, I can just have a piano and sing and feel totally verified.</b>
+> <p><i>Jeremy Renner</i></p>
 
 <br>
