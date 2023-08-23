@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let us take things as we find them: let us not attempt to distort them into what they are not... We cannot make facts. All our wishing cannot change them. We must use them.</b>
-> <p><i>John Henry Newman</i></p>
+> <b>I also had to work through the violation of my date rape, my unhealthy relationships with men, my anger toward the people involved in the scandal, and those who exploited me afterwards.</b>
+> <p><i>Donna Rice</i></p>
 
 <br>
