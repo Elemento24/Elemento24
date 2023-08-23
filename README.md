@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also had to work through the violation of my date rape, my unhealthy relationships with men, my anger toward the people involved in the scandal, and those who exploited me afterwards.</b>
-> <p><i>Donna Rice</i></p>
+> <b>It's just amazing that there are so many prejudices even now.</b>
+> <p><i>Ione Skye</i></p>
 
 <br>
