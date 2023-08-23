@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh yeah, I mean every fighter has got be dedicated, learn how to sacrifice, know what the devotion is all about, make sure you're paying attention and studying your art.</b>
-> <p><i>Marvin Hagler</i></p>
+> <b>People who put my paintings on their walls are putting their values on their walls: faith, family, home, a simpler way of living, the beauty of nature, quiet, tranquillity, peace, joy, hope. They beckon you into this world that provides an alternative to your nightly news broadcast.</b>
+> <p><i>Thomas Kincade</i></p>
 
 <br>
