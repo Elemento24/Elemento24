@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have very high expectations of myself. I'm a very competitive person but competitive with myself. I want to be the best that I can be and if that means that I'm eventually better than everyone else then so be it.</b>
-> <p><i>Wentworth Miller</i></p>
+> <b>I love producing. I am loving doing that. I think that is my most natural space in the business. I just love producing or editing and that's where I thrive.</b>
+> <p><i>Will Smith</i></p>
 
 <br>
