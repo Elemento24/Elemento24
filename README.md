@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am an anarchist in politics and an impressionist in art as well as a symbolist in literature. Not that I understand what these terms mean, but I take them to be all merely synonyms of pessimist.</b>
-> <p><i>Henry Adams</i></p>
+> <b>I think Jersey stands alone, and because I'm from Jersey, I never make fun of where people are from. I'll make fun of what they look like, but I'll never make fun of where they are from. Jersey is special.</b>
+> <p><i>Jeff Ross</i></p>
 
 <br>
