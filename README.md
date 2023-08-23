@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that I often bring out the best in somebody's talents.</b>
-> <p><i>David Bowie</i></p>
+> <b>What is being called the UN 'gender architecture' is more like a shack. Women need a bigger global house if equality is ever to become a reality.</b>
+> <p><i>Charlotte Bunch</i></p>
 
 <br>
