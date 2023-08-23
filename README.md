@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Through loyalty to the past, our mind refuses to realize that tomorrow's joy is possible only if today's makes way for it that each wave owes the beauty of its line only to the withdrawal of the preceding one.</b>
-> <p><i>Andre Gide</i></p>
+> <b>In my job, people tell you that all the time: 'This shoot was great. You look amazing.' But you never know what they say when you turn away.</b>
+> <p><i>Heidi Klum</i></p>
 
 <br>
