@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The majority of men meet with failure because of their lack of persistence in creating new plans to take the place of those which fail.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>Yes, the companionship is amazing. You know, you can get that physical attraction that happens is great, but then there's an awful lot of time and the rest of the day that you have to fill.</b>
+> <p><i>Vince Gill</i></p>
 
 <br>
