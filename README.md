@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is art that makes life, makes interest, makes importance and I know of no substitute whatever for the force and beauty of its process.</b>
-> <p><i>Max Eastman</i></p>
+> <b>Certainly, travel is more than the seeing of sights it is a change that goes on, deep and permanent, in the ideas of living.</b>
+> <p><i>Miriam Beard</i></p>
 
 <br>
