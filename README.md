@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, Art is Art, isn't it? Still, on the other hand, water is water. And east is east and west is west and if you take cranberries and stew them like applesauce they taste much more like prunes than rhubarb does. Now you tell me what you know.</b>
-> <p><i>Groucho Marx</i></p>
+> <b>The beauty of a woman is not in the clothes she wears, the figure that she carries or the way she combs her hair.</b>
+> <p><i>Audrey Hepburn</i></p>
 
 <br>
