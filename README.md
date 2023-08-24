@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know who is against democracy in the Middle East? The husbands. They got used to their way of life. Now, the traditional way of life must change. Everybody must change. If you don't give equal rights to women, you can't progress.</b>
-> <p><i>Shimon Peres</i></p>
+> <b>What we call progress is the exchange of one nuisance for another nuisance.</b>
+> <p><i>Havelock Ellis</i></p>
 
 <br>
