@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's the beauty of being a comedian - it's the one job you're allowed to do that. We're lucky. We're really lucky.</b>
-> <p><i>Colin Quinn</i></p>
+> <b>The sad truth is that without complex business partnerships between African elites and European traders and commercial agents, the slave trade to the New World would have been impossible, at least on the scale it occurred.</b>
+> <p><i>Henry Louis Gates</i></p>
 
 <br>
