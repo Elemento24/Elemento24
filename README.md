@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of a woman is not in the clothes she wears, the figure that she carries or the way she combs her hair.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>That's the beauty of being a comedian - it's the one job you're allowed to do that. We're lucky. We're really lucky.</b>
+> <p><i>Colin Quinn</i></p>
 
 <br>
