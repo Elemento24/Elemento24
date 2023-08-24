@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The sad truth is that without complex business partnerships between African elites and European traders and commercial agents, the slave trade to the New World would have been impossible, at least on the scale it occurred.</b>
-> <p><i>Henry Louis Gates</i></p>
+> <b>Art saved me it got me through my depression and self-loathing, back to a place of innocence.</b>
+> <p><i>Jeanette Winterson</i></p>
 
 <br>
