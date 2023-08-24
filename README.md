@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's important is promising something to the people, not actually keeping those promises. The people have always lived on hope alone.</b>
-> <p><i>Hermann Broch</i></p>
+> <b>The majority of men meet with failure because of their lack of persistence in creating new plans to take the place of those which fail.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
