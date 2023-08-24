@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any work that aspires, however humbly, to the condition of art should carry its justification in every line.</b>
-> <p><i>Joseph Conrad</i></p>
+> <b>It lies in human nature that where you experience your first laughs, you also remember the age kindly.</b>
+> <p><i>Vaclav Havel</i></p>
 
 <br>
