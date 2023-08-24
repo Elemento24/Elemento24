@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not classified as a pagan religion. The so-called New Age activities and this are not called religions and therefore don't come under the prohibition of mingling church and state that we have in this country.</b>
-> <p><i>Dixie Lee Ray</i></p>
+> <b>A sad fact of life lately at the Museum of Modern Art is that when it comes to group shows of contemporary painting from the collection, the bar has been set pretty low.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
