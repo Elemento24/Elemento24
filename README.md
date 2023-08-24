@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Certainly, travel is more than the seeing of sights it is a change that goes on, deep and permanent, in the ideas of living.</b>
-> <p><i>Miriam Beard</i></p>
+> <b>Man finds it hard to get what he wants, because he does not want the best God finds it hard to give, because He would give the best, and man will not take it.</b>
+> <p><i>George MacDonald</i></p>
 
 <br>
