@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art saved me it got me through my depression and self-loathing, back to a place of innocence.</b>
-> <p><i>Jeanette Winterson</i></p>
+> <b>It is not classified as a pagan religion. The so-called New Age activities and this are not called religions and therefore don't come under the prohibition of mingling church and state that we have in this country.</b>
+> <p><i>Dixie Lee Ray</i></p>
 
 <br>
