@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What we call progress is the exchange of one nuisance for another nuisance.</b>
-> <p><i>Havelock Ellis</i></p>
+> <b>Well, Art is Art, isn't it? Still, on the other hand, water is water. And east is east and west is west and if you take cranberries and stew them like applesauce they taste much more like prunes than rhubarb does. Now you tell me what you know.</b>
+> <p><i>Groucho Marx</i></p>
 
 <br>
