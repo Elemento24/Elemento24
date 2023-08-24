@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A sad fact of life lately at the Museum of Modern Art is that when it comes to group shows of contemporary painting from the collection, the bar has been set pretty low.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>A strong positive mental attitude will create more miracles than any wonder drug.</b>
+> <p><i>Patricia Neal</i></p>
 
 <br>
