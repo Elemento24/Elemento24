@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Usher is amazing. He's perfection to me as a performer. He gets down.</b>
-> <p><i>Ciara</i></p>
+> <b>A picture is a poem without words.</b>
+> <p><i>Horace</i></p>
 
 <br>
