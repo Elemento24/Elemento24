@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When things happen - you ask yourself why today, why not tomorrow, why not yesterday? That's the most amazing thing about time.</b>
-> <p><i>Ozwald Boateng</i></p>
+> <b>We hire people who want to make the best things in the world.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
