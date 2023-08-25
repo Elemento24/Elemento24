@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother never put an emphasis on looks. She let us grow up on our own time line. She never forced any beauty regimen into my world.</b>
-> <p><i>Rachel McAdams</i></p>
+> <b>I do not believe that sheer suffering teaches. If suffering alone taught, all the world would be wise, since everyone suffers. To suffering must be added mourning, understanding, patience, love, openness and the willingness to remain vulnerable.</b>
+> <p><i>Anne Morrow Lindbergh</i></p>
 
 <br>
