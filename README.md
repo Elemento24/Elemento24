@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, there's different shades of Hollywood, sure. I mean, I'm working in this business but I'm not Hollywood.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>You know you're getting old when you get that one candle on the cake. It's like, 'See if you can blow this out.'</b>
+> <p><i>Jerry Seinfeld</i></p>
 
 <br>
