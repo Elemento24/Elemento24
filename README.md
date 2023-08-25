@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A picture is a poem without words.</b>
-> <p><i>Horace</i></p>
+> <b>Beauty is a relation, and the apprehension of it a comparison.</b>
+> <p><i>Gerard Manley Hopkins</i></p>
 
 <br>
