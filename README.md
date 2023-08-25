@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty has a lot to do with character.</b>
-> <p><i>Kevyn Aucoin</i></p>
+> <b>Well, there's different shades of Hollywood, sure. I mean, I'm working in this business but I'm not Hollywood.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
