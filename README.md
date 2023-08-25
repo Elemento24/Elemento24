@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not believe that sheer suffering teaches. If suffering alone taught, all the world would be wise, since everyone suffers. To suffering must be added mourning, understanding, patience, love, openness and the willingness to remain vulnerable.</b>
-> <p><i>Anne Morrow Lindbergh</i></p>
+> <b>Architecture is a art when one consciously or unconsciously creates aesthetic emotion in the atmosphere and when this environment produces well being.</b>
+> <p><i>Luis Barragan</i></p>
 
 <br>
