@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since we live in this world, we have to do our best for this world.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>Fall is my favorite season in Los Angeles, watching the birds change color and fall from the trees.</b>
+> <p><i>David Letterman</i></p>
 
 <br>
