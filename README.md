@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fall is my favorite season in Los Angeles, watching the birds change color and fall from the trees.</b>
-> <p><i>David Letterman</i></p>
+> <b>Criticism is the art of appraising others at one's own value.</b>
+> <p><i>George Jean Nathan</i></p>
 
 <br>
