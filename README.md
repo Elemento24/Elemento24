@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of us start out with a positive attitude and a plan to do our best.</b>
-> <p><i>Marilu Henner</i></p>
+> <b>Everything can be taken from a man but one thing: the last of human freedoms - to choose one's attitude in any given set of circumstances, to choose one's own way.</b>
+> <p><i>Viktor E. Frankl</i></p>
 
 <br>
