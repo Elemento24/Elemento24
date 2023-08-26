@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have been alone since my husband died. I stay in my home. I don't date. It's hard to date when you're at home. Nobody knows you.</b>
-> <p><i>Anna Nicole Smith</i></p>
+> <b>As an actor you have to wait for someone to cast you, so you're relying on the business.</b>
+> <p><i>Mia Wasikowska</i></p>
 
 <br>
