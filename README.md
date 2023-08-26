@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I think of art I think of beauty. Beauty is the mystery of life. It is not in the eye it is in the mind. In our minds there is awareness of perfection.</b>
-> <p><i>Agnes Martin</i></p>
+> <b>We tried not to age, but time had its rage.</b>
+> <p><i>Patti Smith</i></p>
 
 <br>
