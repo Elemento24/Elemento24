@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business schools reward difficult complex behavior more than simple behavior, but simple behavior is more effective.</b>
-> <p><i>Warren Buffett</i></p>
+> <b>Most of us start out with a positive attitude and a plan to do our best.</b>
+> <p><i>Marilu Henner</i></p>
 
 <br>
