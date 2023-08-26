@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not the business of generals to shoot one another.</b>
-> <p><i>Arthur Wellesley</i></p>
+> <b>You can't study comedy it's within you. It's a personality. My humor is an attitude.</b>
+> <p><i>Don Rickles</i></p>
 
 <br>
