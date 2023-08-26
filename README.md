@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A small group of thoughtful people could change the world. Indeed, it's the only thing that ever has.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>Winners have the ability to step back from the canvas of their lives like an artist gaining perspective. They make their lives a work of art - an individual masterpiece.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
