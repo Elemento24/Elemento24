@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man who worships education has got the best out of education... Without a gentle contempt for education no man's education is complete.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>As a planning board commissioner, I have to review the applications for development throughout the city, and the bulk of those applications have been for the waterfront. I think the progress the waterfront has made is amazing.</b>
+> <p><i>Vincent Frank</i></p>
 
 <br>
