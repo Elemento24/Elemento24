@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every age needs men who will redeem the time by living with a vision of the things that are to be.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>Have you heard about the Irishman who reversed into a car boot sale and sold the engine?</b>
+> <p><i>Frank Carson</i></p>
 
 <br>
