@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Abstract Expressionism - the first American movement to have a worldwide influence - was remarkably short-lived: It heated up after World War II and was all but done for by 1960 (although visit any art school today and you'll find a would-be Willem de Kooning).</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>My goal was never to just create a company. A lot of people misinterpret that, as if I don't care about revenue or profit or any of those things. But what not being just a company means to me is not being just that - building something that actually makes a really big change in the world.</b>
+> <p><i>Mark Zuckerberg</i></p>
 
 <br>
