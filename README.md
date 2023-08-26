@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a planning board commissioner, I have to review the applications for development throughout the city, and the bulk of those applications have been for the waterfront. I think the progress the waterfront has made is amazing.</b>
-> <p><i>Vincent Frank</i></p>
+> <b>The business schools reward difficult complex behavior more than simple behavior, but simple behavior is more effective.</b>
+> <p><i>Warren Buffett</i></p>
 
 <br>
