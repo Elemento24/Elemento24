@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't study comedy it's within you. It's a personality. My humor is an attitude.</b>
-> <p><i>Don Rickles</i></p>
+> <b>Every age needs men who will redeem the time by living with a vision of the things that are to be.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
