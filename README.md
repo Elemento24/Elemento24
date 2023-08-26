@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vengeance is not the point change is. But the trouble is that in most people's minds the thought of victory and the thought of punishing the enemy coincide.</b>
-> <p><i>Barbara Deming</i></p>
+> <b>Like all soul singers, I grew up singing in church but sometimes I would leave early and sit in the car listening to gospel band, The Blind Boys of Alabama. Hearing their lead singer Clarence made me connect the idea of church and show business and see how I could make a career singing music that stirred the soul.</b>
+> <p><i>Daryl Hall</i></p>
 
 <br>
