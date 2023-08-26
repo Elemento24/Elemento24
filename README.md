@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Winners have the ability to step back from the canvas of their lives like an artist gaining perspective. They make their lives a work of art - an individual masterpiece.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>There were a few teachers who just did not like me because of my face. Once, I was told to stand in the corner until I cheered up. The attitude was, 'Oh, for God's sake, what's the matter with him?' But it's just a natural expression.</b>
+> <p><i>Jack Dee</i></p>
 
 <br>
