@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There were a few teachers who just did not like me because of my face. Once, I was told to stand in the corner until I cheered up. The attitude was, 'Oh, for God's sake, what's the matter with him?' But it's just a natural expression.</b>
-> <p><i>Jack Dee</i></p>
+> <b>Vengeance is not the point change is. But the trouble is that in most people's minds the thought of victory and the thought of punishing the enemy coincide.</b>
+> <p><i>Barbara Deming</i></p>
 
 <br>
