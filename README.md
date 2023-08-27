@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think we're yet evolved to the point where we're clever enough to handle a complex a situation as climate change. The inertia of humans is so huge that you can't really do anything meaningful.</b>
-> <p><i>James Lovelock</i></p>
+> <b>We must all obey the great law of change. It is the most powerful law of nature.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
