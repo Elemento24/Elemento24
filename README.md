@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even at the United Nations, where legend has it that the building was designed so that there could be no corner offices, the expanse of glass in individual offices is said to be a dead giveaway as to rank. Five windows are excellent, one window not so great.</b>
-> <p><i>Enid Nemy</i></p>
+> <b>I was never an ambitious girl, or even a self-confident one. I never went in for beauty pageants or wore a stitch of make-up until I went to Los Angeles.</b>
+> <p><i>Pamela Anderson</i></p>
 
 <br>
