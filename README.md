@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't have the best body in the world, but I know for a fact that I have a really good voice.</b>
-> <p><i>Kesha</i></p>
+> <b>There was never an angry man that thought his anger unjust.</b>
+> <p><i>Saint Francis de Sales</i></p>
 
 <br>
