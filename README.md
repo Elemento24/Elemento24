@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We must all obey the great law of change. It is the most powerful law of nature.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>I drank a lot when I was a teenager and I don't drink any more, because that's when I thought, you know, I'm gonna end up a car wreck.</b>
+> <p><i>Kristin Davis</i></p>
 
 <br>
