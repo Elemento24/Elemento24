@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vision is the art of seeing what is invisible to others.</b>
-> <p><i>Jonathan Swift</i></p>
+> <b>For the moment I prefer to be a beautiful woman of my age than try desperately to look 30.</b>
+> <p><i>Demi Moore</i></p>
 
 <br>
