@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm throwing myself back in because I like being married. I don't want to end this whole fabulous journey alone. I want someone by my side who I love and who loves me. I've finally found somebody who's up to the task of being my wife, because I'm very high maintenance.</b>
-> <p><i>Neil Diamond</i></p>
+> <b>Beauty is desired in order that it may be befouled not for its own sake, but for the joy brought by the certainty of profaning it.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
