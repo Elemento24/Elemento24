@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the car and in front of the camera I tend to be very calm but behind the scenes I can get fired up and passionate, I just don't see the need to shout my mouth off in public.</b>
-> <p><i>Jenson Button</i></p>
+> <b>Everybody kind of perceives me as being angry. It's not anger, it's motivation.</b>
+> <p><i>Roger Clemens</i></p>
 
 <br>
