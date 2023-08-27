@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As an actor you have to wait for someone to cast you, so you're relying on the business.</b>
-> <p><i>Mia Wasikowska</i></p>
+> <b>High achievement always takes place in the framework of high expectation.</b>
+> <p><i>Charles Kettering</i></p>
 
 <br>
