@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the moment I prefer to be a beautiful woman of my age than try desperately to look 30.</b>
-> <p><i>Demi Moore</i></p>
+> <b>Parking is a nightmare for me... I still have sensors on my car that help me park.</b>
+> <p><i>Jordana Brewster</i></p>
 
 <br>
