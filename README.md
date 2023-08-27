@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is desired in order that it may be befouled not for its own sake, but for the joy brought by the certainty of profaning it.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>I don't have the best body in the world, but I know for a fact that I have a really good voice.</b>
+> <p><i>Kesha</i></p>
 
 <br>
