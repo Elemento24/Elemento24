@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There was never an angry man that thought his anger unjust.</b>
-> <p><i>Saint Francis de Sales</i></p>
+> <b>Staid middle age loves the hurricane passions of opera.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
