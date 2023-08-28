@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For having lived long, I have experienced many instances of being obliged, by better information or fuller consideration, to change opinions, even on important subjects, which I once thought right but found to be otherwise.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>It never seems to occur to some people, that, like beauty, a sense of humor may sometimes be fatal.</b>
+> <p><i>Edgar Rice Burroghs</i></p>
 
 <br>
