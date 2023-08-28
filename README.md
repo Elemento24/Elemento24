@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think early on I knew what I was going to do and it was based a lot on familiarity but it was also because I didn't have a lot of skills. There was nothing I wanted t be. I didn't want to be a doctor. I wanted to be in show business.</b>
-> <p><i>Christopher Walken</i></p>
+> <b>Always remember that the future comes one day at a time.</b>
+> <p><i>Dean Acheson</i></p>
 
 <br>
