@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think all women in Hollywood are known as sex symbols. That's what our purpose is in this business. You're merchandised, you're a product. You're sold and it's based on sex. But that's okay. I think women should be empowered by that, not degraded.</b>
-> <p><i>Megan Fox</i></p>
+> <b>The only way to get gay issues off the front pages of Canadian newspapers is to grant gay and lesbian people our full civil equality and leave it alone.</b>
+> <p><i>Dan Savage</i></p>
 
 <br>
