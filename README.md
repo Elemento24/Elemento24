@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It can be kind of gruesome at times, making things alone.</b>
-> <p><i>Jenny Holzer</i></p>
+> <b>Obscenity, which is ever blasphemy against the divine beauty in life, is a monster for which the corruption of society forever brings forth new food, which it devours in secret.</b>
+> <p><i>Percy Bysshe Shelley</i></p>
 
 <br>
