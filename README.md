@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not classified as a pagan religion. The so-called New Age activities and this are not called religions and therefore don't come under the prohibition of mingling church and state that we have in this country.</b>
-> <p><i>Dixie Lee Ray</i></p>
+> <b>I have reached a place in my life where I need to sit down and say, 'Well, what do I do? What's best for me?' I need to look into options for the future.</b>
+> <p><i>Michael Phelps</i></p>
 
 <br>
