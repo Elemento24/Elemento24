@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've spent as much as 30 grand on a watch but it's not about flaunting my wealth. I don't have many extravagances but watches are my biggest one. I must have 30 of them now. I've been collecting since the age of nine, when I won a black TAG in a karting event.</b>
-> <p><i>Jenson Button</i></p>
+> <b>The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
