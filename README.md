@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It never seems to occur to some people, that, like beauty, a sense of humor may sometimes be fatal.</b>
-> <p><i>Edgar Rice Burroghs</i></p>
+> <b>The only way to make sense out of change is to plunge into it, move with it, and join the dance.</b>
+> <p><i>Alan Watts</i></p>
 
 <br>
