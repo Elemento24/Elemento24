@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.</b>
-> <p><i>Peter Drucker</i></p>
+> <b>A compromise is the art of dividing a cake in such a way that everyone believes he has the biggest piece.</b>
+> <p><i>Ludwig Erhard</i></p>
 
 <br>
