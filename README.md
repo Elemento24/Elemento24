@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was entirely natural and in many ways I have the same attitude now. I don't mourn the loss of my youth because I believe you should enjoy what you have while you have it.</b>
-> <p><i>Koo Stark</i></p>
+> <b>I think all women in Hollywood are known as sex symbols. That's what our purpose is in this business. You're merchandised, you're a product. You're sold and it's based on sex. But that's okay. I think women should be empowered by that, not degraded.</b>
+> <p><i>Megan Fox</i></p>
 
 <br>
