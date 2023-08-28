@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing what you can get on open source now if you actually use the right search engines to find the material.</b>
-> <p><i>Gus O'Donnell</i></p>
+> <b>The pessimist complains about the wind the optimist expects it to change the realist adjusts the sails.</b>
+> <p><i>William Arthur Ward</i></p>
 
 <br>
