@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way to make sense out of change is to plunge into it, move with it, and join the dance.</b>
-> <p><i>Alan Watts</i></p>
+> <b>It's amazing what you can get on open source now if you actually use the right search engines to find the material.</b>
+> <p><i>Gus O'Donnell</i></p>
 
 <br>
