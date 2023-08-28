@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pessimist complains about the wind the optimist expects it to change the realist adjusts the sails.</b>
-> <p><i>William Arthur Ward</i></p>
+> <b>It is not classified as a pagan religion. The so-called New Age activities and this are not called religions and therefore don't come under the prohibition of mingling church and state that we have in this country.</b>
+> <p><i>Dixie Lee Ray</i></p>
 
 <br>
