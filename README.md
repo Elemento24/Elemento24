@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I drank a lot when I was a teenager and I don't drink any more, because that's when I thought, you know, I'm gonna end up a car wreck.</b>
-> <p><i>Kristin Davis</i></p>
+> <b>I was entirely natural and in many ways I have the same attitude now. I don't mourn the loss of my youth because I believe you should enjoy what you have while you have it.</b>
+> <p><i>Koo Stark</i></p>
 
 <br>
