@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way to get gay issues off the front pages of Canadian newspapers is to grant gay and lesbian people our full civil equality and leave it alone.</b>
-> <p><i>Dan Savage</i></p>
+> <b>If you feel like it's difficult to change, you will probably have a harder time succeeding.</b>
+> <p><i>Andrea Jung</i></p>
 
 <br>
