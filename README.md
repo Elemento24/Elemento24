@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obscenity, which is ever blasphemy against the divine beauty in life, is a monster for which the corruption of society forever brings forth new food, which it devours in secret.</b>
-> <p><i>Percy Bysshe Shelley</i></p>
+> <b>For having lived long, I have experienced many instances of being obliged, by better information or fuller consideration, to change opinions, even on important subjects, which I once thought right but found to be otherwise.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
