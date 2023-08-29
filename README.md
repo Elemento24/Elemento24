@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The creative act lasts but a brief moment, a lightning instant of give-and-take, just long enough for you to level the camera and to trap the fleeting prey in your little box.</b>
-> <p><i>Henri Cartier-Bresson</i></p>
+> <b>I think I'm actually quite a materialistic person, I value what it takes to make a car or build a nice house. Money does change things, but how it changes people depends on how they react to it.</b>
+> <p><i>Roland Gift</i></p>
 
 <br>
