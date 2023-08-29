@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By all but the pathologically romantic, it is now recognized that this is not the age of the small man.</b>
-> <p><i>John Kenneth Galbraith</i></p>
+> <b>Beauty is power a smile is its sword.</b>
+> <p><i>John Ray</i></p>
 
 <br>
