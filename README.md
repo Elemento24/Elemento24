@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have mountain of debt that isn't going away and all the problems are here to stay, and anybody who tells you that is a good thing ought to get out of the business of helping the government down the road.</b>
-> <p><i>Rick Santelli</i></p>
+> <b>By all but the pathologically romantic, it is now recognized that this is not the age of the small man.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
