@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Litigation takes the place of sex at middle age.</b>
-> <p><i>Gore Vidal</i></p>
+> <b>My everyday beauty routine is always rushed and pretty simple.</b>
+> <p><i>Cate Blanchett</i></p>
 
 <br>
