@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mr. Churchill is proud of Britain's stand alone, after France had fallen and before America entered the War.</b>
-> <p><i>Eamon de Valera</i></p>
+> <b>Litigation takes the place of sex at middle age.</b>
+> <p><i>Gore Vidal</i></p>
 
 <br>
