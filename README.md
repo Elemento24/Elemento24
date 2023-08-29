@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing commercially, which is the worst artistically, by and large, is the most successful.</b>
-> <p><i>Orson Welles</i></p>
+> <b>The creative act lasts but a brief moment, a lightning instant of give-and-take, just long enough for you to level the camera and to trap the fleeting prey in your little box.</b>
+> <p><i>Henri Cartier-Bresson</i></p>
 
 <br>
