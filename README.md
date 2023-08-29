@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Throughout the centuries, man has considered himself beautiful. I rather suppose that man only believes in his own beauty out of pride that he is not really beautiful and he suspects this himself for why does he look on the face of his fellow-man with such scorn?</b>
-> <p><i>Isidore Ducasse Lautreamont</i></p>
+> <b>We mean by 'politics' the people's business - the most important business there is.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
