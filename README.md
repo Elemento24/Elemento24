@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is power a smile is its sword.</b>
-> <p><i>John Ray</i></p>
+> <b>My overcoat is worn out my shirts also are worn out. And I ask to be allowed to have a lamp in the evening it is indeed wearisome sitting alone in the dark.</b>
+> <p><i>William Tyndale</i></p>
 
 <br>
