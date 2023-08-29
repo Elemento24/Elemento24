@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do you remember when you were 10 or 11 years old and you really thought your folks were the best? They were completely omniscient and you took their word for everything. And then you got older and you went through this hideous age when suddenly they were the devil, they were bullies, and they didn't know anything.</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>The body is your instrument in dance, but your art is outside that creature, the body.</b>
+> <p><i>Martha Graham</i></p>
 
 <br>
