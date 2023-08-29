@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We mean by 'politics' the people's business - the most important business there is.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>One's mind has a way of making itself up in the background, and it suddenly becomes clear what one means to do.</b>
+> <p><i>A. C. Benson</i></p>
 
 <br>
