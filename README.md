@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You're pulling 4-5G for a lot of the corners around the lap. We build up lactic acid because there are a lot of vibrations in the car, and you have to have strong legs to hit the brake pedal. We need to be fit to do every lap at 100%.</b>
-> <p><i>Jenson Button</i></p>
+> <b>We have mountain of debt that isn't going away and all the problems are here to stay, and anybody who tells you that is a good thing ought to get out of the business of helping the government down the road.</b>
+> <p><i>Rick Santelli</i></p>
 
 <br>
