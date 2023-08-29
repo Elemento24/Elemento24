@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In addressing a task, one almost always has several possible options, sometimes only a few, and they may all be practical and functional. But they lack the aesthetic aspect that raises it to architecture.</b>
-> <p><i>Arne Jacobsen</i></p>
+> <b>Patience is the most necessary quality for business, many a man would rather you heard his story than grant his request.</b>
+> <p><i>Lord Chesterfield</i></p>
 
 <br>
