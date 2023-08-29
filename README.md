@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I'm actually quite a materialistic person, I value what it takes to make a car or build a nice house. Money does change things, but how it changes people depends on how they react to it.</b>
-> <p><i>Roland Gift</i></p>
+> <b>If government and media and all of us in the Australian tribe got together, and the rock industry, we'd just be the greatest cultural force the world has ever seen - we're such an amazing race.</b>
+> <p><i>Yahoo Serious</i></p>
 
 <br>
