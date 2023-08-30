@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age has deformities enough of its own. It should never add to them the deformity of vice.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>Women lie about their age men lie about their income.</b>
+> <p><i>William Feather</i></p>
 
 <br>
