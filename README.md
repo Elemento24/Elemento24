@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes, sir, a patrol car came and took me down to a station where they were trying to develop films, but they hadn't got the facilities to develop colored film.</b>
-> <p><i>Abraham Zapruder</i></p>
+> <b>The details are the very source of expression in architecture. But we are caught in a vice between art and the bottom line.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
