@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to go out at the top, but the secret is knowing when you're at the top, it's so difficult in this business, your career fluctuates all the time, up and down, like a pair of trousers.</b>
-> <p><i>Rod Stewart</i></p>
+> <b>I really believe that all of us have a lot of darkness in our souls. Anger, rage, fear, sadness. I don't think that's only reserved for people who have horrible upbringings. I think it really exists and is part of the human condition. I think in the course of your life you figure out ways to deal with that.</b>
+> <p><i>Kevin Bacon</i></p>
 
 <br>
