@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're not arrogant, we just believe we're the best band in the world.</b>
-> <p><i>Noel Gallagher</i></p>
+> <b>I'm not an amazing cook. But I can follow a recipe!</b>
+> <p><i>Rachel McAdams</i></p>
 
 <br>
