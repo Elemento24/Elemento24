@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The details are the very source of expression in architecture. But we are caught in a vice between art and the bottom line.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>Old age has deformities enough of its own. It should never add to them the deformity of vice.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
