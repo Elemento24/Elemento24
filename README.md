@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The architecture profession has lost a lot of its integrity, especially in the USA. The general architect here has no scruples, no ambitions.</b>
-> <p><i>Helmut Jahn</i></p>
+> <b>It is art that makes life, makes interest, makes importance... and I know of no substitute whatever for the force and beauty of its process.</b>
+> <p><i>Henry James</i></p>
 
 <br>
