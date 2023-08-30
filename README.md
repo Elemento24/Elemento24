@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way of the Creative works through change and transformation, so that each thing receives its true nature and destiny and comes into permanent accord with the Great Harmony: this is what furthers and what perseveres.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>I want to go out at the top, but the secret is knowing when you're at the top, it's so difficult in this business, your career fluctuates all the time, up and down, like a pair of trousers.</b>
+> <p><i>Rod Stewart</i></p>
 
 <br>
