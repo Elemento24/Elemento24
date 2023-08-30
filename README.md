@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not an amazing cook. But I can follow a recipe!</b>
-> <p><i>Rachel McAdams</i></p>
+> <b>Do right. Do your best. Treat others as you want to be treated.</b>
+> <p><i>Lou Holtz</i></p>
 
 <br>
