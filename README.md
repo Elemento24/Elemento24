@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like people who have never fallen or stumbled. Their virtue is lifeless and it isn't of much value. Life hasn't revealed its beauty to them.</b>
-> <p><i>Boris Pasternak</i></p>
+> <b>We're not arrogant, we just believe we're the best band in the world.</b>
+> <p><i>Noel Gallagher</i></p>
 
 <br>
