@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Surfers have the most attitude.</b>
-> <p><i>Shaun White</i></p>
+> <b>Education must provide the opportunities for self-fulfillment it can at best provide a rich and challenging environment for the individual to explore, in his own way.</b>
+> <p><i>Noam Chomsky</i></p>
 
 <br>
