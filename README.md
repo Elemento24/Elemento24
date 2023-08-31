@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the things you're doing when you make art, apart from entertaining yourself and other people, is trying to see what ways of working feel good, what feels right.</b>
-> <p><i>Brian Eno</i></p>
+> <b>The greatest remedy for anger is delay.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
