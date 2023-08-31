@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At my age flowers scare me.</b>
-> <p><i>George Burns</i></p>
+> <b>I have so many different personalities in me and I still feel lonely.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
