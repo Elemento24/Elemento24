@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not a pastime but a priesthood.</b>
-> <p><i>Jean Cocteau</i></p>
+> <b>No One Is Alone by Stephen Sondheim is all about thinking for yourself and being your own person.</b>
+> <p><i>Bernadette Peters</i></p>
 
 <br>
