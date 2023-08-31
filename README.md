@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have the character of an island nation: independent, forthright, passionate in defence of our sovereignty. We can no more change this British sensibility than we can drain the English Channel. And because of this sensibility, we come to the European Union with a frame of mind that is more practical than emotional.</b>
-> <p><i>David Cameron</i></p>
+> <b>I never knew any Jews until I got into show business. I've found them to be real smart and good workers.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
