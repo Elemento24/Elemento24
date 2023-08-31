@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest remedy for anger is delay.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>Marriage has no guarantees. If that's what you're looking for, go live with a car battery.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
