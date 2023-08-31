@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I like about cities is that everything is king size, the beauty and the ugliness.</b>
-> <p><i>Joseph Brodsky</i></p>
+> <b>Surfers have the most attitude.</b>
+> <p><i>Shaun White</i></p>
 
 <br>
