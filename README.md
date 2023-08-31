@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know the history of the record business so well because I followed Billie Holiday into the record studios. It was so primitive compared to the sophisticated business today.</b>
-> <p><i>Tony Bennett</i></p>
+> <b>Humanism was not wrong in thinking that truth, beauty, liberty, and equality are of infinite value, but in thinking that man can get them for himself without grace.</b>
+> <p><i>Simone Weil</i></p>
 
 <br>
