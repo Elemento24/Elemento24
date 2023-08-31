@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education must provide the opportunities for self-fulfillment it can at best provide a rich and challenging environment for the individual to explore, in his own way.</b>
-> <p><i>Noam Chomsky</i></p>
+> <b>I know the history of the record business so well because I followed Billie Holiday into the record studios. It was so primitive compared to the sophisticated business today.</b>
+> <p><i>Tony Bennett</i></p>
 
 <br>
