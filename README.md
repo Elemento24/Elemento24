@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By all these lovely tokens September days are here, With summer's best of weather And autumn's best of cheer.</b>
-> <p><i>Helen Hunt Jackson</i></p>
+> <b>What I like about cities is that everything is king size, the beauty and the ugliness.</b>
+> <p><i>Joseph Brodsky</i></p>
 
 <br>
