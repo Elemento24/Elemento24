@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never knew any Jews until I got into show business. I've found them to be real smart and good workers.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>Art is not a pastime but a priesthood.</b>
+> <p><i>Jean Cocteau</i></p>
 
 <br>
