@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people want fame, popularity and huge sales. I've always hoped to have a really long career. So I've tried to make each of my creative decisions and business decisions to allow for longevity. As a side effect I got really famous and really big. I didn't realize the two could go together.</b>
-> <p><i>Jewel</i></p>
+> <b>I think the Mother is gradually revealing itself to me and taking over. But it is not the Mother alone. It is the Mother and the Father, the male and the female, sort of gradually having their marriage.</b>
+> <p><i>Bede Griffiths</i></p>
 
 <br>
