@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is short and if you're looking for extension, you had best do well. 'Cause there's good deeds and then there's good intentions. They are as far apart as Heaven and Hell.</b>
-> <p><i>Ben Harper</i></p>
+> <b>Anger elicits anger, fear elicits fear, no matter how well meaning we may be.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
