@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I basically get stereotyped a lot in terms of being a girl and writing 'chick' music for teenage girls or something. I think, if anything, the press kind of, because of my gender and my age, tends to kind of relegate my work to this sort of special-interest group. It's part of the cultural dynamic, I guess.</b>
-> <p><i>Ani DiFranco</i></p>
+> <b>I think people are used to seeing actors be wide open and desperately giving of themselves, and while I do that on a movie set as much as I can, it's so unnatural for me to do it on television, in interviews, in anything like that. I also don't find that my process as an actor is really anyone else's business.</b>
+> <p><i>Kristen Stewart</i></p>
 
 <br>
