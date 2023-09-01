@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I think we're alone. Sometimes I think we're not. In either case, the thought is staggering.</b>
-> <p><i>R. Buckminster Fuller</i></p>
+> <b>I have experienced some amazing food! Yet when I think about the most luxurious and exquisite meals I have had, visions of simple food made from a few natural ingredients are what most excite me.</b>
+> <p><i>Mark Hyman</i></p>
 
 <br>
