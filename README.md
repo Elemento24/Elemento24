@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No person will make a great business who wants to do it all himself or get all the credit.</b>
-> <p><i>Andrew Carnegie</i></p>
+> <b>It is sad to grow old but nice to ripen.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
