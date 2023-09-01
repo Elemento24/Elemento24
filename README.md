@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is sad to grow old but nice to ripen.</b>
-> <p><i>Brigitte Bardot</i></p>
+> <b>Love is the beauty of the soul.</b>
+> <p><i>Saint Augustine</i></p>
 
 <br>
