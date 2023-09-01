@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So, we just kind of created our own thing and that's part of the beauty of Athens: is that it's so off the map and there's no way you could ever be the East Village or an L.A. scene or a San Francisco scene, that it just became its own thing.</b>
-> <p><i>Michael Stipe</i></p>
+> <b>I think people are used to seeing actors be wide open and desperately giving of themselves, and while I do that on a movie set as much as I can, it's so unnatural for me to do it on television, in interviews, in anything like that. I also don't find that my process as an actor is really anyone else's business.</b>
+> <p><i>Kristen Stewart</i></p>
 
 <br>
