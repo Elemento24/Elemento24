@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the Mother is gradually revealing itself to me and taking over. But it is not the Mother alone. It is the Mother and the Father, the male and the female, sort of gradually having their marriage.</b>
-> <p><i>Bede Griffiths</i></p>
+> <b>I can change a tire, but I couldn't change a fuse on the computer panel on my car.</b>
+> <p><i>Mike O'Malley</i></p>
 
 <br>
