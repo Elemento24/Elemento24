@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of 'spacing' children many years apart lies in the fact that parents have time to learn the mistakes that were made with the older ones - which permits them to make exactly the opposite mistakes with the younger ones.</b>
-> <p><i>Sydney J. Harris</i></p>
+> <b>So, we just kind of created our own thing and that's part of the beauty of Athens: is that it's so off the map and there's no way you could ever be the East Village or an L.A. scene or a San Francisco scene, that it just became its own thing.</b>
+> <p><i>Michael Stipe</i></p>
 
 <br>
