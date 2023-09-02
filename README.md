@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of doing film is that you construct whatever you do block by block and you can build something that will stay.</b>
-> <p><i>Michel Gondry</i></p>
+> <b>To see a player dunk in women's college basketball is just amazing. It's great to see that the game has reached that level now.</b>
+> <p><i>Holly Johnson</i></p>
 
 <br>
