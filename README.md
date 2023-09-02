@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We first fought... in the name of religion, then Communism, and now in the name of drugs and terrorism. Our excuses for global domination always change.</b>
-> <p><i>Serj Tankian</i></p>
+> <b>I'm a car fanatic and each morning I wake up with a smile on my face, whether I'm commentating on the Formula One or at Silver Hatch racetrack in Roary the Racing Car.</b>
+> <p><i>Murray Walker</i></p>
 
 <br>
