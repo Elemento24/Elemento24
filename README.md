@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In any moment of decision, the best thing you can do is the right thing, the next best thing is the wrong thing, and the worst thing you can do is nothing.</b>
-> <p><i>Theodore Roosevelt</i></p>
+> <b>A business that makes nothing but money is a poor business.</b>
+> <p><i>Henry Ford</i></p>
 
 <br>
