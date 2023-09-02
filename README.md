@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To see a player dunk in women's college basketball is just amazing. It's great to see that the game has reached that level now.</b>
-> <p><i>Holly Johnson</i></p>
+> <b>I borrowed my friend's car the other day in an attempt to persuade my husband that we needed a car and literally this is true, in the first day of borrowing the car, I got three tickets and I rear-ended it.</b>
+> <p><i>Emily Mortimer</i></p>
 
 <br>
