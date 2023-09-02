@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poverty is uncomfortable but nine times out of ten the best thing that can happen to a young man is to be tossed overboard and compelled to sink or swim.</b>
-> <p><i>James A. Garfield</i></p>
+> <b>This is the patent age of new inventions for killing bodies, and for saving souls. All propagated with the best intentions.</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
