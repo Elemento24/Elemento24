@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I happen to be interested in watching a face age. I like faces of women aging so it makes me personally quite sad. That's a beautiful gift from God. If people don't want to see that anymore then I won't be in anymore movies.</b>
-> <p><i>Debra Winger</i></p>
+> <b>Don't be an art critic. Paint. There lies salvation.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
