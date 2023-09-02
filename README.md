@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the patent age of new inventions for killing bodies, and for saving souls. All propagated with the best intentions.</b>
-> <p><i>Lord Byron</i></p>
+> <b>Bullfighting is the only art in which the artist is in danger of death and in which the degree of brilliance in the performance is left to the fighter's honor.</b>
+> <p><i>Ernest Hemingway</i></p>
 
 <br>
