@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Spending $1 for a brand new house would feel very, very good. Spending $1,000 for a ham sandwich would feel very, very bad. Spending $19,000 for a small family car would feel, well, more or less right. But as with physical pain, fiscal pain can depend on the individual, and everyone has a different threshold.</b>
-> <p><i>Jeffrey Kluger</i></p>
+> <b>I've been screaming at the top of my lungs at my family, 'Work out! Work out! Old age is coming!'</b>
+> <p><i>Cher</i></p>
 
 <br>
