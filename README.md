@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No lying knight or lying priest ever prospered in any age, but especially not in the dark ones. Men prospered then only in following an openly declared purpose, and preaching candidly beloved and trusted creeds.</b>
-> <p><i>John Ruskin</i></p>
+> <b>Of course, all of the software I write runs on Linux that's the beauty of standards, and of cross-platform code. I don't have to run your OS, and you don't have to run mine, and we can use the same applications anyway!</b>
+> <p><i>Jamie Zawinski</i></p>
 
 <br>
