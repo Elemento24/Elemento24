@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I borrowed my friend's car the other day in an attempt to persuade my husband that we needed a car and literally this is true, in the first day of borrowing the car, I got three tickets and I rear-ended it.</b>
-> <p><i>Emily Mortimer</i></p>
+> <b>Poverty is uncomfortable but nine times out of ten the best thing that can happen to a young man is to be tossed overboard and compelled to sink or swim.</b>
+> <p><i>James A. Garfield</i></p>
 
 <br>
