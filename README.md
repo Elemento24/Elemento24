@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A business that makes nothing but money is a poor business.</b>
-> <p><i>Henry Ford</i></p>
+> <b>Beauty, like ice, our footing does betray Who can tread sure on the smooth, slippery way: Pleased with the surface, we glide swiftly on, And see the dangers that we cannot shun.</b>
+> <p><i>John Dryden</i></p>
 
 <br>
