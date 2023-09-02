@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Thanks to capitalism, the importance placed on beauty has never been so manipulated. We are the guinea pigs force-fed ads that tell us how pathetic we are: that we will never be loved, happy or valuable unless we have the body, the face, the hair, even the personality that will apparently be ours, if only we buy their products.</b>
-> <p><i>Beth Ditto</i></p>
+> <b>A great revolution in just one single individual will help achieve a change in the destiny of a society and, further, will enable a change in the destiny of humankind.</b>
+> <p><i>Daisaku Ikeda</i></p>
 
 <br>
