@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been screaming at the top of my lungs at my family, 'Work out! Work out! Old age is coming!'</b>
-> <p><i>Cher</i></p>
+> <b>After 'Freaks and Geeks,' I dealt with several producers who wanted to cover up all my beauty marks, every single mole on my body. They tried to cover them on my first two episodes of 'Dawson's Creek,' and it just looked ridiculous, so I had to put my foot down. But it's not something I'm insecure about.</b>
+> <p><i>Busy Philipps</i></p>
 
 <br>
