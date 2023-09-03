@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You talk about German technocracy and you get automobiles.</b>
-> <p><i>Gordon Sinclair</i></p>
+> <b>I maintain my inner beauty by trying to lead a balanced life in general. I try to eat healthy foods, but... that doesn't mean I won't treat myself now and then! I work out almost every day, which gives me more energy and helps me feel stronger. I also try to be a genuinely good person to the people around me.</b>
+> <p><i>Erica Durance</i></p>
 
 <br>
