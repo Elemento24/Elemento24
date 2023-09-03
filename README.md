@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be free in an age like ours, one must be in a position of authority. That in itself would be enough to make me ambitious.</b>
-> <p><i>Hannah Arendt</i></p>
+> <b>There are many little ways to enlarge your child's world. Love of books is the best of all.</b>
+> <p><i>Jackie Kennedy</i></p>
 
 <br>
