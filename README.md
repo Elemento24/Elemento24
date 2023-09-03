@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You watch yourself age and it's hard to feel like a sex symbol.</b>
-> <p><i>Idris Elba</i></p>
+> <b>Intelligence is the ability to adapt to change.</b>
+> <p><i>Stephen Hawking</i></p>
 
 <br>
