@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To know yet to think that one does not know is best Not to know yet to think that one knows will lead to difficulty.</b>
-> <p><i>Lao Tzu</i></p>
+> <b>I didn't have any confidence in my beauty when I was young. I felt like a character actress, and I still do.</b>
+> <p><i>Meryl Streep</i></p>
 
 <br>
