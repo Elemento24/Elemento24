@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that I often bring out the best in somebody's talents.</b>
-> <p><i>David Bowie</i></p>
+> <b>It is lovely, when I forget all birthdays, including my own, to find that somebody remembers me.</b>
+> <p><i>Ellen Glasgow</i></p>
 
 <br>
