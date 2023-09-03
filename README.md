@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A change in the weather is sufficient to recreate the world and ourselves.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>Evil is committed without effort, naturally, fatally goodness is always the product of some art.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
