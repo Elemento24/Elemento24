@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man is an island. No man stands alone.</b>
-> <p><i>Dennis Brown</i></p>
+> <b>I wouldn't change one thing about my professional life, and I make it a point not to dwell on my mistakes.</b>
+> <p><i>Ethel Merman</i></p>
 
 <br>
