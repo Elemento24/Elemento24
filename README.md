@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are no menial jobs, only menial attitudes.</b>
-> <p><i>William J. Brennan, Jr.</i></p>
+> <b>I've sort of escaped my background, as people often do, through art and culture.</b>
+> <p><i>Danny Boyle</i></p>
 
 <br>
