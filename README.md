@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Loneliness is my least favorite thing about life. The thing that I'm most worried about is just being alone without anybody to care for or someone who will care for me.</b>
-> <p><i>Anne Hathaway</i></p>
+> <b>To know yet to think that one does not know is best Not to know yet to think that one knows will lead to difficulty.</b>
+> <p><i>Lao Tzu</i></p>
 
 <br>
