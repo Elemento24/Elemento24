@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is lovely, when I forget all birthdays, including my own, to find that somebody remembers me.</b>
-> <p><i>Ellen Glasgow</i></p>
+> <b>You watch yourself age and it's hard to feel like a sex symbol.</b>
+> <p><i>Idris Elba</i></p>
 
 <br>
