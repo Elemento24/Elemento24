@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing is so perfectly amusing as a total change of ideas.</b>
-> <p><i>Laurence Sterne</i></p>
+> <b>I believe that I often bring out the best in somebody's talents.</b>
+> <p><i>David Bowie</i></p>
 
 <br>
