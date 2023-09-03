@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've sort of escaped my background, as people often do, through art and culture.</b>
-> <p><i>Danny Boyle</i></p>
+> <b>On one level, nothing's really changed in my life. I still drive my daughter in the car pool on Monday. But it's impossible not to be aware of this rush of attention it's impossible not to be seduced by it once you've entered into it, seduced by being unhappy when the attention wanes.</b>
+> <p><i>Michael Tolkin</i></p>
 
 <br>
