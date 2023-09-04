@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never wanted to do TV. I just did what I was trained to do through the Special Forces, and I've been doing that from a very young age.</b>
-> <p><i>Bear Grylls</i></p>
+> <b>The development of beauty in chess never depends on you alone. No matter how much imagination and creativity you invest, you still do not create beauty. Your opponent must react at the same highest level.</b>
+> <p><i>Vladimir Kramnik</i></p>
 
 <br>
