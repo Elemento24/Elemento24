@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're living in an era of unprecedented change, and I want to be a part of documenting it.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>The democracy process provides for political and social change without violence.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
