@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To an engineer, good enough means perfect. With an artist, there's no such thing as perfect.</b>
-> <p><i>Alexander Calder</i></p>
+> <b>It's been amazing how this crazy career has been created. I feel that it's been given to me. I wouldn't be anywhere without Victoria's Secret.</b>
+> <p><i>Candice Swanepoel</i></p>
 
 <br>
