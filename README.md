@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been amazing how this crazy career has been created. I feel that it's been given to me. I wouldn't be anywhere without Victoria's Secret.</b>
-> <p><i>Candice Swanepoel</i></p>
+> <b>We're living in an era of unprecedented change, and I want to be a part of documenting it.</b>
+> <p><i>Ron Fournier</i></p>
 
 <br>
