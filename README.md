@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The happiness of one's own heart alone cannot satisfy the soul one must try to include, as necessary to one's own happiness, the happiness of others.</b>
-> <p><i>Paramahansa Yogananda</i></p>
+> <b>Now that I have found someone, I'm feeling more alone... than I ever have before.</b>
+> <p><i>Ben Folds</i></p>
 
 <br>
