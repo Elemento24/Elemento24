@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Had 'Bridesmaids' not ended up being so amazing and successful, we would never have been able to make 'Bachelorette.' So we are in awe of 'Bridesmaids' and totally owe them so much.</b>
-> <p><i>Lizzy Caplan</i></p>
+> <b>Advertising is the greatest art form of the 20th century.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
