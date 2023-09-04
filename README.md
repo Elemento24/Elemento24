@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now that I have found someone, I'm feeling more alone... than I ever have before.</b>
-> <p><i>Ben Folds</i></p>
+> <b>If you read back in the Bible, the letter of the apostle Paul to the church of Thessalonia, he said that in the latter days before the end of the age that the Earth would be caught up in what he called the birth pangs of a new order.</b>
+> <p><i>Pat Robertson</i></p>
 
 <br>
