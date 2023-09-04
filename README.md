@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Advertising is the greatest art form of the 20th century.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>No, nothing has changed in my life at all, and nothing would change if I had millions.</b>
+> <p><i>Kinky Friedman</i></p>
 
 <br>
