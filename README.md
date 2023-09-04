@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The democracy process provides for political and social change without violence.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>I'm married to my best friend!</b>
+> <p><i>Miranda Lambert</i></p>
 
 <br>
