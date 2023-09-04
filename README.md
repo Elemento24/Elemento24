@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, no one asks beauty secrets of me, or 'What size do you wear?' or 'Who's your couturier?' They ask me about really deep things and I love that.</b>
-> <p><i>Shirley MacLaine</i></p>
+> <b>I never wanted to do TV. I just did what I was trained to do through the Special Forces, and I've been doing that from a very young age.</b>
+> <p><i>Bear Grylls</i></p>
 
 <br>
