@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Work and struggle and never accept an evil that you can change.</b>
-> <p><i>Andre Gide</i></p>
+> <b>Had 'Bridesmaids' not ended up being so amazing and successful, we would never have been able to make 'Bachelorette.' So we are in awe of 'Bridesmaids' and totally owe them so much.</b>
+> <p><i>Lizzy Caplan</i></p>
 
 <br>
