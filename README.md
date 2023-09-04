@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I find beauty in the grotesque, like most artists.</b>
-> <p><i>Alexander McQueen</i></p>
+> <b>I've never stabbed, hurt, killed, stolen, anything, but I went to jail for a year. What is that? My pastor said to me the fact that I'm not living under a bridge as a crazy woman, talking to myself, is amazing.</b>
+> <p><i>Foxy Brown</i></p>
 
 <br>
