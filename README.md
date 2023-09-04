@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you read back in the Bible, the letter of the apostle Paul to the church of Thessalonia, he said that in the latter days before the end of the age that the Earth would be caught up in what he called the birth pangs of a new order.</b>
-> <p><i>Pat Robertson</i></p>
+> <b>One of the things I like enormously about Bob Weinstein is that that he's the only studio head I have ever known who will change his mind and say he was wrong.</b>
+> <p><i>Dean Koontz</i></p>
 
 <br>
