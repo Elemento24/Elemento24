@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The scientific theory I like best is that the rings of Saturn are composed entirely of lost airline luggage.</b>
-> <p><i>Mark Russell</i></p>
+> <b>The happiness of one's own heart alone cannot satisfy the soul one must try to include, as necessary to one's own happiness, the happiness of others.</b>
+> <p><i>Paramahansa Yogananda</i></p>
 
 <br>
