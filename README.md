@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm more like my father, personality-wise. But my mom and I get alone really well - obviously, because my mom and my dad get along so well.</b>
-> <p><i>Jenna Bush</i></p>
+> <b>The world needs anger. The world often continues to allow evil because it isn't angry enough.</b>
+> <p><i>Bede Jarrett</i></p>
 
 <br>
