@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The problem was just a mean attitude that festers and has to be challenged.</b>
-> <p><i>Major Owens</i></p>
+> <b>It's a funny thing about life if you refuse to accept anything but the best, you very often get it.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
