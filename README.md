@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
-> <p><i>Euripides</i></p>
+> <b>I'm more like my father, personality-wise. But my mom and I get alone really well - obviously, because my mom and my dad get along so well.</b>
+> <p><i>Jenna Bush</i></p>
 
 <br>
