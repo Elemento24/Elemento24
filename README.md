@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Integrity is not a conditional word. It doesn't blow in the wind or change with the weather. It is your inner image of yourself, and if you look in there and see a man who won't cheat, then you know he never will.</b>
-> <p><i>John D. MacDonald</i></p>
+> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
+> <p><i>Euripides</i></p>
 
 <br>
