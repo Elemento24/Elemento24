@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been a guy who's pretty supportive, its just my nature, so I came in to the situation with the attitude that I wanted to support Johnny and make it work.</b>
-> <p><i>Rick Derringer</i></p>
+> <b>I think fear is what keeps us from going over the edge. I mean, as a race car driver, I don't think what makes a good race car driver is a fearless person. I think it's somebody that is comfortable being behind the wheel of something that's somewhat out of control.</b>
+> <p><i>Jeff Gordon</i></p>
 
 <br>
