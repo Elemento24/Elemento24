@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is inevitable. Change is constant.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>I had one drama teacher who was amazing, Ms. Perkins. She really tried to inspire me and get me going.</b>
+> <p><i>Carlos Pena, Jr.</i></p>
 
 <br>
