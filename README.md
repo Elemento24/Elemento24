@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only change I can really see is that I don't have to shop for pants in stores anymore.</b>
-> <p><i>Larry David</i></p>
+> <b>Like many women my age, I am 28 years old.</b>
+> <p><i>Mary Schmich</i></p>
 
 <br>
