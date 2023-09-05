@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think fear is what keeps us from going over the edge. I mean, as a race car driver, I don't think what makes a good race car driver is a fearless person. I think it's somebody that is comfortable being behind the wheel of something that's somewhat out of control.</b>
-> <p><i>Jeff Gordon</i></p>
+> <b>Find beauty not only in the thing itself but in the pattern of the shadows, the light and dark which that thing provides.</b>
+> <p><i>Junichiro Tanizaki</i></p>
 
 <br>
