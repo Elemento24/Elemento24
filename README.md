@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist must be a reactionary. He has to stand out against the tenor of the age and not go flopping along.</b>
-> <p><i>Andre Maurois</i></p>
+> <b>I'm tired of all this nonsense about beauty being skin deep. That's deep enough. What do you want, an adorable pancreas?</b>
+> <p><i>Jean Kerr</i></p>
 
 <br>
