@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is art that makes life, makes interest, makes importance... and I know of no substitute whatever for the force and beauty of its process.</b>
-> <p><i>Henry James</i></p>
+> <b>No, I regret nothing, all I regret is having been born, dying is such a long tiresome business I always found.</b>
+> <p><i>Samuel Beckett</i></p>
 
 <br>
