@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't beat the beehive for glam punkette attitude.</b>
-> <p><i>Rob Sheffield</i></p>
+> <b>The best way to deal with that is to live in a fully conscious, compassionate, loving way. Don't wait until you're on your deathbed to recognize that this is the only way to live.</b>
+> <p><i>Morrie Schwartz</i></p>
 
 <br>
