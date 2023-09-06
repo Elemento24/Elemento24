@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men's magazines often feature pictures of naked ladies. Women's magazines also often feature pictures of naked ladies. This is because the female body is a beautiful work of art, while the male body is hairy and lumpy and should not be seen by the light of day.</b>
-> <p><i>Richard Roeper</i></p>
+> <b>This is the great reward of service, to live, far out and on, in the life of others this is the mystery of Christ, - to give life's best for such high sake that it shall be found again unto life eternal.</b>
+> <p><i>Joshua Chamberlain</i></p>
 
 <br>
