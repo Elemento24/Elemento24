@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A change in bad habits leads to a change in life.</b>
-> <p><i>Jenny Craig</i></p>
+> <b>Men, even when alone, lighten their labors by song, however rude it may be.</b>
+> <p><i>Quintilian</i></p>
 
 <br>
