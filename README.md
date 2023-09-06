@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The money is in a different league these days, of course, but I have special memories of the 60s and 70s which players today don't have. There wasn't the same celebrity attitude and media exposure. We had a bit more freedom.</b>
-> <p><i>Peter Shilton</i></p>
+> <b>If you don't drink, smoke, or drive a car, you're a tax evader.</b>
+> <p><i>Thomas S. Foley</i></p>
 
 <br>
