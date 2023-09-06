@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Flirting is the gentle art of making a man feel pleased with himself.</b>
-> <p><i>Helen Rowland</i></p>
+> <b>An artist must be a reactionary. He has to stand out against the tenor of the age and not go flopping along.</b>
+> <p><i>Andre Maurois</i></p>
 
 <br>
