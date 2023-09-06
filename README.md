@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On a royal birthday every house must fly a flag, or the owner would be dragged to a police station and be fined twenty-five rubles.</b>
-> <p><i>Mary Antin</i></p>
+> <b>Out with stereotypes, feminism proclaims. But stereotypes are the west's stunning sexual personae, the vehicles of art's assault against nature. The moment there is imagination, there is myth.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
