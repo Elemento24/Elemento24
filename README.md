@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the great reward of service, to live, far out and on, in the life of others this is the mystery of Christ, - to give life's best for such high sake that it shall be found again unto life eternal.</b>
-> <p><i>Joshua Chamberlain</i></p>
+> <b>I'm crazy about my father, he's an amazing man, a real adventurer. He took us with him to travel all over the world. We were in places that were so remote, that white people hardly ever reach them.</b>
+> <p><i>Peta Wilson</i></p>
 
 <br>
