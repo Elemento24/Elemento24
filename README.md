@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Out with stereotypes, feminism proclaims. But stereotypes are the west's stunning sexual personae, the vehicles of art's assault against nature. The moment there is imagination, there is myth.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>We have to be able to grow up. Our wrinkles are our medals of the passage of life. They are what we have been through and who we want to be.</b>
+> <p><i>Lauren Hutton</i></p>
 
 <br>
