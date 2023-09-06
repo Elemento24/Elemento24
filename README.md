@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is a tyrant, who forbids, under pain of death, the pleasures of youth.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>Organisations are now confronted with two sources of change: the traditional type that is initiated and managed and external changes over which no one has control.</b>
+> <p><i>Margaret J. Wheatley</i></p>
 
 <br>
