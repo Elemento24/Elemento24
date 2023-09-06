@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm tired of all this nonsense about beauty being skin deep. That's deep enough. What do you want, an adorable pancreas?</b>
-> <p><i>Jean Kerr</i></p>
+> <b>A change in bad habits leads to a change in life.</b>
+> <p><i>Jenny Craig</i></p>
 
 <br>
