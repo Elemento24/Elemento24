@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't drink, smoke, or drive a car, you're a tax evader.</b>
-> <p><i>Thomas S. Foley</i></p>
+> <b>It is art that makes life, makes interest, makes importance... and I know of no substitute whatever for the force and beauty of its process.</b>
+> <p><i>Henry James</i></p>
 
 <br>
