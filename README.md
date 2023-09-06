@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no planning. On the night it is really great, it's euphoria and if it is not so great there is always tomorrow night. That was his attitude.</b>
-> <p><i>Ed McMahon</i></p>
+> <b>You can't beat the beehive for glam punkette attitude.</b>
+> <p><i>Rob Sheffield</i></p>
 
 <br>
