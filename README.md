@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have to be able to grow up. Our wrinkles are our medals of the passage of life. They are what we have been through and who we want to be.</b>
-> <p><i>Lauren Hutton</i></p>
+> <b>Old age is a tyrant, who forbids, under pain of death, the pleasures of youth.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
