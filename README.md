@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first recognition of age setting in was exactly on my 36th birthday. I have no idea why, on this day of all days, I looked in the mirror and realized my face no longer looked young.</b>
-> <p><i>Paulina Porizkova</i></p>
+> <b>Steven Tyler is awesome. He is so humble. He's really sweet and coming from him and his career, it's amazing.</b>
+> <p><i>Ashthon Jones</i></p>
 
 <br>
