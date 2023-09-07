@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Utility is the great idol of the age, to which all powers must do service and all talents swear allegiance.</b>
-> <p><i>Friedrich Schiller</i></p>
+> <b>When I'm in the car and somebody comes on the radio singing the high notes, I try to sing along.</b>
+> <p><i>Burton Cummings</i></p>
 
 <br>
