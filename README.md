@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The real sadness of fifty is not that you change so much but that you change so little.</b>
-> <p><i>Max Lerner</i></p>
+> <b>'Game of Thrones' is an amazing show, and I have no problem speaking of the virtues of HBO.</b>
+> <p><i>Peter Dinklage</i></p>
 
 <br>
