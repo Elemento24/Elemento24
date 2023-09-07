@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Steven Tyler is awesome. He is so humble. He's really sweet and coming from him and his career, it's amazing.</b>
-> <p><i>Ashthon Jones</i></p>
+> <b>Americans are the only people in the world known to me whose status anxiety prompts them to advertise their college and university affiliations in the rear window of their automobiles.</b>
+> <p><i>Paul Fussell</i></p>
 
 <br>
