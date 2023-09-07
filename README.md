@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I imagine my children are going to save me from my vanity and be my passion and fill whatever fears I have of the amazing time I'm having right now being gone.</b>
-> <p><i>Gwen Stefani</i></p>
+> <b>In general it can be said that a nation's art is greatest when it most reflects the character of its people.</b>
+> <p><i>Edward Hopper</i></p>
 
 <br>
