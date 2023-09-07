@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of acting consists in keeping people from coughing.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>I was informed yesterday that there's a Twitter account for my laugh. Very hard to get used to things like that. Pretty amazing.</b>
+> <p><i>Tom Hiddleston</i></p>
 
 <br>
