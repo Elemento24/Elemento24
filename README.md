@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Americans are the only people in the world known to me whose status anxiety prompts them to advertise their college and university affiliations in the rear window of their automobiles.</b>
-> <p><i>Paul Fussell</i></p>
+> <b>I'd love to go to art school. I'd love to learn how to draw. I'd love to be fluent in Spanish. I'd like to be a brain surgeon.</b>
+> <p><i>Billie Joe Armstrong</i></p>
 
 <br>
