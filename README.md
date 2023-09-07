@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to surround yourself with people who love you and want the best for you.</b>
-> <p><i>Mena Suvari</i></p>
+> <b>The art of acting consists in keeping people from coughing.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
