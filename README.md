@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was informed yesterday that there's a Twitter account for my laugh. Very hard to get used to things like that. Pretty amazing.</b>
-> <p><i>Tom Hiddleston</i></p>
+> <b>What art offers is space - a certain breathing room for the spirit.</b>
+> <p><i>John Updike</i></p>
 
 <br>
