@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What art offers is space - a certain breathing room for the spirit.</b>
-> <p><i>John Updike</i></p>
+> <b>Fame is the echo of actions, resounding them to the world, save that the echo repeats only the last art, but fame relates all, and often more than all.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
