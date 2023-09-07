@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd love to go to art school. I'd love to learn how to draw. I'd love to be fluent in Spanish. I'd like to be a brain surgeon.</b>
-> <p><i>Billie Joe Armstrong</i></p>
+> <b>I think every person has their own identity and beauty. Everyone being different is what is really beautiful. If we were all the same, it would be boring.</b>
+> <p><i>Tila Tequila</i></p>
 
 <br>
