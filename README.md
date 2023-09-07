@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your body actually reminds you about your age and your injuries - the body has a stronger memory than your mind.</b>
-> <p><i>Mikhail Baryshnikov</i></p>
+> <b>Utility is the great idol of the age, to which all powers must do service and all talents swear allegiance.</b>
+> <p><i>Friedrich Schiller</i></p>
 
 <br>
