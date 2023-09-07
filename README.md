@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to deal with that is to live in a fully conscious, compassionate, loving way. Don't wait until you're on your deathbed to recognize that this is the only way to live.</b>
-> <p><i>Morrie Schwartz</i></p>
+> <b>Your body actually reminds you about your age and your injuries - the body has a stronger memory than your mind.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
