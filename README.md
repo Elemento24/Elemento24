@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm in the car and somebody comes on the radio singing the high notes, I try to sing along.</b>
-> <p><i>Burton Cummings</i></p>
+> <b>My dear brothers, take note of this: Everyone should be quick to listen, slow to speak and slow to become angry, for man's anger does not bring about the righteous life that God desires.</b>
+> <p><i>Beverly Sills</i></p>
 
 <br>
