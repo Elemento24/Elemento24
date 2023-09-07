@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe there are three keys to success. For me it is keeping my priorities in order: It's my faith and my family, and then the business.</b>
-> <p><i>Kathy Ireland</i></p>
+> <b>You have to surround yourself with people who love you and want the best for you.</b>
+> <p><i>Mena Suvari</i></p>
 
 <br>
