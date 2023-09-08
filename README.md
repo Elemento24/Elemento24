@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>More books, more racing and more foolishness with cars and motorcycles are in the works.</b>
-> <p><i>Brock Yates</i></p>
+> <b>Talking about music is like dancing about architecture.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
