@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Revolution, n. In politics, an abrupt change in the form of misgovernment.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>Age steals away all things, even the mind.</b>
+> <p><i>Virgil</i></p>
 
 <br>
