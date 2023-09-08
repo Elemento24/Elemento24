@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Parents have become so convinced that educators know what is best for their children that they forget that they themselves are really the experts.</b>
-> <p><i>Marian Wright Edelman</i></p>
+> <b>It is literally true that you can succeed best and quickest by helping others to succeed.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
