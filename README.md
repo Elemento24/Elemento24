@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Use those talents you have. You will make it. You will give joy to the world. Take this tip from nature: The woods would be a very silent place if no birds sang except those who sang best.</b>
-> <p><i>Bernard Meltzer</i></p>
+> <b>Speak the truth, do not yield to anger give, if thou art asked for little by these three steps thou wilt go near the gods.</b>
+> <p><i>Confucius</i></p>
 
 <br>
