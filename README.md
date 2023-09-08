@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was born at the age of twelve on an MGM lot.</b>
-> <p><i>Judy Garland</i></p>
+> <b>To me age is a number, just a number. Who cares?</b>
+> <p><i>Jeanne Moreau</i></p>
 
 <br>
