@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have nothing to hide in art. The initial force alone can bring anyone to the end he must attain.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Middle age is the time when a man is always thinking that in a week or two he will feel as good as ever.</b>
+> <p><i>Don Marquis</i></p>
 
 <br>
