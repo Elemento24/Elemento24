@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age steals away all things, even the mind.</b>
-> <p><i>Virgil</i></p>
+> <b>Benevolence alone will not make a teacher, nor will learning alone do it. The gift of teaching is a peculiar talent, and implies a need and a craving in the teacher himself.</b>
+> <p><i>John Jay Chapman</i></p>
 
 <br>
