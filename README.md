@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is literally true that you can succeed best and quickest by helping others to succeed.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>All art comes from other art, and all immigrants come from other places.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
