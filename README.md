@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The city needs a car like a fish needs a bicycle.</b>
-> <p><i>Dean Kamen</i></p>
+> <b>There was a time in L.A. when I drove to 7-Eleven to go grocery shopping, and I locked my keys in my car, which wasn't insured. My wallet was in there, and I couldn't call AAA, because I only had $7 in my bank account. It was one of those moments where I was like, 'O.K., I literally have nothing right now.'</b>
+> <p><i>Whitney Cummings</i></p>
 
 <br>
