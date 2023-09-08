@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change does not roll in on the wheels of inevitability, but comes through continuous struggle. And so we must straighten our backs and work for our freedom. A man can't ride you unless your back is bent.</b>
-> <p><i>Martin Luther King, Jr.</i></p>
+> <b>The hardest thing about being in this business is just being able to be yourself. People act like there's this one set of rules to follow to be a pop star and I think, 'Well, you say I'm a pop star, so maybe that's not true.'</b>
+> <p><i>Kelly Clarkson</i></p>
 
 <br>
