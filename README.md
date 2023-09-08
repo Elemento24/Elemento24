@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Procrastination is the art of keeping up with yesterday.</b>
-> <p><i>Don Marquis</i></p>
+> <b>Well, I've never looked upon myself as being a beauty, per se.</b>
+> <p><i>Cate Blanchett</i></p>
 
 <br>
