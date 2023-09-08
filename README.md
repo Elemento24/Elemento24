@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is the time when a man is always thinking that in a week or two he will feel as good as ever.</b>
-> <p><i>Don Marquis</i></p>
+> <b>Revolution, n. In politics, an abrupt change in the form of misgovernment.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
