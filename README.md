@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Talking about music is like dancing about architecture.</b>
-> <p><i>Steve Martin</i></p>
+> <b>Change does not roll in on the wheels of inevitability, but comes through continuous struggle. And so we must straighten our backs and work for our freedom. A man can't ride you unless your back is bent.</b>
+> <p><i>Martin Luther King, Jr.</i></p>
 
 <br>
