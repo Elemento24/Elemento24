@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me age is a number, just a number. Who cares?</b>
-> <p><i>Jeanne Moreau</i></p>
+> <b>Use those talents you have. You will make it. You will give joy to the world. Take this tip from nature: The woods would be a very silent place if no birds sang except those who sang best.</b>
+> <p><i>Bernard Meltzer</i></p>
 
 <br>
