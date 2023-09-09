@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our scientific age demands that we provide definitions, measurements, and statistics in order to be taken seriously. Yet most of the important things in life cannot be precisely defined or measured. Can we define or measure love, beauty, friendship, or decency, for example?</b>
-> <p><i>Dennis Prager</i></p>
+> <b>Obviously, there's the seedy side of the strip club world and pole dancing. But, pole dancing, as an art form, is really beautiful. It's been hyper-sexualized because it's associated with strippers, but if you think about it, just in terms of other kinds of dancing, they're using an instrument to create these amazing dance forms.</b>
+> <p><i>Megalyn Echikunwoke</i></p>
 
 <br>
