@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is a precious trace that eternity causes to appear to us and that it takes away from us. A manifestation of eternity, and a sign of death as well.</b>
-> <p><i>Eugene Ionesco</i></p>
+> <b>Whoever wants to know something about me - as an artist which alone is significant - they should look attentively at my pictures and there seek to recognise what I am and what I want.</b>
+> <p><i>Gustav Klimt</i></p>
 
 <br>
