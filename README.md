@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You're only lonely if you're not there for you.</b>
-> <p><i>Phil McGraw</i></p>
+> <b>I always prefer to believe the best of everybody, it saves so much trouble.</b>
+> <p><i>Rudyard Kipling</i></p>
 
 <br>
