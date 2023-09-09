@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All conservatism is based upon the idea that if you leave things alone you leave them as they are. But you do not. If you leave a thing alone you leave it to a torrent of change.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>Beauty is a precious trace that eternity causes to appear to us and that it takes away from us. A manifestation of eternity, and a sign of death as well.</b>
+> <p><i>Eugene Ionesco</i></p>
 
 <br>
