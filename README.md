@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's funny I'm in some ways hopelessly masculine, but I don't fish, I don't hunt, I'm not that into sports. I can't fix a car. I think it's my point of view and the way I see the world.</b>
-> <p><i>Corey Stoll</i></p>
+> <b>Goals provide the energy source that powers our lives. One of the best ways we can get the most from the energy we have is to focus it. That is what goals can do for us concentrate our energy.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
