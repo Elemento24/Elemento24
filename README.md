@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art world is an all-volunteer force. No one has to be here if he or she doesn't want to be, and we should be associating with anyone we want to.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>With 'Twilight,' you have these massive tomes that you have to condense. With 'Penoza,' we had an eight episode Dutch series that, just for the pilot alone, I condensed three episodes. So, there's a lot of filling in and a ton of invention that has to happen to fill out eight episodes.</b>
+> <p><i>Melissa Rosenberg</i></p>
 
 <br>
