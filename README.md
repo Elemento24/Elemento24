@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always prefer to believe the best of everybody, it saves so much trouble.</b>
-> <p><i>Rudyard Kipling</i></p>
+> <b>It's funny I'm in some ways hopelessly masculine, but I don't fish, I don't hunt, I'm not that into sports. I can't fix a car. I think it's my point of view and the way I see the world.</b>
+> <p><i>Corey Stoll</i></p>
 
 <br>
