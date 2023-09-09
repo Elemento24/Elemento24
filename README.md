@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are never the same with others as when we are alone. We are different, even when we are in the dark with them.</b>
-> <p><i>Maurice Maeterlinck</i></p>
+> <b>Movies are an expensive business.</b>
+> <p><i>Albert Brooks</i></p>
 
 <br>
