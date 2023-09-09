@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Goals provide the energy source that powers our lives. One of the best ways we can get the most from the energy we have is to focus it. That is what goals can do for us concentrate our energy.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>It's great when people appreciate your work, but I don't know how seriously to take it. The amazing thing is that I found something so early that I can support myself doing, and that can even be extremely lucrative, but I love it either way.</b>
+> <p><i>Adrien Brody</i></p>
 
 <br>
