@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even truth needs to be clad in new garments if it is to appeal to a new age.</b>
-> <p><i>Georg C. Lichtenberg</i></p>
+> <b>All conservatism is based upon the idea that if you leave things alone you leave them as they are. But you do not. If you leave a thing alone you leave it to a torrent of change.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
