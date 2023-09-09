@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also believe that government has no business telling us how we should live our lives. I think our lifestyle choices should be left up to us. What we do in our private lives is none of the government's business. That position rules out the Republican Party for me.</b>
-> <p><i>Jesse Ventura</i></p>
+> <b>Our scientific age demands that we provide definitions, measurements, and statistics in order to be taken seriously. Yet most of the important things in life cannot be precisely defined or measured. Can we define or measure love, beauty, friendship, or decency, for example?</b>
+> <p><i>Dennis Prager</i></p>
 
 <br>
