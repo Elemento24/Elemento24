@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be honest I live among the English and have always found them to be very honest in their business dealings. They are noble, hard-working and anxious to do the right thing. But joy eludes them, they lack the joy that the Irish have.</b>
-> <p><i>Fiona Shaw</i></p>
+> <b>The art world is an all-volunteer force. No one has to be here if he or she doesn't want to be, and we should be associating with anyone we want to.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
