@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each year over 2,500 commercial vessels enter the Port of Hampton Roads alone, so adequate funding for port security is a significant issue for those of us who live in Richmond and Hampton Roads.</b>
-> <p><i>Bobby Scott</i></p>
+> <b>In my business, if I get too close to you and you die, it hurts me. And so you develop a natural inclination not to be close to the patient, so that if things don't work out ideally, you can still get up the next day and care for the next patient.</b>
+> <p><i>Mehmet Oz</i></p>
 
 <br>
