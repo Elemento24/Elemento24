@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My siblings and I were friends with the boys who would become our stepbrothers - we grew up on the same street. I feel very special to have these amazing people in my life and if we hadn't all moved into this big house together I think I would have missed out on that, because we would have drifted apart.</b>
-> <p><i>Florence Welch</i></p>
+> <b>Each year over 2,500 commercial vessels enter the Port of Hampton Roads alone, so adequate funding for port security is a significant issue for those of us who live in Richmond and Hampton Roads.</b>
+> <p><i>Bobby Scott</i></p>
 
 <br>
