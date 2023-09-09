@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All art comes from other art, and all immigrants come from other places.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It was Julie Burchill who decreed that, beyond a certain age, a man should not be seen in a leather jacket.</b>
+> <p><i>Arthur Smith</i></p>
 
 <br>
