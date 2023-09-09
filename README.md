@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A car to pick me up every day, a chair with my name on it, everybody being very polite... what can you do except sit back and watch it all, try to take it all in?</b>
-> <p><i>Charles Dance</i></p>
+> <b>Even truth needs to be clad in new garments if it is to appeal to a new age.</b>
+> <p><i>Georg C. Lichtenberg</i></p>
 
 <br>
