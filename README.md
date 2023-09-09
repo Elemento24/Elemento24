@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's great when people appreciate your work, but I don't know how seriously to take it. The amazing thing is that I found something so early that I can support myself doing, and that can even be extremely lucrative, but I love it either way.</b>
-> <p><i>Adrien Brody</i></p>
+> <b>My siblings and I were friends with the boys who would become our stepbrothers - we grew up on the same street. I feel very special to have these amazing people in my life and if we hadn't all moved into this big house together I think I would have missed out on that, because we would have drifted apart.</b>
+> <p><i>Florence Welch</i></p>
 
 <br>
