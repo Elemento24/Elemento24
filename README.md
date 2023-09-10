@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got a wife, four kids, a business, and a baseball career.</b>
-> <p><i>Curt Schilling</i></p>
+> <b>The secret to being a writer is that you have to write. It's not enough to think about writing or to study literature or plan a future life as an author. You really have to lock yourself away, alone, and get to work.</b>
+> <p><i>Augusten Burroughs</i></p>
 
 <br>
