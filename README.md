@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do you know the difference between a beautiful woman and a charming one? A beauty is a woman you notice, a charmer is one who notices you.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>I know that my grandfather is 92 years old. And he has seen this country evolve in amazing ways. He looks at South Carolina and he says, wow, what an amazing state that we have the blessing to live within because of the evolution.</b>
+> <p><i>Tim Scott</i></p>
 
 <br>
