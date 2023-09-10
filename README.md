@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being in the business and growing up in L.A., I think I turned out pretty OK.</b>
-> <p><i>Emma Roberts</i></p>
+> <b>I feel lazy when I'm not working. I learned all my business sense from my dad. He always believed in me, and I think the last thing he said to me before he passed away was, 'I know you're gonna be OK. I'm not worried about you'.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
