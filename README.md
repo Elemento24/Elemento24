@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our business in life is not to succeed, but to continue to fail in good spirits.</b>
-> <p><i>Robert Louis Stevenson</i></p>
+> <b>You'll live. Only the best get killed.</b>
+> <p><i>Charles de Gaulle</i></p>
 
 <br>
