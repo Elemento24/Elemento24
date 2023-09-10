@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Movies are an expensive business.</b>
-> <p><i>Albert Brooks</i></p>
+> <b>For me, 'revolution' simply means radical change.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
