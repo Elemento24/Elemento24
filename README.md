@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At this age, I should be leading a quiet life.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>Never Have Your Dog Stuffed is really advice to myself, a reminder to myself not to avoid change or uncertainty, but to go with it, to surf into change.</b>
+> <p><i>Alan Alda</i></p>
 
 <br>
