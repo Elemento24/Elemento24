@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have the problems of, I must confess, old age.</b>
-> <p><i>Billy Graham</i></p>
+> <b>At this age, I should be leading a quiet life.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
