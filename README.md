@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since we live in this world, we have to do our best for this world.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>I have the problems of, I must confess, old age.</b>
+> <p><i>Billy Graham</i></p>
 
 <br>
