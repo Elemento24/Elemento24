@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have no fear of making changes, destroying the image, etc., because the painting has a life of its own.</b>
-> <p><i>Jackson Pollock</i></p>
+> <b>Originality is the art of concealing your source.</b>
+> <p><i>Franklin P. Jones</i></p>
 
 <br>
