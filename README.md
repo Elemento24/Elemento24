@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You'll live. Only the best get killed.</b>
-> <p><i>Charles de Gaulle</i></p>
+> <b>For me beauty is valued more than anything - the beauty that is manifest in a curved line or in an act of creativity.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
