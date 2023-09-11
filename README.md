@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is better to be alone than in bad company.</b>
-> <p><i>George Washington</i></p>
+> <b>Buildings should serve people, not the other way around.</b>
+> <p><i>John Portman</i></p>
 
 <br>
