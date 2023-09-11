@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The whole course of human history may depend on a change of heart in one solitary and even humble individual - for it is in the solitary mind and soul of the individual that the battle between good and evil is waged and ultimately won or lost.</b>
-> <p><i>M. Scott Peck</i></p>
+> <b>A few years ago I lost 30 pounds, and people still wanted to criticize. And honestly, I'm happy with myself if I'm a little heavier. I realized: 'Why am I trying to conform to someone else's idea of beauty?' I think I'm beautiful either way.</b>
+> <p><i>Khloe Kardashian</i></p>
 
 <br>
