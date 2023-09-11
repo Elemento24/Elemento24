@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In days of doubt, in days of dreary musings on my country's fate, you alone are my comfort and support, oh great, powerful, righteous, and free Russian language!</b>
-> <p><i>Ivan Turgenev</i></p>
+> <b>Virtue alone has majesty in death.</b>
+> <p><i>Edward Young</i></p>
 
 <br>
