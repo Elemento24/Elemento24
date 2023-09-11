@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a business you go into because your an egocentric. It's a very embarrassing profession.</b>
-> <p><i>Katharine Hepburn</i></p>
+> <b>Winning a competition in architecture is a ticket to oblivion. It's just an idea. Ninety-nine per cent never get built.</b>
+> <p><i>Daniel Libeskind</i></p>
 
 <br>
