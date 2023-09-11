@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best revenge is massive success.</b>
-> <p><i>Frank Sinatra</i></p>
+> <b>Yeah, my dream would be to work for 6 months and then have 6 months to play, just snowboarding, surfing, and going to cool places to listen and be alone and kinda chill out.</b>
+> <p><i>Marc Newson</i></p>
 
 <br>
