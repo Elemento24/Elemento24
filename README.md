@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Science shows us truth and beauty and fills each day with a fresh wonder of the exquisite order which governs our world.</b>
-> <p><i>Polykarp Kusch</i></p>
+> <b>There was once a caustic comment from someone suggesting I was breeding a new race. Fans from different countries have married, amazing things like that. I've been to some of the weddings. I went to one here the other day, a pagan ceremony.</b>
+> <p><i>Terry Pratchett</i></p>
 
 <br>
