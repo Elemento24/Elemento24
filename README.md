@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We cannot change anything until we accept it. Condemnation does not liberate, it oppresses.</b>
-> <p><i>Carl Jung</i></p>
+> <b>The work an unknown good man has done is like a vein of water flowing hidden underground, secretly making the ground green.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
