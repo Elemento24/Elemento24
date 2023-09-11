@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Buildings should serve people, not the other way around.</b>
-> <p><i>John Portman</i></p>
+> <b>In days of doubt, in days of dreary musings on my country's fate, you alone are my comfort and support, oh great, powerful, righteous, and free Russian language!</b>
+> <p><i>Ivan Turgenev</i></p>
 
 <br>
