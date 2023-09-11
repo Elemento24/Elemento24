@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yeah, my dream would be to work for 6 months and then have 6 months to play, just snowboarding, surfing, and going to cool places to listen and be alone and kinda chill out.</b>
-> <p><i>Marc Newson</i></p>
+> <b>Up until the Depression, recession had a moral character: it was supposed to purge the body economic of the greed and excess that attends a business expansion.</b>
+> <p><i>James Buchan</i></p>
 
 <br>
