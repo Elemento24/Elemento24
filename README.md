@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Art, man reveals himself and not his objects.</b>
-> <p><i>Rabindranath Tagore</i></p>
+> <b>No man is an island. No man stands alone.</b>
+> <p><i>Dennis Brown</i></p>
 
 <br>
