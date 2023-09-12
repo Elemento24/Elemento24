@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm trying to change the culture in New York City that's hard enough!</b>
-> <p><i>Michael Bloomberg</i></p>
+> <b>Obama and his attack dogs have nothing but hate and anger in their hearts and spew it whenever possible.</b>
+> <p><i>Donald Trump</i></p>
 
 <br>
