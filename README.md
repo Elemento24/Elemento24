@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You would be amazed what the ordinary guy knows.</b>
-> <p><i>Matt Drudge</i></p>
+> <b>In Art, man reveals himself and not his objects.</b>
+> <p><i>Rabindranath Tagore</i></p>
 
 <br>
