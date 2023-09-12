@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of all the planets apart from Earth in our solar system, Mars is the most hospitable. Yeah. Right. Better keep my visit short. And yet, despite the discomfort, the danger, I love it here. I love coming back for these imaginary vacations. The sights are amazing.</b>
-> <p><i>Greg Bear</i></p>
+> <b>Everything in life that we really accept undergoes a change.</b>
+> <p><i>Katherine Mansfield</i></p>
 
 <br>
