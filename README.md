@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The true art of memory is the art of attention.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>Regard it as just as desirable to build a chicken house as to build a cathedral.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
