@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not into business at all.</b>
-> <p><i>Freddie Mercury</i></p>
+> <b>The heart of the jealous knows the best and most satisfying love, that of the other's bed, where the rival perfects the lover's imperfections.</b>
+> <p><i>Djuna Barnes</i></p>
 
 <br>
