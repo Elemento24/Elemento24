@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man is an island. No man stands alone.</b>
-> <p><i>Dennis Brown</i></p>
+> <b>It's amazing people get so detached from what they eat and what they wear. No one has any contact with how things are made that are put in their body and put in their mouths and I just find it alarming that no one questions it.</b>
+> <p><i>Emma Watson</i></p>
 
 <br>
