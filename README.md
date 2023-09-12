@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Virtue alone has majesty in death.</b>
-> <p><i>Edward Young</i></p>
+> <b>Sayles could pull a performance out of a dog. I'm serious. He was just amazing. The world could fall apart and he remained on neutral.</b>
+> <p><i>Elizabeth Pena</i></p>
 
 <br>
