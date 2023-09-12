@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obama and his attack dogs have nothing but hate and anger in their hearts and spew it whenever possible.</b>
-> <p><i>Donald Trump</i></p>
+> <b>I believe that the fight against crime starts in the home. Parents must take responsibility for their children and show them love and guidance from an early age so they learn to respect the rights of others.</b>
+> <p><i>Blanche Lincoln</i></p>
 
 <br>
