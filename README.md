@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's one Baldessari work I genuinely love and would like to own, maybe because of my Midwestern roots and love of driving alone. 'The backs of all the trucks passed while driving from Los Angeles to Santa Barbara, California, Sunday, 20 January 1963' consists of a grid of 32 small color photographs depicting just what the title says.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It is in moments of illness that we are compelled to recognize that we live not alone but chained to a creature of a different kingdom, whole worlds apart, who has no knowledge of us and by whom it is impossible to make ourselves understood: our body.</b>
+> <p><i>Marcel Proust</i></p>
 
 <br>
