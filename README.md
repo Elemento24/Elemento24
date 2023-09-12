@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The heart of the jealous knows the best and most satisfying love, that of the other's bed, where the rival perfects the lover's imperfections.</b>
-> <p><i>Djuna Barnes</i></p>
+> <b>You can get help from teachers, but you are going to have to learn a lot by yourself, sitting alone in a room.</b>
+> <p><i>Dr. Seuss</i></p>
 
 <br>
