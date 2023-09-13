@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My habit would have been to veer towards the dark - to prove I was something edgy, or maybe to prove that I was cognisant of the dark side. Now, with age and confidence, I can say, yeah, that's true, but I am cognisant of the fact that people can do things well. And can be more loving than you expect.</b>
-> <p><i>George Saunders</i></p>
+> <b>I really believe that all of us have a lot of darkness in our souls. Anger, rage, fear, sadness. I don't think that's only reserved for people who have horrible upbringings. I think it really exists and is part of the human condition. I think in the course of your life you figure out ways to deal with that.</b>
+> <p><i>Kevin Bacon</i></p>
 
 <br>
