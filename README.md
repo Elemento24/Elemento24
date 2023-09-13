@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And then there's all these other creeps that surround your band and suck off you like leeches and try to manipulate you and your business. You have to watch like a hawk. I'm always ready to fight. I see it very much as a battle.</b>
-> <p><i>Shirley Manson</i></p>
+> <b>I paint self-portraits because I am so often alone, because I am the person I know best.</b>
+> <p><i>Frida Kahlo</i></p>
 
 <br>
