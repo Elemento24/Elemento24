@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My grandparents got married at a very young age, and a lot of what I think about marriage is based on their relationship. I watched them over the years and saw how they dealt with everything together, as a team.</b>
-> <p><i>Kyle Chandler</i></p>
+> <b>Beauty is an ecstasy it is as simple as hunger. There is really nothing to be said about it. It is like the perfume of a rose: you can smell it and that is all.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
