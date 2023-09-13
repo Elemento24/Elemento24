@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In fact, my courage and my bravery at a young age was the thing I was bullied for, a kind of 'Who do you think you are?'</b>
-> <p><i>Lady Gaga</i></p>
+> <b>I like to have a massage therapist come to my house, get a massage, take a bath, go to bed. That's a perfect night alone for me.</b>
+> <p><i>Stacy Keibler</i></p>
 
 <br>
