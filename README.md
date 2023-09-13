@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is an ecstasy it is as simple as hunger. There is really nothing to be said about it. It is like the perfume of a rose: you can smell it and that is all.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>Only he is successful in his business who makes that pursuit which affords him the highest pleasure sustain him.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
