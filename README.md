@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The awesomeness of God is that even in the works of the Beach Boys, Beatles, etc., the beauty of the music is a mere reflection of what God does everyday. He creates music of all kinds and moods.</b>
-> <p><i>John Foster</i></p>
+> <b>Here is the amazing thing about Easter the Resurrection Sunday for Christians is this, that Christ in the dying moments on the cross gives us the greatest illustration of forgiveness possible.</b>
+> <p><i>T. D. Jakes</i></p>
 
 <br>
