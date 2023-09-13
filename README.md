@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yeah, my dream would be to work for 6 months and then have 6 months to play, just snowboarding, surfing, and going to cool places to listen and be alone and kinda chill out.</b>
-> <p><i>Marc Newson</i></p>
+> <b>My grandparents got married at a very young age, and a lot of what I think about marriage is based on their relationship. I watched them over the years and saw how they dealt with everything together, as a team.</b>
+> <p><i>Kyle Chandler</i></p>
 
 <br>
