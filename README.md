@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to get old gracefully. I want to have good posture, I want to be healthy and be an example to my children.</b>
-> <p><i>Sting</i></p>
+> <b>Religion is the masterpiece of the art of animal training, for it trains people as to how they shall think.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
