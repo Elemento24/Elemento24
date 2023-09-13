@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In its most limited sense, modern, art would seem to concern itself only with the technical innovations of the period.</b>
-> <p><i>Edward Hopper</i></p>
+> <b>To do a dull thing with style-now that's what I call art.</b>
+> <p><i>Charles Bukowski</i></p>
 
 <br>
