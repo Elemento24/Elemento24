@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I paint self-portraits because I am so often alone, because I am the person I know best.</b>
-> <p><i>Frida Kahlo</i></p>
+> <b>The most amazing thing to me about the sea is the tide. A harbour like St. Ives is totally transformed in a very short space of time by the arrival or departure of the sea.</b>
+> <p><i>John Dyer</i></p>
 
 <br>
