@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religion is the masterpiece of the art of animal training, for it trains people as to how they shall think.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>In fact, my courage and my bravery at a young age was the thing I was bullied for, a kind of 'Who do you think you are?'</b>
+> <p><i>Lady Gaga</i></p>
 
 <br>
