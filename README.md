@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's every little girl's dream to have an exact look-alike doll. It's amazing.</b>
-> <p><i>Bindi Irwin</i></p>
+> <b>I want to get old gracefully. I want to have good posture, I want to be healthy and be an example to my children.</b>
+> <p><i>Sting</i></p>
 
 <br>
