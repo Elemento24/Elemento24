@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most amazing thing to me about the sea is the tide. A harbour like St. Ives is totally transformed in a very short space of time by the arrival or departure of the sea.</b>
-> <p><i>John Dyer</i></p>
+> <b>The art of being happy lies in the power of extracting happiness from common things.</b>
+> <p><i>Henry Ward Beecher</i></p>
 
 <br>
