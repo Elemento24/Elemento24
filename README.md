@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why don't you start believing that no matter what you have or haven't done, that your best days are still out in front of you.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>It's every little girl's dream to have an exact look-alike doll. It's amazing.</b>
+> <p><i>Bindi Irwin</i></p>
 
 <br>
