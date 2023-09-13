@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm enamored with the art world. Anytime you look at anything that's considered artistic, there's a commercial world around it: the ballet, opera, any kind of music. It can't exist without it.</b>
-> <p><i>Steve Martin</i></p>
+> <b>And then there's all these other creeps that surround your band and suck off you like leeches and try to manipulate you and your business. You have to watch like a hawk. I'm always ready to fight. I see it very much as a battle.</b>
+> <p><i>Shirley Manson</i></p>
 
 <br>
