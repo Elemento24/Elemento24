@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only he is successful in his business who makes that pursuit which affords him the highest pleasure sustain him.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Elle MacPherson is absolutely amazing she is just so beautiful.</b>
+> <p><i>Carol Alt</i></p>
 
 <br>
