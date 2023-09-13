@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really believe that all of us have a lot of darkness in our souls. Anger, rage, fear, sadness. I don't think that's only reserved for people who have horrible upbringings. I think it really exists and is part of the human condition. I think in the course of your life you figure out ways to deal with that.</b>
-> <p><i>Kevin Bacon</i></p>
+> <b>I'm enamored with the art world. Anytime you look at anything that's considered artistic, there's a commercial world around it: the ballet, opera, any kind of music. It can't exist without it.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
