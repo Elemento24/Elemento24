@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is good taste, and good taste alone, that possesses the power to sterilize and is always the first handicap to any creative functioning.</b>
-> <p><i>Salvador Dali</i></p>
+> <b>It is really quite amazing that all of the folks supporting privatization, from the president on down, keep invoking the name of my grandfather, Franklin Delano Roosevelt.</b>
+> <p><i>James Roosevelt</i></p>
 
 <br>
