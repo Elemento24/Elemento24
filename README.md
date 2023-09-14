@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the still birth of suffering, every woman knows that.</b>
-> <p><i>Emily Prager</i></p>
+> <b>Plant and your spouse plants with you weed and you weed alone.</b>
+> <p><i>Jean-Jacques Rousseau</i></p>
 
 <br>
