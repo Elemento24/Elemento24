@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really enjoy not getting in a car and running errands on bikes.</b>
-> <p><i>Stone Gossard</i></p>
+> <b>Your attitude, not your aptitude, will determine your altitude.</b>
+> <p><i>Zig Ziglar</i></p>
 
 <br>
