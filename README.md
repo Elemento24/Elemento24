@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be age appropriate. I don't want to be that girl you see walking away and she looks 25 and then she turns around and she looks 90.</b>
-> <p><i>Stevie Nicks</i></p>
+> <b>Let us put theology out of religion. Theology has always sent the worst to heaven, the best to hell.</b>
+> <p><i>Robert Green Ingersoll</i></p>
 
 <br>
