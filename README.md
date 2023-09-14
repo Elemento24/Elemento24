@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think one of the things that language poets are very involved with is getting away from conventional ideas of beauty, because those ideas contain a certain attitude toward women, certain attitudes toward sex, certain attitudes toward race, etc.</b>
-> <p><i>Diane Wakoski</i></p>
+> <b>It's amazing to me that people have any interest in such a low-level sex scandal. If I were sleeping with a congressman, maybe, but I'm a nobody and the people I'm writing about are nobodies.</b>
+> <p><i>Jessica Cutler</i></p>
 
 <br>
