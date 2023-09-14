@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how much trouble you can get in when you don't have anything else to do.</b>
-> <p><i>Quincy Jones</i></p>
+> <b>The business of the advertiser is to see that we go about our business with some magic spell or tune or slogan throbbing quietly in the background of our minds.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
