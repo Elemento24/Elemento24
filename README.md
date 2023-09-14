@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you like a person you say 'let's go into business together.' Man is a social animal after all, but such partnerships are fraught with danger.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>Doorman - a genius who can open the door of your car with one hand, help you in with the other, and still have one left for the tip.</b>
+> <p><i>Dorothy Kilgallen</i></p>
 
 <br>
