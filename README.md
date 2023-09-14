@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude is, if someone's going to criticize me, tell me to my face.</b>
-> <p><i>Simon Cowell</i></p>
+> <b>I really enjoy not getting in a car and running errands on bikes.</b>
+> <p><i>Stone Gossard</i></p>
 
 <br>
