@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Doorman - a genius who can open the door of your car with one hand, help you in with the other, and still have one left for the tip.</b>
-> <p><i>Dorothy Kilgallen</i></p>
+> <b>A cardinal principle of Total Quality escapes too many managers: you cannot continuously improve interdependent systems and processes until you progressively perfect interdependent, interpersonal relationships.</b>
+> <p><i>Stephen Covey</i></p>
 
 <br>
