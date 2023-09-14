@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is really quite amazing that all of the folks supporting privatization, from the president on down, keep invoking the name of my grandfather, Franklin Delano Roosevelt.</b>
-> <p><i>James Roosevelt</i></p>
+> <b>Beauty is the still birth of suffering, every woman knows that.</b>
+> <p><i>Emily Prager</i></p>
 
 <br>
