@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Plant and your spouse plants with you weed and you weed alone.</b>
-> <p><i>Jean-Jacques Rousseau</i></p>
+> <b>The god whom science recognizes must be a God of universal laws exclusively, a God who does a wholesale, not a retail business. He cannot accommodate his processes to the convenience of individuals.</b>
+> <p><i>William James</i></p>
 
 <br>
