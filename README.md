@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dying is an art, like everything else. I do it exceptionally well. I do it so it feels like hell. I do it so it feels real. I guess you could say I've a call.</b>
-> <p><i>Sylvia Plath</i></p>
+> <b>A compromise is the art of dividing a cake in such a way that everyone believes he has the biggest piece.</b>
+> <p><i>Ludwig Erhard</i></p>
 
 <br>
