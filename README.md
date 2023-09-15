@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The trick is growing up without growing old.</b>
-> <p><i>Casey Stengel</i></p>
+> <b>I did not wish to take a cabin passage, but rather to go before the mast and on the deck of the world, for there I could best see the moonlight amid the mountains. I do not wish to go below now.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
