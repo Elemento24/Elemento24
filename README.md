@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was kind of a jock in school. Beauty wasn't something I spent a lot of time on.</b>
-> <p><i>Nina Dobrev</i></p>
+> <b>Oh! this opponent, this collaborator against your will, whose notion of beauty always differs from yours and whose means are often too limited for active assistance to your intentions!</b>
+> <p><i>Alexander Alekhine</i></p>
 
 <br>
