@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A compromise is the art of dividing a cake in such a way that everyone believes he has the biggest piece.</b>
-> <p><i>Ludwig Erhard</i></p>
+> <b>Employees make the best dates. You don't have to pick them up and they're always tax-deductible.</b>
+> <p><i>Andy Warhol</i></p>
 
 <br>
