@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to accept whatever comes and the only important thing is that you meet it with courage and with the best that you have to give.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>The past itself, as historical change continues to accelerate, has become the most surreal of subjects - making it possible... to see a new beauty in what is vanishing.</b>
+> <p><i>Susan Sontag</i></p>
 
 <br>
