@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>These days too many of us seem inclined to cover our ears, close our eyes, and blindly follow the most narrow, conservative tenets of religion or else seek comfort in the ancient traditions of New Age ritual.</b>
-> <p><i>Joan D. Vinge</i></p>
+> <b>Music is God's gift to man, the only art of Heaven given to earth, the only art of earth we take to Heaven.</b>
+> <p><i>Walter Savage Landor</i></p>
 
 <br>
