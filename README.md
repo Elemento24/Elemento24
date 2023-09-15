@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love my kids, and the moments I have with them, and it's kind of weird, it's such an age old cliche, but the way that my sons, the way they make me feel when I look at them, the way they say things, no one else would probably react to them, but it's a special thing for me.</b>
-> <p><i>Michael Rapaport</i></p>
+> <b>The Internet creates as well as destroys. Social networks, search advertising, and cloud computing are multibillion dollar industries that didn't exist 10 years ago. They are products of the same force that has rendered the Postal Service's core business obsolete.</b>
+> <p><i>John Sununu</i></p>
 
 <br>
