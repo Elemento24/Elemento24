@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The past itself, as historical change continues to accelerate, has become the most surreal of subjects - making it possible... to see a new beauty in what is vanishing.</b>
-> <p><i>Susan Sontag</i></p>
+> <b>I love my kids, and the moments I have with them, and it's kind of weird, it's such an age old cliche, but the way that my sons, the way they make me feel when I look at them, the way they say things, no one else would probably react to them, but it's a special thing for me.</b>
+> <p><i>Michael Rapaport</i></p>
 
 <br>
