@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My sister, she's amazing. She sort of inspired me to take this journey to Latin America.</b>
-> <p><i>Jenna Bush</i></p>
+> <b>High achievement always takes place in the framework of high expectation.</b>
+> <p><i>Charles Kettering</i></p>
 
 <br>
