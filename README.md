@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I liked the way they treated the first, second, and third place finishers equally. It was an amazing year. I only entered two song contests this year I won one and placed second in the other. And I entered each of them a day or two before the deadline.</b>
-> <p><i>Arthur Godfrey</i></p>
+> <b>It's amazing that something only an atom thick can be an impenetrable barrier. You can have gas on one side and vacuum or liquid on the other, and with a wall only one atom thick, nothing would go through it.</b>
+> <p><i>Paul McEuen</i></p>
 
 <br>
