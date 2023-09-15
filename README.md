@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our humor turns our anger into a fine art.</b>
-> <p><i>Mary Kay Blakely</i></p>
+> <b>I know from my own experience and from other people in the business that when you come from a place where nobody knew who you were and then there is this sudden shift to where everybody now knows who you are, there's an adjustment that you have to make.</b>
+> <p><i>Kristen Wiig</i></p>
 
 <br>
