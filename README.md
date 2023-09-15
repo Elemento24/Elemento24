@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Internet creates as well as destroys. Social networks, search advertising, and cloud computing are multibillion dollar industries that didn't exist 10 years ago. They are products of the same force that has rendered the Postal Service's core business obsolete.</b>
-> <p><i>John Sununu</i></p>
+> <b>I liked the way they treated the first, second, and third place finishers equally. It was an amazing year. I only entered two song contests this year I won one and placed second in the other. And I entered each of them a day or two before the deadline.</b>
+> <p><i>Arthur Godfrey</i></p>
 
 <br>
