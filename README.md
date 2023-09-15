@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I started running outside when I was at 'Biggest Loser.' Then I got runner's knee, and thought I was never going to be able to shake it. When I overcame that and ran the L.A. Marathon, it was such an amazing thing, and now running is such a part of my routine.</b>
-> <p><i>Alison Sweeney</i></p>
+> <b>I have the same attitude with work - I like to go to work, I like to work really hard I, like to give everything my all, I like to try things that are new, you know.</b>
+> <p><i>Rosie Huntington-Whiteley</i></p>
 
 <br>
