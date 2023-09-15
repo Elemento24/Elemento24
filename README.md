@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know from my own experience and from other people in the business that when you come from a place where nobody knew who you were and then there is this sudden shift to where everybody now knows who you are, there's an adjustment that you have to make.</b>
-> <p><i>Kristen Wiig</i></p>
+> <b>Kids are a huge sacrifice they change everything - but I'm ready to work for things of greater importance than going out to meet someone for dinner at 10 o'clock at night.</b>
+> <p><i>Katherine Heigl</i></p>
 
 <br>
