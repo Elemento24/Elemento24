@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diligence is the mother of good fortune, and idleness, its opposite, never brought a man to the goal of any of his best wishes.</b>
-> <p><i>Miguel de Cervantes</i></p>
+> <b>Contrary to general belief, I do not believe that friends are necessarily the people you like best, they are merely the people who got there first.</b>
+> <p><i>Peter Ustinov</i></p>
 
 <br>
