@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom FedExes a red velvet cake she makes from scratch to me every birthday.</b>
-> <p><i>Molly Sims</i></p>
+> <b>Always do your best. What you plant now, you will harvest later.</b>
+> <p><i>Og Mandino</i></p>
 
 <br>
