@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To study the abnormal is the best way of understanding the normal.</b>
-> <p><i>William James</i></p>
+> <b>Old age is an excellent time for outrage. My goal is to say or do at least one outrageous thing every week.</b>
+> <p><i>Louis Kronenberger</i></p>
 
 <br>
