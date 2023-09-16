@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of my favorite beauty products is Vincent Longo Water Canvas creamy blush. I have it in every color and I've been using it for 5 years and that's all I put on when I leave the house. It looks so natural I just put a little bit on my cheeks to give them some color.</b>
-> <p><i>Alessandra Ambrosio</i></p>
+> <b>The ruling ideas of each age have ever been the ideas of its ruling class.</b>
+> <p><i>Karl Marx</i></p>
 
 <br>
