@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let the beauty of what you love be what you do.</b>
-> <p><i>Rumi</i></p>
+> <b>It is amazing that it is my destiny to be the first Aussie to win the Masters.</b>
+> <p><i>Adam Derek Scott</i></p>
 
 <br>
