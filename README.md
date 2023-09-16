@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is an excellent time for outrage. My goal is to say or do at least one outrageous thing every week.</b>
-> <p><i>Louis Kronenberger</i></p>
+> <b>We have magnificent brains, but we use a great deal of our brilliance to keep ourselves stuck and ignorant, to keep ourselves from not shining. We are so afraid of our beauty and radiance and brilliance because it scared the adults around us when we were children.</b>
+> <p><i>Patricia Sun</i></p>
 
 <br>
