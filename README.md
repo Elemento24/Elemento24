@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing that it is my destiny to be the first Aussie to win the Masters.</b>
-> <p><i>Adam Derek Scott</i></p>
+> <b>If there is anything I would do differently in my life, it is that I would study business more. I'm trying to teach my daughter Chloe at an early age about investing and money so she's not afraid of it.</b>
+> <p><i>Donna Mills</i></p>
 
 <br>
