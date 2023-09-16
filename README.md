@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Where is there beauty when you see deprivation and starvation?</b>
-> <p><i>Rosalind Russell</i></p>
+> <b>My mom FedExes a red velvet cake she makes from scratch to me every birthday.</b>
+> <p><i>Molly Sims</i></p>
 
 <br>
