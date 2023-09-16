@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is whatever you think it is. You are as old as you think you are.</b>
-> <p><i>Muhammad Ali</i></p>
+> <b>Winning 'The Apprentice' changed my life in ways I could never have imagined. It has been an amazing experience working for Donald Trump and I am very grateful for the whole opportunity.</b>
+> <p><i>Bill Rancic</i></p>
 
 <br>
