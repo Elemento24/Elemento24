@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Contrary to general belief, I do not believe that friends are necessarily the people you like best, they are merely the people who got there first.</b>
-> <p><i>Peter Ustinov</i></p>
+> <b>Age is whatever you think it is. You are as old as you think you are.</b>
+> <p><i>Muhammad Ali</i></p>
 
 <br>
