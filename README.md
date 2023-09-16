@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ah, mon cher, for anyone who is alone, without God and without a master, the weight of days is dreadful.</b>
-> <p><i>Albert Camus</i></p>
+> <b>This is the precept by which I have lived: Prepare for the worst expect the best and take what comes.</b>
+> <p><i>Hannah Arendt</i></p>
 
 <br>
