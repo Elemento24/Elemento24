@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The philosophies of one age have become the absurdities of the next, and the foolishness of yesterday has become the wisdom of tomorrow.</b>
-> <p><i>William Osler</i></p>
+> <b>Many museums are drawing audiences with art that is ostensibly more entertaining than stuff that just sits and invites contemplation. Interactivity, gizmos, eating, hanging out, things that make noise - all are now the norm, often edging out much else.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
