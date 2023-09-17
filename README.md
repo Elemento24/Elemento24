@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now I know that Wal-Mart's policies do not reflect the best way of doing business and the values that I think are important in America.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>I've had a very interesting career. I get to do amazing things and work with amazing people and travel and learn languages - things most people don't get the opportunity to do.</b>
+> <p><i>Gwyneth Paltrow</i></p>
 
 <br>
