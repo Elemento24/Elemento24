@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture and building is about how you get around the obstacles that are presented to you. That sometimes determines how successful you'll be: How good are you at going around obstacles?</b>
-> <p><i>Jeremy Renner</i></p>
+> <b>There is small risk a general will be regarded with contempt by those he leads, if, whatever he may have to preach, he shows himself best able to perform.</b>
+> <p><i>Xenophon</i></p>
 
 <br>
