@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had a very interesting career. I get to do amazing things and work with amazing people and travel and learn languages - things most people don't get the opportunity to do.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>As his partner on this amazing journey, I can tell you Mitt Romney was not handed success. He built it.</b>
+> <p><i>Ann Romney</i></p>
 
 <br>
