@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An art which isn't based on feeling isn't an art at all.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>If you think nobody cares if you're alive, try missing a couple of car payments.</b>
+> <p><i>Earl Wilson</i></p>
 
 <br>
