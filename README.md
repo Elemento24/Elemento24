@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As his partner on this amazing journey, I can tell you Mitt Romney was not handed success. He built it.</b>
-> <p><i>Ann Romney</i></p>
+> <b>But I think bands that rolled in with a big attitude, like they were some big deal, I just found that very strange.</b>
+> <p><i>Rob Zombie</i></p>
 
 <br>
