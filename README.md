@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every age develops its own peculiar forms of pathology, which express in exaggerated form its underlying character structure.</b>
-> <p><i>Christopher Lasch</i></p>
+> <b>Architecture and building is about how you get around the obstacles that are presented to you. That sometimes determines how successful you'll be: How good are you at going around obstacles?</b>
+> <p><i>Jeremy Renner</i></p>
 
 <br>
