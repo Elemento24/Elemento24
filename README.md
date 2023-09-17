@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the age when Bengali youth almost inevitably writes poetry, I was listening to European classical music.</b>
-> <p><i>Satyajit Ray</i></p>
+> <b>In fact, in many ways my mother was quite hippy-dippy, serving macrobiotic food and reading 'Zen and the Art of Motorcycle Maintenance.'</b>
+> <p><i>Kristin Scott Thomas</i></p>
 
 <br>
