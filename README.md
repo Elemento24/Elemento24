@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Actually I think Art lies in both directions - the broad strokes, big picture but on the other hand the minute examination of the apparently mundane. Seeing the whole world in a grain of sand, that kind of thing.</b>
-> <p><i>Peter Hammill</i></p>
+> <b>Now I know that Wal-Mart's policies do not reflect the best way of doing business and the values that I think are important in America.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
