@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the things I've always personally tried to stress with this band was to have some kind of visual aspect and to be consistent with it - like, not to change.</b>
-> <p><i>Peter Steele</i></p>
+> <b>Look your best - who said love is blind?</b>
+> <p><i>Mae West</i></p>
 
 <br>
