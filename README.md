@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes, sir, a patrol car came and took me down to a station where they were trying to develop films, but they hadn't got the facilities to develop colored film.</b>
-> <p><i>Abraham Zapruder</i></p>
+> <b>Yet what you need is not marches, demonstrations, rallies or wide associations, all of them are important. What you need is direct action. The sooner people understand that, the sooner we'll begin to change things.</b>
+> <p><i>Arthur Scargill</i></p>
 
 <br>
