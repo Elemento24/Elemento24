@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It sounds like something from a Woody Guthrie song, but it's true I was raised in a freight car.</b>
-> <p><i>Merle Haggard</i></p>
+> <b>Since I wrote to you last we have got our chapel beautifully lighted with gas and have had our anniversary.</b>
+> <p><i>John Hawley</i></p>
 
 <br>
