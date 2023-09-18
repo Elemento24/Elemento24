@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The aesthetic of architecture has to be rooted in a broader idea about human activities like walking, relaxing and communicating. Architecture thinks about how these activities can be given added value.</b>
-> <p><i>Thom Mayne</i></p>
+> <b>It sounds like something from a Woody Guthrie song, but it's true I was raised in a freight car.</b>
+> <p><i>Merle Haggard</i></p>
 
 <br>
