@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of leadership is saying no, not saying yes. It is very easy to say yes.</b>
-> <p><i>Tony Blair</i></p>
+> <b>I've actually spent a lot of time researching beauty products, how they are produced and how they are sold.</b>
+> <p><i>Lauren Conrad</i></p>
 
 <br>
