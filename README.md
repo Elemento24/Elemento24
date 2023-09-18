@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architects in the past have tended to concentrate their attention on the building as a static object. I believe dynamics are more important: the dynamics of people, their interaction with spaces and environmental condition.</b>
-> <p><i>John Portman</i></p>
+> <b>Men do change, and change comes like a little wind that ruffles the curtains at dawn, and it comes like the stealthy perfume of wildflowers hidden in the grass.</b>
+> <p><i>John Steinbeck</i></p>
 
 <br>
