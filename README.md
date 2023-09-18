@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well I do find the beauty in animals. I find beauty everywhere. I find beauty in my garden.</b>
-> <p><i>Doris Day</i></p>
+> <b>The right really dominates radio, and it's amazing how much energy the right spends telling us that the press is slanted to the left when it really isn't. They want to shut other people up. They really don't understand the First Amendment.</b>
+> <p><i>Roger Ebert</i></p>
 
 <br>
