@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I got a phone call from Fearne Cotton. It was amazing! I literally couldn't believe it. It was so cool. It was the night before I was going on her show to sing on the 'Live Lounge.' She was so lovely.</b>
-> <p><i>Birdy</i></p>
+> <b>A budget tells us what we can't afford, but it doesn't keep us from buying it.</b>
+> <p><i>William Feather</i></p>
 
 <br>
