@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yet what you need is not marches, demonstrations, rallies or wide associations, all of them are important. What you need is direct action. The sooner people understand that, the sooner we'll begin to change things.</b>
-> <p><i>Arthur Scargill</i></p>
+> <b>If people don't like me for whatever I do, for being me, then that's too bad. I don't want to change to be something that I'm not for other people to like me.</b>
+> <p><i>Vanessa Hudgens</i></p>
 
 <br>
