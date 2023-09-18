@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The golden age is before us, not behind us.</b>
-> <p><i>William Shakespeare</i></p>
+> <b>Yes, sir, a patrol car came and took me down to a station where they were trying to develop films, but they hadn't got the facilities to develop colored film.</b>
+> <p><i>Abraham Zapruder</i></p>
 
 <br>
