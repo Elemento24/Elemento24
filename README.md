@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The next thing I wrote was in a writing class at night school. It was about a poor woman who worked at a dime store and who was all alone for Christmas in Laurel, Mississippi.</b>
-> <p><i>Beth Henley</i></p>
+> <b>It's amazing how coke encompasses everything in your life. Addicts cannot confront life because they only think of their next hit. I ruined life for my parents, my sister and all my friends.</b>
+> <p><i>Kirstie Alley</i></p>
 
 <br>
