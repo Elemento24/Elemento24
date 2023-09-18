@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since I wrote to you last we have got our chapel beautifully lighted with gas and have had our anniversary.</b>
-> <p><i>John Hawley</i></p>
+> <b>Associate with men of good quality if you esteem your own reputation for it is better to be alone than in bad company.</b>
+> <p><i>George Washington</i></p>
 
 <br>
