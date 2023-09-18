@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people are born with a brain that has this weird, magical mathematical thing that makes them an amazing jazz musician.</b>
-> <p><i>Andy Richter</i></p>
+> <b>But I always think that the best way to know God is to love many things.</b>
+> <p><i>Vincent Van Gogh</i></p>
 
 <br>
