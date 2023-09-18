@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I always think that the best way to know God is to love many things.</b>
-> <p><i>Vincent Van Gogh</i></p>
+> <b>Judgment is not my business. Existing is my business.</b>
+> <p><i>Twyla Tharp</i></p>
 
 <br>
