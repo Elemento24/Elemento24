@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am married to the most amazing, generous and beautiful human being and it has been hard on him because from the outside if you look at it it's just all about me.</b>
-> <p><i>Emily Watson</i></p>
+> <b>I am very rich because of 'Chic' - artistically as well as spiritually. It's been an amazing life.</b>
+> <p><i>Nile Rodgers</i></p>
 
 <br>
