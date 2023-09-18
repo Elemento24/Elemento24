@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Judgment is not my business. Existing is my business.</b>
-> <p><i>Twyla Tharp</i></p>
+> <b>Well I do find the beauty in animals. I find beauty everywhere. I find beauty in my garden.</b>
+> <p><i>Doris Day</i></p>
 
 <br>
