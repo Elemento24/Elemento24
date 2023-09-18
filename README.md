@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how coke encompasses everything in your life. Addicts cannot confront life because they only think of their next hit. I ruined life for my parents, my sister and all my friends.</b>
-> <p><i>Kirstie Alley</i></p>
+> <b>The art of leadership is saying no, not saying yes. It is very easy to say yes.</b>
+> <p><i>Tony Blair</i></p>
 
 <br>
