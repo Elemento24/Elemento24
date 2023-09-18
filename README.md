@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A budget tells us what we can't afford, but it doesn't keep us from buying it.</b>
-> <p><i>William Feather</i></p>
+> <b>All great change in America begins at the dinner table.</b>
+> <p><i>Ronald Reagan</i></p>
 
 <br>
