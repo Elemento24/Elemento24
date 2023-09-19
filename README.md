@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They can do without architecture who have no olives nor wines in the cellar.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Turbulence is life force. It is opportunity. Let's love turbulence and use it for change.</b>
+> <p><i>Ramsey Clark</i></p>
 
 <br>
