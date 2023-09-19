@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Turbulence is life force. It is opportunity. Let's love turbulence and use it for change.</b>
-> <p><i>Ramsey Clark</i></p>
+> <b>I know a lot of Eastern Europeans, and because of what they have been through and what they have seen, they have an attitude where they are not easily fooled.</b>
+> <p><i>Francine Prose</i></p>
 
 <br>
