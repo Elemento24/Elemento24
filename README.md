@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once you take yourself too seriously the art will suffer.</b>
-> <p><i>Maynard James Keenan</i></p>
+> <b>The plainer the dress, the greater luster does beauty appear.</b>
+> <p><i>Edward F. Halifax</i></p>
 
 <br>
