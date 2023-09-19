@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know a lot of Eastern Europeans, and because of what they have been through and what they have seen, they have an attitude where they are not easily fooled.</b>
-> <p><i>Francine Prose</i></p>
+> <b>Dick Van Dyke was my first idol. He's an amazing physical comedian, like a classic clown, but also very smart and not afraid to show vulnerability.</b>
+> <p><i>Douglas Wood</i></p>
 
 <br>
