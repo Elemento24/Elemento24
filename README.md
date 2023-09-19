@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Associate with men of good quality if you esteem your own reputation for it is better to be alone than in bad company.</b>
-> <p><i>George Washington</i></p>
+> <b>Big dress, cocktails, party - I love that. It is my work, but my work allow me to have glamour, to wear beautiful and amazing dresses, to go to big ceremonies.</b>
+> <p><i>Paz Vega</i></p>
 
 <br>
