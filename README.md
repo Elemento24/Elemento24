@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Big dress, cocktails, party - I love that. It is my work, but my work allow me to have glamour, to wear beautiful and amazing dresses, to go to big ceremonies.</b>
-> <p><i>Paz Vega</i></p>
+> <b>Liberalism is a really old British tradition and it has a completely different attitude towards the individual and the relationship between the individual and the state than the collectivist response of Labour, and particularly Old Labour, does.</b>
+> <p><i>Nick Clegg</i></p>
 
 <br>
