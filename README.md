@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dick Van Dyke was my first idol. He's an amazing physical comedian, like a classic clown, but also very smart and not afraid to show vulnerability.</b>
-> <p><i>Douglas Wood</i></p>
+> <b>As an elder of the Americas and of the rest of the planet, it is my responsibility to care for and protect, to the best of my ability, the young.</b>
+> <p><i>Alice Walker</i></p>
 
 <br>
