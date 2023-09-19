@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One change always leaves the way open for the establishment of others.</b>
-> <p><i>Niccolo Machiavelli</i></p>
+> <b>Once you take yourself too seriously the art will suffer.</b>
+> <p><i>Maynard James Keenan</i></p>
 
 <br>
