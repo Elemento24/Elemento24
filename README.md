@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The plainer the dress, the greater luster does beauty appear.</b>
-> <p><i>Edward F. Halifax</i></p>
+> <b>I had wanted a tape recorder since I was tiny. I thought it was a magic thing. I never got one until just before I went to art school.</b>
+> <p><i>Brian Eno</i></p>
 
 <br>
