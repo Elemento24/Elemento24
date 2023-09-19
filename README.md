@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If left unchecked, global change will create violent conflict, torrential storms, shrinking coastlines, and irreversible catastrophe.</b>
-> <p><i>Valerie Jarrett</i></p>
+> <b>When you retire, it's a place in life, a part of the journey. You just don't quit work you develop an attitude where you can do what you please.</b>
+> <p><i>Tom T. Hall</i></p>
 
 <br>
