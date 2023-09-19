@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Best to live lightly, unthinkingly.</b>
-> <p><i>Sophocles</i></p>
+> <b>Never go to bed mad. Stay up and fight.</b>
+> <p><i>Phyllis Diller</i></p>
 
 <br>
