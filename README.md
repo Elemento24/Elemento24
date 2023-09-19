@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To command is to serve, nothing more and nothing less.</b>
-> <p><i>Andre Malraux</i></p>
+> <b>Try to keep your soul young and quivering right up to old age.</b>
+> <p><i>George Sand</i></p>
 
 <br>
