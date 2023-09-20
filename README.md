@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother is a big believer in being responsible for your own happiness. She always talked about finding joy in small moments and insisted that we stop and take in the beauty of an ordinary day. When I stop the car to make my kids really see a sunset, I hear my mother's voice and smile.</b>
-> <p><i>Jennifer Garner</i></p>
+> <b>A lot of fun stuff happens when you go out on a bike compared to when you're in a car. You're more in the environment. It's enjoyable. Even when It's raining It's still fun.</b>
+> <p><i>Stone Gossard</i></p>
 
 <br>
