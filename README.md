@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In all my career, in my ups and downs, I've never had a beauty campaign. This was meaningful that at almost 41 years old, I could be getting my first beauty campaign. It made me feel really great.</b>
-> <p><i>Teri Hatcher</i></p>
+> <b>If you change partners every time it gets tough or you get a little dissatisfied, then I don't think you get the richness that's available in a long-term relationship.</b>
+> <p><i>Jeff Bridges</i></p>
 
 <br>
