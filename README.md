@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The purely agitational attitude is not good enough for a detailed consideration of a subject.</b>
-> <p><i>Jawaharlal Nehru</i></p>
+> <b>With just about every player in Australia, his whole goal and ambition is to play for Australia. That's why they're playing first class cricket. It's just a different attitude.</b>
+> <p><i>Shane Warne</i></p>
 
 <br>
