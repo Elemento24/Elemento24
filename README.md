@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am more a friend of art than a producer of painting.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Men do change, and change comes like a little wind that ruffles the curtains at dawn, and it comes like the stealthy perfume of wildflowers hidden in the grass.</b>
+> <p><i>John Steinbeck</i></p>
 
 <br>
