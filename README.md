@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With just about every player in Australia, his whole goal and ambition is to play for Australia. That's why they're playing first class cricket. It's just a different attitude.</b>
-> <p><i>Shane Warne</i></p>
+> <b>The reason can only be this: heroic poetry depends on an heroic age, and an age is heroic because of what it is, not because of what it does.</b>
+> <p><i>Lascelles Abercrombie</i></p>
 
 <br>
