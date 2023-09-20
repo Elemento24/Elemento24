@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Geoengineering - the deliberate, large-scale manipulation of the earth's climate to offset global warming - is a nightmare fix for climate change.</b>
-> <p><i>Jeff Goodell</i></p>
+> <b>All cities are mad: but the madness is gallant. All cities are beautiful: but the beauty is grim.</b>
+> <p><i>Christopher Morley</i></p>
 
 <br>
