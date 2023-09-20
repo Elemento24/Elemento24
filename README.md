@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of fun stuff happens when you go out on a bike compared to when you're in a car. You're more in the environment. It's enjoyable. Even when It's raining It's still fun.</b>
-> <p><i>Stone Gossard</i></p>
+> <b>The ever increasing spiritual damage caused by life within the big city will make this hunger practically uncontrollable when we build here on this the landscape of our homeland we must be clear that we will protect its beauty.</b>
+> <p><i>Fritz Todt</i></p>
 
 <br>
