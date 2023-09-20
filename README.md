@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If people in the media cannot decide whether they are in the business of reporting news or manufacturing propaganda, it is all the more important that the public understand that difference, and choose their news sources accordingly.</b>
-> <p><i>Thomas Sowell</i></p>
+> <b>If you want to change the culture, you will have to start by changing the organization.</b>
+> <p><i>Mary Douglas</i></p>
 
 <br>
