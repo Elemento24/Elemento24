@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our business is infested with idiots who try to impress by using pretentious jargon.</b>
-> <p><i>David Ogilvy</i></p>
+> <b>The awesomeness of God is that even in the works of the Beach Boys, Beatles, etc., the beauty of the music is a mere reflection of what God does everyday. He creates music of all kinds and moods.</b>
+> <p><i>John Foster</i></p>
 
 <br>
