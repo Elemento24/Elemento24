@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cynical realism is the intelligent man's best excuse for doing nothing in an intolerable situation.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>It is the addition of strangeness to beauty that constitutes the romantic character in art.</b>
+> <p><i>Walter Hagen</i></p>
 
 <br>
