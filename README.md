@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the addition of strangeness to beauty that constitutes the romantic character in art.</b>
-> <p><i>Walter Hagen</i></p>
+> <b>Geoengineering - the deliberate, large-scale manipulation of the earth's climate to offset global warming - is a nightmare fix for climate change.</b>
+> <p><i>Jeff Goodell</i></p>
 
 <br>
