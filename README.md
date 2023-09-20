@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you change partners every time it gets tough or you get a little dissatisfied, then I don't think you get the richness that's available in a long-term relationship.</b>
-> <p><i>Jeff Bridges</i></p>
+> <b>Cynical realism is the intelligent man's best excuse for doing nothing in an intolerable situation.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
