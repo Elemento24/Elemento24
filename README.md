@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men do change, and change comes like a little wind that ruffles the curtains at dawn, and it comes like the stealthy perfume of wildflowers hidden in the grass.</b>
-> <p><i>John Steinbeck</i></p>
+> <b>Mass transportation is doomed to failure in North America because a person's car is the only place where he can be alone and think.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
