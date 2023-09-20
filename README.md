@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to change the culture, you will have to start by changing the organization.</b>
-> <p><i>Mary Douglas</i></p>
+> <b>I am more a friend of art than a producer of painting.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
