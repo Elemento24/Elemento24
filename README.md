@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ever increasing spiritual damage caused by life within the big city will make this hunger practically uncontrollable when we build here on this the landscape of our homeland we must be clear that we will protect its beauty.</b>
-> <p><i>Fritz Todt</i></p>
+> <b>Our business is infested with idiots who try to impress by using pretentious jargon.</b>
+> <p><i>David Ogilvy</i></p>
 
 <br>
