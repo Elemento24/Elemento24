@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ah, mon cher, for anyone who is alone, without God and without a master, the weight of days is dreadful.</b>
-> <p><i>Albert Camus</i></p>
+> <b>And I want to do it the right way, like everybody else, not just a famous figurehead that gets a job because he is a famous basketball player. I want to really learn the business.</b>
+> <p><i>Shaquille O'Neal</i></p>
 
 <br>
