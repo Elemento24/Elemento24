@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always loved music. You know, my parents said I started singing when I was 4, in the car.</b>
-> <p><i>Bob Seger</i></p>
+> <b>I feel sorry for people who don't drink. They wake up in the morning and that's the best they're going to feel all day.</b>
+> <p><i>Dean Martin</i></p>
 
 <br>
