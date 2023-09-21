@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our language has wisely sensed the two sides of being alone. It has created the word loneliness to express the pain of being alone. And it has created the word solitude to express the glory of being alone.</b>
-> <p><i>Paul Tillich</i></p>
+> <b>Freedom is the sure possession of those alone who have the courage to defend it.</b>
+> <p><i>Pericles</i></p>
 
 <br>
