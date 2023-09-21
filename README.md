@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is danger in reckless change, but greater danger in blind conservatism.</b>
-> <p><i>Henry George</i></p>
+> <b>I try to push ideas away, and the ones that will not leave me alone are the ones that ultimately end up happening.</b>
+> <p><i>J. J. Abrams</i></p>
 
 <br>
