@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I try to push ideas away, and the ones that will not leave me alone are the ones that ultimately end up happening.</b>
-> <p><i>J. J. Abrams</i></p>
+> <b>A dream you dream alone is only a dream. A dream you dream together is a reality.</b>
+> <p><i>Yoko Ono</i></p>
 
 <br>
