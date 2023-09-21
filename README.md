@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An important work of architecture will create polemics.</b>
-> <p><i>Richard Meier</i></p>
+> <b>If men knew how women pass the time when they are alone, they'd never marry.</b>
+> <p><i>O. Henry</i></p>
 
 <br>
