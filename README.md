@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Medicine is not only a science it is also an art. It does not consist of compounding pills and plasters it deals with the very processes of life, which must be understood before they may be guided.</b>
-> <p><i>Paracelsus</i></p>
+> <b>The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination.</b>
+> <p><i>Elbert Hubbard</i></p>
 
 <br>
