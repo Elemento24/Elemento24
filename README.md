@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yet for my part, deeply as I am moved by the religious architecture of the Middle Ages, I cannot honestly say that I ever felt the slightest emotion in any modern Gothic church.</b>
-> <p><i>Goldwin Smith</i></p>
+> <b>Our language has wisely sensed the two sides of being alone. It has created the word loneliness to express the pain of being alone. And it has created the word solitude to express the glory of being alone.</b>
+> <p><i>Paul Tillich</i></p>
 
 <br>
