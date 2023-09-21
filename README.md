@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By far my most perilous assignment was covering a tank car explosion.</b>
-> <p><i>Jessica Savitch</i></p>
+> <b>An important work of architecture will create polemics.</b>
+> <p><i>Richard Meier</i></p>
 
 <br>
