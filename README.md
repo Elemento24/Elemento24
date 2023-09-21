@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Show me a man who lives alone and has a perpetually clean kitchen, and 8 times out of 9 I'll show you a man with detestable spiritual qualities.</b>
-> <p><i>Charles Bukowski</i></p>
+> <b>Beauty is first and foremost an emotion.</b>
+> <p><i>Tahar Ben Jelloun</i></p>
 
 <br>
