@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Enjoying success requires the ability to adapt. Only by being open to change will you have a true opportunity to get the most from your talent.</b>
-> <p><i>Nolan Ryan</i></p>
+> <b>Those who love deeply never grow old they may die of old age, but they die young.</b>
+> <p><i>Dorothy Canfield Fisher</i></p>
 
 <br>
