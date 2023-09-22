@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader.</b>
-> <p><i>Ben Okri</i></p>
+> <b>If liberty and equality, as is thought by some, are chiefly to be found in democracy, they will be best attained when all persons alike share in government to the utmost.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
