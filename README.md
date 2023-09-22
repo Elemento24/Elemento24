@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody talks about wanting to change things and help and fix, but ultimately all you can do is fix yourself. And that's a lot. Because if you can fix yourself, it has a ripple effect.</b>
-> <p><i>Rob Reiner</i></p>
+> <b>There is a Japanese proverb that literally goes 'Raise the sail with your stronger hand,' meaning you must go after the opportunities that arise in life that you are best equipped to do.</b>
+> <p><i>Soichiro Honda</i></p>
 
 <br>
