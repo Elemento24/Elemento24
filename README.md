@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I try to contrast life today is full of contrast... We have to change.</b>
-> <p><i>Gianni Versace</i></p>
+> <b>The employee is regarded by the employer merely in the light of his value as an operative. His productive capacity alone is taken into account.</b>
+> <p><i>Leland Stanford</i></p>
 
 <br>
