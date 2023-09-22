@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm alone, I can sleep crossways in bed without an argument.</b>
-> <p><i>Zsa Zsa Gabor</i></p>
+> <b>All things are artificial, for nature is the art of God.</b>
+> <p><i>Thomas Browne</i></p>
 
 <br>
