@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If liberty and equality, as is thought by some, are chiefly to be found in democracy, they will be best attained when all persons alike share in government to the utmost.</b>
-> <p><i>Aristotle</i></p>
+> <b>When I'm alone, I can sleep crossways in bed without an argument.</b>
+> <p><i>Zsa Zsa Gabor</i></p>
 
 <br>
