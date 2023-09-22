@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age carries all things away, even the mind.</b>
-> <p><i>Virgil</i></p>
+> <b>I try to contrast life today is full of contrast... We have to change.</b>
+> <p><i>Gianni Versace</i></p>
 
 <br>
