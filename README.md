@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have to make America the best place in the world to do business.</b>
-> <p><i>Dick Cheney</i></p>
+> <b>Beauty is merciless. You do not look at it, it looks at you and does not forgive.</b>
+> <p><i>Nikos Kazantzakis</i></p>
 
 <br>
