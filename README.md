@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There was a time in my life when I thought I had everything - millions of dollars, mansions, cars, nice clothes, beautiful women, and every other materialistic thing you can imagine. Now I struggle for peace.</b>
-> <p><i>Richard Pryor</i></p>
+> <b>If you walk down the street and smile at someone, that will get passed on to the next person. That has the power to change someone's day.</b>
+> <p><i>Julianna Margulies</i></p>
 
 <br>
