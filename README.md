@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is a case of mind over matter. If you don't mind, it don't matter.</b>
-> <p><i>Satchel Paige</i></p>
+> <b>If I can inspire people by showing that following a dream by working hard and being determined is possible, it's amazing.</b>
+> <p><i>Leona Lewis</i></p>
 
 <br>
