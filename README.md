@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The real business of life is trying to understand each other.</b>
-> <p><i>Gilbert Parker</i></p>
+> <b>A man can be himself only so long as he is alone.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
