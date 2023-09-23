@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So I did in fact spend two and a half years in the Middlesbrough car park practising skills. But if you spend four or five or six hours a day practising, you get better.</b>
-> <p><i>Craig Johnston</i></p>
+> <b>It isn't enough just to scream at the Occupy Wall Street demonstrations. We need our political system to start reflect this anger back into, 'How do we fix it? How do we get the economy going again?'</b>
+> <p><i>Colin Powell</i></p>
 
 <br>
