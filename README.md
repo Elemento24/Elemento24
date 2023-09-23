@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A leader does not deserve the name unless he is willing occasionally to stand alone.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>There was a time in my life when I thought I had everything - millions of dollars, mansions, cars, nice clothes, beautiful women, and every other materialistic thing you can imagine. Now I struggle for peace.</b>
+> <p><i>Richard Pryor</i></p>
 
 <br>
