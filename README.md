@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is merciless. You do not look at it, it looks at you and does not forgive.</b>
-> <p><i>Nikos Kazantzakis</i></p>
+> <b>Age is a case of mind over matter. If you don't mind, it don't matter.</b>
+> <p><i>Satchel Paige</i></p>
 
 <br>
