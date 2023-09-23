@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>ER was one of my favourites. I played a car accident victim who has leukemia. I got to wear a neck brace and nose tubes for the two days I worked.</b>
-> <p><i>Dakota Fanning</i></p>
+> <b>I'm not trying to stump anybody... it's the beauty of the language that I'm interested in.</b>
+> <p><i>Buddy Holly</i></p>
 
 <br>
