@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Customs and convictions change respectable people are the last to know, or to admit, the change, and the ones most offended by fresh reflections of the facts in the mirror of art.</b>
-> <p><i>John Updike</i></p>
+> <b>Art and works of art do not make an artist sense and enthusiasm and instinct do.</b>
+> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
 
 <br>
