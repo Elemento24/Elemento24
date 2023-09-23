@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The splendid discontent of God With chaos made the world. And from the discontent of man The worlds best progress springs.</b>
-> <p><i>Ella Wheeler Wilcox</i></p>
+> <b>The real business of life is trying to understand each other.</b>
+> <p><i>Gilbert Parker</i></p>
 
 <br>
