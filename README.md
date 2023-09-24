@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We come in many different shapes and sizes, and we need to support each other and our differences. Our beauty is in our differences.</b>
-> <p><i>Carre Otis</i></p>
+> <b>'Healing,' Papa would tell me, 'is not a science, but the intuitive art of wooing nature.'</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
