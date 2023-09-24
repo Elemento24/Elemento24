@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I change during the course of a day. I wake and I'm one person, and when I go to sleep I know for certain I'm somebody else.</b>
-> <p><i>Bob Dylan</i></p>
+> <b>Drawing is like making an expressive gesture with the advantage of permanence.</b>
+> <p><i>Henri Matisse</i></p>
 
 <br>
