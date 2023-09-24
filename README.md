@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age, like distance lends a double charm.</b>
-> <p><i>Oliver Herford</i></p>
+> <b>Change your opinions, keep to your principles change your leaves, keep intact your roots.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
