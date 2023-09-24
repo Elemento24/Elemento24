@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Drawing is like making an expressive gesture with the advantage of permanence.</b>
-> <p><i>Henri Matisse</i></p>
+> <b>To be perfectly honest, I think that as I'm growing older, I'm just growing more impatient. I'll be very happy if at some point people say, 'Michael's grown wiser and softer in his old age.' But we'll have to wait and see what my next project is.</b>
+> <p><i>Michael Haneke</i></p>
 
 <br>
