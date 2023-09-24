@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is an outward gift, which is seldom despised, except by those to whom it has been refused.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>I guess winning an Oscar is the ultimate dream. A lot of amazing actors go their whole career without even being nominated. So that would definitely be a goal to reach. It's a difficult one, but I'm aiming for it!</b>
+> <p><i>Taylor Lautner</i></p>
 
 <br>
