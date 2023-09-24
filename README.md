@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always vote for principle, though you may vote alone, and you may cherish the sweetest reflection that your vote is never lost.</b>
-> <p><i>John Quincy Adams</i></p>
+> <b>A few years back, when my style was 'punk grandma,' I picked up an amazing pair of sandals - orthopaedic ones, with really thick soles. I've given them away to a friend now, because these days my look is more '1980s substitute teacher gone wild.'</b>
+> <p><i>Beth Ditto</i></p>
 
 <br>
