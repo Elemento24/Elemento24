@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old minds are like old horses you must exercise them if you wish to keep them in working order.</b>
-> <p><i>John Adams</i></p>
+> <b>When you start suppressing feelings at an early age, it hurts you down the road. Full expression of anger and pain is very important.</b>
+> <p><i>Andrew Shue</i></p>
 
 <br>
