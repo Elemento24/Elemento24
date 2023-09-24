@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a joke to think that anyone is one thing. We're all such complex creatures. But if I'm going to be a poster child for anything, anger's a gorgeous emotion. It gets a bad rap, but it can make great changes happen.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>I was able to do To Sleep with Anger, a very powerful film about African Americans, their spirituality, and the things that happened within a small community and a family.</b>
+> <p><i>Danny Glover</i></p>
 
 <br>
