@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Healing,' Papa would tell me, 'is not a science, but the intuitive art of wooing nature.'</b>
-> <p><i>W. H. Auden</i></p>
+> <b>Age, like distance lends a double charm.</b>
+> <p><i>Oliver Herford</i></p>
 
 <br>
