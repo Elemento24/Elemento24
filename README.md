@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the highest wisdom that I own freedom and life are earned by those alone who conquer them each day anew.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>It's a joke to think that anyone is one thing. We're all such complex creatures. But if I'm going to be a poster child for anything, anger's a gorgeous emotion. It gets a bad rap, but it can make great changes happen.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
