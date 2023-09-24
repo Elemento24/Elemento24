@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger: an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>I change during the course of a day. I wake and I'm one person, and when I go to sleep I know for certain I'm somebody else.</b>
+> <p><i>Bob Dylan</i></p>
 
 <br>
