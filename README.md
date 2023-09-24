@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change your opinions, keep to your principles change your leaves, keep intact your roots.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>Old minds are like old horses you must exercise them if you wish to keep them in working order.</b>
+> <p><i>John Adams</i></p>
 
 <br>
