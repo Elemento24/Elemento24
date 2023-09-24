@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A few years back, when my style was 'punk grandma,' I picked up an amazing pair of sandals - orthopaedic ones, with really thick soles. I've given them away to a friend now, because these days my look is more '1980s substitute teacher gone wild.'</b>
-> <p><i>Beth Ditto</i></p>
+> <b>I really wanted there to be something in my life that I enjoy just for the beauty of it.</b>
+> <p><i>Robert Caro</i></p>
 
 <br>
