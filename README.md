@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you start suppressing feelings at an early age, it hurts you down the road. Full expression of anger and pain is very important.</b>
-> <p><i>Andrew Shue</i></p>
+> <b>One of the many things nobody ever tells you about middle age is that it's such a nice change from being young.</b>
+> <p><i>William Feather</i></p>
 
 <br>
