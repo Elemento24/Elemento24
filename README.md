@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some painters transform the sun into a yellow spot, others transform a yellow spot into the sun.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>I'd love to work with Sufjan Stevens. He so gets it. He's amazing.</b>
+> <p><i>Lee DeWyze</i></p>
 
 <br>
