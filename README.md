@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have been in Formula One for 12 years, and out of that I had one year with the perfect car.</b>
-> <p><i>Michael Schumacher</i></p>
+> <b>Noble life demands a noble architecture for noble uses of noble men. Lack of culture means what it has always meant: ignoble civilization and therefore imminent downfall.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
