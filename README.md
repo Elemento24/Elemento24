@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love the art in yourself and not yourself in the art.</b>
-> <p><i>Constantin Stanislavski</i></p>
+> <b>There are people in the world who have the power to change our values.</b>
+> <p><i>John Mayer</i></p>
 
 <br>
