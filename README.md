@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being a teenager is an amazing time and a hard time. It's when you make your best friends - I have girls who will never leave my heart and I still talk to. You get the best and the worst as a teen. You have the best friendships and the worst heartbreaks.</b>
-> <p><i>Sophia Bush</i></p>
+> <b>That attitude toward women as objects may have worked for the late Sixties, but it doesn't do so now.</b>
+> <p><i>John Schlesinger</i></p>
 
 <br>
