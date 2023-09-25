@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are people in the world who have the power to change our values.</b>
-> <p><i>John Mayer</i></p>
+> <b>The worst disease which can afflict business executives in their work is not, as popularly supposed, alcoholism it's egotism.</b>
+> <p><i>Harold S. Geneen</i></p>
 
 <br>
