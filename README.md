@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On July 18, we will mark the 12th anniversary of the senseless loss of 85 lives in the bombing of the Jewish Cultural Center in Buenos Aires, Argentina.</b>
-> <p><i>Tom Lantos</i></p>
+> <b>The winner's edge is not in a gifted birth, a high IQ, or in talent. The winner's edge is all in the attitude, not aptitude. Attitude is the criterion for success.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
