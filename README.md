@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The success I have achieved in bodybuilding, motion pictures, and business would not have been possible without the generosity of the American people and the freedom here to pursue your dreams.</b>
-> <p><i>Arnold Schwarzenegger</i></p>
+> <b>I believed my story would be helpful to young women my daughter's age, who are still in the process of forming themselves as women, and in need of encouragement to remain true to themselves.</b>
+> <p><i>Joyce Maynard</i></p>
 
 <br>
