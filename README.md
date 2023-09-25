@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'UFO's' attitude toward the subject is very similar to mine. It's not an advocacy its philosophy is more 'I want to believe this, but I want it proved.'</b>
-> <p><i>Dwight Schultz</i></p>
+> <b>Every man is born as many men and dies as a single one.</b>
+> <p><i>Martin Heidegger</i></p>
 
 <br>
