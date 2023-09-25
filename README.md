@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That attitude toward women as objects may have worked for the late Sixties, but it doesn't do so now.</b>
-> <p><i>John Schlesinger</i></p>
+> <b>Change of weather is the discourse of fools.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
