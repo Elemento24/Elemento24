@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The winner's edge is not in a gifted birth, a high IQ, or in talent. The winner's edge is all in the attitude, not aptitude. Attitude is the criterion for success.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>As a body everyone is single, as a soul never.</b>
+> <p><i>Hermann Hesse</i></p>
 
 <br>
