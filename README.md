@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Among the best traitors Ireland has ever had, Mother Church ranks at the very top, a massive obstacle in the path to equality and freedom. She has been a force for conservatism... to ward off threats to her own security and influence.</b>
-> <p><i>Bernadette Devlin</i></p>
+> <b>Men of age object too much, consult too long, adventure too little, repent too soon, and seldom drive business home to the full period, but content themselves with a mediocrity of success.</b>
+> <p><i>Dale Carnegie</i></p>
 
 <br>
