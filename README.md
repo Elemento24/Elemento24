@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Translation is the art of failure.</b>
-> <p><i>Umberto Eco</i></p>
+> <b>Some painters transform the sun into a yellow spot, others transform a yellow spot into the sun.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
