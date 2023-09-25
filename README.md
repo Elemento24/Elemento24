@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd love to work with Sufjan Stevens. He so gets it. He's amazing.</b>
-> <p><i>Lee DeWyze</i></p>
+> <b>What is an adult? A child blown up by age.</b>
+> <p><i>Simone de Beauvoir</i></p>
 
 <br>
