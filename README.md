@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every man is born as many men and dies as a single one.</b>
-> <p><i>Martin Heidegger</i></p>
+> <b>To love beauty is to see light.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
