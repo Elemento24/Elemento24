@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change of weather is the discourse of fools.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>The success I have achieved in bodybuilding, motion pictures, and business would not have been possible without the generosity of the American people and the freedom here to pursue your dreams.</b>
+> <p><i>Arnold Schwarzenegger</i></p>
 
 <br>
