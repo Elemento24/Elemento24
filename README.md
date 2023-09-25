@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the many things nobody ever tells you about middle age is that it's such a nice change from being young.</b>
-> <p><i>William Feather</i></p>
+> <b>'UFO's' attitude toward the subject is very similar to mine. It's not an advocacy its philosophy is more 'I want to believe this, but I want it proved.'</b>
+> <p><i>Dwight Schultz</i></p>
 
 <br>
