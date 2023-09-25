@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believed my story would be helpful to young women my daughter's age, who are still in the process of forming themselves as women, and in need of encouragement to remain true to themselves.</b>
-> <p><i>Joyce Maynard</i></p>
+> <b>Among the best traitors Ireland has ever had, Mother Church ranks at the very top, a massive obstacle in the path to equality and freedom. She has been a force for conservatism... to ward off threats to her own security and influence.</b>
+> <p><i>Bernadette Devlin</i></p>
 
 <br>
