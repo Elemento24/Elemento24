@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I realize that every picture isn't a work of art.</b>
-> <p><i>Conrad Hall</i></p>
+> <b>I think the beauty looks I most regret are those I was persuaded into.</b>
+> <p><i>Dita Von Teese</i></p>
 
 <br>
