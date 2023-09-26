@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't knock the weather nine-tenths of the people couldn't start a conversation if it didn't change once in a while.</b>
-> <p><i>Kin Hubbard</i></p>
+> <b>It is my art. I am better at it than I ever was. And I will do it as long as I can. When you reach a certain age you can slough off what is unnecessary and concentrate on what is. And why not?</b>
+> <p><i>Arthur Miller</i></p>
 
 <br>
