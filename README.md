@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is the art of how to waste space.</b>
-> <p><i>Philip Johnson</i></p>
+> <b>He that can live alone resembles the brute beast in nothing, the sage in much, and God in everything.</b>
+> <p><i>Baltasar Gracian</i></p>
 
 <br>
