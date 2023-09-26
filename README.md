@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once I got out of architecture school I decided not to be an architect, I just started my own little design studio.</b>
-> <p><i>Joseph Kosinski</i></p>
+> <b>People who don't like me talk about it as though I'm trash because I have tattoos. I find that insane because it's 2008, not the 1950s. Tattoos aren't limited to sailors. It's a form of art I find beautiful. I love it.</b>
+> <p><i>Megan Fox</i></p>
 
 <br>
