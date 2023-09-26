@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If Galileo had said in verse that the world moved, the inquisition might have let him alone.</b>
-> <p><i>Thomas Hardy</i></p>
+> <b>I realize that every picture isn't a work of art.</b>
+> <p><i>Conrad Hall</i></p>
 
 <br>
