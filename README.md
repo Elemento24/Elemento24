@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The lips on my upper right bicep are my girlfriend's lips. She has the most amazing lips, and I wanted to carry them around with me everywhere I go, considering I can't carry her lips physically with me. So I decided to place them in a discreet location, such as the inside part of my bicep.</b>
-> <p><i>Jake Owen</i></p>
+> <b>It's a joke to think that anyone is one thing. We're all such complex creatures. But if I'm going to be a poster child for anything, anger's a gorgeous emotion. It gets a bad rap, but it can make great changes happen.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
