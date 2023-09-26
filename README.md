@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I replaced the headlights in my car with strobe lights, so it looks like I'm the only one moving.</b>
-> <p><i>Steven Wright</i></p>
+> <b>Lord, Bless our enemies have mercy upon them, may they turn their course and let us alone, and let us live in peace at our homes in our own native land.</b>
+> <p><i>William Pennington</i></p>
 
 <br>
