@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He that can live alone resembles the brute beast in nothing, the sage in much, and God in everything.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>I still work hard to know my business. I'm continuously looking for ways to improve all my companies, and I'm always selling. Always.</b>
+> <p><i>Mark Cuban</i></p>
 
 <br>
