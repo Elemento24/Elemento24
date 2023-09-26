@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a joke to think that anyone is one thing. We're all such complex creatures. But if I'm going to be a poster child for anything, anger's a gorgeous emotion. It gets a bad rap, but it can make great changes happen.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Don't knock the weather nine-tenths of the people couldn't start a conversation if it didn't change once in a while.</b>
+> <p><i>Kin Hubbard</i></p>
 
 <br>
