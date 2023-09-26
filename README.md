@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is the will of an epoch translated into space.</b>
-> <p><i>Ludwig Mies van der Rohe</i></p>
+> <b>Georgian architecture respected the scale of both the individual and the community.</b>
+> <p><i>Stephen Gardiner</i></p>
 
 <br>
