@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's your best friend and your worst enemy - your own brain.</b>
-> <p><i>Fred Durst</i></p>
+> <b>A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.</b>
+> <p><i>Moliere</i></p>
 
 <br>
