@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I still work hard to know my business. I'm continuously looking for ways to improve all my companies, and I'm always selling. Always.</b>
-> <p><i>Mark Cuban</i></p>
+> <b>The lips on my upper right bicep are my girlfriend's lips. She has the most amazing lips, and I wanted to carry them around with me everywhere I go, considering I can't carry her lips physically with me. So I decided to place them in a discreet location, such as the inside part of my bicep.</b>
+> <p><i>Jake Owen</i></p>
 
 <br>
