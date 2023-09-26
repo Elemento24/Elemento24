@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The return of my birthday, if I remember it, fills me with thoughts which it seems to be the general care of humanity to escape.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>That's your best friend and your worst enemy - your own brain.</b>
+> <p><i>Fred Durst</i></p>
 
 <br>
