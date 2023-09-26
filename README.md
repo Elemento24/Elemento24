@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lord, Bless our enemies have mercy upon them, may they turn their course and let us alone, and let us live in peace at our homes in our own native land.</b>
-> <p><i>William Pennington</i></p>
+> <b>Once I got out of architecture school I decided not to be an architect, I just started my own little design studio.</b>
+> <p><i>Joseph Kosinski</i></p>
 
 <br>
