@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is it sufficient that you have learned to drive the car, or shall we look and see what is under the hood? Most people go through life without ever knowing.</b>
-> <p><i>June Singer</i></p>
+> <b>The right to be let alone is the underlying principle of the Constitution's Bill of Rights.</b>
+> <p><i>Erwin Griswold</i></p>
 
 <br>
