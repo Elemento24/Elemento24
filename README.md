@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people say it might be good for your career to die and then come back again. I have died many ways, car crashes, motorcycle crashes, etc. But, I am still alive.</b>
-> <p><i>Mark-Paul Gosselaar</i></p>
+> <b>Science is analytical, descriptive, informative. Man does not live by bread alone, but by science he attempts to do so. Hence the deadliness of all that is purely scientific.</b>
+> <p><i>Eric Gill</i></p>
 
 <br>
