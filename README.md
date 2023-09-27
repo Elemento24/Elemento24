@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother was 45 when she had me, so when I was in high school my parents were the same age as my friends' grandparents.</b>
-> <p><i>Jack White</i></p>
+> <b>On banks, I make no apology for attacking spivs and gamblers who did more harm to the British economy than Bob Crow could achieve in his wildest Trotskyite fantasies, while paying themselves outrageous bonuses underwritten by the taxpayer. There is much public anger about banks and it is well deserved.</b>
+> <p><i>Vince Cable</i></p>
 
 <br>
