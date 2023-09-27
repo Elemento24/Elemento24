@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never want to change so much that people can't recognize me.</b>
-> <p><i>Taylor Swift</i></p>
+> <b>Never believe that a few caring people can't change the world. For, indeed, that's all who ever have.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
