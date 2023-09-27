@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The senior officer who met with reporters in Baghdad said there had been 21 car bombings in the capital in May, and 126 in the past 80 days. All last year, he said, there were only about 25 car bombings in Baghdad.</b>
-> <p><i>Rich Lowry</i></p>
+> <b>My mother was 45 when she had me, so when I was in high school my parents were the same age as my friends' grandparents.</b>
+> <p><i>Jack White</i></p>
 
 <br>
