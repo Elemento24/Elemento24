@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That attitude toward women as objects may have worked for the late Sixties, but it doesn't do so now.</b>
-> <p><i>John Schlesinger</i></p>
+> <b>Your life is yours and yours alone. Rise up and live it.</b>
+> <p><i>Terry Goodkind</i></p>
 
 <br>
