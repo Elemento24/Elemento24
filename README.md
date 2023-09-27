@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Science is analytical, descriptive, informative. Man does not live by bread alone, but by science he attempts to do so. Hence the deadliness of all that is purely scientific.</b>
-> <p><i>Eric Gill</i></p>
+> <b>My first car was a 1976 Toyota Corolla Liftback in red, like the one in 'The Blues Brothers.' I painted a Union Jack on the roof. I was absolutely in love with it until I destroyed it, which broke my heart!</b>
+> <p><i>Richard Hammond</i></p>
 
 <br>
