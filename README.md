@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He was thinking alone, and seriously racking his brain to find a direction for this single force four times multiplied, with which he did not doubt, as with the lever for which Archimedes sought, they should succeed in moving the world, when some one tapped gently at his door.</b>
-> <p><i>Alexandre Dumas</i></p>
+> <b>Indulge not thyself in the passion of anger it is whetting a sword to wound thine own breast, or murder thy friend.</b>
+> <p><i>Akhenaton</i></p>
 
 <br>
