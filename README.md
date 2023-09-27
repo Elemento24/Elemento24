@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's so funny looking back, but my so-called overnight success actually took 15 years. I remember when I didn't have any money, and my only car was mom's Hyundai.</b>
-> <p><i>Criss Angel</i></p>
+> <b>That attitude toward women as objects may have worked for the late Sixties, but it doesn't do so now.</b>
+> <p><i>John Schlesinger</i></p>
 
 <br>
