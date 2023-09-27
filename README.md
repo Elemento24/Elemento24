@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>According to the Small Business Administration, more than 70 percent of all family businesses do not survive through the second generation, and 8 percent do not make it to a third.</b>
-> <p><i>Kit Bond</i></p>
+> <b>The anger of a person who is strong, can always bide its time.</b>
+> <p><i>James Whitcomb Riley</i></p>
 
 <br>
