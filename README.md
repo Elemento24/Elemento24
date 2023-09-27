@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You get moments all the time that kind of make you pinch yourself, some of them make you quite emotional. Winning a BRIT was a big moment because we were just so excited to be at the awards in the first place. Selling out Madison Square Garden was pretty amazing too. Then we woke to the news that our UK tour was sold out. It was crazy.</b>
-> <p><i>Harry Styles</i></p>
+> <b>He was thinking alone, and seriously racking his brain to find a direction for this single force four times multiplied, with which he did not doubt, as with the lever for which Archimedes sought, they should succeed in moving the world, when some one tapped gently at his door.</b>
+> <p><i>Alexandre Dumas</i></p>
 
 <br>
