@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On banks, I make no apology for attacking spivs and gamblers who did more harm to the British economy than Bob Crow could achieve in his wildest Trotskyite fantasies, while paying themselves outrageous bonuses underwritten by the taxpayer. There is much public anger about banks and it is well deserved.</b>
-> <p><i>Vince Cable</i></p>
+> <b>Beauty is the sole ambition, the exclusive goal of Taste.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
