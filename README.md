@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The anger of a person who is strong, can always bide its time.</b>
-> <p><i>James Whitcomb Riley</i></p>
+> <b>The most important loan to pay is your student loan. It's more important than your mortgage, car and credit card payments. You cannot discharge student loan debt in the majority of cases.</b>
+> <p><i>Suze Orman</i></p>
 
 <br>
