@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Common sense is the collection of prejudices acquired by age eighteen.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>If you walk down the street and smile at someone, that will get passed on to the next person. That has the power to change someone's day.</b>
+> <p><i>Julianna Margulies</i></p>
 
 <br>
