@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm carded for R-rated movies. And I get talked down to a lot. When I try to go rent a car or buy an airplane ticket or other stuff adults do, I get 'Okaaaaaay, honey.' I remember when I was 18, getting crayons in a restaurant.</b>
-> <p><i>Kristen Bell</i></p>
+> <b>Common sense is the collection of prejudices acquired by age eighteen.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
