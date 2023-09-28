@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When it comes down to it, it's about who you know, and who's a fan. It's about whether you're the right age, whether you're hot or not, whether the studio is into you or not.</b>
-> <p><i>Marlee Matlin</i></p>
+> <b>Our main business is not to see what lies dimly at a distance, but to do what lies clearly at hand.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
