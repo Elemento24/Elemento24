@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having lots of siblings is like having built-in best friends.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>For nine years I worked to change what was hairdressing then into a geometric art form with color, perm without setting which had never been done before.</b>
+> <p><i>Vidal Sassoon</i></p>
 
 <br>
