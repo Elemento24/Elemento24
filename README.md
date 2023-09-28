@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our main business is not to see what lies dimly at a distance, but to do what lies clearly at hand.</b>
-> <p><i>Thomas Carlyle</i></p>
+> <b>I'm carded for R-rated movies. And I get talked down to a lot. When I try to go rent a car or buy an airplane ticket or other stuff adults do, I get 'Okaaaaaay, honey.' I remember when I was 18, getting crayons in a restaurant.</b>
+> <p><i>Kristen Bell</i></p>
 
 <br>
