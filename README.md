@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Isn't it amazing that we are all made in God's image, and yet there is so much diversity among his people?</b>
-> <p><i>Desmond Tutu</i></p>
+> <b>When it comes down to it, it's about who you know, and who's a fan. It's about whether you're the right age, whether you're hot or not, whether the studio is into you or not.</b>
+> <p><i>Marlee Matlin</i></p>
 
 <br>
