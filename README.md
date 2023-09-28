@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In science the important thing is to modify and change one's ideas as science advances.</b>
-> <p><i>Herbert Spencer</i></p>
+> <b>My quick beauty tip is always have a tinted gloss of some kind to give you some color even if you have no makeup on.</b>
+> <p><i>Rachel Bilson</i></p>
 
 <br>
