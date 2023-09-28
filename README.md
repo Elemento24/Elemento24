@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the sole ambition, the exclusive goal of Taste.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>In science the important thing is to modify and change one's ideas as science advances.</b>
+> <p><i>Herbert Spencer</i></p>
 
 <br>
