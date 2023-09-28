@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My quick beauty tip is always have a tinted gloss of some kind to give you some color even if you have no makeup on.</b>
-> <p><i>Rachel Bilson</i></p>
+> <b>The music is first and foremost everything - no egos, no attitude, nothing - it's about the music.</b>
+> <p><i>Big Boi</i></p>
 
 <br>
