@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Hollywood, you play a mom, and the next thing you know, you're on 'The Golden Girls.' They age you so fast.</b>
-> <p><i>Gabrielle Union</i></p>
+> <b>If we want to secure the best jobs in the future, we must make America the best place in the world to do business.</b>
+> <p><i>Jim DeMint</i></p>
 
 <br>
