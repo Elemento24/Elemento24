@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The 1990s, after the reign of terror of academic vandalism, will be a decade of restoration: restoration of meaning, value, beauty, pleasure, and emotion to art and restoration of art to its audience.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>Literature flourishes best when it is half a trade and half an art.</b>
+> <p><i>William Ralph Inge</i></p>
 
 <br>
