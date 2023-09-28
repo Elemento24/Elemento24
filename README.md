@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Here you do have forests, where pigs could be raised by letting them root about in the forests for a good part of the year. Therefore, you have a different attitude toward them compared with what continues to exist in the Middle East.</b>
-> <p><i>Marvin Harris</i></p>
+> <b>On banks, I make no apology for attacking spivs and gamblers who did more harm to the British economy than Bob Crow could achieve in his wildest Trotskyite fantasies, while paying themselves outrageous bonuses underwritten by the taxpayer. There is much public anger about banks and it is well deserved.</b>
+> <p><i>Vince Cable</i></p>
 
 <br>
