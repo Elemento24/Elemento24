@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For nine years I worked to change what was hairdressing then into a geometric art form with color, perm without setting which had never been done before.</b>
-> <p><i>Vidal Sassoon</i></p>
+> <b>Here you do have forests, where pigs could be raised by letting them root about in the forests for a good part of the year. Therefore, you have a different attitude toward them compared with what continues to exist in the Middle East.</b>
+> <p><i>Marvin Harris</i></p>
 
 <br>
