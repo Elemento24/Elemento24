@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you walk down the street and smile at someone, that will get passed on to the next person. That has the power to change someone's day.</b>
-> <p><i>Julianna Margulies</i></p>
+> <b>We tend to think of age only in time, but I don't think it has much to do with time at all there's a whole load of other things. I've met 16-year-olds who are old and 90-year-olds who are young.</b>
+> <p><i>Roger Daltrey</i></p>
 
 <br>
