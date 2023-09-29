@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Urs Fischer specializes in making jaws drop. Cutting giant holes in gallery walls, digging a crater in Gavin Brown's gallery floor in 2007, creating amazing hyperrealist wallpaper for a group show at Tony Shafrazi: It all percolates with uncanny destructiveness, operatic uncontrollability, and barbaric sculptural power.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Half the time men think they are talking business, they are wasting time.</b>
+> <p><i>E. W. Howe</i></p>
 
 <br>
