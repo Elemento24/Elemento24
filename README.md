@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People tend not to use this word beauty because it's not intellectual - but there has to be an overlap between beauty and intellect.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>The Dolls were an attitude. If nothing else they were a great attitude.</b>
+> <p><i>Johnny Thunders</i></p>
 
 <br>
