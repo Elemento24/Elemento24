@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mama always used to tell me: 'If you can't find somethin' to live for, you best find somethin' to die for.'</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>Everything that has happened to me has been amazing and surprising.</b>
+> <p><i>R. L. Stine</i></p>
 
 <br>
