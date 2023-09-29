@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people who live in a golden age usually go around complaining how yellow everything looks.</b>
-> <p><i>Randall Jarrell</i></p>
+> <b>Never say never, but the thought of electively cutting oneself is beyond my grasp, and I also object to it politically. Denying the lines on our faces makes a comment about age and wisdom I don't care to make.</b>
+> <p><i>Debra Winger</i></p>
 
 <br>
