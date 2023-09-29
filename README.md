@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To talk about balance, it's easier to talk about what's out of balance. And I think anytime that you have any disease, and disease meaning lack of ease, lack of flow... dis-ease. So any time there's disease, you're out of balance, whether it's jealousy, anger, greed, anxiety, fear.</b>
-> <p><i>Ricky Williams</i></p>
+> <b>You know, who cares about seeing the girls when everybody wants to see the band. That's what's important, KISS is important. I think we look great, and the attitude is there, and I'm real happy with it.</b>
+> <p><i>Eric Carr</i></p>
 
 <br>
