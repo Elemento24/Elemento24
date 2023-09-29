@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Instead, it appears to be a particular mark of beauty that it is considered with tranquil satisfaction that it pleases if we also do not possess it and we are still far removed from demanding to possess it.</b>
-> <p><i>Moses Mendelssohn</i></p>
+> <b>To talk about balance, it's easier to talk about what's out of balance. And I think anytime that you have any disease, and disease meaning lack of ease, lack of flow... dis-ease. So any time there's disease, you're out of balance, whether it's jealousy, anger, greed, anxiety, fear.</b>
+> <p><i>Ricky Williams</i></p>
 
 <br>
