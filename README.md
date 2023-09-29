@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Dolls were an attitude. If nothing else they were a great attitude.</b>
-> <p><i>Johnny Thunders</i></p>
+> <b>Enthusiasm is the best protection in any situation. Wholeheartedness is contagious. Give yourself, if you wish to get others.</b>
+> <p><i>David Seabury</i></p>
 
 <br>
