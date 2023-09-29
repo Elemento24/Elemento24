@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But to sustain a marriage for 50 years, you have to get real a little bit and find someone who is understanding and who you can grow with. My mom always says, 'Marry the man who loves you a millimeter more.'</b>
-> <p><i>Ali Larter</i></p>
+> <b>I have a full life: I have two amazing kids, I have great friends, great family. And right now, that's plenty for me to manage. A new relationship just seems like way too much work.</b>
+> <p><i>Sarah McLachlan</i></p>
 
 <br>
