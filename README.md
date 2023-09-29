@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All my fans tell me what a glamorous life I have, but I tell them how hard I work and how many nights I spend alone with my dogs, eating chicken pot pie in my bedroom.</b>
-> <p><i>Shannen Doherty</i></p>
+> <b>My siblings and I were friends with the boys who would become our stepbrothers - we grew up on the same street. I feel very special to have these amazing people in my life and if we hadn't all moved into this big house together I think I would have missed out on that, because we would have drifted apart.</b>
+> <p><i>Florence Welch</i></p>
 
 <br>
