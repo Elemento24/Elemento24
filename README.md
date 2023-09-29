@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Enthusiasm is the best protection in any situation. Wholeheartedness is contagious. Give yourself, if you wish to get others.</b>
-> <p><i>David Seabury</i></p>
+> <b>My mama always used to tell me: 'If you can't find somethin' to live for, you best find somethin' to die for.'</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
