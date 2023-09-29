@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Half the time men think they are talking business, they are wasting time.</b>
-> <p><i>E. W. Howe</i></p>
+> <b>The people who live in a golden age usually go around complaining how yellow everything looks.</b>
+> <p><i>Randall Jarrell</i></p>
 
 <br>
