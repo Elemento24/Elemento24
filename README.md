@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By Time and Age full many things are taught.</b>
-> <p><i>Aeschylus</i></p>
+> <b>I want to put a ding in the universe.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
