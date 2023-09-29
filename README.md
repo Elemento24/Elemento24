@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My siblings and I were friends with the boys who would become our stepbrothers - we grew up on the same street. I feel very special to have these amazing people in my life and if we hadn't all moved into this big house together I think I would have missed out on that, because we would have drifted apart.</b>
-> <p><i>Florence Welch</i></p>
+> <b>Urs Fischer specializes in making jaws drop. Cutting giant holes in gallery walls, digging a crater in Gavin Brown's gallery floor in 2007, creating amazing hyperrealist wallpaper for a group show at Tony Shafrazi: It all percolates with uncanny destructiveness, operatic uncontrollability, and barbaric sculptural power.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
