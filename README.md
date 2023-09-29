@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything that has happened to me has been amazing and surprising.</b>
-> <p><i>R. L. Stine</i></p>
+> <b>Instead, it appears to be a particular mark of beauty that it is considered with tranquil satisfaction that it pleases if we also do not possess it and we are still far removed from demanding to possess it.</b>
+> <p><i>Moses Mendelssohn</i></p>
 
 <br>
