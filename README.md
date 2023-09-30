@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the greater beauty of the instrument, the balls representing the planets are to be of considerable bigness but so contrived, that they may be taken off at pleasure, and others, much smaller, and fitter for some purposes, put in their places.</b>
-> <p><i>David Rittenhouse</i></p>
+> <b>I don't know whether it's age or maturity, but I certainly find myself committed more and more to the looser forms of Western democracy at any price.</b>
+> <p><i>John le Carre</i></p>
 
 <br>
