@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You must change in order to survive.</b>
-> <p><i>Pearl Bailey</i></p>
+> <b>The beginning is the most important part of the work.</b>
+> <p><i>Plato</i></p>
 
 <br>
