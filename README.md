@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be able to sit in Donald Trump's apartment and talk about the future of corporate real estate was amazing.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>For the greater beauty of the instrument, the balls representing the planets are to be of considerable bigness but so contrived, that they may be taken off at pleasure, and others, much smaller, and fitter for some purposes, put in their places.</b>
+> <p><i>David Rittenhouse</i></p>
 
 <br>
