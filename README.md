@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate the outdoors. To me the outdoors is where the car is.</b>
-> <p><i>Will Durst</i></p>
+> <b>Real riches are the riches possessed inside.</b>
+> <p><i>B. C. Forbes</i></p>
 
 <br>
