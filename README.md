@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Soap and water and common sense are the best disinfectants.</b>
-> <p><i>William Osler</i></p>
+> <b>You must change in order to survive.</b>
+> <p><i>Pearl Bailey</i></p>
 
 <br>
