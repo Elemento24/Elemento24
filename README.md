@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother is a beauty.</b>
-> <p><i>Mary-Louise Parker</i></p>
+> <b>Soap and water and common sense are the best disinfectants.</b>
+> <p><i>William Osler</i></p>
 
 <br>
