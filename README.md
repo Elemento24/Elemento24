@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As I wrote, I found that Aibileen had some things to say that really weren't in her character. She was older, soft-spoken, and she started showing some attitude.</b>
-> <p><i>Kathryn Stockett</i></p>
+> <b>Modernity is the transient, the fleeting, the contingent it is one half of art, the other being the eternal and the immovable.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
