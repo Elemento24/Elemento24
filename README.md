@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I enjoy looking at words on paper and visualizing how to make them come to life. As a director, the creative process is really amazing.</b>
-> <p><i>Alfonso Ribeiro</i></p>
+> <b>The young people have MTV and rock and roll. Why would they go to read poetry? Poetry belongs to the Stone Age. It awakens in us perceptions that go back to those times.</b>
+> <p><i>Robert Morgan</i></p>
 
 <br>
