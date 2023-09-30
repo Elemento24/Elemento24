@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People who have tried it, tell me that a clear conscience makes you very happy and contented but a full stomach does the business quite as well, and is cheaper, and more easily obtained.</b>
-> <p><i>Jerome K. Jerome</i></p>
+> <b>I hate the outdoors. To me the outdoors is where the car is.</b>
+> <p><i>Will Durst</i></p>
 
 <br>
