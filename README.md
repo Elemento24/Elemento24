@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Modernity is the transient, the fleeting, the contingent it is one half of art, the other being the eternal and the immovable.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>Nothing endures but change.</b>
+> <p><i>Heraclitus</i></p>
 
 <br>
