@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My formula for living is quite simple. I get up in the morning and I go to bed at night. In between, I occupy myself as best I can.</b>
-> <p><i>Cary Grant</i></p>
+> <b>There's no way to approach anything in an objective way. We're completely subjective our view of the world is completely controlled by who we are as human beings, as men or women, by our age, our history, our profession, by the state of the world.</b>
+> <p><i>Charlie Kaufman</i></p>
 
 <br>
