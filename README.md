@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing endures but change.</b>
-> <p><i>Heraclitus</i></p>
+> <b>My formula for living is quite simple. I get up in the morning and I go to bed at night. In between, I occupy myself as best I can.</b>
+> <p><i>Cary Grant</i></p>
 
 <br>
