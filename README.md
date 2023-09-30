@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know whether it's age or maturity, but I certainly find myself committed more and more to the looser forms of Western democracy at any price.</b>
-> <p><i>John le Carre</i></p>
+> <b>I enjoy looking at words on paper and visualizing how to make them come to life. As a director, the creative process is really amazing.</b>
+> <p><i>Alfonso Ribeiro</i></p>
 
 <br>
