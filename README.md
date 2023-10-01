@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of people resist transition and therefore never allow themselves to enjoy who they are. Embrace the change, no matter what it is once you do, you can learn about the new world you're in and take advantage of it.</b>
-> <p><i>Nikki Giovanni</i></p>
+> <b>I choose films for their artistic value. I don't need a mansion or a Jaguar. When I leave this Earth, I won't take any money with me. All I will leave behind will be my art.</b>
+> <p><i>Brad Renfro</i></p>
 
 <br>
