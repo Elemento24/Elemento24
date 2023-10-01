@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God employs several translators some pieces are translated by age, some by sickness, some by war, some by justice.</b>
-> <p><i>John Donne</i></p>
+> <b>Revenge is the naked idol of the worship of a semi-barbarous age.</b>
+> <p><i>Percy Bysshe Shelley</i></p>
 
 <br>
