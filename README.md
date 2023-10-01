@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Revenge is the naked idol of the worship of a semi-barbarous age.</b>
-> <p><i>Percy Bysshe Shelley</i></p>
+> <b>The greatest discovery of all time is that a person can change his future by merely changing his attitude.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
