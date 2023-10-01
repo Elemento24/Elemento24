@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Painting, n.: The art of protecting flat surfaces from the weather, and exposing them to the critic.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>I'd like to have the flying car, I think that'd be really cool.</b>
+> <p><i>Rupert Grint</i></p>
 
 <br>
