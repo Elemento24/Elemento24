@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our economic system, run for profit and waste and based primarily on the extractive industries, is the cause of climate change. We have wasted the earth's treasure and we can no longer exploit it cheaply.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>God employs several translators some pieces are translated by age, some by sickness, some by war, some by justice.</b>
+> <p><i>John Donne</i></p>
 
 <br>
