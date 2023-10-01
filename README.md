@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd like to have the flying car, I think that'd be really cool.</b>
-> <p><i>Rupert Grint</i></p>
+> <b>A multitude of bees can tell the time of day, calculate the geometry of the sun's position, argue about the best location for the next swarm. Bees do a lot of close observing of other bees maybe they know what follows stinging and do it anyway.</b>
+> <p><i>Lewis Thomas</i></p>
 
 <br>
