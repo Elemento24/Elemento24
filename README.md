@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the greater beauty of the instrument, the balls representing the planets are to be of considerable bigness but so contrived, that they may be taken off at pleasure, and others, much smaller, and fitter for some purposes, put in their places.</b>
-> <p><i>David Rittenhouse</i></p>
+> <b>For the first time in my adult lifetime, I am really proud of my country. And not just because Barack has done well, but because I think people are hungry for change. And I have been desperate to see our country moving in that direction.</b>
+> <p><i>Michelle Obama</i></p>
 
 <br>
