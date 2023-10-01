@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For each one of us stands alone in the midst of a universe.</b>
-> <p><i>John Buchanan Robinson</i></p>
+> <b>I'm overjoyed and beyond honored to be a part of the L'Oreal Paris family. I'm such a fan of L'Oreal Paris not just for all of their amazing products, but for what they stand for.</b>
+> <p><i>Lea Michele</i></p>
 
 <br>
