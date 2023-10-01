@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the first time in my adult lifetime, I am really proud of my country. And not just because Barack has done well, but because I think people are hungry for change. And I have been desperate to see our country moving in that direction.</b>
-> <p><i>Michelle Obama</i></p>
+> <b>Doorman - a genius who can open the door of your car with one hand, help you in with the other, and still have one left for the tip.</b>
+> <p><i>Dorothy Kilgallen</i></p>
 
 <br>
