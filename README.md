@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A multitude of bees can tell the time of day, calculate the geometry of the sun's position, argue about the best location for the next swarm. Bees do a lot of close observing of other bees maybe they know what follows stinging and do it anyway.</b>
-> <p><i>Lewis Thomas</i></p>
+> <b>For each one of us stands alone in the midst of a universe.</b>
+> <p><i>John Buchanan Robinson</i></p>
 
 <br>
