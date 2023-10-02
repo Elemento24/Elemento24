@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shame, like beauty, is often in the eye of the beholder.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>I came to water late. I learned to swim at the age of 20.</b>
+> <p><i>Liam Neeson</i></p>
 
 <br>
