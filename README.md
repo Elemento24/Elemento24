@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I came to water late. I learned to swim at the age of 20.</b>
-> <p><i>Liam Neeson</i></p>
+> <b>I think the fact that I was raised in show business, in New York City, in the '50s, that's affected my personality to the point that I'm a little different.</b>
+> <p><i>Christopher Walken</i></p>
 
 <br>
