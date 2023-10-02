@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Making money is art and working is art and good business is the best art.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>There was once a caustic comment from someone suggesting I was breeding a new race. Fans from different countries have married, amazing things like that. I've been to some of the weddings. I went to one here the other day, a pagan ceremony.</b>
+> <p><i>Terry Pratchett</i></p>
 
 <br>
