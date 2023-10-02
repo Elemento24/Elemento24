@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think having land and not ruining it is the most beautiful art that anybody could ever want to own.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>I remember when metal was something you really had to search out, and now I hear it on car commercials.</b>
+> <p><i>Trevor Dunn</i></p>
 
 <br>
