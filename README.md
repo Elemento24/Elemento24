@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young. The greatest thing in life is to keep your mind young.</b>
-> <p><i>Henry Ford</i></p>
+> <b>My age and health will never allow me to realize the dream of art I've been pursuing all my life.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
