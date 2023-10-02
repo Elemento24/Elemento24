@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My age and health will never allow me to realize the dream of art I've been pursuing all my life.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Great art is the contempt of a great man for small art.</b>
+> <p><i>F. Scott Fitzgerald</i></p>
 
 <br>
