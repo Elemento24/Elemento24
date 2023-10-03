@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A friend never defends a husband who gets his wife an electric skillet for her birthday.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>Los Angeles is like a beauty parlor at the end of the universe.</b>
+> <p><i>Emily Mortimer</i></p>
 
 <br>
