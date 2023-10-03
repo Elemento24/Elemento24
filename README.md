@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Design can never be an ultimate explanation for anything. It can only be a proximate explanation. A plane or a car is explained by a designer but that's because the designer himself, the engineer, is explained by natural selection.</b>
-> <p><i>Richard Dawkins</i></p>
+> <b>Beauty of whatever kind, in its supreme development, invariably excites the sensitive soul to tears.</b>
+> <p><i>Edgar Allan Poe</i></p>
 
 <br>
