@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course I know very little about architecture, and the older I get the less I know.</b>
-> <p><i>Richard Rogers</i></p>
+> <b>Design can never be an ultimate explanation for anything. It can only be a proximate explanation. A plane or a car is explained by a designer but that's because the designer himself, the engineer, is explained by natural selection.</b>
+> <p><i>Richard Dawkins</i></p>
 
 <br>
