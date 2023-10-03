@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great art is the contempt of a great man for small art.</b>
-> <p><i>F. Scott Fitzgerald</i></p>
+> <b>People like Frank Zappa were amazing for us Brits.</b>
+> <p><i>Rick Wakeman</i></p>
 
 <br>
