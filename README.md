@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A strong hatred is the best lamp to bear in our hands as we go over the dark places of life, cutting away the dead things men tell us to revere.</b>
-> <p><i>Rebecca West</i></p>
+> <b>It ought to be illegal for an artist to marry. If the artist must marry let him find someone more interested in art, or his art, or the artist part of him, than in him. After which let them take tea together three times a week.</b>
+> <p><i>Ezra Pound</i></p>
 
 <br>
