@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to know the taste of a pear, you must change the pear by eating it yourself. If you want to know the theory and methods of revolution, you must take part in revolution. All genuine knowledge originates in direct experience.</b>
-> <p><i>Mao Zedong</i></p>
+> <b>Whenever I drive under a yellow light, I always kiss my finger and tap it on the roof of the car.</b>
+> <p><i>Jared Padalecki</i></p>
 
 <br>
