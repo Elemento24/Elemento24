@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whenever I drive under a yellow light, I always kiss my finger and tap it on the roof of the car.</b>
-> <p><i>Jared Padalecki</i></p>
+> <b>When I work, and in my art, I hold hands with God.</b>
+> <p><i>Robert Mapplethorpe</i></p>
 
 <br>
