@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So I was getting into my car, and this bloke says to me 'Can you give me a lift?' I said 'Sure, you look great, the world's your oyster, go for it.''</b>
-> <p><i>Tim Vine</i></p>
+> <b>A strong hatred is the best lamp to bear in our hands as we go over the dark places of life, cutting away the dead things men tell us to revere.</b>
+> <p><i>Rebecca West</i></p>
 
 <br>
