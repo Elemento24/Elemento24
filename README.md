@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been an amazing year of individual performances.</b>
-> <p><i>Steve Kerr</i></p>
+> <b>I don't think nationalism is alone holding the field it's in contention with a lot of different things.</b>
+> <p><i>Peter Singer</i></p>
 
 <br>
