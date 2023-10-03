@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty of whatever kind, in its supreme development, invariably excites the sensitive soul to tears.</b>
-> <p><i>Edgar Allan Poe</i></p>
+> <b>A friend never defends a husband who gets his wife an electric skillet for her birthday.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
