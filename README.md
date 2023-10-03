@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even if you play perfectly, a fault of your opponent's can destroy the entire beauty of the game.</b>
-> <p><i>Vladimir Kramnik</i></p>
+> <b>But what we can do, as flawed as we are, is still see God in other people, and do our best to help them find their own grace. That's what I strive to do, that's what I pray to do every day.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
