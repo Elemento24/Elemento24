@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It ought to be illegal for an artist to marry. If the artist must marry let him find someone more interested in art, or his art, or the artist part of him, than in him. After which let them take tea together three times a week.</b>
-> <p><i>Ezra Pound</i></p>
+> <b>We build buildings which are terribly restless. And buildings don't go anywhere. They shouldn't be restless.</b>
+> <p><i>Minoru Yamasaki</i></p>
 
 <br>
