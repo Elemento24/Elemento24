@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Compassion has no place in the natural order of the world which operates on the basis of necessity. Compassion opposes this order and is therefore best thought of as being in some way supernatural.</b>
-> <p><i>John Berger</i></p>
+> <b>Even if you play perfectly, a fault of your opponent's can destroy the entire beauty of the game.</b>
+> <p><i>Vladimir Kramnik</i></p>
 
 <br>
