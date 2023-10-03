@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men make angry music and it's called rock-and-roll women include anger in their vocabulary and suddenly they're angry and militant.</b>
-> <p><i>Ani DiFranco</i></p>
+> <b>If you want to know the taste of a pear, you must change the pear by eating it yourself. If you want to know the theory and methods of revolution, you must take part in revolution. All genuine knowledge originates in direct experience.</b>
+> <p><i>Mao Zedong</i></p>
 
 <br>
