@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poets say science takes away from the beauty of the stars - mere globs of gas atoms. I, too, can see the stars on a desert night, and feel them. But do I see less or more?</b>
-> <p><i>Richard P. Feynman</i></p>
+> <b>It's been an amazing year of individual performances.</b>
+> <p><i>Steve Kerr</i></p>
 
 <br>
