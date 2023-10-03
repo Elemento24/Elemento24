@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I work, and in my art, I hold hands with God.</b>
-> <p><i>Robert Mapplethorpe</i></p>
+> <b>Poets say science takes away from the beauty of the stars - mere globs of gas atoms. I, too, can see the stars on a desert night, and feel them. But do I see less or more?</b>
+> <p><i>Richard P. Feynman</i></p>
 
 <br>
