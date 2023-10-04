@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ford used to come to work in a big car with two Admiral's flags, on each side of the car. His assistant would be there with his accordion, playing, Hail to the Chief.</b>
-> <p><i>Richard Widmark</i></p>
+> <b>In high school I dated a white woman. She would come to visit me on the rez. And her dad, who was very racist, didn't like that at all. And he told her one time, 'You shouldn't go on the rez if you're white because Indians have a lot of anger in their heart.'</b>
+> <p><i>Sherman Alexie</i></p>
 
 <br>
