@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I trusted someone to look after me on the business side of life.</b>
-> <p><i>Elton John</i></p>
+> <b>Yoga's an amazing release.</b>
+> <p><i>Monica Keena</i></p>
 
 <br>
