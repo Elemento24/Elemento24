@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>History develops, art stands still.</b>
-> <p><i>E. M. Forster</i></p>
+> <b>Art is a harmony parallel with nature.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
