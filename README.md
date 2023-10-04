@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some say that the age of chivalry is past, that the spirit of romance is dead. The age of chivalry is never past, so long as there is a wrong left unredressed on earth.</b>
-> <p><i>Charles Kingsley</i></p>
+> <b>Well, Jeff Buckley for me is one of the greatest singers I've ever heard. And the reason why is he has an amazing range, amazing emotional power in his voice. And the music he put around it also just had this passion and this soul to it and this spirit to it that very few artists have, and he passed at a very young age.</b>
+> <p><i>John Legend</i></p>
 
 <br>
