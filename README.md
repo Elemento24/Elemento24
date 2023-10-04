@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In high school I dated a white woman. She would come to visit me on the rez. And her dad, who was very racist, didn't like that at all. And he told her one time, 'You shouldn't go on the rez if you're white because Indians have a lot of anger in their heart.'</b>
-> <p><i>Sherman Alexie</i></p>
+> <b>Beauty is unbearable, drives us to despair, offering us for a minute the glimpse of an eternity that we should like to stretch out over the whole of time.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
