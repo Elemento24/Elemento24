@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My revenue was $4 million my first year in business, off of one $20 item.</b>
-> <p><i>Sara Blakely</i></p>
+> <b>There's a difference between beauty and charm. A beautiful woman is one I notice. A charming woman is one who notices me.</b>
+> <p><i>John Erskine</i></p>
 
 <br>
