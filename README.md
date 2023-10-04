@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was born to be alone, and I always shall be but now I want to be.</b>
-> <p><i>Mary MacLane</i></p>
+> <b>Some say that the age of chivalry is past, that the spirit of romance is dead. The age of chivalry is never past, so long as there is a wrong left unredressed on earth.</b>
+> <p><i>Charles Kingsley</i></p>
 
 <br>
