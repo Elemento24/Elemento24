@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Somehow, the greater the public opposition to the health care bill, the more determined they seem to force it on us anyway. Their attitude shows Washington at its very worst - the presumption that they know best, and they're going to get their way whether the American people like it or not.</b>
-> <p><i>Scott Brown</i></p>
+> <b>Ford used to come to work in a big car with two Admiral's flags, on each side of the car. His assistant would be there with his accordion, playing, Hail to the Chief.</b>
+> <p><i>Richard Widmark</i></p>
 
 <br>
