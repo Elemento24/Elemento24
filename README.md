@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a difference between beauty and charm. A beautiful woman is one I notice. A charming woman is one who notices me.</b>
-> <p><i>John Erskine</i></p>
+> <b>Great art is the contempt of a great man for small art.</b>
+> <p><i>F. Scott Fitzgerald</i></p>
 
 <br>
