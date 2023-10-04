@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the times being like, 'Who rented this car and why are we going to this place?' You take the easy route and go, 'Oh, thanks for the champagne. I'll have another.'</b>
-> <p><i>Rosario Dawson</i></p>
+> <b>Somehow, the greater the public opposition to the health care bill, the more determined they seem to force it on us anyway. Their attitude shows Washington at its very worst - the presumption that they know best, and they're going to get their way whether the American people like it or not.</b>
+> <p><i>Scott Brown</i></p>
 
 <br>
