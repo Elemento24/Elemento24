@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The real message of the Dance opens up the vistas of life to all who have the urge to express beauty with no other instrument than their own bodies, with no apparatus and no dependence on anything other than space.</b>
-> <p><i>Ruth St. Denis</i></p>
+> <b>Every age can be enchanting, provided you live within it.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
