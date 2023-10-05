@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every age can be enchanting, provided you live within it.</b>
-> <p><i>Brigitte Bardot</i></p>
+> <b>Architecture is a science arising out of many other sciences, and adorned with much and varied learning by the help of which a judgment is formed of those works which are the result of other arts.</b>
+> <p><i>Marcus V. Pollio</i></p>
 
 <br>
