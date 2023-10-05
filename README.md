@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't need plastic in my body to validate me as a woman.</b>
-> <p><i>Courtney Love</i></p>
+> <b>Reason is not automatic. Those who deny it cannot be conquered by it. Do not count on them. Leave them alone.</b>
+> <p><i>Ayn Rand</i></p>
 
 <br>
