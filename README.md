@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing to hear, as a voice matures and then starts to decline, what kind of emotion is still conveyed by a really good vocalist.</b>
-> <p><i>Tom Wopat</i></p>
+> <b>Money is such an amazing teacher: What you choose to do with your money shows whether you are truly powerful or powerless.</b>
+> <p><i>Suze Orman</i></p>
 
 <br>
