@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love each and every one of you but, like my own family, you thrill, you frustrate, you anger.</b>
-> <p><i>John Buchanan</i></p>
+> <b>I don't think there is such a thing as being too raunchy when it comes to the art form of burlesque.</b>
+> <p><i>Christina Aguilera</i></p>
 
 <br>
