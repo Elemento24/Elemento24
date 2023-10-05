@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Examinations are formidable even to the best prepared, for the greatest fool may ask more than the wisest man can answer.</b>
-> <p><i>Charles Caleb Colton</i></p>
+> <b>It is quite amazing what I didn't feel after a while. I didn't really want to feel things.</b>
+> <p><i>Kate Moss</i></p>
 
 <br>
