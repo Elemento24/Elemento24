@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never listen to music in the house, I listen to music in the car.</b>
-> <p><i>Peter Tork</i></p>
+> <b>A car for every purse and purpose.</b>
+> <p><i>Alfred P. Sloan</i></p>
 
 <br>
