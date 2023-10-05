@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is power a smile is its sword.</b>
-> <p><i>John Ray</i></p>
+> <b>Reason clears and plants the wilderness of the imagination to harvest the wheat of art.</b>
+> <p><i>Austin O'Malley</i></p>
 
 <br>
