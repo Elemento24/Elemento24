@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man's friendships are one of the best measures of his worth.</b>
-> <p><i>Charles Darwin</i></p>
+> <b>Beauty is power a smile is its sword.</b>
+> <p><i>John Ray</i></p>
 
 <br>
