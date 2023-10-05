@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One expected growth, change without it, the world was less, the well of inspiration dried up, the muses fled.</b>
-> <p><i>Charles de Lint</i></p>
+> <b>I love each and every one of you but, like my own family, you thrill, you frustrate, you anger.</b>
+> <p><i>John Buchanan</i></p>
 
 <br>
