@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reason clears and plants the wilderness of the imagination to harvest the wheat of art.</b>
-> <p><i>Austin O'Malley</i></p>
+> <b>When I drank, I had a very different attitude towards my playing. It was sloppier but I kind of liked it that way. It was like the alcohol was telling my mind what to do.</b>
+> <p><i>Mick Mars</i></p>
 
 <br>
