@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art world is molting - some would say melting. Galleries are closing museums are scaling back.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>No art can be noble which is incapable of expressing thought, and no art is capable of expressing thought which does not change.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
