@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are no right and wrong ways to work in this business, but there are some basic common-sense practices. Work very, very hard and always be prepared never give up and once you get the job, give them more than they ever expected: - Shine!</b>
-> <p><i>Jimmy Smits</i></p>
+> <b>In 1981, at age 31, I was voted the best player in basketball, and the most valuable player in the league.</b>
+> <p><i>Julius Erving</i></p>
 
 <br>
