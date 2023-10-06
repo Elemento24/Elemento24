@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No foreigner has a place asking another people, another country, to change their constitution.</b>
-> <p><i>Hamid Karzai</i></p>
+> <b>Anger is seldom without argument but seldom with a good one.</b>
+> <p><i>Lord Halifax</i></p>
 
 <br>
