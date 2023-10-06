@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No art can be noble which is incapable of expressing thought, and no art is capable of expressing thought which does not change.</b>
-> <p><i>John Ruskin</i></p>
+> <b>I'm not one of those women who thinks beauty is a curse.</b>
+> <p><i>Diane Kruger</i></p>
 
 <br>
