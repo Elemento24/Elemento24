@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the first convention of the space age - where a candidate can promise the moon and mean it.</b>
-> <p><i>David Brinkley</i></p>
+> <b>There are no right and wrong ways to work in this business, but there are some basic common-sense practices. Work very, very hard and always be prepared never give up and once you get the job, give them more than they ever expected: - Shine!</b>
+> <p><i>Jimmy Smits</i></p>
 
 <br>
