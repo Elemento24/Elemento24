@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is seldom without argument but seldom with a good one.</b>
-> <p><i>Lord Halifax</i></p>
+> <b>The opportunity, number one, to work with Ang Lee is an amazing thing for me.</b>
+> <p><i>Sam Elliott</i></p>
 
 <br>
