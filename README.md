@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter how good you are at planning, the pressure never goes away. So I don't fight it. I feed off it. I turn pressure into motivation to do my best.</b>
-> <p><i>Benjamin Carson</i></p>
+> <b>No foreigner has a place asking another people, another country, to change their constitution.</b>
+> <p><i>Hamid Karzai</i></p>
 
 <br>
