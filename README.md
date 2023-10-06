@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is not the art of the possible. It consists in choosing between the disastrous and the unpalatable.</b>
-> <p><i>John Kenneth Galbraith</i></p>
+> <b>The art world is molting - some would say melting. Galleries are closing museums are scaling back.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
