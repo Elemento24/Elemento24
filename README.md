@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most New Yorkers want to look amazing, and they want you to understand that they look amazing, but they also want you to stop staring at them.</b>
-> <p><i>Ellie Kemper</i></p>
+> <b>This is the first convention of the space age - where a candidate can promise the moon and mean it.</b>
+> <p><i>David Brinkley</i></p>
 
 <br>
