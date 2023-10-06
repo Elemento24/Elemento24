@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In 1981, at age 31, I was voted the best player in basketball, and the most valuable player in the league.</b>
-> <p><i>Julius Erving</i></p>
+> <b>No matter how good you are at planning, the pressure never goes away. So I don't fight it. I feed off it. I turn pressure into motivation to do my best.</b>
+> <p><i>Benjamin Carson</i></p>
 
 <br>
