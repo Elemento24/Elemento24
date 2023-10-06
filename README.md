@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I compare it to being in a car accident. There's so much adrenaline rushing through you that you remember being in the accident but you don't remember any of the details.</b>
-> <p><i>Brooke Langton</i></p>
+> <b>And when an architect has designed a house with large windows, which is a necessity today in order to pull the daylight into these very deep houses, then curtains come to play a big role in architecture.</b>
+> <p><i>Arne Jacobsen</i></p>
 
 <br>
