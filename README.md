@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With my wife I don't get no respect. I made a toast on her birthday to 'the best woman a man ever had.' The waiter joined me.</b>
-> <p><i>Rodney Dangerfield</i></p>
+> <b>I grew up looking at my father as to how to behave. In watching him I grasped so many things. His own temperament was of a calm person. He was very composed and I never saw anger in him. To me, that was fascinating.</b>
+> <p><i>Sachin Tendulkar</i></p>
 
 <br>
