@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up looking at my father as to how to behave. In watching him I grasped so many things. His own temperament was of a calm person. He was very composed and I never saw anger in him. To me, that was fascinating.</b>
-> <p><i>Sachin Tendulkar</i></p>
+> <b>Nothing is more generally known than our duties which belong to Christianity and yet, how amazing is it, nothing is less practiced?</b>
+> <p><i>George Whitefield</i></p>
 
 <br>
