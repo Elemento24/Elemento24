@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My agent says that I'm a 'repeat business guy.' If you hire me to come do a movie, I'll be on time, know all my material, be ready to go, have a good attitude. I'm here to work, so I get hired over and over again by the same producers. If you just be a team player on set you can work so much more often.</b>
-> <p><i>Dean Cain</i></p>
+> <b>I think physical comedy is an amazing asset because it tells a story that's more universal than just language and dialogue. I grew up watching Charlie Chaplin and Buster Keaton. They're very powerful figures in my life.</b>
+> <p><i>Josh Gad</i></p>
 
 <br>
