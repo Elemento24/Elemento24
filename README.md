@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think physical comedy is an amazing asset because it tells a story that's more universal than just language and dialogue. I grew up watching Charlie Chaplin and Buster Keaton. They're very powerful figures in my life.</b>
-> <p><i>Josh Gad</i></p>
+> <b>Why can't everybody leave everybody else the hell alone.</b>
+> <p><i>Jimmy Durante</i></p>
 
 <br>
