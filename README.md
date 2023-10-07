@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A gift, with a kind countenance, is a double present.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>Raising children is a creative endeavor, an art rather than a science.</b>
+> <p><i>Bruno Bettelheim</i></p>
 
 <br>
