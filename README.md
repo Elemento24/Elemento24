@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Traveling to Russia and Germany and being able to see the world at a young age was really cool for me, and I really liked that.</b>
-> <p><i>Mia Wasikowska</i></p>
+> <b>Wishful thinking is not idealism. It is self-indulgence at best and self-exaltation at worst. In either case, it is usually at the expense of others. In other words, it is the opposite of idealism.</b>
+> <p><i>Thomas Sowell</i></p>
 
 <br>
