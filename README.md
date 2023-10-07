@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and folly are old companions.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>And I don't have any specific steps to take because I don't start the same way every time. But there is a knowing when it's enough and you can leave it alone.</b>
+> <p><i>Bruce Nauman</i></p>
 
 <br>
