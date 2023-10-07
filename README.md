@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to get old gracefully. I want to have good posture, I want to be healthy and be an example to my children.</b>
-> <p><i>Sting</i></p>
+> <b>I tend to not watch things that are current. And then if everybody swears it's amazing then I'll like watch the whole series in a weekend.</b>
+> <p><i>Hank Azaria</i></p>
 
 <br>
