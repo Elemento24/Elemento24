@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not like I'm sitting at home coming up with some secret beauty plan.</b>
-> <p><i>Lara Stone</i></p>
+> <b>I had never been able to get a car that said how much I cared about the environment until I drove electric.</b>
+> <p><i>Alexandra Paul</i></p>
 
 <br>
