@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reason can only be this: heroic poetry depends on an heroic age, and an age is heroic because of what it is, not because of what it does.</b>
-> <p><i>Lascelles Abercrombie</i></p>
+> <b>My second play, The Birthday Party, I wrote in 1958 - or 1957. It was totally destroyed by the critics of the day, who called it an absolute load of rubbish.</b>
+> <p><i>Harold Pinter</i></p>
 
 <br>
