@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Although all the good arts serve to draw man's mind away from vices and lead it toward better things, this function can be more fully performed by this art, which also provides extraordinary intellectual pleasure.</b>
-> <p><i>Nicolaus Copernicus</i></p>
+> <b>It's not like I'm sitting at home coming up with some secret beauty plan.</b>
+> <p><i>Lara Stone</i></p>
 
 <br>
