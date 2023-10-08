@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What We want is to make it possible for our unfortunate people to live a life of industry for it is by steady work alone that we hope for our physical and moral rehabilitation. For this reason above all we have undertaken to rally our people around our ideal.</b>
-> <p><i>Theodor Herzl</i></p>
+> <b>When I think of art I think of beauty. Beauty is the mystery of life. It is not in the eye it is in the mind. In our minds there is awareness of perfection.</b>
+> <p><i>Agnes Martin</i></p>
 
 <br>
