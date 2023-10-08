@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No One Is Alone by Stephen Sondheim is all about thinking for yourself and being your own person.</b>
-> <p><i>Bernadette Peters</i></p>
+> <b>I can't satisfy myself with just trying to tie all of my imagination into music, especially when music is not appreciated as an art form as much as it used to be.</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
