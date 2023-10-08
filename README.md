@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Things are beautiful if you love them.</b>
-> <p><i>Jean Anouilh</i></p>
+> <b>I suppose it's amazing how quick life goes by when you have children.</b>
+> <p><i>Steffi Graf</i></p>
 
 <br>
