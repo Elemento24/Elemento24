@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had never been able to get a car that said how much I cared about the environment until I drove electric.</b>
-> <p><i>Alexandra Paul</i></p>
+> <b>What We want is to make it possible for our unfortunate people to live a life of industry for it is by steady work alone that we hope for our physical and moral rehabilitation. For this reason above all we have undertaken to rally our people around our ideal.</b>
+> <p><i>Theodor Herzl</i></p>
 
 <br>
