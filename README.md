@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When times are bad is when the real entrepreneurs emerge.</b>
-> <p><i>Robert Kiyosaki</i></p>
+> <b>As a planning board commissioner, I have to review the applications for development throughout the city, and the bulk of those applications have been for the waterfront. I think the progress the waterfront has made is amazing.</b>
+> <p><i>Vincent Frank</i></p>
 
 <br>
