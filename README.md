@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look, architecture has a lot of places to hide behind, a lot of excuses. 'The client made me do this.' 'The city made me do this.' 'Oh, the budget.' I don't believe that anymore.</b>
-> <p><i>Frank Gehry</i></p>
+> <b>Not a tenth of us who are in business are doing as well as we could if we merely followed the principles that were known to our grandfathers.</b>
+> <p><i>William Feather</i></p>
 
 <br>
