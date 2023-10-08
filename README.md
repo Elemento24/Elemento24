@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The purely agitational attitude is not good enough for a detailed consideration of a subject.</b>
-> <p><i>Jawaharlal Nehru</i></p>
+> <b>No One Is Alone by Stephen Sondheim is all about thinking for yourself and being your own person.</b>
+> <p><i>Bernadette Peters</i></p>
 
 <br>
