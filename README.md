@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If anger proceeds from a great cause, it turns to fury if from a small cause, it is peevishness and so is always either terrible or ridiculous.</b>
-> <p><i>Jeremy Taylor</i></p>
+> <b>Look, architecture has a lot of places to hide behind, a lot of excuses. 'The client made me do this.' 'The city made me do this.' 'Oh, the budget.' I don't believe that anymore.</b>
+> <p><i>Frank Gehry</i></p>
 
 <br>
