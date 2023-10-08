@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I suppose it's amazing how quick life goes by when you have children.</b>
-> <p><i>Steffi Graf</i></p>
+> <b>I was born not knowing and have had only a little time to change that here and there.</b>
+> <p><i>Richard P. Feynman</i></p>
 
 <br>
