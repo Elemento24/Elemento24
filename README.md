@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I don't have any specific steps to take because I don't start the same way every time. But there is a knowing when it's enough and you can leave it alone.</b>
-> <p><i>Bruce Nauman</i></p>
+> <b>To make pictures big is to make them more powerful.</b>
+> <p><i>Robert Mapplethorpe</i></p>
 
 <br>
