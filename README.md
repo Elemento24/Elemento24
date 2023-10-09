@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems like the chaos of this world is accelerating, but so is the beauty in the consciousness of more and more people.</b>
-> <p><i>Anthony Kiedis</i></p>
+> <b>I think a simple rule of business is, if you do the things that are easier first, then you can actually make a lot of progress.</b>
+> <p><i>Mark Zuckerberg</i></p>
 
 <br>
