@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is a wonderful way to celebrate an 80th birthday... I wanted to be 65 again, but they wouldn't let me - Homeland Security.</b>
-> <p><i>Art Buchwald</i></p>
+> <b>The ideal and the beautiful are identical the ideal corresponds to the idea, and beauty to form hence idea and substance are cognate.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
