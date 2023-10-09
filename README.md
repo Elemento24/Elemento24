@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like fragile ice anger passes away in time.</b>
-> <p><i>Ovid</i></p>
+> <b>When I'm in London, Claridge's is a great favourite. I'm a big fan of art deco architecture and the rooms are extraordinary.</b>
+> <p><i>Roman Coppola</i></p>
 
 <br>
