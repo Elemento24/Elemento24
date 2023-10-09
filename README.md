@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whenever you find yourself on the side of the majority, it is time to pause and reflect.</b>
-> <p><i>Mark Twain</i></p>
+> <b>It is important to fund young researchers who want to do curiosity-driven research. Curiosity-driven research is a part of life. Some people are curious. They want to learn more about nature and society should help that. It's like art: you can learn more and bring more beauty.</b>
+> <p><i>Serge Haroche</i></p>
 
 <br>
