@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age steals away all things, even the mind.</b>
-> <p><i>Virgil</i></p>
+> <b>Whenever you find yourself on the side of the majority, it is time to pause and reflect.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
