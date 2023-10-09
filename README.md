@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your race and gender don't change, but you can choose to change your political affiliation at will.</b>
-> <p><i>John Podhoretz</i></p>
+> <b>I am Jose Mourinho and I don't change. I arrive with all my qualities and my defects.</b>
+> <p><i>Jose Mourinho</i></p>
 
 <br>
