@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am Jose Mourinho and I don't change. I arrive with all my qualities and my defects.</b>
-> <p><i>Jose Mourinho</i></p>
+> <b>I call architecture frozen music.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
