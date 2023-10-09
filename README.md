@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you have a positive attitude and constantly strive to give your best effort, eventually you will overcome your immediate problems and find you are ready for greater challenges.</b>
-> <p><i>Pat Riley</i></p>
+> <b>Like fragile ice anger passes away in time.</b>
+> <p><i>Ovid</i></p>
 
 <br>
