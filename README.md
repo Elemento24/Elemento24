@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Woman's at best a contradiction still.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>I think 'Game of Thrones' was extraordinary. I want to do some period pieces. It would be lovely to tell great stories, that is my main ambition. And to be working with amazing creators.</b>
+> <p><i>Stana Katic</i></p>
 
 <br>
