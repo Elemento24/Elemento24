@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What delights us in visible beauty is the invisible.</b>
-> <p><i>Marie von Ebner-Eschenbach</i></p>
+> <b>As an actor you have to wait for someone to cast you, so you're relying on the business.</b>
+> <p><i>Mia Wasikowska</i></p>
 
 <br>
