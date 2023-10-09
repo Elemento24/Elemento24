@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is basically a container of something. I hope they will enjoy not so much the teacup, but the tea.</b>
-> <p><i>Yoshio Taniguchi</i></p>
+> <b>Your race and gender don't change, but you can choose to change your political affiliation at will.</b>
+> <p><i>John Podhoretz</i></p>
 
 <br>
