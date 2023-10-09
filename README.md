@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think 'Game of Thrones' was extraordinary. I want to do some period pieces. It would be lovely to tell great stories, that is my main ambition. And to be working with amazing creators.</b>
-> <p><i>Stana Katic</i></p>
+> <b>I'd like to share my experiences and the lessons I've learned and hopefully create some amazing, fun courses.</b>
+> <p><i>Tiger Woods</i></p>
 
 <br>
