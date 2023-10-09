@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While the resurrection promises us a new and perfect life in the future, God loves us too much to leave us alone to contend with the pain, guilt and loneliness of our present life.</b>
-> <p><i>Josh McDowell</i></p>
+> <b>This is a wonderful way to celebrate an 80th birthday... I wanted to be 65 again, but they wouldn't let me - Homeland Security.</b>
+> <p><i>Art Buchwald</i></p>
 
 <br>
