@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In less enlightened times, the best way to impress women was to own a hot car. But women wised up and realized it was better to buy their own hot cars so they wouldn't have to ride around with jerks.</b>
-> <p><i>Scott Adams</i></p>
+> <b>The problem was just a mean attitude that festers and has to be challenged.</b>
+> <p><i>Major Owens</i></p>
 
 <br>
