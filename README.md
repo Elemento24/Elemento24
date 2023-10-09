@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The problem was just a mean attitude that festers and has to be challenged.</b>
-> <p><i>Major Owens</i></p>
+> <b>Age steals away all things, even the mind.</b>
+> <p><i>Virgil</i></p>
 
 <br>
