@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want a pit crew... I hate the procedure I currently have to go through when I have car problems.</b>
-> <p><i>Dave Barry</i></p>
+> <b>The prerequisite of originality is the art of forgetting, at the proper moment, what we know.</b>
+> <p><i>Arthur Koestler</i></p>
 
 <br>
