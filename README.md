@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to be perfect, but I do want to be a role model. My mom always tells me that imperfections equal beauty. All of us are imperfect.</b>
-> <p><i>Miley Cyrus</i></p>
+> <b>I don't really think that there is anyone in the modern pop business who I feel I want to spar with.</b>
+> <p><i>George Michael</i></p>
 
 <br>
