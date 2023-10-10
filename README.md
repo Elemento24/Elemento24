@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that everyone at any age should ask themselves, 'where do I want to be today, where do I want to be tomorrow, and where do I want to be in a hundred years?' We all have clear answers to those questions. We only have so much time. It's a real shame if we don't spend our lives trying to do that.</b>
-> <p><i>Jack Antonoff</i></p>
+> <b>I'm noticing a new approach to art making in recent museum and gallery shows. It flickered into focus at the New Museum's 'Younger Than Jesus' last year and ran through the Whitney Biennial, and I'm seeing it blossom and bear fruit at 'Greater New York,' MoMA P.S. 1's twice-a-decade extravaganza of emerging local talent.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
