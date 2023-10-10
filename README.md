@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is the good and the bad, the great and the low, the just and the unjust. I swear to you that all that will never change.</b>
-> <p><i>Albert Camus</i></p>
+> <b>New needs need new techniques. And the modern artists have found new ways and new means of making their statements... the modern painter cannot express this age, the airplane, the atom bomb, the radio, in the old forms of the Renaissance or of any other past culture.</b>
+> <p><i>Jackson Pollock</i></p>
 
 <br>
