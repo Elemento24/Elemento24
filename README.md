@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't really think that there is anyone in the modern pop business who I feel I want to spar with.</b>
-> <p><i>George Michael</i></p>
+> <b>About the time we can make the ends meet, somebody moves the ends.</b>
+> <p><i>Herbert Hoover</i></p>
 
 <br>
