@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The awesomeness of God is that even in the works of the Beach Boys, Beatles, etc., the beauty of the music is a mere reflection of what God does everyday. He creates music of all kinds and moods.</b>
-> <p><i>John Foster</i></p>
+> <b>I don't want to be perfect, but I do want to be a role model. My mom always tells me that imperfections equal beauty. All of us are imperfect.</b>
+> <p><i>Miley Cyrus</i></p>
 
 <br>
