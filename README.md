@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the most predictable things in life is there will be change. You are better off if you can have a say in the change. But you are ignorant or naive if you don't think there will be change, whether you want it to or not.</b>
-> <p><i>Julius Erving</i></p>
+> <b>Childhood obesity is best tackled at home through improved parental involvement, increased physical exercise, better diet and restraint from eating.</b>
+> <p><i>Bob Filner</i></p>
 
 <br>
