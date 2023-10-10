@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Childhood obesity is best tackled at home through improved parental involvement, increased physical exercise, better diet and restraint from eating.</b>
-> <p><i>Bob Filner</i></p>
+> <b>Heavy hearts, like heavy clouds in the sky, are best relieved by the letting of a little water.</b>
+> <p><i>Christopher Morley</i></p>
 
 <br>
