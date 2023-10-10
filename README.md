@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think a simple rule of business is, if you do the things that are easier first, then you can actually make a lot of progress.</b>
-> <p><i>Mark Zuckerberg</i></p>
+> <b>These things have a life of there own and never existed when I was growing up certainly worrying when one would get made. It's kind of amazing how that one movie kept living through all these years.</b>
+> <p><i>Stockard Channing</i></p>
 
 <br>
