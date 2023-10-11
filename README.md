@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always wanted to be the best in the world as a baseball player, so when I started to think about opening a business, it was with that mindset.</b>
-> <p><i>Curt Schilling</i></p>
+> <b>Art requires philosophy, just as philosophy requires art. Otherwise, what would become of beauty?</b>
+> <p><i>Paul Gauguin</i></p>
 
 <br>
