@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The love of all-inclusiveness is as dangerous in philosophy as in art.</b>
-> <p><i>George Santayana</i></p>
+> <b>I've always wanted to be the best in the world as a baseball player, so when I started to think about opening a business, it was with that mindset.</b>
+> <p><i>Curt Schilling</i></p>
 
 <br>
