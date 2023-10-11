@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At my age, I don't think anyone is untouched by cancer.</b>
-> <p><i>Bryan Cranston</i></p>
+> <b>The denunciation of the young is a necessary part of the hygiene of older people, and greatly assists the circulation of the blood.</b>
+> <p><i>Logan P. Smith</i></p>
 
 <br>
