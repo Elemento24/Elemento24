@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Logic: The art of thinking and reasoning in strict accordance with the limitations and incapacities of the human misunderstanding.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>The artist who aims at perfection in everything achieves it in nothing.</b>
+> <p><i>Eugene Delacroix</i></p>
 
 <br>
