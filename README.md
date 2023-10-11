@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Keep cool anger is not an argument.</b>
-> <p><i>Daniel Webster</i></p>
+> <b>I was shocked at the anger toward me.</b>
+> <p><i>Bernadine Dohrn</i></p>
 
 <br>
