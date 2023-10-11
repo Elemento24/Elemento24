@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A human being is a single being. Unique and unrepeatable.</b>
-> <p><i>Eileen Caddy</i></p>
+> <b>As a mom, I know it is my responsibility, and no one else's, to raise my kids. But we have to ask ourselves, what does it mean when so many parents are finding their best efforts undermined by an avalanche of advertisements aimed at our kids.</b>
+> <p><i>Michelle Obama</i></p>
 
 <br>
