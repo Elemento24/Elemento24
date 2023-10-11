@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>O human beauty, what a dream art thou, that we should cast our life and hopes away on thee!</b>
-> <p><i>Barry Cornwall</i></p>
+> <b>The foolish and the dead alone never change their opinions.</b>
+> <p><i>James Russell Lowell</i></p>
 
 <br>
