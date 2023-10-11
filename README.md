@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is a short-lived tyranny.</b>
-> <p><i>Socrates</i></p>
+> <b>Logic: The art of thinking and reasoning in strict accordance with the limitations and incapacities of the human misunderstanding.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
