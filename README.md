@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The artist one day falls through a hole in the brambles, and from that moment he is following the dark rapids of an underground river which may sometimes flow so near to the surface that the laughing picnic parties are heard above.</b>
-> <p><i>Cyril Connolly</i></p>
+> <b>O human beauty, what a dream art thou, that we should cast our life and hopes away on thee!</b>
+> <p><i>Barry Cornwall</i></p>
 
 <br>
