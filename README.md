@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a mom, I know it is my responsibility, and no one else's, to raise my kids. But we have to ask ourselves, what does it mean when so many parents are finding their best efforts undermined by an avalanche of advertisements aimed at our kids.</b>
-> <p><i>Michelle Obama</i></p>
+> <b>Self-reverence, self-knowledge, self-control these three alone lead one to sovereign power.</b>
+> <p><i>Alfred Lord Tennyson</i></p>
 
 <br>
