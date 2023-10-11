@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was shocked at the anger toward me.</b>
-> <p><i>Bernadine Dohrn</i></p>
+> <b>A human being is a single being. Unique and unrepeatable.</b>
+> <p><i>Eileen Caddy</i></p>
 
 <br>
