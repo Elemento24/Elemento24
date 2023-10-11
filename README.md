@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I came back to performing with a different attitude about performing and myself. I wasn't expecting perfection any more, just hoping for an occasional inspiration.</b>
-> <p><i>Neil Diamond</i></p>
+> <b>Poetry is the rhythmical creation of beauty in words.</b>
+> <p><i>Edgar Allan Poe</i></p>
 
 <br>
