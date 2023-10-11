@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By the time the children go to bed, I am as drained as any mother who has spent her day working, car pooling, building Lego castles and shopping for the precisely correct soccer cleat.</b>
-> <p><i>Ayelet Waldman</i></p>
+> <b>The artist one day falls through a hole in the brambles, and from that moment he is following the dark rapids of an underground river which may sometimes flow so near to the surface that the laughing picnic parties are heard above.</b>
+> <p><i>Cyril Connolly</i></p>
 
 <br>
