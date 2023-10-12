@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My experience has been that work is almost the best way to pull oneself out of the depths.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>All non-incumbent campaigns promise hope and change, but Obama took the promise to a new level of absurdity. He suggested that a vote for him would literally transform the Earth.</b>
+> <p><i>John Podhoretz</i></p>
 
 <br>
