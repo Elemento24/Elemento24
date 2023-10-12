@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And for me, the real world involves everything: risk, danger, beauty, energy, all we meet with in the real world.</b>
-> <p><i>Christo</i></p>
+> <b>Creativity is allowing yourself to make mistakes. Art is knowing which ones to keep.</b>
+> <p><i>Scott Adams</i></p>
 
 <br>
