@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And if you don't believe the sun will rise, stand alone and greet the coming night in the last remaining light.</b>
-> <p><i>Chris Cornell</i></p>
+> <b>I've purged myself of bitterness and anger and remained open to love.</b>
+> <p><i>Tatum O'Neal</i></p>
 
 <br>
