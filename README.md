@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is ironic that the one thing that all religions recognize as separating us from our creator, our very self-consciousness, is also the one thing that divides us from our fellow creatures. It was a bitter birthday present from evolution.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>If you walk down the street and smile at someone, that will get passed on to the next person. That has the power to change someone's day.</b>
+> <p><i>Julianna Margulies</i></p>
 
 <br>
