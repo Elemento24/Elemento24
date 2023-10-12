@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not an Adonis, that's for damn sure. I've never really thought of myself that way, and it doesn't matter to me. My favorite actors aren't Adonises. Dustin Hoffman is a flawed-looking man he's amazing to me. Tom Hanks is flawed-looking people love him. Same with Gene Hackman.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>For each one of us stands alone in the midst of a universe.</b>
+> <p><i>John Buchanan Robinson</i></p>
 
 <br>
