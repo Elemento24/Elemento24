@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm an angry person, angrier than most people would imagine, I get flashes of anger. What works for me is working out when it's useful to use that anger.</b>
-> <p><i>Alan Alda</i></p>
+> <b>Laws are generally found to be nets of such a texture, as the little creep through, the great break through, and the middle-sized are alone entangled in it.</b>
+> <p><i>William Shenstone</i></p>
 
 <br>
