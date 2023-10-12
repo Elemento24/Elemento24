@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Though the Jazz Age continued it became less and less an affair of youth. The sequel was like a children's party taken over by the elders.</b>
-> <p><i>F. Scott Fitzgerald</i></p>
+> <b>No sex, age, or condition is above or below the absolute necessity of modesty but without it one vastly beneath the rank of man.</b>
+> <p><i>Bruce Barton</i></p>
 
 <br>
