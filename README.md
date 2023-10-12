@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All non-incumbent campaigns promise hope and change, but Obama took the promise to a new level of absurdity. He suggested that a vote for him would literally transform the Earth.</b>
-> <p><i>John Podhoretz</i></p>
+> <b>I think you can't really escape any kind of spiritual education as a child, whether it's New Age or Judaism or Buddhism or whatever it is. You can't escape it, even if you completely disagree with it, you still have it as a foundation that you base things off of.</b>
+> <p><i>Jack White</i></p>
 
 <br>
