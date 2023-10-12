@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Laws are generally found to be nets of such a texture, as the little creep through, the great break through, and the middle-sized are alone entangled in it.</b>
-> <p><i>William Shenstone</i></p>
+> <b>The person who knows one thing and does it better than anyone else, even if it only be the art of raising lentils, receives the crown he merits. If he raises all his energy to that end, he is a benefactor of mankind and its rewarded as such.</b>
+> <p><i>Og Mandino</i></p>
 
 <br>
