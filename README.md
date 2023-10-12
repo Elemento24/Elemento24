@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think you can't really escape any kind of spiritual education as a child, whether it's New Age or Judaism or Buddhism or whatever it is. You can't escape it, even if you completely disagree with it, you still have it as a foundation that you base things off of.</b>
-> <p><i>Jack White</i></p>
+> <b>I'm an angry person, angrier than most people would imagine, I get flashes of anger. What works for me is working out when it's useful to use that anger.</b>
+> <p><i>Alan Alda</i></p>
 
 <br>
