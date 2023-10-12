@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It bothers me when I hear it in a car commercial or some such. But for the most part, it's better than seeing sacred music relegated to the scrap heap.</b>
-> <p><i>Richard Morris</i></p>
+> <b>I'm definitely doing better. I never realized that I would get the support that I've gotten from everybody - from my fans, to people that I've idolized my whole life. So it's overwhelming, it's amazing and I believe that everything happens for a reason so I'm in a really good place right now.</b>
+> <p><i>Pia Toscano</i></p>
 
 <br>
