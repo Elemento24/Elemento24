@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Traditionally, Medicare's assurance has been that for the elderly and persons with disabilities that they will not be alone when confronted with the full burden of their health care costs.</b>
-> <p><i>Mike Fitzpatrick</i></p>
+> <b>And for me, the real world involves everything: risk, danger, beauty, energy, all we meet with in the real world.</b>
+> <p><i>Christo</i></p>
 
 <br>
