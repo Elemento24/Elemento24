@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've purged myself of bitterness and anger and remained open to love.</b>
-> <p><i>Tatum O'Neal</i></p>
+> <b>My dad was my best friend and greatest role model. He was an amazing dad, coach, mentor, soldier, husband and friend.</b>
+> <p><i>Tiger Woods</i></p>
 
 <br>
