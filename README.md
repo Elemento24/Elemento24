@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you walk down the street and smile at someone, that will get passed on to the next person. That has the power to change someone's day.</b>
-> <p><i>Julianna Margulies</i></p>
+> <b>My experience has been that work is almost the best way to pull oneself out of the depths.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
