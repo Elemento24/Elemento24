@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm definitely doing better. I never realized that I would get the support that I've gotten from everybody - from my fans, to people that I've idolized my whole life. So it's overwhelming, it's amazing and I believe that everything happens for a reason so I'm in a really good place right now.</b>
-> <p><i>Pia Toscano</i></p>
+> <b>And if you don't believe the sun will rise, stand alone and greet the coming night in the last remaining light.</b>
+> <p><i>Chris Cornell</i></p>
 
 <br>
