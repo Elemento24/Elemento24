@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Evil is done without effort, naturally, it is the working of fate good is always the product of an art.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>Be content with what you are, and wish not change nor dread your last day, nor long for it.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
