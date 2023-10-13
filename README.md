@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wushu is a move in Chinese, a physical move. An attack. Wushu is like an art.</b>
-> <p><i>Jet Li</i></p>
+> <b>We are living in the machine age. For the first time in history the comedian has been compelled to supply himself with jokes and comedy material to compete with the machine. Whether he knows it or not, the comedian is on a treadmill to oblivion.</b>
+> <p><i>Fred Allen</i></p>
 
 <br>
