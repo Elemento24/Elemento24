@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who's lost someone to cancer will say this, that you have to struggle to try to remember the person before the diagnosis happened, because they really do change - as anyone would change.</b>
-> <p><i>Mindy Kaling</i></p>
+> <b>Anger becomes limiting, restricting. You can't see through it. While anger is there, look at that, too. But after a while, you have to look at something else.</b>
+> <p><i>Thylias Moss</i></p>
 
 <br>
