@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>O love, if I regret the age when one savors you, it is not for the hour of pleasure, but for the one that follows it.</b>
-> <p><i>Jean-Jacques Rousseau</i></p>
+> <b>More business is lost every year through neglect than through any other cause.</b>
+> <p><i>Rose Kennedy</i></p>
 
 <br>
