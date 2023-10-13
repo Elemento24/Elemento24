@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After I lost my fiance, it seemed like it would be better to always be alone than to risk being hurt again.</b>
-> <p><i>Nancy Grace</i></p>
+> <b>Age is a matter of feeling, not of years.</b>
+> <p><i>Washington Irving</i></p>
 
 <br>
