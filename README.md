@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I saw how many people were poor and how many kids my age went to school hungry in the morning, which I don't think most of my contemporaries in racially segregated schools in the South thought very much about at the time.</b>
-> <p><i>Charles Kuralt</i></p>
+> <b>I've got two old Volvos, two old Subarus, and an old Ford Ranger. If you've got an old car, you've gotta have at least several old cars, 'cause one's always gonna be in the garage.</b>
+> <p><i>Rip Torn</i></p>
 
 <br>
