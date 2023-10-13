@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got two old Volvos, two old Subarus, and an old Ford Ranger. If you've got an old car, you've gotta have at least several old cars, 'cause one's always gonna be in the garage.</b>
-> <p><i>Rip Torn</i></p>
+> <b>It is amazing how complete is the delusion that beauty is goodness.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
