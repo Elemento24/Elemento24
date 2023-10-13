@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you do not know what you are doing and what you are doing is the best - that is inspiration.</b>
-> <p><i>Robert Bresson</i></p>
+> <b>Wushu is a move in Chinese, a physical move. An attack. Wushu is like an art.</b>
+> <p><i>Jet Li</i></p>
 
 <br>
