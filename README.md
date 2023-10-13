@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man alone is born crying, lives complaining, and dies disappointed.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>Beauty set up distance between other people and me. It warped their behavior.</b>
+> <p><i>Candice Bergen</i></p>
 
 <br>
