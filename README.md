@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing how complete is the delusion that beauty is goodness.</b>
-> <p><i>Leo Tolstoy</i></p>
+> <b>I'm only going to stand before God and give an account for my life, not for somebody else's life. If I have a bad attitude, then I need to say there's no point in me blaming you for what's wrong in my life.</b>
+> <p><i>Joyce Meyer</i></p>
 
 <br>
