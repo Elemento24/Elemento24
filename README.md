@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty set up distance between other people and me. It warped their behavior.</b>
-> <p><i>Candice Bergen</i></p>
+> <b>Up until age 40, most men are just not as mature as women. So, it makes sense that a lot of women date up in age a bit.</b>
+> <p><i>Patti Stanger</i></p>
 
 <br>
