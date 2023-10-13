@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've learned that football sometimes was an outlet. It was a way for me to release anger, release frustration.</b>
-> <p><i>Emmitt Smith</i></p>
+> <b>When you do not know what you are doing and what you are doing is the best - that is inspiration.</b>
+> <p><i>Robert Bresson</i></p>
 
 <br>
