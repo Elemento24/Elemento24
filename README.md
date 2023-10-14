@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poverty is uncomfortable but nine times out of ten the best thing that can happen to a young man is to be tossed overboard and compelled to sink or swim.</b>
-> <p><i>James A. Garfield</i></p>
+> <b>I want to go out at the top, but the secret is knowing when you're at the top, it's so difficult in this business, your career fluctuates all the time, up and down, like a pair of trousers.</b>
+> <p><i>Rod Stewart</i></p>
 
 <br>
