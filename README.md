@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to go out at the top, but the secret is knowing when you're at the top, it's so difficult in this business, your career fluctuates all the time, up and down, like a pair of trousers.</b>
-> <p><i>Rod Stewart</i></p>
+> <b>The only way to get gay issues off the front pages of Canadian newspapers is to grant gay and lesbian people our full civil equality and leave it alone.</b>
+> <p><i>Dan Savage</i></p>
 
 <br>
