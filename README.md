@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no such thing is aging, but maturing and knowledge. It's beautiful, I call that beauty.</b>
-> <p><i>Celine Dion</i></p>
+> <b>Marriage is an act of will that signifies and involves a mutual gift, which unites the spouses and binds them to their eventual souls, with whom they make up a sole family - a domestic church.</b>
+> <p><i>Pope John Paul II</i></p>
 
 <br>
