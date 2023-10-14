@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The older generation had greater respect for land than science. But we live in an age when science, more than soil, has become the provider of growth and abundance. Living just on the land creates loneliness in an age of globality.</b>
-> <p><i>Shimon Peres</i></p>
+> <b>Poverty is uncomfortable but nine times out of ten the best thing that can happen to a young man is to be tossed overboard and compelled to sink or swim.</b>
+> <p><i>James A. Garfield</i></p>
 
 <br>
