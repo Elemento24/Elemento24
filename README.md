@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just because everything is different doesn't mean anything has changed.</b>
-> <p><i>Irene Peter</i></p>
+> <b>And I'm not as young as I once was. At my age, I don't have time to be bored.</b>
+> <p><i>Lev Grossman</i></p>
 
 <br>
