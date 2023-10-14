@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People never cease to amaze me.</b>
-> <p><i>Tina Yothers</i></p>
+> <b>A friendship founded on business is better than a business founded on friendship.</b>
+> <p><i>John D. Rockefeller</i></p>
 
 <br>
