@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first car was a 1976 Toyota Corolla Liftback in red, like the one in 'The Blues Brothers.' I painted a Union Jack on the roof. I was absolutely in love with it until I destroyed it, which broke my heart!</b>
-> <p><i>Richard Hammond</i></p>
+> <b>I think that one's art is a growth inside one. I do not think one can explain growth. It is silent and subtle. One does not keep digging up a plant to see how it grows.</b>
+> <p><i>Emily Carr</i></p>
 
 <br>
