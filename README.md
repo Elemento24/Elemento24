@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage is an act of will that signifies and involves a mutual gift, which unites the spouses and binds them to their eventual souls, with whom they make up a sole family - a domestic church.</b>
-> <p><i>Pope John Paul II</i></p>
+> <b>A mode of conduct, a standard of courage, discipline, fortitude and integrity can do a great deal to make a woman beautiful.</b>
+> <p><i>Jacqueline Bisset</i></p>
 
 <br>
