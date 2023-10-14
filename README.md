@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part of the art of living is to know how to grow old gracefully.</b>
-> <p><i>Eric Hoffer</i></p>
+> <b>There's no such thing is aging, but maturing and knowledge. It's beautiful, I call that beauty.</b>
+> <p><i>Celine Dion</i></p>
 
 <br>
