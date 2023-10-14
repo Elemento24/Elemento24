@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I still think that movies are amazing I respect actors and directors.</b>
-> <p><i>Joaquin Phoenix</i></p>
+> <b>People never cease to amaze me.</b>
+> <p><i>Tina Yothers</i></p>
 
 <br>
