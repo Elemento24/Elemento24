@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our spiritual attitude is determined by our conception of our relation to infinite spirit.</b>
-> <p><i>Paul Twitchell</i></p>
+> <b>Exuberance is beauty.</b>
+> <p><i>William Blake</i></p>
 
 <br>
