@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your race and gender don't change, but you can choose to change your political affiliation at will.</b>
-> <p><i>John Podhoretz</i></p>
+> <b>In this electronic age we see ourselves being translated more and more into the form of information, moving toward the technological extension of consciousness.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
