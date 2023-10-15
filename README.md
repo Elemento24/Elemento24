@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To succeed in business, to reach the top, an individual must know all it is possible to know about that business.</b>
-> <p><i>J. Paul Getty</i></p>
+> <b>When you do not know what you are doing and what you are doing is the best - that is inspiration.</b>
+> <p><i>Robert Bresson</i></p>
 
 <br>
