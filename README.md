@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business, you know, may bring you money, but friendship hardly ever does.</b>
-> <p><i>Jane Austen</i></p>
+> <b>Environmentalists have a very conflicted relationship with their cars.</b>
+> <p><i>Tom Arnold</i></p>
 
 <br>
