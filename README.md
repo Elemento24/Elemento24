@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Deliver me from writers who say the way they live doesn't matter. I'm not sure a bad person can write a good book, If art doesn't make us better, then what on earth is it for.</b>
-> <p><i>Alice Walker</i></p>
+> <b>It's good for everyone to understand that they are to love their enemies, simply because your enemies show you things about yourself you need to change. So in actuality enemies are friends in reverse.</b>
+> <p><i>Gary Busey</i></p>
 
 <br>
