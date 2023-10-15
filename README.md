@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Freedom is the sure possession of those alone who have the courage to defend it.</b>
-> <p><i>Pericles</i></p>
+> <b>The public history of modern art is the story of conventional people not knowing what they are dealing with.</b>
+> <p><i>Golda Meir</i></p>
 
 <br>
