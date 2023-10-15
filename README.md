@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant.</b>
-> <p><i>Tony Robbins</i></p>
+> <b>Your race and gender don't change, but you can choose to change your political affiliation at will.</b>
+> <p><i>John Podhoretz</i></p>
 
 <br>
