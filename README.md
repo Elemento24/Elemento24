@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you do not know what you are doing and what you are doing is the best - that is inspiration.</b>
-> <p><i>Robert Bresson</i></p>
+> <b>Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant.</b>
+> <p><i>Tony Robbins</i></p>
 
 <br>
