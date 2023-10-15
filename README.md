@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In this electronic age we see ourselves being translated more and more into the form of information, moving toward the technological extension of consciousness.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>My parents got married late and they had kids late, so I never felt a social or cultural thing to be married or pregnant or a homeowner by a certain age.</b>
+> <p><i>Anna Kendrick</i></p>
 
 <br>
