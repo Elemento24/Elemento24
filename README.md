@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The finest works of art are precious, among other reasons, because they make it possible for us to know, if only imperfectly and for a little while, what it actually feels like to think subtly and feel nobly.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>There's no anger ever in a spiritual. There's always the dream of a hope of a better day coming. That God understands the troubles that I'm experiencing.</b>
+> <p><i>Jessye Norman</i></p>
 
 <br>
