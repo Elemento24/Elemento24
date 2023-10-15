@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I challenge you to show me where the saloon has ever helped business, education, church, morals or anything we hold dear.</b>
-> <p><i>Billy Sunday</i></p>
+> <b>To succeed in business, to reach the top, an individual must know all it is possible to know about that business.</b>
+> <p><i>J. Paul Getty</i></p>
 
 <br>
