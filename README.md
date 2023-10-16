@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another thing that's pathetic is this rule that you have to look ugly to get respect as an actress. Jessica Lange had to make herself look really bad to prove that she had amazing talent.</b>
-> <p><i>Kevyn Aucoin</i></p>
+> <b>Being a teenager is an amazing time and a hard time. It's when you make your best friends - I have girls who will never leave my heart and I still talk to. You get the best and the worst as a teen. You have the best friendships and the worst heartbreaks.</b>
+> <p><i>Sophia Bush</i></p>
 
 <br>
