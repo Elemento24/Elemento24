@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter what you study, the thing that you know best is what you grew up with.</b>
-> <p><i>Maria Sharapova</i></p>
+> <b>I hate fishing, and I can't imagine why anyone would want to hike when you can get in the car and drive.</b>
+> <p><i>Joseph Barbera</i></p>
 
 <br>
