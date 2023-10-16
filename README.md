@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Tact is the art of making a point without making an enemy.</b>
-> <p><i>Isaac Newton</i></p>
+> <b>No matter what you study, the thing that you know best is what you grew up with.</b>
+> <p><i>Maria Sharapova</i></p>
 
 <br>
