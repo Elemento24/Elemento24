@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like actors that are good with pantomime and that can transmit a lot by their presence and attitude more than through their dialogue.</b>
-> <p><i>Guillermo del Toro</i></p>
+> <b>In the coming years, if not sooner, social media will become a powerful tool that consumers will aggressively use to influence business attitudes and force companies into greater social responsibility - and, I suggest, move us towards a more sustainable practice of capitalism.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
