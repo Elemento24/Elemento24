@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I find, in being black, a thing of beauty: a joy a strength a secret cup of gladness.</b>
-> <p><i>Ossie Davis</i></p>
+> <b>Japanese architecture is traditionally based on wooden structures that need renovating on a regular basis.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
