@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Young people are fitter to invent than to judge fitter for execution than for counsel and more fit for new projects than for settled business.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>I like actors that are good with pantomime and that can transmit a lot by their presence and attitude more than through their dialogue.</b>
+> <p><i>Guillermo del Toro</i></p>
 
 <br>
