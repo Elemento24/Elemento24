@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the most intense mode of individualism that the world has known.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>When anything goes digital, let alone something as immaterial as a book, there is a tendency to see it as just in the air to be taken, and to lose the sense that somebody once made it.</b>
+> <p><i>Graham Swift</i></p>
 
 <br>
