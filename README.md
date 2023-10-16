@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate fishing, and I can't imagine why anyone would want to hike when you can get in the car and drive.</b>
-> <p><i>Joseph Barbera</i></p>
+> <b>It's an amazing feeling to go into a studio and really be alone.</b>
+> <p><i>Joaquin Phoenix</i></p>
 
 <br>
