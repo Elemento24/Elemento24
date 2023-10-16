@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Japanese architecture is traditionally based on wooden structures that need renovating on a regular basis.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>Tact is the art of making a point without making an enemy.</b>
+> <p><i>Isaac Newton</i></p>
 
 <br>
