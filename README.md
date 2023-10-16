@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The incestuous relationship between government and big business thrives in the dark.</b>
-> <p><i>Jack Anderson</i></p>
+> <b>Young people are fitter to invent than to judge fitter for execution than for counsel and more fit for new projects than for settled business.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
