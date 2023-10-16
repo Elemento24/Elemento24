@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Celebrity doesn't have anything to do with art or craft. It's about being rich and thinking that you're better than everybody else.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>Another thing that's pathetic is this rule that you have to look ugly to get respect as an actress. Jessica Lange had to make herself look really bad to prove that she had amazing talent.</b>
+> <p><i>Kevyn Aucoin</i></p>
 
 <br>
