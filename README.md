@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing in socialism that a little age or a little money will not cure.</b>
-> <p><i>Will Durant</i></p>
+> <b>I find, in being black, a thing of beauty: a joy a strength a secret cup of gladness.</b>
+> <p><i>Ossie Davis</i></p>
 
 <br>
