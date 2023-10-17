@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you look at all the miracles attributed to Jesus, they're all about change.</b>
-> <p><i>Michael Sheen</i></p>
+> <b>I can take more punishment than anyone in the business.</b>
+> <p><i>Ric Flair</i></p>
 
 <br>
