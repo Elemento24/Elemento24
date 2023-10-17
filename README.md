@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time heals griefs and quarrels, for we change and are no longer the same persons. Neither the offender nor the offended are any more themselves.</b>
-> <p><i>Blaise Pascal</i></p>
+> <b>I worked at an ice cream parlor called Chadwicks. We wore old-timey outfits and had to bang a drum, play a kazoo, and sing 'Happy Birthday' to people while giving them free birthday sundaes. Lots of ice cream scooping and $1 tips.</b>
+> <p><i>Amy Poehler</i></p>
 
 <br>
