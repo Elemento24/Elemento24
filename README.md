@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prayer is talking with God. God knows your heart and is not so concerned with your words as He is with the attitude of your heart.</b>
-> <p><i>Josh McDowell</i></p>
+> <b>I love vintage shopping, I think it's really fun. And I love the feeling of finding the most amazing piece for less.</b>
+> <p><i>Emma Roberts</i></p>
 
 <br>
