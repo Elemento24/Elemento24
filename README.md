@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If your life changes, we can change the world, too.</b>
-> <p><i>Yoko Ono</i></p>
+> <b>Why can't everybody leave everybody else the hell alone.</b>
+> <p><i>Jimmy Durante</i></p>
 
 <br>
