@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The days you work are the best days.</b>
-> <p><i>Georgia O'Keeffe</i></p>
+> <b>I assure you that the training that you get in a midget, in a sprint car and perhaps in a Silver Crown car is really the kind of experience that makes you into a damn good race driver.</b>
+> <p><i>Rodger Ward</i></p>
 
 <br>
