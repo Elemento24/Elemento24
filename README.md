@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't beat the beehive for glam punkette attitude.</b>
-> <p><i>Rob Sheffield</i></p>
+> <b>Everyone has a different beauty and different qualities and I think that women need to learn to love their qualities and be comfortable in the fact that everyone is different.</b>
+> <p><i>Miranda Kerr</i></p>
 
 <br>
