@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I started the site when I was 19. I didn't know much about business back then.</b>
-> <p><i>Mark Zuckerberg</i></p>
+> <b>As you grow older, you change.</b>
+> <p><i>Martin Scorsese</i></p>
 
 <br>
