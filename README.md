@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry a criticism of life under the conditions fixed for such a criticism by the laws of poetic truth and poetic beauty.</b>
-> <p><i>Matthew Arnold</i></p>
+> <b>'Tis the business of little minds to shrink but he whose heart is firm, and whose conscience approves his conduct, will pursue his principles unto death.</b>
+> <p><i>Thomas Paine</i></p>
 
 <br>
