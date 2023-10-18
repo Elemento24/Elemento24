@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why can't everybody leave everybody else the hell alone.</b>
-> <p><i>Jimmy Durante</i></p>
+> <b>My first car was a motorcycle.</b>
+> <p><i>Adam Carolla</i></p>
 
 <br>
