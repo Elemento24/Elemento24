@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you saw Queen Elizabeth it would be amazing, she came from another planet. She was so attractive in what she was wearing.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>Death is the mother of Beauty hence from her, alone, shall come fulfillment to our dreams and our desires.</b>
+> <p><i>Wallace Stevens</i></p>
 
 <br>
