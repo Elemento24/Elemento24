@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rumors sound of galleries asking artists for upsized art and more of it. I've heard of photographers asked to print larger to increase the wall power and salability of their work. Everything winds up set to maximum in order to feed the beast.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>The beauty of this country and what people participate in is the competitive nature that we allow to exist and the fact is that we are better because we have great competitors.</b>
+> <p><i>Lee Scott</i></p>
 
 <br>
