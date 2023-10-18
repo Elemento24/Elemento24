@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first car was a motorcycle.</b>
-> <p><i>Adam Carolla</i></p>
+> <b>Patience is the art of hoping.</b>
+> <p><i>Luc de Clapiers</i></p>
 
 <br>
