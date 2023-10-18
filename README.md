@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>About the time I turned 50, I experienced the profound biological change that often accompanies women at that age. Also, I put two kids in college and lost both of my parents, so I'm no longer somebody's daughter.</b>
-> <p><i>Jane Pauley</i></p>
+> <b>That feeds anger, and I mean when we went and at last thank heavens got towards peace in Northern Ireland we went for justice within Northern Ireland as well as using security well, as well as a political settlement, but surely that is the lesson.</b>
+> <p><i>Clare Short</i></p>
 
 <br>
