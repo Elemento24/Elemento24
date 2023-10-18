@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This Halloween, the most popular mask is the Arnold Schwarzenegger mask. And the best part? With a mouth full of candy you will sound just like him.</b>
-> <p><i>Conan O'Brien</i></p>
+> <b>Muslims must believe that all power, success and victory comes from God alone.</b>
+> <p><i>Abu Bakar Bashir</i></p>
 
 <br>
