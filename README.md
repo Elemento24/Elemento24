@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Death is the mother of Beauty hence from her, alone, shall come fulfillment to our dreams and our desires.</b>
-> <p><i>Wallace Stevens</i></p>
+> <b>Paul is Starsky, and I met him before shooting. He was very kind and encouraged us to go with what we wanted to do. It was very sweet to see them back with the car after 25 years.</b>
+> <p><i>Ben Stiller</i></p>
 
 <br>
