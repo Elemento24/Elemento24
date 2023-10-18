@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think women are amazing and women's friendships are like a sisterhood and we should see more of it in television and film.</b>
-> <p><i>Laurie Holden</i></p>
+> <b>There are times when even the best manager is like the little boy with the big dog, waiting to see where the dog wants to go so he can take him there.</b>
+> <p><i>Lee Iacocca</i></p>
 
 <br>
