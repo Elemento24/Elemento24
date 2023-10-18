@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are times when even the best manager is like the little boy with the big dog, waiting to see where the dog wants to go so he can take him there.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>As a restaurateur, my job is to basically control the chaos and the drama. There's always going to be chaos in the restaurant business.</b>
+> <p><i>Rocco DiSpirito</i></p>
 
 <br>
