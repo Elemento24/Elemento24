@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am invariably late for appointments - sometimes as much as two hours. I've tried to change my ways but the things that make me late are too strong, and too pleasing.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>Use those talents you have. You will make it. You will give joy to the world. Take this tip from nature: The woods would be a very silent place if no birds sang except those who sang best.</b>
+> <p><i>Bernard Meltzer</i></p>
 
 <br>
