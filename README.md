@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of this country and what people participate in is the competitive nature that we allow to exist and the fact is that we are better because we have great competitors.</b>
-> <p><i>Lee Scott</i></p>
+> <b>If you saw Queen Elizabeth it would be amazing, she came from another planet. She was so attractive in what she was wearing.</b>
+> <p><i>Vivienne Westwood</i></p>
 
 <br>
