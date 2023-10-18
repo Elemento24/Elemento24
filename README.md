@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is well for people who think to change their minds occasionally in order to keep them clean. For those who do not think, it is best at least to rearrange their prejudices once in a while.</b>
-> <p><i>Luther Burbank</i></p>
+> <b>I am invariably late for appointments - sometimes as much as two hours. I've tried to change my ways but the things that make me late are too strong, and too pleasing.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
