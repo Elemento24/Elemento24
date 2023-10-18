@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a restaurateur, my job is to basically control the chaos and the drama. There's always going to be chaos in the restaurant business.</b>
-> <p><i>Rocco DiSpirito</i></p>
+> <b>But we cannot rely on memorials and museums alone. We can tell ourselves we will never forget and we likely won't. But we need to make sure that we teach history to those who never had the opportunity to remember in the first place.</b>
+> <p><i>Dan Rather</i></p>
 
 <br>
