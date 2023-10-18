@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But we cannot rely on memorials and museums alone. We can tell ourselves we will never forget and we likely won't. But we need to make sure that we teach history to those who never had the opportunity to remember in the first place.</b>
-> <p><i>Dan Rather</i></p>
+> <b>Good acting is all in the writing. If it isn't on the page, then it really won't make any difference. You cannot act on force of personality alone.</b>
+> <p><i>Larry Hagman</i></p>
 
 <br>
