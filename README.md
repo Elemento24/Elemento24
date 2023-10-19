@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The worst part about celebrating another birthday is the shock that you're only as well as you are.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>My daughter is in love with Adele. She listens to her every day. To see someone with that much passion and soul move a 9-year-old is amazing and it's magical.</b>
+> <p><i>Brandy Norwood</i></p>
 
 <br>
