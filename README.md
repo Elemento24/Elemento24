@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just think that sometimes we hang onto people or relationships long after they've ceased to be of any use to either of you. I'm always meeting new people, and my list of friends seems to change quite a bit.</b>
-> <p><i>John Cleese</i></p>
+> <b>The worst part about celebrating another birthday is the shock that you're only as well as you are.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
