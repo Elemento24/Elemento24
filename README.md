@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think change is possible, but only for individuals who were never truly gay in the first place and who have a strong personal motivation to recover their heterosexuality.</b>
-> <p><i>Marilyn vos Savant</i></p>
+> <b>Emmanuel Lewis was amazing to work with. I'll love that guy to the end of time.</b>
+> <p><i>Corin Nemec</i></p>
 
 <br>
