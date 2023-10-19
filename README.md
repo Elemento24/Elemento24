@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, art supplies are always okay to buy.</b>
-> <p><i>Louis C. K.</i></p>
+> <b>A representative is free delivery she's a personal beauty consultant. Some people want that high touch.</b>
+> <p><i>Andrea Jung</i></p>
 
 <br>
