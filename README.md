@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't believe in one ideal beauty.</b>
-> <p><i>Zac Posen</i></p>
+> <b>Not to say people shouldn't get rich from art. I adore the alchemy wherein artists who cast a complex spell make rich people give them their money. (Just writing it makes me cackle.) But too many artists have been making money without magic.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
