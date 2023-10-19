@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That feeds anger, and I mean when we went and at last thank heavens got towards peace in Northern Ireland we went for justice within Northern Ireland as well as using security well, as well as a political settlement, but surely that is the lesson.</b>
-> <p><i>Clare Short</i></p>
+> <b>I had a lot of anger because I wasn't happy with the way I had been raised.</b>
+> <p><i>Patrick Swayze</i></p>
 
 <br>
