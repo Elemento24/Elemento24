@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My daughter is in love with Adele. She listens to her every day. To see someone with that much passion and soul move a 9-year-old is amazing and it's magical.</b>
-> <p><i>Brandy Norwood</i></p>
+> <b>I think change is possible, but only for individuals who were never truly gay in the first place and who have a strong personal motivation to recover their heterosexuality.</b>
+> <p><i>Marilyn vos Savant</i></p>
 
 <br>
