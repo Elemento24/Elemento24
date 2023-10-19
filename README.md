@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had a lot of anger because I wasn't happy with the way I had been raised.</b>
-> <p><i>Patrick Swayze</i></p>
+> <b>If your sister is in a tearing hurry to go out and cannot catch your eye, she's wearing your best sweater.</b>
+> <p><i>Pam Brown</i></p>
 
 <br>
