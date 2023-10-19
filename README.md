@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Emmanuel Lewis was amazing to work with. I'll love that guy to the end of time.</b>
-> <p><i>Corin Nemec</i></p>
+> <b>The son has always felt like he was a footnote in one of the stories the father tells. The father is an amazing storyteller and one of the tales that he tells is how he met his wife.</b>
+> <p><i>Danny DeVito</i></p>
 
 <br>
