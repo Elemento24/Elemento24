@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody know, I don't do no promoting. I don't ever have to promote nothing, that's the beauty of Lil Wayne.</b>
-> <p><i>Lil Wayne</i></p>
+> <b>All still lifes are actually paintings of the world on the sixth day of creation, when God and the world were alone together, without man!</b>
+> <p><i>Robert Musil</i></p>
 
 <br>
