@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Things turn out best for the people who make the best of the way things turn out.</b>
-> <p><i>John Wooden</i></p>
+> <b>He that will not apply new remedies must expect new evils for time is the greatest innovator.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
