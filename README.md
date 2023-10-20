@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a tricky place, especially the last sector. I wasn't happy in practice. I wasn't happy with the car and I wasn't happy with myself. But I always thought there was more in the car.</b>
-> <p><i>Sebastian Vettel</i></p>
+> <b>It's just that fun atmosphere, working on the car, being with the guys. This is exactly what I needed.</b>
+> <p><i>Kurt Busch</i></p>
 
 <br>
