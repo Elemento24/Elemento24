@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Here comes 40. I'm feeling my age and I've ordered the Ferrari. I'm going to get the whole mid-life crisis package.</b>
-> <p><i>Keanu Reeves</i></p>
+> <b>The world in general doesn't know what to make of originality it is startled out of its comfortable habits of thought, and its first reaction is one of anger.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
