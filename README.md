@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I got a lot of problems, but I'm really good at intuiting what I need to do to be happy with whatever I create. I know when to stop myself, I know when to start, I know when to leave something alone. I guess I just kind of indulge that completely, and so I just take my time.</b>
-> <p><i>Fiona Apple</i></p>
+> <b>Children, dear and loving children, can alone console a woman for the loss of her beauty.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
