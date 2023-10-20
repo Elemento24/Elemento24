@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even in the centuries which appear to us to be the most monstrous and foolish, the immortal appetite for beauty has always found satisfaction.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>The architecture profession has lost a lot of its integrity, especially in the USA. The general architect here has no scruples, no ambitions.</b>
+> <p><i>Helmut Jahn</i></p>
 
 <br>
