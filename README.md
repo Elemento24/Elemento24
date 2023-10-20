@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was already on pole, then by half a second and then one second and I just kept going. Suddenly I was nearly two seconds faster than anybody else, including my team mate with the same car.</b>
-> <p><i>Ayrton Senna</i></p>
+> <b>Everybody know, I don't do no promoting. I don't ever have to promote nothing, that's the beauty of Lil Wayne.</b>
+> <p><i>Lil Wayne</i></p>
 
 <br>
