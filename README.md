@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to be alone very often. I'd be quite happy if I spent from Saturday night until Monday morning alone in my apartment. That's how I refuel.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>There are a lot of people with a lot of money, and I'm amazed they don't understand what a great pleasure it can be to give.</b>
+> <p><i>Robert Mondavi</i></p>
 
 <br>
