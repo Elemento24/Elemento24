@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On this important anniversary, we must remember that while we have come a long way in eliminating barriers, critical work remains to ensure all Americans can live up to their full potential.</b>
-> <p><i>Jim Ramstad</i></p>
+> <b>There's no such thing is aging, but maturing and knowledge. It's beautiful, I call that beauty.</b>
+> <p><i>Celine Dion</i></p>
 
 <br>
