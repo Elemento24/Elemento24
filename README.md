@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not catastrophes, murders, deaths, diseases, that age and kill us it's the way people look and laugh, and run up the steps of omnibuses.</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>The sole art that suits me is that which, rising from unrest, tends toward serenity.</b>
+> <p><i>Andre Gide</i></p>
 
 <br>
