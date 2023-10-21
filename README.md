@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did successfully kick tobacco at the age of 34. I smoked for like 20 years, from 14 to 34.</b>
-> <p><i>Larry Hagman</i></p>
+> <b>When you are thwarted, it is your own attitude that is out of order.</b>
+> <p><i>Meister Eckhart</i></p>
 
 <br>
