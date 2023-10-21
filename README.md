@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our marriage is between us. If we decide to continue being together or not, it's our business.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>Ability is the art of getting credit for all the home runs somebody else hits.</b>
+> <p><i>Casey Stengel</i></p>
 
 <br>
