@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think what makes our marriage work amid all the glare is that my husband is my best friend. He inspires everything in my life and enables me to do the best that I can. I want to hang out with him more than anyone.</b>
-> <p><i>Faith Hill</i></p>
+> <b>Our scientific age demands that we provide definitions, measurements, and statistics in order to be taken seriously. Yet most of the important things in life cannot be precisely defined or measured. Can we define or measure love, beauty, friendship, or decency, for example?</b>
+> <p><i>Dennis Prager</i></p>
 
 <br>
