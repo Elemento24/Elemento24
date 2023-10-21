@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm really proud of myself because I've pared my beauty regimen down to a cream blush and berry-tinted lip balm, which has saved me so much time.</b>
-> <p><i>Katherine Heigl</i></p>
+> <b>I did successfully kick tobacco at the age of 34. I smoked for like 20 years, from 14 to 34.</b>
+> <p><i>Larry Hagman</i></p>
 
 <br>
