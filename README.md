@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am really looking forward to driving another of my father?s car at the show in Rotterdam.</b>
-> <p><i>Nelson Piquet</i></p>
+> <b>Best of all is it to preserve everything in a pure, still heart, and let there be for every pulse a thanksgiving, and for every breath a song.</b>
+> <p><i>Konrad von Gesner</i></p>
 
 <br>
