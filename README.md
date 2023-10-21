@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was looking for something a lot heavier, yet melodic at the same time. Something different from heavy metal, a different attitude.</b>
-> <p><i>Kurt Cobain</i></p>
+> <b>On this important anniversary, we must remember that while we have come a long way in eliminating barriers, critical work remains to ensure all Americans can live up to their full potential.</b>
+> <p><i>Jim Ramstad</i></p>
 
 <br>
