@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Broadly speaking, the short words are the best, and the old words best of all.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>I just yesterday returned from a trip where I photographed a woman with two children whom I photographed first when she was the age of the older of the two children.</b>
+> <p><i>Jock Sturges</i></p>
 
 <br>
