@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any revival in which I am involved is liable to change.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>No man really knows about other human beings. The best he can do is to suppose that they are like himself.</b>
+> <p><i>John Steinbeck</i></p>
 
 <br>
