@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part of the art of living is to know how to grow old gracefully.</b>
-> <p><i>Eric Hoffer</i></p>
+> <b>I was looking for something a lot heavier, yet melodic at the same time. Something different from heavy metal, a different attitude.</b>
+> <p><i>Kurt Cobain</i></p>
 
 <br>
