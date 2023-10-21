@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Best of all is it to preserve everything in a pure, still heart, and let there be for every pulse a thanksgiving, and for every breath a song.</b>
-> <p><i>Konrad von Gesner</i></p>
+> <b>I think what makes our marriage work amid all the glare is that my husband is my best friend. He inspires everything in my life and enables me to do the best that I can. I want to hang out with him more than anyone.</b>
+> <p><i>Faith Hill</i></p>
 
 <br>
