@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing is to look natural, but it takes makeup to look natural.</b>
-> <p><i>Calvin Klein</i></p>
+> <b>I think I can change the game.</b>
+> <p><i>Venus Williams</i></p>
 
 <br>
