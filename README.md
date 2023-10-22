@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, no one asks beauty secrets of me, or 'What size do you wear?' or 'Who's your couturier?' They ask me about really deep things and I love that.</b>
-> <p><i>Shirley MacLaine</i></p>
+> <b>India is the meeting place of the religions and among these Hinduism alone is by itself a vast and complex thing, not so much a religion as a great diversified and yet subtly unified mass of spiritual thought, realization and aspiration.</b>
+> <p><i>Sri Aurobindo</i></p>
 
 <br>
