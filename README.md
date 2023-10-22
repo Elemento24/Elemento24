@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty awakens the soul to act.</b>
-> <p><i>Dante Alighieri</i></p>
+> <b>Friendship is unnecessary, like philosophy, like art... It has no survival value rather it is one of those things that give value to survival.</b>
+> <p><i>C. S. Lewis</i></p>
 
 <br>
