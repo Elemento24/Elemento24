@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't get a chance to do many of my own stunts on 'Buffy' - none of us do. We have amazing stunt people who make us all look really believable and really good.</b>
-> <p><i>Emma Caulfield</i></p>
+> <b>I went to India and met some people who had been involved in this guerrilla business, middle-class people who were rather vain and foolish. There was no revolutionary grandeur to it. Nothing.</b>
+> <p><i>V. S. Naipaul</i></p>
 
 <br>
