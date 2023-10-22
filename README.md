@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is art really the priesthood that demands the pure in heart who belong to it wholly?</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>The best thing is to look natural, but it takes makeup to look natural.</b>
+> <p><i>Calvin Klein</i></p>
 
 <br>
