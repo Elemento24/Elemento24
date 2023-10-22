@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life doesn't require that we be the best, only that we try our best.</b>
-> <p><i>H. Jackson Brown, Jr.</i></p>
+> <b>I've been given an amazing opportunity and I could not be more grateful. But I also know that all this will eventually die off. It's not real. It will go away and then you'll go away and then, I don't know, I'll be left sitting in some English hotel room.</b>
+> <p><i>Josh Brolin</i></p>
 
 <br>
