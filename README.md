@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Madonna remains the most visible performer on the planet, as well as one of the wealthiest, but would anyone seriously say that artistic self-development is her primary motivating principle? She is too busy with Kabbalah, fashion merchandising, adoption melodramas, the gym, and ill-starred horseback riding to study art.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>There is a certain age at which a child looks at you in all earnestness and delivers a long, pleased speech in all the true inflections of spoken English, but with not one recognizable syllable.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
