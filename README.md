@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What we have done for ourselves alone dies with us what we have done for others and the world remains and is immortal.</b>
-> <p><i>Albert Pike</i></p>
+> <b>Life doesn't require that we be the best, only that we try our best.</b>
+> <p><i>H. Jackson Brown, Jr.</i></p>
 
 <br>
