@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went to India and met some people who had been involved in this guerrilla business, middle-class people who were rather vain and foolish. There was no revolutionary grandeur to it. Nothing.</b>
-> <p><i>V. S. Naipaul</i></p>
+> <b>I mean, no one asks beauty secrets of me, or 'What size do you wear?' or 'Who's your couturier?' They ask me about really deep things and I love that.</b>
+> <p><i>Shirley MacLaine</i></p>
 
 <br>
