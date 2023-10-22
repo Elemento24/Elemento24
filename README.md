@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Friendship is unnecessary, like philosophy, like art... It has no survival value rather it is one of those things that give value to survival.</b>
-> <p><i>C. S. Lewis</i></p>
+> <b>I don't get a chance to do many of my own stunts on 'Buffy' - none of us do. We have amazing stunt people who make us all look really believable and really good.</b>
+> <p><i>Emma Caulfield</i></p>
 
 <br>
