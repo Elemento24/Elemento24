@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you Google me, you'll find a lot of people don't like Richard Dreyfuss. Because I'm cocky and I present a cocky attitude. But no one has ever disagreed with the notion I represent, that we need more civic education. So far there's 100 percent support for that.</b>
-> <p><i>Richard Dreyfuss</i></p>
+> <b>Madonna remains the most visible performer on the planet, as well as one of the wealthiest, but would anyone seriously say that artistic self-development is her primary motivating principle? She is too busy with Kabbalah, fashion merchandising, adoption melodramas, the gym, and ill-starred horseback riding to study art.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
