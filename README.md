@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With age, you get to a place where you don't want to knock people out. You just want to give people a hug.</b>
-> <p><i>Vin Diesel</i></p>
+> <b>I am also hugely excited to then be competing to defend my three Paralympic titles at the Paralympic Games. I believe we will see some amazing times posted and I am very much looking forward to what will be an incredible Olympics and Paralympics in London.</b>
+> <p><i>Oscar Pistorius</i></p>
 
 <br>
