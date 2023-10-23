@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first rule of business is: Do other men for they would do you.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>I've created, directed and choreographed for Lady Gaga since the beginning, so 'Born This Way,' this was musically such an amazing evolution and such a brilliant record. So when she played it for me, it took me a while to find out the visual interpretation that I could give back to her.</b>
+> <p><i>Laurieann Gibson</i></p>
 
 <br>
