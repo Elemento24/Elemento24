@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If people don't like me for whatever I do, for being me, then that's too bad. I don't want to change to be something that I'm not for other people to like me.</b>
-> <p><i>Vanessa Hudgens</i></p>
+> <b>Genuine forgiveness does not deny anger but faces it head-on.</b>
+> <p><i>Alice Duer Miller</i></p>
 
 <br>
