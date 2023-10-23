@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've created, directed and choreographed for Lady Gaga since the beginning, so 'Born This Way,' this was musically such an amazing evolution and such a brilliant record. So when she played it for me, it took me a while to find out the visual interpretation that I could give back to her.</b>
-> <p><i>Laurieann Gibson</i></p>
+> <b>The great thing about celebrity culture is that they can't seem to stop themselves from displaying their ridiculous behaviour. I feel it's my job as a serious investigative journalist to witness all kinds of behaviour and then report back to the audience through the prism of my own anger and bitterness.</b>
+> <p><i>Kathy Griffin</i></p>
 
 <br>
