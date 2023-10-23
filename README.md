@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was raised not to be rude, but I also try to get the best work out of people.</b>
-> <p><i>Dick Wolf</i></p>
+> <b>Seeing yourself in print is such an amazing concept: you can get so much attention without having to actually show up somewhere... You don't have to dress up, for instance, and you can't hear them boo you right away.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
