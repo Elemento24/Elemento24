@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You teach best what you most need to learn.</b>
-> <p><i>Richard Bach</i></p>
+> <b>With age, you get to a place where you don't want to knock people out. You just want to give people a hug.</b>
+> <p><i>Vin Diesel</i></p>
 
 <br>
