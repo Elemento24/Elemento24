@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love change, I need it.</b>
-> <p><i>Rod Stewart</i></p>
+> <b>I was raised not to be rude, but I also try to get the best work out of people.</b>
+> <p><i>Dick Wolf</i></p>
 
 <br>
