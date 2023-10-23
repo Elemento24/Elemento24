@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a victory, and defeat the first and best of victories, the lowest and worst of defeats which each man gains or sustains at the hands not of another, but of himself.</b>
-> <p><i>Plato</i></p>
+> <b>I am of a healthy long lived race, and our minds improve with age.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
