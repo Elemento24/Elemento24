@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The great thing about celebrity culture is that they can't seem to stop themselves from displaying their ridiculous behaviour. I feel it's my job as a serious investigative journalist to witness all kinds of behaviour and then report back to the audience through the prism of my own anger and bitterness.</b>
-> <p><i>Kathy Griffin</i></p>
+> <b>If people don't like me for whatever I do, for being me, then that's too bad. I don't want to change to be something that I'm not for other people to like me.</b>
+> <p><i>Vanessa Hudgens</i></p>
 
 <br>
