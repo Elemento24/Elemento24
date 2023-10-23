@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm noticing a new approach to art making in recent museum and gallery shows. It flickered into focus at the New Museum's 'Younger Than Jesus' last year and ran through the Whitney Biennial, and I'm seeing it blossom and bear fruit at 'Greater New York,' MoMA P.S. 1's twice-a-decade extravaganza of emerging local talent.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>There's a victory, and defeat the first and best of victories, the lowest and worst of defeats which each man gains or sustains at the hands not of another, but of himself.</b>
+> <p><i>Plato</i></p>
 
 <br>
