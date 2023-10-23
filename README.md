@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is our moral obligation to give every child the very best education possible.</b>
-> <p><i>Desmond Tutu</i></p>
+> <b>You teach best what you most need to learn.</b>
+> <p><i>Richard Bach</i></p>
 
 <br>
