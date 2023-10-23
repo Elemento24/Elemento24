@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I wish I could drive a car, but I'm gonna drive a car one day, so I don't worry about that.</b>
-> <p><i>Stevie Wonder</i></p>
+> <b>The thing I like about baseball is that it's one-on-one. You stand up there alone, and if you make a mistake, it's your mistake. If you hit a home run, it's your home run.</b>
+> <p><i>Hank Aaron</i></p>
 
 <br>
