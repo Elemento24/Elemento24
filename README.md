@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am of a healthy long lived race, and our minds improve with age.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>And I believe that the best learning process of any kind of craft is just to look at the work of others.</b>
+> <p><i>Wole Soyinka</i></p>
 
 <br>
