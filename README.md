@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thing I like about baseball is that it's one-on-one. You stand up there alone, and if you make a mistake, it's your mistake. If you hit a home run, it's your home run.</b>
-> <p><i>Hank Aaron</i></p>
+> <b>If I could set a world record, it would be that I have 150 business partners, all with thriving businesses of their own that started with nothing and I made the difference to make them all billionaires.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
