@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It has always been difficult for Man to realize that his life is all an art. It has been more difficult to conceive it so than to act it so. For that is always how he has more or less acted it.</b>
-> <p><i>Havelock Ellis</i></p>
+> <b>The best way to keep one's word is not to give it.</b>
+> <p><i>Napoleon Bonaparte</i></p>
 
 <br>
