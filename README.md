@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Many individuals are doing what they can. But real success can only come if there is a change in our societies and in our economics and in our politics.</b>
-> <p><i>David Attenborough</i></p>
+> <b>Something about Texas I'm not proud of is that our state murdered 37 people last year alone.</b>
+> <p><i>Richard Linklater</i></p>
 
 <br>
