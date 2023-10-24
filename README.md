@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With my wife I don't get no respect. I made a toast on her birthday to 'the best woman a man ever had.' The waiter joined me.</b>
-> <p><i>Rodney Dangerfield</i></p>
+> <b>Sleep is good, death is better but of course, the best thing would to have never been born at all.</b>
+> <p><i>Heinrich Heine</i></p>
 
 <br>
