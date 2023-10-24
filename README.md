@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It can be hard in this business, especially when you're very young, to figure out who you can and can't trust.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>Instead of focusing on that circumstances that you cannot change - focus strongly and powerfully on the circumstances that you can.</b>
+> <p><i>Joy Page</i></p>
 
 <br>
