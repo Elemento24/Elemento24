@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is a radiance that originates from within and comes from inner security and strong character.</b>
-> <p><i>Jane Seymour</i></p>
+> <b>Japanese architecture is traditionally based on wooden structures that need renovating on a regular basis.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
