@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sleep is good, death is better but of course, the best thing would to have never been born at all.</b>
-> <p><i>Heinrich Heine</i></p>
+> <b>Acquire the habit of speaking to God as if you were alone with Him, familiarly and with confidence and love, as to the dearest and most loving of friends.</b>
+> <p><i>Alphonsus Liguori</i></p>
 
 <br>
