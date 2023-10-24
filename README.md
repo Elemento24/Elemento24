@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to keep one's word is not to give it.</b>
-> <p><i>Napoleon Bonaparte</i></p>
+> <b>Many individuals are doing what they can. But real success can only come if there is a change in our societies and in our economics and in our politics.</b>
+> <p><i>David Attenborough</i></p>
 
 <br>
