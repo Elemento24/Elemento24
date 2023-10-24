@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Normal is getting dressed in clothes that you buy for work, driving through traffic in a car that you are still paying for, in order to get to a job that you need so you can pay for the clothes, car and the house that you leave empty all day in order to afford to live in it.</b>
-> <p><i>Ellen Goodman</i></p>
+> <b>Changing my body has given me the ability to do all these amazing things that I never in a million years imagined I could do.</b>
+> <p><i>Robin Quivers</i></p>
 
 <br>
