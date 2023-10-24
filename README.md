@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Changing my body has given me the ability to do all these amazing things that I never in a million years imagined I could do.</b>
-> <p><i>Robin Quivers</i></p>
+> <b>Since we live in this world, we have to do our best for this world.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
