@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since we live in this world, we have to do our best for this world.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>It can be hard in this business, especially when you're very young, to figure out who you can and can't trust.</b>
+> <p><i>Christina Aguilera</i></p>
 
 <br>
