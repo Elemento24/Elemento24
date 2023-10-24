@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is spiritual. The music business is not.</b>
-> <p><i>Van Morrison</i></p>
+> <b>A man sits in his car at the traffic lights, waiting for them to go green.</b>
+> <p><i>Michael Frayn</i></p>
 
 <br>
