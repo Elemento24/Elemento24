@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An attitude to life which seeks fulfillment in the single-minded pursuit of wealth - in short, materialism - does not fit into this world, because it contains within itself no limiting principle, while the environment in which it is placed is strictly limited.</b>
-> <p><i>E. F. Schumacher</i></p>
+> <b>Music is spiritual. The music business is not.</b>
+> <p><i>Van Morrison</i></p>
 
 <br>
