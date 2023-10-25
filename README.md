@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A private railroad car is not an acquired taste. One takes to it immediately.</b>
-> <p><i>Eleanor Robson Belmont</i></p>
+> <b>In youth we learn in age we understand.</b>
+> <p><i>Marie von Ebner-Eschenbach</i></p>
 
 <br>
