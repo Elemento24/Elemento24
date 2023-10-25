@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But, if you observe children learning in their first few years of life, you can see that they can and do learn on their own - we leave them alone to crawl, walk, talk, and gain control over their bodies. It happens without much help from parents.</b>
-> <p><i>Daniel Greenberg</i></p>
+> <b>The age in which we live, this non-stop distraction, is making it more impossible for the young generation to ever have the curiosity or discipline... because you need to be alone to find out anything.</b>
+> <p><i>Vivienne Westwood</i></p>
 
 <br>
