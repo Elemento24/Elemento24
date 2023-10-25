@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All art is exorcism. I paint dreams and visions too the dreams and visions of my time. Painting is the effort to produce order order in yourself. There is much chaos in me, much chaos in our time.</b>
-> <p><i>Otto Dix</i></p>
+> <b>I always say you can never be extravagant with beauty. Beauty is God made real. Beauty is life.</b>
+> <p><i>Imelda Marcos</i></p>
 
 <br>
