@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was Julie Burchill who decreed that, beyond a certain age, a man should not be seen in a leather jacket.</b>
-> <p><i>Arthur Smith</i></p>
+> <b>My home has always been show business.</b>
+> <p><i>Sammy Davis, Jr.</i></p>
 
 <br>
