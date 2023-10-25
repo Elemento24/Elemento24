@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man seeks to change the foods available in nature to suit his tastes, thereby putting an end to the very essence of life contained in them.</b>
-> <p><i>Sai Baba</i></p>
+> <b>A private railroad car is not an acquired taste. One takes to it immediately.</b>
+> <p><i>Eleanor Robson Belmont</i></p>
 
 <br>
