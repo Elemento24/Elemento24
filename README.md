@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've lost touch with a lot of that boutique-type music just because of my age, and raising my son and the multiple jobs I have at this point.</b>
-> <p><i>Liz Phair</i></p>
+> <b>I'm probably the only person who goes to work and says 'Wow, it's really nice here and sweet,' even in the competitive movie business.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
