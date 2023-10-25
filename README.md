@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In youth we learn in age we understand.</b>
-> <p><i>Marie von Ebner-Eschenbach</i></p>
+> <b>I love photo sessions. I'm alone, I'm the queen, everyone's taking care of me.</b>
+> <p><i>Eva Herzigova</i></p>
 
 <br>
