@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religion and art spring from the same root and are close kin. Economics and art are strangers.</b>
-> <p><i>Nathaniel Hawthorne</i></p>
+> <b>Thinking well to be wise: planning well, wiser: doing well wisest and best of all.</b>
+> <p><i>Malcolm Forbes</i></p>
 
 <br>
