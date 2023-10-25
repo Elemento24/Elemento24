@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My home has always been show business.</b>
-> <p><i>Sammy Davis, Jr.</i></p>
+> <b>New Orleans in an amazing town.</b>
+> <p><i>Benjamin Walker</i></p>
 
 <br>
