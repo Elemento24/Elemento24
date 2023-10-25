@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To talk about a relationship trivializes something that's nobody's business.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>Religion and art spring from the same root and are close kin. Economics and art are strangers.</b>
+> <p><i>Nathaniel Hawthorne</i></p>
 
 <br>
