@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He was afflicted by the thought that where Beauty was, nothing ever ran quite straight, which no doubt, was why so many people looked on it as immoral.</b>
-> <p><i>John Galsworthy</i></p>
+> <b>All art is exorcism. I paint dreams and visions too the dreams and visions of my time. Painting is the effort to produce order order in yourself. There is much chaos in me, much chaos in our time.</b>
+> <p><i>Otto Dix</i></p>
 
 <br>
