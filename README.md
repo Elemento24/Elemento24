@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>New Orleans in an amazing town.</b>
-> <p><i>Benjamin Walker</i></p>
+> <b>Man seeks to change the foods available in nature to suit his tastes, thereby putting an end to the very essence of life contained in them.</b>
+> <p><i>Sai Baba</i></p>
 
 <br>
