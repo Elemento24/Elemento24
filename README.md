@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to go to anybody else's birthday, and if I'm invited I'm a good guest. But I never celebrate my birthdays. I really don't care.</b>
-> <p><i>Mikhail Baryshnikov</i></p>
+> <b>The people I've been exposed to have been people of amazing integrity.</b>
+> <p><i>Amy Grant</i></p>
 
 <br>
