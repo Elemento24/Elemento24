@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mainly what I learned from Buddy... was an attitude. He loved music, and he taught me that it shouldn't have any barriers to it.</b>
-> <p><i>Waylon Jennings</i></p>
+> <b>I have a new little stray dog that I've had for about a month now. His name is Mikey Mohawk - he's this little terrier with a natural Mohawk. My friend found him hit by a car on Pico Boulevard.</b>
+> <p><i>Krysten Ritter</i></p>
 
 <br>
