@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I try to write lyrics so that they won't age, which sort of leaves you with the big subjects like death and love and sex and violence.</b>
-> <p><i>Florence Welch</i></p>
+> <b>The business of America is business.</b>
+> <p><i>Calvin Coolidge</i></p>
 
 <br>
