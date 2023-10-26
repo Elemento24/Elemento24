@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Until the Eighties, Oslo was a rather boring town, but it's changed a lot, and is now much more cosmopolitan. If I go downtown, I visit the harbour to see the tall ships and the ferries, and to admire the modern architecture such as the Opera House or the new Astrup Fearnley Museum on the water's edge.</b>
-> <p><i>Jo Nesbo</i></p>
+> <b>We're all doing different things and some of the girls are mums, so priorities have changed. But I would love to do something with the Spice Girls again. I know we would have an amazing time.</b>
+> <p><i>Emma Bunton</i></p>
 
 <br>
