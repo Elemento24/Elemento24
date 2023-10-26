@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The question remains: which brands will commit to creating a private sector pillar of social change, and which will become casualties of their own outdated thinking?</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>The customs and fashions of men change like leaves on the bough, some of which go and others come.</b>
+> <p><i>Dante Alighieri</i></p>
 
 <br>
