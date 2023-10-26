@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If anybody ran a business like that they would be out of business quickly, and Barack Obama's leadership is driving this business, the United States of America, toward a fiscal cliff.</b>
-> <p><i>Chris Christie</i></p>
+> <b>Does age matter? Time doesn't matter.</b>
+> <p><i>Sandra Bullock</i></p>
 
 <br>
