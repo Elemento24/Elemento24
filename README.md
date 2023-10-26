@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business of America is business.</b>
-> <p><i>Calvin Coolidge</i></p>
+> <b>Mainly what I learned from Buddy... was an attitude. He loved music, and he taught me that it shouldn't have any barriers to it.</b>
+> <p><i>Waylon Jennings</i></p>
 
 <br>
