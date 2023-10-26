@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're all doing different things and some of the girls are mums, so priorities have changed. But I would love to do something with the Spice Girls again. I know we would have an amazing time.</b>
-> <p><i>Emma Bunton</i></p>
+> <b>I saw 'The Artist.' It's really beautiful and it's all done to the letter with all the silent film techniques. The costumes were amazing and the dog is so good.</b>
+> <p><i>Florence Welch</i></p>
 
 <br>
