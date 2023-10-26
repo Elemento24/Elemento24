@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think one of the things that language poets are very involved with is getting away from conventional ideas of beauty, because those ideas contain a certain attitude toward women, certain attitudes toward sex, certain attitudes toward race, etc.</b>
-> <p><i>Diane Wakoski</i></p>
+> <b>Well... I had braces and I had to wear headgear! I loved my braces, actually. For me, they were like a piece of jewelry! Instead of the silver or pewter I had gold braces. It was so much fun, I loved them. I got to change the colors and stuff and I had the rubber bands.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
