@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I saw 'The Artist.' It's really beautiful and it's all done to the letter with all the silent film techniques. The costumes were amazing and the dog is so good.</b>
-> <p><i>Florence Welch</i></p>
+> <b>The question remains: which brands will commit to creating a private sector pillar of social change, and which will become casualties of their own outdated thinking?</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
