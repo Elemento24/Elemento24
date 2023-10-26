@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best remedy for those who are afraid, lonely or unhappy is to go outside, somewhere where they can be quiet, alone with the heavens, nature and God. Because only then does one feel that all is as it should be.</b>
-> <p><i>Anne Frank</i></p>
+> <b>Until the Eighties, Oslo was a rather boring town, but it's changed a lot, and is now much more cosmopolitan. If I go downtown, I visit the harbour to see the tall ships and the ferries, and to admire the modern architecture such as the Opera House or the new Astrup Fearnley Museum on the water's edge.</b>
+> <p><i>Jo Nesbo</i></p>
 
 <br>
