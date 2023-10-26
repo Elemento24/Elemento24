@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you walk the track and you see a corner and realise you were going round it at 160mph, you wonder who could be so stupid to take a corner at that speed. But in the car, you don't even think about that.</b>
-> <p><i>Sebastian Vettel</i></p>
+> <b>Art has to move you and design does not, unless it's a good design for a bus.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
