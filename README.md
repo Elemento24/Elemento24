@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you do not change direction, you may end up where you are heading.</b>
-> <p><i>Lao Tzu</i></p>
+> <b>I just enjoy working with really wonderful actors and amazing creative people and I hope to keep doing that, no matter where.</b>
+> <p><i>Stana Katic</i></p>
 
 <br>
