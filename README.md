@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Childbirth is more admirable than conquest, more amazing than self-defense, and as courageous as either one.</b>
-> <p><i>Gloria Steinem</i></p>
+> <b>I am so sick of reading about another car bomb, another suicide bomber, another 10, 20, 30, 70, 100 people dead in a day, both Americans and Iraqis.</b>
+> <p><i>Rosanne Cash</i></p>
 
 <br>
