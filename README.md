@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am so sick of reading about another car bomb, another suicide bomber, another 10, 20, 30, 70, 100 people dead in a day, both Americans and Iraqis.</b>
-> <p><i>Rosanne Cash</i></p>
+> <b>When you walk the track and you see a corner and realise you were going round it at 160mph, you wonder who could be so stupid to take a corner at that speed. But in the car, you don't even think about that.</b>
+> <p><i>Sebastian Vettel</i></p>
 
 <br>
