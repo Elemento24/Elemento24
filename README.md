@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art has to move you and design does not, unless it's a good design for a bus.</b>
-> <p><i>David Hockney</i></p>
+> <b>If anybody ran a business like that they would be out of business quickly, and Barack Obama's leadership is driving this business, the United States of America, toward a fiscal cliff.</b>
+> <p><i>Chris Christie</i></p>
 
 <br>
