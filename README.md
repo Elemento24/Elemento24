@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Does age matter? Time doesn't matter.</b>
-> <p><i>Sandra Bullock</i></p>
+> <b>I think one of the things that language poets are very involved with is getting away from conventional ideas of beauty, because those ideas contain a certain attitude toward women, certain attitudes toward sex, certain attitudes toward race, etc.</b>
+> <p><i>Diane Wakoski</i></p>
 
 <br>
