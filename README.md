@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The age in which we live, this non-stop distraction, is making it more impossible for the young generation to ever have the curiosity or discipline... because you need to be alone to find out anything.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>I like to go to anybody else's birthday, and if I'm invited I'm a good guest. But I never celebrate my birthdays. I really don't care.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
