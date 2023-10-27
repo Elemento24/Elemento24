@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We Orientals find beauty not only in the thing itself but in the pattern of the shadows, the light and darkness which that thing provides.</b>
-> <p><i>Junichiro Tanizaki</i></p>
+> <b>A thing of beauty is a joy forever: its loveliness increases it will never pass into nothingness.</b>
+> <p><i>John Keats</i></p>
 
 <br>
