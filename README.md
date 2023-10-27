@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If there's one thing I really want for my birthday, that is for the mining company not to mine my daddy's reserve.</b>
-> <p><i>Bindi Irwin</i></p>
+> <b>Every human has four endowments- self awareness, conscience, independent will and creative imagination. These give us the ultimate human freedom... The power to choose, to respond, to change.</b>
+> <p><i>Stephen Covey</i></p>
 
 <br>
