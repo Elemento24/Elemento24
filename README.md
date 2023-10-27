@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is wrong with the Iranians in addition to the nuclear bomb? This is the only country on Earth in the 21st century that has renewed imperialistic ambitions. They really want to become the hegemon of the Middle East in an age that gave up imperialism.</b>
-> <p><i>Shimon Peres</i></p>
+> <b>Children under five are the poorest age group in America, and one in four infants, toddlers and preschoolers are poor during the years of greatest brain development.</b>
+> <p><i>Marian Wright Edelman</i></p>
 
 <br>
