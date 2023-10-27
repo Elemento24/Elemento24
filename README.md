@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love has no age, no limit and no death.</b>
-> <p><i>John Galsworthy</i></p>
+> <b>Run a home like you would a small business and treat it with the same seriousness.</b>
+> <p><i>Anthea Turner</i></p>
 
 <br>
