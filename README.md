@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just want people to know that if they want to change the direction of the country, they can do it, but only if they're active, informed, and engaged.</b>
-> <p><i>Jim DeMint</i></p>
+> <b>I try to contrast life today is full of contrast... We have to change.</b>
+> <p><i>Gianni Versace</i></p>
 
 <br>
