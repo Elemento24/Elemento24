@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diplomacy, n. is the art of letting somebody else have your way.</b>
-> <p><i>David Frost</i></p>
+> <b>Working with amazing people, you continue to learn and develop yourself, as an actor and as a person.</b>
+> <p><i>Josh Hutcherson</i></p>
 
 <br>
