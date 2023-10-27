@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music makes your soul feel amazing while you're performing it.</b>
-> <p><i>Bijou Phillips</i></p>
+> <b>The jokes are great but what really matters for a comedian is his performance, his whole attitude, and the laughs that he gets between the jokes rather than on top of the jokes.</b>
+> <p><i>Jack Dee</i></p>
 
 <br>
