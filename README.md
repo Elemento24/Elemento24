@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A thing of beauty is a joy forever: its loveliness increases it will never pass into nothingness.</b>
-> <p><i>John Keats</i></p>
+> <b>If there's one thing I really want for my birthday, that is for the mining company not to mine my daddy's reserve.</b>
+> <p><i>Bindi Irwin</i></p>
 
 <br>
