@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was able to support myself by acting alone about six years ago. Until then, I was just scraping by.</b>
-> <p><i>Edie Falco</i></p>
+> <b>Politics is the reflex of the business and industrial world.</b>
+> <p><i>Emma Goldman</i></p>
 
 <br>
