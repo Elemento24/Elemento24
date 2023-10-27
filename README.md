@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every human has four endowments- self awareness, conscience, independent will and creative imagination. These give us the ultimate human freedom... The power to choose, to respond, to change.</b>
-> <p><i>Stephen Covey</i></p>
+> <b>Music makes your soul feel amazing while you're performing it.</b>
+> <p><i>Bijou Phillips</i></p>
 
 <br>
