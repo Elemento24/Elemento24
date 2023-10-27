@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The jokes are great but what really matters for a comedian is his performance, his whole attitude, and the laughs that he gets between the jokes rather than on top of the jokes.</b>
-> <p><i>Jack Dee</i></p>
+> <b>I just want people to know that if they want to change the direction of the country, they can do it, but only if they're active, informed, and engaged.</b>
+> <p><i>Jim DeMint</i></p>
 
 <br>
