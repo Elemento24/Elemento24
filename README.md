@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the adversity I've had in my life, all my troubles and obstacles, have strengthened me... You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you.</b>
-> <p><i>Walt Disney</i></p>
+> <b>I like to be alone so I can write. But focus can hurt you. I don't want to be some stress casualty in early middle age.</b>
+> <p><i>James Ellroy</i></p>
 
 <br>
