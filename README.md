@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The customs and fashions of men change like leaves on the bough, some of which go and others come.</b>
-> <p><i>Dante Alighieri</i></p>
+> <b>At 13, when I was a runaway, I was taken in by the most amazing drag queens in Portland, Ore. We didn't always know where our next meal was coming from, but there was so much camaraderie and love. Not to mention, those girls could paint a face, and I learned how because of them.</b>
+> <p><i>Rose McGowan</i></p>
 
 <br>
