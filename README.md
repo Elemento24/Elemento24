@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't get rid of it with exercise alone. You can do the most vigorous exercise and only burn up 300 calories in an hour. If you've got fat on your body, the exercise firms and tones the muscles. But when you use that tape measure, what makes it bigger? It's the fat!</b>
-> <p><i>Jack LaLanne</i></p>
+> <b>The most basic question is not what is best, but who shall decide what is best.</b>
+> <p><i>Thomas Sowell</i></p>
 
 <br>
