@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything will change. The only question is growing up or decaying.</b>
-> <p><i>Nikki Giovanni</i></p>
+> <b>It is art that makes life, makes interest, makes importance and I know of no substitute whatever for the force and beauty of its process.</b>
+> <p><i>Max Eastman</i></p>
 
 <br>
