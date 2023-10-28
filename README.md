@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's best to leap into something you know you love. You might change your mind later, but that is the privilege of youth.</b>
-> <p><i>Charles Kuralt</i></p>
+> <b>I don't think the human mind can comprehend the past and the future. They are both just illusions that can manipulate you into thinking theres some kind of change.</b>
+> <p><i>Bob Dylan</i></p>
 
 <br>
