@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Though the Jazz Age continued it became less and less an affair of youth. The sequel was like a children's party taken over by the elders.</b>
-> <p><i>F. Scott Fitzgerald</i></p>
+> <b>You can't get rid of it with exercise alone. You can do the most vigorous exercise and only burn up 300 calories in an hour. If you've got fat on your body, the exercise firms and tones the muscles. But when you use that tape measure, what makes it bigger? It's the fat!</b>
+> <p><i>Jack LaLanne</i></p>
 
 <br>
