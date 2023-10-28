@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm doing a film, I love getting together after work with my costars. But we get back to L.A. and I'm like, 'I don't want to go to a club with you, dude. I mean, I think you're rad, and if you want to come play Scrabble with me, that's amazing.'</b>
-> <p><i>Ginnifer Goodwin</i></p>
+> <b>Trust him not with your secrets, who, when left alone in your room, turns over your papers.</b>
+> <p><i>Johann Kaspar Lavater</i></p>
 
 <br>
