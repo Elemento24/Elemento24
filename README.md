@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think the human mind can comprehend the past and the future. They are both just illusions that can manipulate you into thinking theres some kind of change.</b>
-> <p><i>Bob Dylan</i></p>
+> <b>Art is much less important than life, but what a poor life without it.</b>
+> <p><i>Robert Motherwell</i></p>
 
 <br>
