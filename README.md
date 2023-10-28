@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Auction houses run a rigged game. They know exactly how many people will be bidding on a work and exactly who they are. In a gallery, works of art need only one person who wants to pay for them.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Oh literature, oh the glorious Art, how it preys upon the marrow in our bones. It scoops the stuffing out of us, and chucks us aside. Alas!</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
