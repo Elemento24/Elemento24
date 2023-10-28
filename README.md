@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is much less important than life, but what a poor life without it.</b>
-> <p><i>Robert Motherwell</i></p>
+> <b>Though the Jazz Age continued it became less and less an affair of youth. The sequel was like a children's party taken over by the elders.</b>
+> <p><i>F. Scott Fitzgerald</i></p>
 
 <br>
