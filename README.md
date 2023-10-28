@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had to stop driving my car for a while... the tires got dizzy.</b>
-> <p><i>Steven Wright</i></p>
+> <b>I never called my work an 'art'. It's part of show business, the business of building entertainment.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
