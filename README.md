@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thing that is really hard, and really amazing, is giving up on being perfect and beginning the work of becoming yourself.</b>
-> <p><i>Anna Quindlen</i></p>
+> <b>I had to stop driving my car for a while... the tires got dizzy.</b>
+> <p><i>Steven Wright</i></p>
 
 <br>
