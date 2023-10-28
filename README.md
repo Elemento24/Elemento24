@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to win against the intolerable is to tolerate them, for this they have seldom dealt with. Your indulgence may soften their malice and open their eyes to more honorable ways.</b>
-> <p><i>Bryant H. McGill</i></p>
+> <b>Politics is the art of preventing people from busying themselves with what is their own business.</b>
+> <p><i>Paul Valery</i></p>
 
 <br>
