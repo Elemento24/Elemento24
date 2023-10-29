@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Far and away the best prize that life has to offer is the chance to work hard at work worth doing.</b>
-> <p><i>Theodore Roosevelt</i></p>
+> <b>The world hates change, yet it is the only thing that has brought progress.</b>
+> <p><i>Charles Kettering</i></p>
 
 <br>
