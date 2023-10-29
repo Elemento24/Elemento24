@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man shall not live by bread alone, but by every word that proceeds from the mouth of God.</b>
-> <p><i>Jesus Christ</i></p>
+> <b>One person alone can't do anything as important as bringing genuine democracy to a country.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
