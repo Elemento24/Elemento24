@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great artists are people who find the way to be themselves in their art. Any sort of pretension induces mediocrity in art and life alike.</b>
-> <p><i>Margot Fonteyn</i></p>
+> <b>Alas, after a certain age every man is responsible for his face.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
