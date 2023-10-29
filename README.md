@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When he was born, I looked at my little boy and felt an unconditional love I never knew was inside me. As he grew, and I watched him stagger about, squeak his first words, and turn into a beautiful little boy, that feeling did not change.</b>
-> <p><i>Tony Parsons</i></p>
+> <b>Presently, the Commission for Commemorating 350 Years of American Jewish History has been brought about to encourage and sponsor a variety of historical activities that advance our understanding of the American Jewish experience as it marks this milestone anniversary.</b>
+> <p><i>Jon Porter</i></p>
 
 <br>
