@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>According to the Small Business Administration, more than 70 percent of all family businesses do not survive through the second generation, and 8 percent do not make it to a third.</b>
-> <p><i>Kit Bond</i></p>
+> <b>The only business of the head in the world is to bow a ceaseless obeisance to the heart.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
