@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Parking is a nightmare for me... I still have sensors on my car that help me park.</b>
-> <p><i>Jordana Brewster</i></p>
+> <b>No harm comes to man from outside alone: dumbness is the objective spirit.</b>
+> <p><i>Theodor Adorno</i></p>
 
 <br>
