@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The team architecture means setting up an organization that helps people produce that great work in teams.</b>
-> <p><i>Jay Chiat</i></p>
+> <b>No, but way before that, I've been doing little dances in movies for years. Yeah, that was an amazing chance. You know, at my age to be able to do a music dance video, very unusual.</b>
+> <p><i>Christopher Walken</i></p>
 
 <br>
