@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Amazement awaits us at every corner.</b>
-> <p><i>James Broughton</i></p>
+> <b>The team architecture means setting up an organization that helps people produce that great work in teams.</b>
+> <p><i>Jay Chiat</i></p>
 
 <br>
