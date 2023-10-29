@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't change on me. Don't extort me unless you intend to do it forever.</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>The man with the best job in the country is the vice-president. All he has to do is get up every morning and say, 'How is the president?'</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
