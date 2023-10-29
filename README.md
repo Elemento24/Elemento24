@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To go to the Oscars for Moneyball - that was pretty amazing. And to be able to go work with Kathryn Bigelow - that's going to be pretty sweet. Hopefully I don't have to go back to being a waiter. That's still my main goal.</b>
-> <p><i>Chris Pratt</i></p>
+> <b>Parking is a nightmare for me... I still have sensors on my car that help me park.</b>
+> <p><i>Jordana Brewster</i></p>
 
 <br>
