@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No, but way before that, I've been doing little dances in movies for years. Yeah, that was an amazing chance. You know, at my age to be able to do a music dance video, very unusual.</b>
-> <p><i>Christopher Walken</i></p>
+> <b>Man shall not live by bread alone, but by every word that proceeds from the mouth of God.</b>
+> <p><i>Jesus Christ</i></p>
 
 <br>
