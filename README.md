@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Presently, the Commission for Commemorating 350 Years of American Jewish History has been brought about to encourage and sponsor a variety of historical activities that advance our understanding of the American Jewish experience as it marks this milestone anniversary.</b>
-> <p><i>Jon Porter</i></p>
+> <b>Far and away the best prize that life has to offer is the chance to work hard at work worth doing.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
