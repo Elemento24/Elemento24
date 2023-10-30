@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is born of humiliation.</b>
-> <p><i>W. H. Auden</i></p>
+> <b>Excellence is the best deterrent to racism or sexism.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
