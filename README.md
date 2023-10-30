@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Learn to say 'no' to the good so you can say 'yes' to the best.</b>
-> <p><i>John C. Maxwell</i></p>
+> <b>Good manners will open doors that the best education cannot.</b>
+> <p><i>Clarence Thomas</i></p>
 
 <br>
