@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are the children of a technological age. We have found streamlined ways of doing much of our routine work. Printing is no longer the only way of reproducing books. Reading them, however, has not changed.</b>
-> <p><i>Lawrence Clark Powell</i></p>
+> <b>I thought about how we need to make children feel that there are times in their lives when they need to be alone and quiet and to be able to accept their aloneness.</b>
+> <p><i>Bell Hooks</i></p>
 
 <br>
