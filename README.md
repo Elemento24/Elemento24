@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So as I look at transitioning to the communication platforms of the future, I see that the beauty of Internet protocols is you get the separation of the layers between service and technology.</b>
-> <p><i>Michael K. Powell</i></p>
+> <b>They put chains on me they chained my waist, my legs. Put me in the back of a squad car, and I literally blacked out. I didn't even - there's whole pieces missing.</b>
+> <p><i>Jim Bakker</i></p>
 
 <br>
