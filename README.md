@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I prefer younger men. In some ways, they are much more open to a woman being stronger and independent then some of the men my age.</b>
-> <p><i>Kim Cattrall</i></p>
+> <b>Art is born of humiliation.</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
