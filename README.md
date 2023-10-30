@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your living is determined not so much by what life brings to you as by the attitude you bring to life not so much by what happens to you as by the way your mind looks at what happens.</b>
-> <p><i>Khalil Gibran</i></p>
+> <b>Every artist dips his brush in his own soul, and paints his own nature into his pictures.</b>
+> <p><i>Henry Ward Beecher</i></p>
 
 <br>
