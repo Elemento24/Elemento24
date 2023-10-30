@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of my best friends are Venture Capitalists, but let's face it, a hamster with Alzheimer's could make those kind of numbers. It's great work if you can get it.</b>
-> <p><i>Scott Adams</i></p>
+> <b>So as I look at transitioning to the communication platforms of the future, I see that the beauty of Internet protocols is you get the separation of the layers between service and technology.</b>
+> <p><i>Michael K. Powell</i></p>
 
 <br>
