@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Excellence is the best deterrent to racism or sexism.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>When you have two busy kids running around the house, returning e-mails is a task, let alone surfing the web.</b>
+> <p><i>Tom Brady</i></p>
 
 <br>
