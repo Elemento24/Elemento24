@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am thrilled to be able to bring my vision of beauty to others who may be inspired by it.</b>
-> <p><i>Carol Alt</i></p>
+> <b>If any demonstrator ever lays down in front of my car, it'll be the last car he'll ever lay down in front of.</b>
+> <p><i>George C. Wallace</i></p>
 
 <br>
