@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you have two busy kids running around the house, returning e-mails is a task, let alone surfing the web.</b>
-> <p><i>Tom Brady</i></p>
+> <b>I am thrilled to be able to bring my vision of beauty to others who may be inspired by it.</b>
+> <p><i>Carol Alt</i></p>
 
 <br>
