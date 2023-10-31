@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To look almost pretty is an acquisition of higher delight to a girl who has been looking plain for the first fifteen years of her life than a beauty from her cradle can ever receive.</b>
-> <p><i>Jane Austen</i></p>
+> <b>Let me be absolutely clear. Israel is a strong friend of Israel's. It will be a strong friend of Israel's under a McCain administration. It will be a strong friend of Israel's under an Obama administration. So that policy is not going to change.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
