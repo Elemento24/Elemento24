@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's why I do this music business thing, it's communication with people without having the extreme inconvenience of actually phoning anybody up.</b>
-> <p><i>Steven Morrissey</i></p>
+> <b>There is little difference in people, but that little difference makes a big difference. That little difference is attitude. The big difference is whether it is positive or negative.</b>
+> <p><i>Robert Collier</i></p>
 
 <br>
