@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The arts, quite simply, nourish the soul. They sustain, comfort, inspire. There is nothing like that exquisite moment when you first discover the beauty of connecting with others in celebration of larger ideals and shared wisdom.</b>
-> <p><i>Gordon Gee</i></p>
+> <b>The language of excitement is at best picturesque merely. You must be calm before you can utter oracles.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
