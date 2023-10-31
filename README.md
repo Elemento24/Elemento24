@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The language of excitement is at best picturesque merely. You must be calm before you can utter oracles.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Attitude is your acceptance of the natural laws, or your rejection of the natural laws.</b>
+> <p><i>Stuart Chase</i></p>
 
 <br>
