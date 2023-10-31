@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Murals in restaurants are on a par with the food in museums.</b>
-> <p><i>Peter De Vries</i></p>
+> <b>Everybody kind of perceives me as being angry. It's not anger, it's motivation.</b>
+> <p><i>Roger Clemens</i></p>
 
 <br>
