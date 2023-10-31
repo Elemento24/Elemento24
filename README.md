@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Players should know that if you can't make the contribution of the winning shot, that your attitude every day when you come to practice, or the positive contribution you make through cheering and keeping up team morale, is just as important in the overall picture.</b>
-> <p><i>Sue Wicks</i></p>
+> <b>No man who worships education has got the best out of education... Without a gentle contempt for education no man's education is complete.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
