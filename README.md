@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>First, there is the bare beauty of the logs themselves with their long lines and firm curves. Then there is the open charm felt of the structural features which are not hidden under plaster and ornament, but are clearly revealed, a charm felt in Japanese architecture.</b>
-> <p><i>Gustav Stickley</i></p>
+> <b>Murals in restaurants are on a par with the food in museums.</b>
+> <p><i>Peter De Vries</i></p>
 
 <br>
