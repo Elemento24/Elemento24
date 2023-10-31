@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you get to a certain age, there is no coming back.</b>
-> <p><i>Brian Clough</i></p>
+> <b>There is an infinite difference between a little wrong and just right, between fairly good and the best, between mediocrity and superiority.</b>
+> <p><i>Orison Swett Marden</i></p>
 
 <br>
