@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man who worships education has got the best out of education... Without a gentle contempt for education no man's education is complete.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>When you get to a certain age, there is no coming back.</b>
+> <p><i>Brian Clough</i></p>
 
 <br>
