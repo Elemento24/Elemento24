@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a system of philosophy it is not like the Tower of Babel, so daring its high aim as to seek a shelter against God's anger but it is like a pyramid poised on its apex.</b>
-> <p><i>Adam Sedgwick</i></p>
+> <b>First, there is the bare beauty of the logs themselves with their long lines and firm curves. Then there is the open charm felt of the structural features which are not hidden under plaster and ornament, but are clearly revealed, a charm felt in Japanese architecture.</b>
+> <p><i>Gustav Stickley</i></p>
 
 <br>
