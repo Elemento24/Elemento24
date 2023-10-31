@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry is the art of substantiating shadows, and of lending existence to nothing.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>What we actually learn, from any given set of circumstances, determines whether we become increasingly powerless or more powerful.</b>
+> <p><i>Blaine Lee</i></p>
 
 <br>
