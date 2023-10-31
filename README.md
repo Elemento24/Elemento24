@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let me be absolutely clear. Israel is a strong friend of Israel's. It will be a strong friend of Israel's under a McCain administration. It will be a strong friend of Israel's under an Obama administration. So that policy is not going to change.</b>
-> <p><i>Barack Obama</i></p>
+> <b>That's why I do this music business thing, it's communication with people without having the extreme inconvenience of actually phoning anybody up.</b>
+> <p><i>Steven Morrissey</i></p>
 
 <br>
