@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Surrealism: An archaic term. Formerly an art movement. No longer distinguishable from everyday life.</b>
-> <p><i>Brad Holland</i></p>
+> <b>Beauty is the sole ambition, the exclusive goal of Taste.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
