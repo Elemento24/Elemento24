@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude is your acceptance of the natural laws, or your rejection of the natural laws.</b>
-> <p><i>Stuart Chase</i></p>
+> <b>The true beauty of music is that it connects people. It carries a message, and we, the musicians, are the messengers.</b>
+> <p><i>Roy Ayers</i></p>
 
 <br>
