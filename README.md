@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not always thankless. Let's face it - it's not always thankless. I've gotten a lot of really great recognition and I've worked with amazing people.</b>
-> <p><i>Kyra Sedgwick</i></p>
+> <b>Surrealism: An archaic term. Formerly an art movement. No longer distinguishable from everyday life.</b>
+> <p><i>Brad Holland</i></p>
 
 <br>
