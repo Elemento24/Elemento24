@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh, if I had been loved at the age of seventeen, what an idiot I would be today. Happiness is like smallpox: if you catch it too soon, it can completely ruin your constitution.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>Take the attitude of a student, never be too big to ask questions, never know too much to learn something new.</b>
+> <p><i>Og Mandino</i></p>
 
 <br>
