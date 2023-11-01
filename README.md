@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We do not look in our great cities for our best morality.</b>
-> <p><i>Jane Austen</i></p>
+> <b>During the 80s and 90s, we all became consumed with ourselves. In the 21st century, we've come back to simpler times. People are struggling economically and this has forced them to scale back the material aspects of their lives and realise the beauty of finding the simple joy in being with the people we love.</b>
+> <p><i>Julia Roberts</i></p>
 
 <br>
