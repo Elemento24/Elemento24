@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>During the 80s and 90s, we all became consumed with ourselves. In the 21st century, we've come back to simpler times. People are struggling economically and this has forced them to scale back the material aspects of their lives and realise the beauty of finding the simple joy in being with the people we love.</b>
-> <p><i>Julia Roberts</i></p>
+> <b>In Sleep we lie all naked and alone, in Sleep we are united at the heart of night and darkness, and we are strange and beautiful asleep for we are dying the darkness and we know no death.</b>
+> <p><i>Thomas Wolfe</i></p>
 
 <br>
