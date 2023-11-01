@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We've got to lift our game tremendously. We'll sell our business news and information in print, we'll sell it to anyone who's got a cable system, and we'll sell it on the Web.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>The state has no business in the bedrooms of the nation.</b>
+> <p><i>Pierre Trudeau</i></p>
 
 <br>
