@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The state has no business in the bedrooms of the nation.</b>
-> <p><i>Pierre Trudeau</i></p>
+> <b>Then stirs the feeling infinite, so felt In solitude, where we are least alone.</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
