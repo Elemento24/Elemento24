@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The true beauty of music is that it connects people. It carries a message, and we, the musicians, are the messengers.</b>
-> <p><i>Roy Ayers</i></p>
+> <b>I believe in pink. I believe that laughing is the best calorie burner. I believe in kissing, kissing a lot. I believe in being strong when everything seems to be going wrong. I believe that happy girls are the prettiest girls. I believe that tomorrow is another day and I believe in miracles.</b>
+> <p><i>Audrey Hepburn</i></p>
 
 <br>
