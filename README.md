@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One thing, however, is sure, - that in all cases the effort should be to impose all the cost of repairing the wrong upon the doer of the wrong. This alone is real justice, and of course such justice is necessarily free.</b>
-> <p><i>Benjamin Tucker</i></p>
+> <b>Communication is a continual balancing act, juggling the conflicting needs for intimacy and independence. To survive in the world, we have to act in concert with others, but to survive as ourselves, rather than simply as cogs in a wheel, we have to act alone.</b>
+> <p><i>Deborah Tannen</i></p>
 
 <br>
