@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm amazed. When I was 40, I thought I'd never make 50. And at 50 I thought the frosting on the cake would be 60. At 60, I was still going strong and enjoying everything.</b>
-> <p><i>Gloria Stuart</i></p>
+> <b>Holidays are the best. I couldn't imagine being from a small family.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
