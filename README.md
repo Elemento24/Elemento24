@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe in pink. I believe that laughing is the best calorie burner. I believe in kissing, kissing a lot. I believe in being strong when everything seems to be going wrong. I believe that happy girls are the prettiest girls. I believe that tomorrow is another day and I believe in miracles.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>We've got to lift our game tremendously. We'll sell our business news and information in print, we'll sell it to anyone who's got a cable system, and we'll sell it on the Web.</b>
+> <p><i>Rupert Murdoch</i></p>
 
 <br>
