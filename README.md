@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Communication is a continual balancing act, juggling the conflicting needs for intimacy and independence. To survive in the world, we have to act in concert with others, but to survive as ourselves, rather than simply as cogs in a wheel, we have to act alone.</b>
-> <p><i>Deborah Tannen</i></p>
+> <b>Sometimes when you innovate, you make mistakes. It is best to admit them quickly, and get on with improving your other innovations.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
