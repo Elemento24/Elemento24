@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Holidays are the best. I couldn't imagine being from a small family.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>My mom and my father's birthday are on the same day.</b>
+> <p><i>Victor Cruz</i></p>
 
 <br>
