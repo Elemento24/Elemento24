@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Take the attitude of a student, never be too big to ask questions, never know too much to learn something new.</b>
-> <p><i>Og Mandino</i></p>
+> <b>We do not look in our great cities for our best morality.</b>
+> <p><i>Jane Austen</i></p>
 
 <br>
