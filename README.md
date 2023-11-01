@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We also listen to PJ Harvey a lot of driving music. You need something a little more relaxing in the car.</b>
-> <p><i>Brody Armstrong</i></p>
+> <b>A man loves the meat in his youth that he cannot endure in his age.</b>
+> <p><i>William Shakespeare</i></p>
 
 <br>
