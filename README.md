@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With my talent, I can make people laugh and give them another attitude about life. What a blessing that is for me.</b>
-> <p><i>Doris Roberts</i></p>
+> <b>A sculptor is a person who is interested in the shape of things, a poet in words, a musician by sounds.</b>
+> <p><i>Henry Moore</i></p>
 
 <br>
