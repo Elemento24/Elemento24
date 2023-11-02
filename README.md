@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very accepting with my age. It's like notches on your belt: experience, wisdom, and a different kind of beauty. There comes a day when you've become comfortable in your skin.</b>
-> <p><i>Zoe Saldana</i></p>
+> <b>We have to get back to the beauty of just being alive in this present moment.</b>
+> <p><i>Mary McDonnell</i></p>
 
 <br>
