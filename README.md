@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the many pleasures of old age is giving things up.</b>
-> <p><i>Malcolm Muggeridge</i></p>
+> <b>For every moment of triumph, for every instance of beauty, many souls must be trampled.</b>
+> <p><i>Hunter S. Thompson</i></p>
 
 <br>
