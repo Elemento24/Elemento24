@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you look good, you feel good. Confidence with what you're wearing is very important. If you feel good, you will always perform your best without worrying about anything.</b>
-> <p><i>Maria Sharapova</i></p>
+> <b>Among the best traitors Ireland has ever had, Mother Church ranks at the very top, a massive obstacle in the path to equality and freedom. She has been a force for conservatism... to ward off threats to her own security and influence.</b>
+> <p><i>Bernadette Devlin</i></p>
 
 <br>
