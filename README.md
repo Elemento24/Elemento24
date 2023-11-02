@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We don't change what we are, we change what we think what we are.</b>
-> <p><i>Eric Butterworth</i></p>
+> <b>Housing Works is the coolest thrift store in the world, because not only are they the best thrift store - they're not the most thrifty thrift store - but they have amazing stuff and all of their proceeds go directly to kids, mostly homeless kids, living with AIDS and HIV in New York, in the metropolitan area.</b>
+> <p><i>Ezra Miller</i></p>
 
 <br>
