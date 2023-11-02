@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Japanese traditional architecture is created based on these conditions. This is the reason you have a very high degree of connection between the outside and inside in architecture.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>I mean, the whole idea of movies was it was special to go to see - you went to a movie theater to see something that was magical and amazing, in a very special location.</b>
+> <p><i>Bob Balaban</i></p>
 
 <br>
