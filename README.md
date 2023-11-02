@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ideal beauty is a fugitive which is never found.</b>
-> <p><i>Joan Rivers</i></p>
+> <b>One of the many pleasures of old age is giving things up.</b>
+> <p><i>Malcolm Muggeridge</i></p>
 
 <br>
