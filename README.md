@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have to get back to the beauty of just being alive in this present moment.</b>
-> <p><i>Mary McDonnell</i></p>
+> <b>When you look good, you feel good. Confidence with what you're wearing is very important. If you feel good, you will always perform your best without worrying about anything.</b>
+> <p><i>Maria Sharapova</i></p>
 
 <br>
