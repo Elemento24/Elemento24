@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of my foster families used to send me to the movies to get me out of the house and there I'd sit all day and way into the night. Up in front, there with the screen so big, a little kid all alone, and I loved it. I loved anything that moved up there and I didn't miss anything that happened and there was no popcorn either.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>Japanese traditional architecture is created based on these conditions. This is the reason you have a very high degree of connection between the outside and inside in architecture.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
