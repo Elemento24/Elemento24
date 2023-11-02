@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fear is the only true enemy, born of ignorance and the parent of anger and hate.</b>
-> <p><i>Edward Albert</i></p>
+> <b>With my talent, I can make people laugh and give them another attitude about life. What a blessing that is for me.</b>
+> <p><i>Doris Roberts</i></p>
 
 <br>
