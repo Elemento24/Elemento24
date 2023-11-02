@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think, if you put a camera in anyone's life and document it daily from the age of 21 to 27, there are going to be things that aren't always pretty.</b>
-> <p><i>Sienna Miller</i></p>
+> <b>It's the most amazing feeling to hold your child in your arms.</b>
+> <p><i>Chris O'Donnell</i></p>
 
 <br>
