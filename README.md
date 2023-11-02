@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art hurts. Art urges voyages - and it is easier to stay at home.</b>
-> <p><i>Gwendolyn Brooks</i></p>
+> <b>We don't change what we are, we change what we think what we are.</b>
+> <p><i>Eric Butterworth</i></p>
 
 <br>
