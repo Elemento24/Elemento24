@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Among the best traitors Ireland has ever had, Mother Church ranks at the very top, a massive obstacle in the path to equality and freedom. She has been a force for conservatism... to ward off threats to her own security and influence.</b>
-> <p><i>Bernadette Devlin</i></p>
+> <b>All cities do face similar, significant trends in the future... most importantly global warming and climate change.</b>
+> <p><i>Cate Blanchett</i></p>
 
 <br>
