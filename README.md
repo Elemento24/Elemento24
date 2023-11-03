@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Have regular hours for work and play make each day both useful and pleasant, and prove that you understand the worth of time by employing it well. Then youth will be delightful, old age will bring few regrets, and life will become a beautiful success.</b>
-> <p><i>Louisa May Alcott</i></p>
+> <b>Kids are great. That's one of the best things about our business, all the kids you get to meet. It's a shame they have to grow up to be regular people and come to the games and call you names.</b>
+> <p><i>Charles Barkley</i></p>
 
 <br>
