@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only business of the head in the world is to bow a ceaseless obeisance to the heart.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>I like being alone and I think this movie, as much as it is an investigation of connection and people bonding, I also think it's just as much about loneliness.</b>
+> <p><i>Jason Schwartzman</i></p>
 
 <br>
