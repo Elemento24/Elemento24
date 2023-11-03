@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like being alone and I think this movie, as much as it is an investigation of connection and people bonding, I also think it's just as much about loneliness.</b>
-> <p><i>Jason Schwartzman</i></p>
+> <b>I have three dogs, a cat, fish. I'm a huge animal lover. They're amazing.</b>
+> <p><i>Willow Shields</i></p>
 
 <br>
