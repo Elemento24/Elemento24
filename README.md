@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Brains don't really smell, but what's amazing about the brain is that it's almost like scrambled eggs or soft tofu, almost like a gel. The brain controls so much of what we do, but you could put your finger right through it.</b>
-> <p><i>Ellen Pompeo</i></p>
+> <b>My fastest time in high school was a 4:29 mile. I think cross-country has something to do with my longevity in my business. When you're in an eight-mile race, you never give up.</b>
+> <p><i>Alice Cooper</i></p>
 
 <br>
