@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The older generation had greater respect for land than science. But we live in an age when science, more than soil, has become the provider of growth and abundance. Living just on the land creates loneliness in an age of globality.</b>
-> <p><i>Shimon Peres</i></p>
+> <b>Don't ever let economic alone determine your career or how you spend the majority of your time.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
