@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't ever let economic alone determine your career or how you spend the majority of your time.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>Woman's at best a contradiction still.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
