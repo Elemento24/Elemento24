@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is awfully important to know what is and what is not your business.</b>
-> <p><i>Gertrude Stein</i></p>
+> <b>Brains don't really smell, but what's amazing about the brain is that it's almost like scrambled eggs or soft tofu, almost like a gel. The brain controls so much of what we do, but you could put your finger right through it.</b>
+> <p><i>Ellen Pompeo</i></p>
 
 <br>
