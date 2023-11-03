@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people who are competing business-wise out there want what other successful labels and artists have. I don't want what they have I want my own path, my own sound, my own identity. Record labels care nothing about identity or artistic freedom, they want good business.</b>
-> <p><i>Joe Nichols</i></p>
+> <b>A metaphysical tour de force of untethered meaning and involuting interlocking contrapuntal rhythms, 'The Clock' is more than a movie or even a work of art. It is so strange and other-ish that it becomes a stream-of-consciousness algorithm unto itself - something almost inhuman.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
