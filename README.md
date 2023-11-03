@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A whopping 89 percent of buyers start their home search online. How your house looks online is the modern equivalent of 'curb appeal.' Rent a wide-angle lens and good lighting, get rid of your clutter and post at least eight great photos to win the beauty contest.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>I remember at the age of five travelling on a trolley car with my mother past a group of women on a picket line at a textile plant, seeing them being viciously beaten by security people. So that kind of thing stayed with me.</b>
+> <p><i>Noam Chomsky</i></p>
 
 <br>
