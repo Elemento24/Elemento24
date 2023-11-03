@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, what I love about '80s rock music is the amazing, fantastic melodies.</b>
-> <p><i>Julianne Hough</i></p>
+> <b>Rare is the union of beauty and purity.</b>
+> <p><i>Juvenal</i></p>
 
 <br>
