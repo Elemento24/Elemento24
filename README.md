@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All we need, really, is a change from a near frigid to a tropical attitude of mind.</b>
-> <p><i>Marjory Stoneman Douglas</i></p>
+> <b>It was my 16th birthday - my mom and dad gave me my Goya classical guitar that day. I sat down, wrote this song, and I just knew that that was the only thing I could ever really do - write songs and sing them to people.</b>
+> <p><i>Stevie Nicks</i></p>
 
 <br>
