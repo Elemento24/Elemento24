@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wisdom is not wisdom when it is derived from books alone.</b>
-> <p><i>Horace</i></p>
+> <b>I'm the poster boy for Propecia. It's amazing.</b>
+> <p><i>Joe Lando</i></p>
 
 <br>
