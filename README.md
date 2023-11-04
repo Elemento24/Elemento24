@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm from Canada, and New Zealand feels like you took all the best bits of Canada and squished them onto a tiny island like Hawaii. I was absolutely blown away by the beauty of the South Island.</b>
-> <p><i>Evangeline Lilly</i></p>
+> <b>Obama and his attack dogs have nothing but hate and anger in their hearts and spew it whenever possible.</b>
+> <p><i>Donald Trump</i></p>
 
 <br>
