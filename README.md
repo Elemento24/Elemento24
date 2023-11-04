@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are few things that we so unwillingly give up, even in advanced age, as the supposition that we still have the power of ingratiating ourselves with the fair sex.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>I also find it interesting that a lot of people in their 30s are not married and don't have kids. There are a lot of people in this age bracket that are out there dating and trying to find love. And I never thought that at my age I would be.</b>
+> <p><i>John Stamos</i></p>
 
 <br>
