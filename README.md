@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why should society feel responsible only for the education of children, and not for the education of all adults of every age?</b>
-> <p><i>Erich Fromm</i></p>
+> <b>All we need, really, is a change from a near frigid to a tropical attitude of mind.</b>
+> <p><i>Marjory Stoneman Douglas</i></p>
 
 <br>
