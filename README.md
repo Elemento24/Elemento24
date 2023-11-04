@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just because you liked something as a youngster doesn't mean you have to like it as an adult. You can change your taste a little bit on the sweets and things like that.</b>
-> <p><i>Mike Ditka</i></p>
+> <b>I do the very best I know how - the very best I can and I mean to keep on doing so until the end.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
