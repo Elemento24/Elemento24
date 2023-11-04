@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think art is propaganda it should be something that liberates the soul, provokes the imagination and encourages people to go further. It celebrates humanity instead of manipulating it.</b>
-> <p><i>Keith Haring</i></p>
+> <b>There are few things that we so unwillingly give up, even in advanced age, as the supposition that we still have the power of ingratiating ourselves with the fair sex.</b>
+> <p><i>Samuel Johnson</i></p>
 
 <br>
