@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People tend not to use this word beauty because it's not intellectual - but there has to be an overlap between beauty and intellect.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>I don't think art is propaganda it should be something that liberates the soul, provokes the imagination and encourages people to go further. It celebrates humanity instead of manipulating it.</b>
+> <p><i>Keith Haring</i></p>
 
 <br>
