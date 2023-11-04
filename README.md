@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One thing that worried me was how writers get categorized and so they end up having to write the same kind of book again and again. That is fine if it is what you want to do, but I would rather be locked in the trunk of my car with a weasel than write the same book every three years until I die.</b>
-> <p><i>Justin Cronin</i></p>
+> <b>Wisdom is not wisdom when it is derived from books alone.</b>
+> <p><i>Horace</i></p>
 
 <br>
