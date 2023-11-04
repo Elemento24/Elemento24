@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also find it interesting that a lot of people in their 30s are not married and don't have kids. There are a lot of people in this age bracket that are out there dating and trying to find love. And I never thought that at my age I would be.</b>
-> <p><i>John Stamos</i></p>
+> <b>One thing that worried me was how writers get categorized and so they end up having to write the same kind of book again and again. That is fine if it is what you want to do, but I would rather be locked in the trunk of my car with a weasel than write the same book every three years until I die.</b>
+> <p><i>Justin Cronin</i></p>
 
 <br>
