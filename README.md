@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you ever have the good fortune to meet Tippi Hedren, she's an amazing woman. You can't quite believe she is the age she is.</b>
-> <p><i>Toby Jones</i></p>
+> <b>I'm from Canada, and New Zealand feels like you took all the best bits of Canada and squished them onto a tiny island like Hawaii. I was absolutely blown away by the beauty of the South Island.</b>
+> <p><i>Evangeline Lilly</i></p>
 
 <br>
