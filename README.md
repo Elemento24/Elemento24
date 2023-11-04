@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obama and his attack dogs have nothing but hate and anger in their hearts and spew it whenever possible.</b>
-> <p><i>Donald Trump</i></p>
+> <b>Just because you liked something as a youngster doesn't mean you have to like it as an adult. You can change your taste a little bit on the sweets and things like that.</b>
+> <p><i>Mike Ditka</i></p>
 
 <br>
