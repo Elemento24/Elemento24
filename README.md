@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I lived in small town out in the desert and my friend used to steal his mom's car in the middle of the night. He'd drive over to my house, I'd sneak out and we'd go out to the desert and just burn things down.</b>
-> <p><i>Mark Hoppus</i></p>
+> <b>In every work of art the subject is primordial, whether the artist knows it or not. The measure of the formal qualities is only a sign of the measure of the artist's obsession with his subject the form is always in proportion to the obsession.</b>
+> <p><i>Alberto Giacometti</i></p>
 
 <br>
