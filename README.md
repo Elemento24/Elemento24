@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is the art of choosing between the disastrous and the unpalatable.</b>
-> <p><i>John Kenneth Galbraith</i></p>
+> <b>It's important to fall in love with someone you don't want to change.</b>
+> <p><i>Jessica Simpson</i></p>
 
 <br>
