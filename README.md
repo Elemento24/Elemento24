@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude is everything.</b>
-> <p><i>Diane von Furstenberg</i></p>
+> <b>Fit no stereotypes. Don't chase the latest management fads. The situation dictates which approach best accomplishes the team's mission.</b>
+> <p><i>Colin Powell</i></p>
 
 <br>
