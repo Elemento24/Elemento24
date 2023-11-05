@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We didn't have a whole lot of money when I was growing up either. I would always ask for magic books or magic tricks for my birthday or for Christmas and the rest of the year I either had to mow lawns or find part time jobs to help supplement the cost of doing magic.</b>
-> <p><i>Lance Burton</i></p>
+> <b>When people align around shared political, social, economic or environmental values, and take collective action, thinking and behavior that compromises the lives of millions of people around the world can truly change.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
