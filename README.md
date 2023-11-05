@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It really was hand-to-mouth and you can say, 'Poor little me, how dreadful, what a deprived childhood', but I didn't feel that way at all. It's all about the attitude at home.</b>
-> <p><i>Carol Vorderman</i></p>
+> <b>I think naturally, if you're an actor, there's a high level of assertiveness that you need to have to survive this business. There's boldness in being assertive, and there's strength and confidence.</b>
+> <p><i>Bryan Cranston</i></p>
 
 <br>
