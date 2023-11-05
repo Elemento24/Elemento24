@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When people align around shared political, social, economic or environmental values, and take collective action, thinking and behavior that compromises the lives of millions of people around the world can truly change.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>On my job I end up jumping out of planes. Last week I got in an 18-wheeler and drove down a runway onto a skid track. The week before that they put me in a car and sunk me to the bottom of a lake to see if I could escape without an oxygen tank.</b>
+> <p><i>Rick Mercer</i></p>
 
 <br>
