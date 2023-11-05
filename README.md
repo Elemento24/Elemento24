@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On my job I end up jumping out of planes. Last week I got in an 18-wheeler and drove down a runway onto a skid track. The week before that they put me in a car and sunk me to the bottom of a lake to see if I could escape without an oxygen tank.</b>
-> <p><i>Rick Mercer</i></p>
+> <b>It is only with burning anger that we can speak of this attack by counter-revolutionary reactionary elements against the capital of our country, against our people's democratic order and the power of the working class.</b>
+> <p><i>Janos Kadar</i></p>
 
 <br>
