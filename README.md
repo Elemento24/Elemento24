@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pebble Beach. It is tough and the lay out is amazing.</b>
-> <p><i>Natalie Gulbis</i></p>
+> <b>It really was hand-to-mouth and you can say, 'Poor little me, how dreadful, what a deprived childhood', but I didn't feel that way at all. It's all about the attitude at home.</b>
+> <p><i>Carol Vorderman</i></p>
 
 <br>
