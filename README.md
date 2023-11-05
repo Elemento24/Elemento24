@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In times of great stress or adversity, it's always best to keep busy, to plow your anger and your energy into something positive.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>Kinkade's paintings are worthless schmaltz, and the lamestream media that love him are wrong. However, I'd love to see a museum mount a small show of Kinkade's work. I would like the art world and the wider world to argue about him in public, out in the open.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
