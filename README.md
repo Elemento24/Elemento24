@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reason and judgment are the qualities of a leader.</b>
-> <p><i>Tacitus</i></p>
+> <b>I always give Lindsay so much credit for her tennis game, for her attitude, for her person, and because of how she deals with all the things. I don't think people give her enough credit for how well she's doing.</b>
+> <p><i>Martina Hingis</i></p>
 
 <br>
