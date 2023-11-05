@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the first present nature gives to women and the first it takes away.</b>
-> <p><i>Fay Weldon</i></p>
+> <b>There are three hundred and sixty-four days when you might get un-birthday presents, and only one for birthday presents, you know.</b>
+> <p><i>Lewis Carroll</i></p>
 
 <br>
