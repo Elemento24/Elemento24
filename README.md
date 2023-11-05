@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, I look like a woman but I think like a man. And in this world of business, that has helped me a lot. Because by the time they think that I don't know what's goin' on, I then got the money, and gone.</b>
-> <p><i>Dolly Parton</i></p>
+> <b>We didn't have a whole lot of money when I was growing up either. I would always ask for magic books or magic tricks for my birthday or for Christmas and the rest of the year I either had to mow lawns or find part time jobs to help supplement the cost of doing magic.</b>
+> <p><i>Lance Burton</i></p>
 
 <br>
