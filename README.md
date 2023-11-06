@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't study comedy it's within you. It's a personality. My humor is an attitude.</b>
-> <p><i>Don Rickles</i></p>
+> <b>I will stay in the car until the last minute that I'm going to jump out and do a standup or jump out and do some interviews.</b>
+> <p><i>Martha Raddatz</i></p>
 
 <br>
