@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cinema is still a very young art form with extraordinary techniques and very impressive special effects but sometimes it seems the soul has been taken out of things.</b>
-> <p><i>Catherine Deneuve</i></p>
+> <b>Your body actually reminds you about your age and your injuries - the body has a stronger memory than your mind.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
