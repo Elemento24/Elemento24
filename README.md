@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People love pretty much the same things best. A writer looking for subjects inquires not after what he loves best, but after what he alone loves at all.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>Reason is a crutch for age, but youth is strong enough to walk alone.</b>
+> <p><i>John Dryden</i></p>
 
 <br>
