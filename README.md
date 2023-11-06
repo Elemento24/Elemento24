@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reason and judgment are the qualities of a leader.</b>
-> <p><i>Tacitus</i></p>
+> <b>The only way to change is to vote. People are responsible.</b>
+> <p><i>Paul Wellstone</i></p>
 
 <br>
