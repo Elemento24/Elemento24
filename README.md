@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your body actually reminds you about your age and your injuries - the body has a stronger memory than your mind.</b>
-> <p><i>Mikhail Baryshnikov</i></p>
+> <b>Cannibals prefer those who have no spines.</b>
+> <p><i>Stanislaw Lem</i></p>
 
 <br>
