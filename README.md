@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know who a complicated tax code kills? The guy or gal trying to start a business out of the spare bedroom of their home. So we've got to simplify our tax code.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>You don't have to have an attitude if you're famous.</b>
+> <p><i>Adriana Lima</i></p>
 
 <br>
