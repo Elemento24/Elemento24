@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm often called an old-fashioned modernist. But the modernists had the absurd idea that architecture could heal the world. That's impossible. And today nobody expects architects to have these grand visions any more.</b>
-> <p><i>Thom Mayne</i></p>
+> <b>People love pretty much the same things best. A writer looking for subjects inquires not after what he loves best, but after what he alone loves at all.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
