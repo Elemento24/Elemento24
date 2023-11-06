@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My daily beauty regimen is definitely always in the mornings, and at night, always washing my face with a basic cleanser. I also use a moisturizer with SPF to follow up.</b>
-> <p><i>Shay Mitchell</i></p>
+> <b>Things are beautiful if you love them.</b>
+> <p><i>Jean Anouilh</i></p>
 
 <br>
