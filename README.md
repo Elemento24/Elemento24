@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to stay in the business then you've got to be a bit shrewd, haven't you?</b>
-> <p><i>Katie Price</i></p>
+> <b>If left unchecked, global change will create violent conflict, torrential storms, shrinking coastlines, and irreversible catastrophe.</b>
+> <p><i>Valerie Jarrett</i></p>
 
 <br>
