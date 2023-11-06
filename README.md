@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reason is a crutch for age, but youth is strong enough to walk alone.</b>
-> <p><i>John Dryden</i></p>
+> <b>If you do not change direction, you may end up where you are heading.</b>
+> <p><i>Lao Tzu</i></p>
 
 <br>
