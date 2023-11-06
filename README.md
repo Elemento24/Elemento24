@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing to do with the best things in life is to give them up.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>Every one who has a heart, however ignorant of architecture he may be, feels the transcendent beauty and poetry of the mediaeval churches.</b>
+> <p><i>Goldwin Smith</i></p>
 
 <br>
