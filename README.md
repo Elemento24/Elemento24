@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If we are to change our world view, images have to change. The artist now has a very important job to do. He's not a little peripheral figure entertaining rich people, he's really needed.</b>
-> <p><i>Vaclav Havel</i></p>
+> <b>I'm gonna be the best dad that ever lived. I'll have a ranch with a race car track and a golf course.</b>
+> <p><i>Jeremy London</i></p>
 
 <br>
