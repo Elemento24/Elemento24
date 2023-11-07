@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tell myself that God gave my children many gifts - spirit, beauty, intelligence, the capacity to make friends and to inspire respect. There was only one gift he held back - length of life.</b>
-> <p><i>Rose Kennedy</i></p>
+> <b>The moment you cheat for the sake of beauty, you know you're an artist.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
