@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think beauty comes from within, and society paints a ridiculous picture.</b>
-> <p><i>Rachel Bilson</i></p>
+> <b>Another unsettling element in modern art is that common symptom of immaturity, the dread of doing what has been done before.</b>
+> <p><i>Edith Wharton</i></p>
 
 <br>
