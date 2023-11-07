@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a fundamental shift that social media necessitates in business today - the need to transition from 'Me First' to 'We First' thinking.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>If we are to change our world view, images have to change. The artist now has a very important job to do. He's not a little peripheral figure entertaining rich people, he's really needed.</b>
+> <p><i>Vaclav Havel</i></p>
 
 <br>
