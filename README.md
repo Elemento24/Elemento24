@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every science begins as philosophy and ends as art.</b>
-> <p><i>Will Durant</i></p>
+> <b>There is no end of craving. Hence contentment alone is the best way to happiness. Therefore, acquire contentment.</b>
+> <p><i>Sivananda</i></p>
 
 <br>
