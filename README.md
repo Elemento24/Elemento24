@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I became a larger than life figure for one reason only. When you're quoted in the 'Wall Street Journal,' the 'New York Times,' constantly as the expert in the business people assume you're a lot bigger than you are. And then I had to run like hell to catch up with my own image.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>Religion can emerge in all forms of feeling: here wild anger, there the sweetest pain here consuming hatred, there the childlike smile of serene humility.</b>
+> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
 
 <br>
