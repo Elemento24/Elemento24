@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you love somebody, you love them. My parents had a 25-year age gap between them and my mum was the breadwinner, my dad the house husband. I'm a strong believer that a good relationship can work, whatever the situation.</b>
-> <p><i>Katherine Jenkins</i></p>
+> <b>I got to work with one of my heroes, Johnny Depp, and to see how he goes about business, which was really inspiring for me at this stage in my career.</b>
+> <p><i>Orlando Bloom</i></p>
 
 <br>
