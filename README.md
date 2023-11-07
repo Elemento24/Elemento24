@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religion can emerge in all forms of feeling: here wild anger, there the sweetest pain here consuming hatred, there the childlike smile of serene humility.</b>
-> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
+> <b>I was amazed and upset by the looks I got just walking around the studio... It illuminates the ugliness and the beauty that exists within each of us, and that's what this story represents to me.</b>
+> <p><i>Gerard Butler</i></p>
 
 <br>
