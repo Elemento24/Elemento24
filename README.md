@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I got to work with one of my heroes, Johnny Depp, and to see how he goes about business, which was really inspiring for me at this stage in my career.</b>
-> <p><i>Orlando Bloom</i></p>
+> <b>Youth is the best time to be rich, and the best time to be poor.</b>
+> <p><i>Euripides</i></p>
 
 <br>
