@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Loneliness is my least favorite thing about life. The thing that I'm most worried about is just being alone without anybody to care for or someone who will care for me.</b>
-> <p><i>Anne Hathaway</i></p>
+> <b>If you love somebody, you love them. My parents had a 25-year age gap between them and my mum was the breadwinner, my dad the house husband. I'm a strong believer that a good relationship can work, whatever the situation.</b>
+> <p><i>Katherine Jenkins</i></p>
 
 <br>
