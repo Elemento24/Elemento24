@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm gonna be the best dad that ever lived. I'll have a ranch with a race car track and a golf course.</b>
-> <p><i>Jeremy London</i></p>
+> <b>Becoming an author changes your attitude too. Once you see where books come from, and how they're made, they never seem quite as sacred again.</b>
+> <p><i>Lev Grossman</i></p>
 
 <br>
