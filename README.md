@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of my favorite activities as a teen-ager was to watch television over the phone with my best friend.</b>
-> <p><i>Susan Orlean</i></p>
+> <b>Another night, I dreamed I saw my father sweeping out the barn floor clean, and would not suffer the wheat to be brought in the barn. He appeared to me to be in anger.</b>
+> <p><i>Joanna Southcott</i></p>
 
 <br>
