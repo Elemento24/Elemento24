@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And while the law of competition may be sometimes hard for the individual, it is best for the race, because it ensures the survival of the fittest in every department.</b>
-> <p><i>Andrew Carnegie</i></p>
+> <b>No change in musical style will survive unless it is accompanied by a change in clothing style. Rock is to dress up to.</b>
+> <p><i>Frank Zappa</i></p>
 
 <br>
