@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They played Boston. They played at the Boston Tea Party and through an amazing chain of events I got to hang out with them backstage even though I was underage.</b>
-> <p><i>Jonathan Richman</i></p>
+> <b>It's only when you're alone that you realize where you are. You have nothing to fall back on except your own resources.</b>
+> <p><i>Paul Theroux</i></p>
 
 <br>
