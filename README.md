@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Young lawyers attend the courts, not because they have business there, but because they have no business.</b>
-> <p><i>Washington Irving</i></p>
+> <b>The writer is all alone.</b>
+> <p><i>V. S. Naipaul</i></p>
 
 <br>
