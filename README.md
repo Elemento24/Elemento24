@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I'm alone too long I think too much, and I'm not interested in doing that. That won't lead anywhere good, I'm sure. If I'm busy I tend to stay out of trouble. An idle mind is the devil's playground.</b>
-> <p><i>Lisa Marie Presley</i></p>
+> <b>They played Boston. They played at the Boston Tea Party and through an amazing chain of events I got to hang out with them backstage even though I was underage.</b>
+> <p><i>Jonathan Richman</i></p>
 
 <br>
