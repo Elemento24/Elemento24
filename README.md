@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Selling public property is the true Chicago way. Had Mr. Obama not been elected president, the nation's business journals would be falling over one another to praise his city for its daring, market-friendly innovations.</b>
-> <p><i>Thomas Frank</i></p>
+> <b>The best argument against democracy is a five-minute conversation with the average voter.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
