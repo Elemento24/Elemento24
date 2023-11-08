@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alone I'm nothing.</b>
-> <p><i>Robert Plant</i></p>
+> <b>Some of my best friends are Venture Capitalists, but let's face it, a hamster with Alzheimer's could make those kind of numbers. It's great work if you can get it.</b>
+> <p><i>Scott Adams</i></p>
 
 <br>
