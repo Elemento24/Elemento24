@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm so happy to be able to give kids the opportunity to learn about amazing world of dance and music that I've have been lucky enough to make such a big part of my own life.</b>
-> <p><i>Britney Spears</i></p>
+> <b>And while the law of competition may be sometimes hard for the individual, it is best for the race, because it ensures the survival of the fittest in every department.</b>
+> <p><i>Andrew Carnegie</i></p>
 
 <br>
