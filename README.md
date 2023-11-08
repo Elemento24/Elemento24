@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best argument against democracy is a five-minute conversation with the average voter.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>If I'm alone too long I think too much, and I'm not interested in doing that. That won't lead anywhere good, I'm sure. If I'm busy I tend to stay out of trouble. An idle mind is the devil's playground.</b>
+> <p><i>Lisa Marie Presley</i></p>
 
 <br>
