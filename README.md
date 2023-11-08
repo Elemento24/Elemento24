@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't change overnight into a serious literary author. You can't compare apples to oranges. William Faulkner was a great literary genius. I am not.</b>
-> <p><i>John Grisham</i></p>
+> <b>Alone I'm nothing.</b>
+> <p><i>Robert Plant</i></p>
 
 <br>
