@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's such an amazing thing to be loved for who you are.</b>
-> <p><i>Debra Winger</i></p>
+> <b>Let us change our traditional attitude to the construction of programs. Instead of imagining that our main task is to instruct a computer what to do, let us concentrate rather on explaining to human beings what we want a computer to do.</b>
+> <p><i>Donald Knuth</i></p>
 
 <br>
