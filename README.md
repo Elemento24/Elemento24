@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of my best friends are Venture Capitalists, but let's face it, a hamster with Alzheimer's could make those kind of numbers. It's great work if you can get it.</b>
-> <p><i>Scott Adams</i></p>
+> <b>There is the expression of selfishness and there is the expression of selflessness - but economists or theoreticians never touched that part. They said: 'Go and become a philanthropist.' I said, 'No, I can do that in the business world, create a different kind of business - a business based on selflessness.'</b>
+> <p><i>Muhammad Yunus</i></p>
 
 <br>
