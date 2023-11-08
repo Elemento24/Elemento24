@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No change in musical style will survive unless it is accompanied by a change in clothing style. Rock is to dress up to.</b>
-> <p><i>Frank Zappa</i></p>
+> <b>I have accepted fear as a part of life - specifically the fear of change... I have gone ahead despite the pounding in the heart that says: turn back.</b>
+> <p><i>Erica Jong</i></p>
 
 <br>
