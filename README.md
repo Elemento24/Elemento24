@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I filmed 'Albatross' before I got 'Downton.' It's a coming-of-age movie about this girl who leaps into this family's life, like a whirlwind. She's ballsy and brash and wonderful, it was such an amazing character to play.</b>
-> <p><i>Jessica Brown Findlay</i></p>
+> <b>There is a growing literature about the multitude of journalism's problems, but most of it is concerned with the editorial side of the business, possibly because most people competent to write about journalism are not comfortable writing about finance.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
