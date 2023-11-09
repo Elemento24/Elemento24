@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The things that people do now in sports, you can't even believe. These are complete total athletes. To see what human beings can do in the highest level is amazing.</b>
-> <p><i>Billie Joe Armstrong</i></p>
+> <b>Enjoying success requires the ability to adapt. Only by being open to change will you have a true opportunity to get the most from your talent.</b>
+> <p><i>Nolan Ryan</i></p>
 
 <br>
