@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is making something out of nothing and selling it.</b>
-> <p><i>Frank Zappa</i></p>
+> <b>Far and away the best prize that life has to offer is the chance to work hard at work worth doing.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
