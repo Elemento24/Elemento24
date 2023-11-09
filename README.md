@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way in which mathematicians and physicists and historians talk is quite different, and what a physicist means by physical intuition and what a mathematician means by beauty or elegance are things worth thinking about.</b>
-> <p><i>Clifford Geertz</i></p>
+> <b>Remember, always give your best. Never get discouraged. Never be petty. Always remember, others may hate you. But those who hate you don't win unless you hate them. And then you destroy yourself.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
