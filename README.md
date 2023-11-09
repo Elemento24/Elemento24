@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The wonderful thing about age is that your knees don't work as well, you can't run down steps quite as easily and obviously you can't lift heavy weights. But your mind doesn't feel any different.</b>
-> <p><i>Roger Moore</i></p>
+> <b>It really was hand-to-mouth and you can say, 'Poor little me, how dreadful, what a deprived childhood', but I didn't feel that way at all. It's all about the attitude at home.</b>
+> <p><i>Carol Vorderman</i></p>
 
 <br>
