@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, I was already so happy being chosen to do the issue itself, that when I got on the cover, it was even more of a surprise and even more amazing to me.</b>
-> <p><i>Heidi Klum</i></p>
+> <b>I love singin' in the car, it just makes me feel good.</b>
+> <p><i>Scotty McCreery</i></p>
 
 <br>
