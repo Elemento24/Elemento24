@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think about my work every minute of the day.</b>
-> <p><i>Jeff Koons</i></p>
+> <b>The fight is always the same within the Democratic Party, isn't it? The more things change, the more they stay the same.</b>
+> <p><i>Dee Dee Myers</i></p>
 
 <br>
