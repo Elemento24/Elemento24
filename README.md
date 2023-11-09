@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It really was hand-to-mouth and you can say, 'Poor little me, how dreadful, what a deprived childhood', but I didn't feel that way at all. It's all about the attitude at home.</b>
-> <p><i>Carol Vorderman</i></p>
+> <b>I filmed 'Albatross' before I got 'Downton.' It's a coming-of-age movie about this girl who leaps into this family's life, like a whirlwind. She's ballsy and brash and wonderful, it was such an amazing character to play.</b>
+> <p><i>Jessica Brown Findlay</i></p>
 
 <br>
