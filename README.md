@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Remember, always give your best. Never get discouraged. Never be petty. Always remember, others may hate you. But those who hate you don't win unless you hate them. And then you destroy yourself.</b>
-> <p><i>Richard M. Nixon</i></p>
+> <b>The wonderful thing about age is that your knees don't work as well, you can't run down steps quite as easily and obviously you can't lift heavy weights. But your mind doesn't feel any different.</b>
+> <p><i>Roger Moore</i></p>
 
 <br>
