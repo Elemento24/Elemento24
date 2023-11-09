@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I got to work with one of my heroes, Johnny Depp, and to see how he goes about business, which was really inspiring for me at this stage in my career.</b>
-> <p><i>Orlando Bloom</i></p>
+> <b>The way in which mathematicians and physicists and historians talk is quite different, and what a physicist means by physical intuition and what a mathematician means by beauty or elegance are things worth thinking about.</b>
+> <p><i>Clifford Geertz</i></p>
 
 <br>
