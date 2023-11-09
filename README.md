@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm so accustomed to being alone.</b>
-> <p><i>Leighton Meester</i></p>
+> <b>I think about my work every minute of the day.</b>
+> <p><i>Jeff Koons</i></p>
 
 <br>
