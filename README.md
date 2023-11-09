@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When thinking about companions gone, we feel ourselves doubly alone.</b>
-> <p><i>Walter Scott</i></p>
+> <b>All of our unhappiness comes from our inability to be alone.</b>
+> <p><i>Jean de la Bruyere</i></p>
 
 <br>
