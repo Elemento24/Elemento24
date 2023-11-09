@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Confidence is something you're born with. I know I had loads of it even at the age of 15.</b>
-> <p><i>Hedy Lamarr</i></p>
+> <b>No harm comes to man from outside alone: dumbness is the objective spirit.</b>
+> <p><i>Theodor Adorno</i></p>
 
 <br>
