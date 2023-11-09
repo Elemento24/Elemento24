@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love singin' in the car, it just makes me feel good.</b>
-> <p><i>Scotty McCreery</i></p>
+> <b>Art is making something out of nothing and selling it.</b>
+> <p><i>Frank Zappa</i></p>
 
 <br>
