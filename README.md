@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never once does 'Snow White' herself look in the mirror so she isn't aware of her beauty or what apparently that does to people. It's really just the queen and the prince that talk about it.</b>
-> <p><i>Lily Collins</i></p>
+> <b>I love MySpace it's done an amazing job for me and it's been insane over the past couple of weeks, but I'm not a poster girl for them.</b>
+> <p><i>Lily Allen</i></p>
 
 <br>
