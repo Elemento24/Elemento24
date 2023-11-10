@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being solitary is being alone well: being alone luxuriously immersed in doings of your own choice, aware of the fullness of your won presence rather than of the absence of others. Because solitude is an achievement.</b>
-> <p><i>Alice Koller</i></p>
+> <b>Emmanuel Lewis was amazing to work with. I'll love that guy to the end of time.</b>
+> <p><i>Corin Nemec</i></p>
 
 <br>
