@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a philosophy of life. A practice. If you do this, something will change, what will change is that you will change, your life will change, and if you can change you, you can perhaps change the world.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>Nobody has it all, but for me to even come close is amazing.</b>
+> <p><i>Adam Levine</i></p>
 
 <br>
