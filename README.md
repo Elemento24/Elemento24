@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Emmanuel Lewis was amazing to work with. I'll love that guy to the end of time.</b>
-> <p><i>Corin Nemec</i></p>
+> <b>Teachers believe they have a gift for giving it drives them with the same irrepressible drive that drives others to create a work of art or a market or a building.</b>
+> <p><i>A. Bartlett Giamatti</i></p>
 
 <br>
