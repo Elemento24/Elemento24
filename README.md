@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No nation can meet the world's challenges alone.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>I believe entertainment can aspire to be art, and can become art, but if you set out to make art you're an idiot.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
