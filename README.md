@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe entertainment can aspire to be art, and can become art, but if you set out to make art you're an idiot.</b>
-> <p><i>Steve Martin</i></p>
+> <b>Self-reverence, self-knowledge, self-control these three alone lead one to sovereign power.</b>
+> <p><i>Alfred Lord Tennyson</i></p>
 
 <br>
