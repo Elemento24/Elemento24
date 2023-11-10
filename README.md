@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're old, don't try to change yourself, change your environment.</b>
-> <p><i>B. F. Skinner</i></p>
+> <b>No nation can meet the world's challenges alone.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
