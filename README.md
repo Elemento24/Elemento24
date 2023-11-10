@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody has it all, but for me to even come close is amazing.</b>
-> <p><i>Adam Levine</i></p>
+> <b>But my passion is racing cars. It's what I like to do in my off time.</b>
+> <p><i>Mark-Paul Gosselaar</i></p>
 
 <br>
