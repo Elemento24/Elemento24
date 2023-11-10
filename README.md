@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Teachers believe they have a gift for giving it drives them with the same irrepressible drive that drives others to create a work of art or a market or a building.</b>
-> <p><i>A. Bartlett Giamatti</i></p>
+> <b>I like to put on hardcore when I have to clean my apartment, which I hate to do, but it's motivational. I like old heavy metal when I'm outside working on my car. Music has definite functions for me.</b>
+> <p><i>Peter Steele</i></p>
 
 <br>
