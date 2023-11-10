@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sadly, we do a much better job of making people feel guilty than we do of delivering them from the guilt we create. We need to confess this and change our ways.</b>
-> <p><i>Tony Campolo</i></p>
+> <b>Being solitary is being alone well: being alone luxuriously immersed in doings of your own choice, aware of the fullness of your won presence rather than of the absence of others. Because solitude is an achievement.</b>
+> <p><i>Alice Koller</i></p>
 
 <br>
