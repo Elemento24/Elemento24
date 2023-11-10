@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I want to knock a story off the front page, I just change my hairstyle.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>Never once does 'Snow White' herself look in the mirror so she isn't aware of her beauty or what apparently that does to people. It's really just the queen and the prince that talk about it.</b>
+> <p><i>Lily Collins</i></p>
 
 <br>
