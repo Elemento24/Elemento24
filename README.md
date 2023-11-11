@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the age of six I wanted to be a cook. At seven I wanted to be Napoleon. And my ambition has been growing steadily ever since.</b>
-> <p><i>Salvador Dali</i></p>
+> <b>The main prank that we play with props is for people's birthdays. The special effects people will put a little explosive in the cake so it blows up in their face - that's always fun to play on a guest star, or one of the trainees or someone who's new.</b>
+> <p><i>Catherine Bell</i></p>
 
 <br>
