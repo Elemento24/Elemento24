@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The organizational architecture is really that a centipede walks on hundred legs and one or two don't count. So if I lose one or two legs, the process will go on, the organization will go on, the growth will go on.</b>
-> <p><i>Mukesh Ambani</i></p>
+> <b>Any authentic work of art must start an argument between the artist and his audience.</b>
+> <p><i>Rebecca West</i></p>
 
 <br>
