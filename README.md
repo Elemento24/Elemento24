@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude toward men who mess around is simple: If you find 'em, kill 'em.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>But I have a driver, so I can return calls while I'm in the car.</b>
+> <p><i>Donna Shalala</i></p>
 
 <br>
