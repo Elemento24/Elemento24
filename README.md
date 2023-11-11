@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I worked for this company that repossessed cars. Sure enough, the day after I quit, they repossessed my car, but that would probably be my strangest job to date. You have to work your way up to become a hardcore repo man.</b>
-> <p><i>Romany Malco</i></p>
+> <b>Training in taekwondo for eight years and then being able to do it in a film was pretty amazing.</b>
+> <p><i>Dev Patel</i></p>
 
 <br>
