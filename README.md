@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every child senses, with all the horse sense that's in him, that any parent is angry inside when children misbehave and they dread more the anger that is rarely or never expressed openly, wondering how awful it might be.</b>
-> <p><i>Benjamin Spock</i></p>
+> <b>In the television age, the key distinction is between the candidate who can speak poetry and the one who can only speak prose.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
