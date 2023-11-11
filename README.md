@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any authentic work of art must start an argument between the artist and his audience.</b>
-> <p><i>Rebecca West</i></p>
+> <b>The best days I have are usually days where I'm out in the woods and something happens, like I see an amazing animal like a fox, or I get a glimpse of a wild pig or something that I never see. Or crazy things happen.</b>
+> <p><i>Amy Ray</i></p>
 
 <br>
