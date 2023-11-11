@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The main prank that we play with props is for people's birthdays. The special effects people will put a little explosive in the cake so it blows up in their face - that's always fun to play on a guest star, or one of the trainees or someone who's new.</b>
-> <p><i>Catherine Bell</i></p>
+> <b>I think that clearly it has an influence, to be coming of age during the punk rock era, to come from a difficult and sporadically violent background, to have been in and out of such chaos, I think it actually helps. But I don't know for sure.</b>
+> <p><i>Craig Ferguson</i></p>
 
 <br>
