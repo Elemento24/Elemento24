@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a party animal I took my job as Miss USA very seriously... Sometimes, of course, I want to let it all go. Even though I'm a beauty queen, you're also an unofficial ambassador, and there's a lot of pressure.</b>
-> <p><i>Rima Fakih</i></p>
+> <b>I worked for this company that repossessed cars. Sure enough, the day after I quit, they repossessed my car, but that would probably be my strangest job to date. You have to work your way up to become a hardcore repo man.</b>
+> <p><i>Romany Malco</i></p>
 
 <br>
