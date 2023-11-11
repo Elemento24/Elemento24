@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best films of any kind, narrative or documentary, provoke questions.</b>
-> <p><i>Edward Norton</i></p>
+> <b>Don't be an art critic. Paint. There lies salvation.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
