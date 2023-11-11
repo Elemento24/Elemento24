@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ethics is in origin the art of recommending to others the sacrifices required for cooperation with oneself.</b>
-> <p><i>Bertrand Russell</i></p>
+> <b>I'm not a party animal I took my job as Miss USA very seriously... Sometimes, of course, I want to let it all go. Even though I'm a beauty queen, you're also an unofficial ambassador, and there's a lot of pressure.</b>
+> <p><i>Rima Fakih</i></p>
 
 <br>
