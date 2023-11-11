@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought about how we need to make children feel that there are times in their lives when they need to be alone and quiet and to be able to accept their aloneness.</b>
-> <p><i>Bell Hooks</i></p>
+> <b>Doorman - a genius who can open the door of your car with one hand, help you in with the other, and still have one left for the tip.</b>
+> <p><i>Dorothy Kilgallen</i></p>
 
 <br>
