@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you have only 95 minutes of material, make an only 95-minute movie. Amazing how often that's forgotten.</b>
-> <p><i>Stephen Hunter</i></p>
+> <b>I thought about how we need to make children feel that there are times in their lives when they need to be alone and quiet and to be able to accept their aloneness.</b>
+> <p><i>Bell Hooks</i></p>
 
 <br>
