@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you age with somebody, you go through so many roles - you're lovers, friends, enemies, colleagues, strangers you're brother and sister. That's what intimacy is, if you're with your soulmate.</b>
-> <p><i>Cate Blanchett</i></p>
+> <b>An artist is somebody who produces things that people don't need to have.</b>
+> <p><i>Andy Warhol</i></p>
 
 <br>
