@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is like art. You have to work hard to keep it simple and still have meaning.</b>
-> <p><i>Charles de Lint</i></p>
+> <b>It is very sad for a man to make himself servant to a single thing his manhood all taken out of him by the hydraulic pressure of excessive business.</b>
+> <p><i>Theodore Parker</i></p>
 
 <br>
