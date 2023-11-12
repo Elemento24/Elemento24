@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>John Candy knew he was going to die. He told me on his 40th birthday. He said, well, Maureen, I'm on borrowed time.</b>
-> <p><i>Maureen O'Hara</i></p>
+> <b>To make pictures big is to make them more powerful.</b>
+> <p><i>Robert Mapplethorpe</i></p>
 
 <br>
