@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is very sad for a man to make himself servant to a single thing his manhood all taken out of him by the hydraulic pressure of excessive business.</b>
-> <p><i>Theodore Parker</i></p>
+> <b>The details are the very source of expression in architecture. But we are caught in a vice between art and the bottom line.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
