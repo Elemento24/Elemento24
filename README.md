@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I decided to be a singer, my mother warned me I'd be alone a lot. Basically we all are. Loneliness comes with life.</b>
-> <p><i>Whitney Houston</i></p>
+> <b>Whenever an individual or a business decides that success has been attained, progress stops.</b>
+> <p><i>Thomas J. Watson</i></p>
 
 <br>
