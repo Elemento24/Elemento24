@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist is somebody who produces things that people don't need to have.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>John Candy knew he was going to die. He told me on his 40th birthday. He said, well, Maureen, I'm on borrowed time.</b>
+> <p><i>Maureen O'Hara</i></p>
 
 <br>
