@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To make pictures big is to make them more powerful.</b>
-> <p><i>Robert Mapplethorpe</i></p>
+> <b>I would like to say to people, open your eyes and find beauty where you normally don't expect it.</b>
+> <p><i>Jean Paul Gaultier</i></p>
 
 <br>
