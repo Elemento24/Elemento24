@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is always criticized and always an outsider gets the blame.</b>
-> <p><i>Ville Valo</i></p>
+> <b>In this world nothing can be said to be certain, except death and taxes.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
