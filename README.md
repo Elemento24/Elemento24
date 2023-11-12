@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every young man would do well to remember that all successful business stands on the foundation of morality.</b>
-> <p><i>Henry Ward Beecher</i></p>
+> <b>I am indeed amazed when I consider how weak my mind is and how prone to error.</b>
+> <p><i>Rene Descartes</i></p>
 
 <br>
