@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The details are the very source of expression in architecture. But we are caught in a vice between art and the bottom line.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>A lot of my humor does come from anger. It's like, you're not gonna pull one over on me - which is pretty much my motto anyways.</b>
+> <p><i>Courteney Cox</i></p>
 
 <br>
