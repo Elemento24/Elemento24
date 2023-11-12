@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Baseball is a game, yes. It is also a business. But what is most truly is is disguised combat. For all its gentility, its almost leisurely pace, baseball is violence under wraps.</b>
-> <p><i>Willie Mays</i></p>
+> <b>Life is like art. You have to work hard to keep it simple and still have meaning.</b>
+> <p><i>Charles de Lint</i></p>
 
 <br>
