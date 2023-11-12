@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing is as dangerous in architecture as dealing with separated problems. If we split life into separated problems we split the possibilities to make good building art.</b>
-> <p><i>Alvar Aalto</i></p>
+> <b>My philosophy is that not only are you responsible for your life, but doing the best at this moment puts you I the best place for the next moment.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
