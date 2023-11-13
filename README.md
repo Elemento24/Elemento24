@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You just never know when you're living in a golden age.</b>
-> <p><i>Alexander Payne</i></p>
+> <b>My dream car would be a Maserati. That would be amazing.</b>
+> <p><i>Jordana Brewster</i></p>
 
 <br>
