@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of people get impatient with the pace of change.</b>
-> <p><i>James Levine</i></p>
+> <b>Stubborn and ardent clinging to one's opinion is the best proof of stupidity.</b>
+> <p><i>Michel de Montaigne</i></p>
 
 <br>
