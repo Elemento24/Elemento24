@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In terms of work I've always had a Bad Attitude in that I won't work anywhere which requires me to work strict hours or follow a dress code. I don't know if that's an Asperger's thing or not, I think it's just being reasonable.</b>
-> <p><i>Bram Cohen</i></p>
+> <b>Bader's philosophy was my philosophy. His whole attitude to life was mine.</b>
+> <p><i>Kenneth More</i></p>
 
 <br>
