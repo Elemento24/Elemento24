@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think art education, especially in this country, which government pretty much ignores, is so important for young people.</b>
-> <p><i>Mikhail Baryshnikov</i></p>
+> <b>Science is analytical, descriptive, informative. Man does not live by bread alone, but by science he attempts to do so. Hence the deadliness of all that is purely scientific.</b>
+> <p><i>Eric Gill</i></p>
 
 <br>
