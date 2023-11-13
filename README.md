@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We've got to lift our game tremendously. We'll sell our business news and information in print, we'll sell it to anyone who's got a cable system, and we'll sell it on the Web.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>I think art education, especially in this country, which government pretty much ignores, is so important for young people.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
