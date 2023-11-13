@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did a twenty foot print and John Cage is involved in that because he was the only person I knew in New York who had a car and who would be willing to do this.</b>
-> <p><i>Robert Rauschenberg</i></p>
+> <b>The business side of film has goofed up so many things, but even that's changing. It happened to the music industry and now it's happening to the film studios. It's crazy what's going on. But artists should have control of their work especially if, as I always say, you never turn down a good idea and never take a bad idea.</b>
+> <p><i>David Lynch</i></p>
 
 <br>
