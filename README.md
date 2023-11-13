@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude to writing is like when you do wallpapering, you remember where all the little bits are that don't meet. And then your friends say: It's terrific!</b>
-> <p><i>Harrison Birtwistle</i></p>
+> <b>We've got to lift our game tremendously. We'll sell our business news and information in print, we'll sell it to anyone who's got a cable system, and we'll sell it on the Web.</b>
+> <p><i>Rupert Murdoch</i></p>
 
 <br>
