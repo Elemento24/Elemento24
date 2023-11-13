@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dream car would be a Maserati. That would be amazing.</b>
-> <p><i>Jordana Brewster</i></p>
+> <b>Beauty ought to look a little surprised: it is the emotion that best suits her face. The beauty who does not look surprised, who accepts her position as her due - she reminds us too much of a prima donna.</b>
+> <p><i>E. M. Forster</i></p>
 
 <br>
