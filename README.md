@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Stubborn and ardent clinging to one's opinion is the best proof of stupidity.</b>
-> <p><i>Michel de Montaigne</i></p>
+> <b>The most seductive thing about art is the personality of the artist himself.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
