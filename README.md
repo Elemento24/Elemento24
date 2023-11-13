@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business side of film has goofed up so many things, but even that's changing. It happened to the music industry and now it's happening to the film studios. It's crazy what's going on. But artists should have control of their work especially if, as I always say, you never turn down a good idea and never take a bad idea.</b>
-> <p><i>David Lynch</i></p>
+> <b>I guess winning an Oscar is the ultimate dream. A lot of amazing actors go their whole career without even being nominated. So that would definitely be a goal to reach. It's a difficult one, but I'm aiming for it!</b>
+> <p><i>Taylor Lautner</i></p>
 
 <br>
