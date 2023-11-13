@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Modern art is what happens when painters stop looking at girls and persuade themselves that they have a better idea.</b>
-> <p><i>John Ciardi</i></p>
+> <b>It's amazing how stress keeps you trim.</b>
+> <p><i>Peter Andre</i></p>
 
 <br>
