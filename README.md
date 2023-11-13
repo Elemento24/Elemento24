@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Science is analytical, descriptive, informative. Man does not live by bread alone, but by science he attempts to do so. Hence the deadliness of all that is purely scientific.</b>
-> <p><i>Eric Gill</i></p>
+> <b>I did a twenty foot print and John Cage is involved in that because he was the only person I knew in New York who had a car and who would be willing to do this.</b>
+> <p><i>Robert Rauschenberg</i></p>
 
 <br>
