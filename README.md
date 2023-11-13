@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman my age is not supposed to be attractive or sexually appealing. I just get kinda tired of that.</b>
-> <p><i>Kathleen Turner</i></p>
+> <b>Those youngsters go out there and set a record and clinch the pole position. But what do you do if you wreck your car. That record doesn't spend too well.</b>
+> <p><i>Buck Baker</i></p>
 
 <br>
