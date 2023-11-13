@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those youngsters go out there and set a record and clinch the pole position. But what do you do if you wreck your car. That record doesn't spend too well.</b>
-> <p><i>Buck Baker</i></p>
+> <b>Modern art is what happens when painters stop looking at girls and persuade themselves that they have a better idea.</b>
+> <p><i>John Ciardi</i></p>
 
 <br>
