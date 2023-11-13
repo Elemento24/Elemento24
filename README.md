@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have short goals - to get better every day, to help my teammates every day - but my only ultimate goal is to win an NBA championship. It's all that matters. I dream about it. I dream about it all the time, how it would look, how it would feel. It would be so amazing.</b>
-> <p><i>LeBron James</i></p>
+> <b>Hollywood is the place to be for actors - and there's just a big rush when an Australian comes over just because there's less of them. I guess that's just how it is. Like if you pick a pink jellybean out of a jar of green ones it'd be amazing, but if you pick a green one, no one will care.</b>
+> <p><i>Callan McAuliffe</i></p>
 
 <br>
