@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reason is not automatic. Those who deny it cannot be conquered by it. Do not count on them. Leave them alone.</b>
-> <p><i>Ayn Rand</i></p>
+> <b>Times and conditions change so rapidly that we must keep our aim constantly focused on the future.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
