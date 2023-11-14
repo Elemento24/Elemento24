@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is your business when the wall next door catches fire.</b>
-> <p><i>Horace</i></p>
+> <b>I've got tonnes of aboriginal and Native American art, but I'd like even more.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
