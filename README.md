@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul.</b>
-> <p><i>John Muir</i></p>
+> <b>To be happy, we must be true to nature and carry our age along with us.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
