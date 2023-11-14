@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In business or in life, don't follow the wagon tracks too closely.</b>
-> <p><i>H. Jackson Brown, Jr.</i></p>
+> <b>Secure our borders first. Let us know and let us make sure the American people know that we're taking care of the important business of dealing with the illegal immigration into this country. You cannot begin to address the concerns of the people who are already here unless and until you have made certain that no more are coming in behind them.</b>
+> <p><i>Michael Steele</i></p>
 
 <br>
