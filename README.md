@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves.</b>
-> <p><i>Buddha</i></p>
+> <b>I'm afraid that if you look at a thing long enough, it loses all of its meaning.</b>
+> <p><i>Andy Warhol</i></p>
 
 <br>
