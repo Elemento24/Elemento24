@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was my 16th birthday - my mom and dad gave me my Goya classical guitar that day. I sat down, wrote this song, and I just knew that that was the only thing I could ever really do - write songs and sing them to people.</b>
-> <p><i>Stevie Nicks</i></p>
+> <b>If you like a person you say 'let's go into business together.' Man is a social animal after all, but such partnerships are fraught with danger.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
