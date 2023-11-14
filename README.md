@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got tonnes of aboriginal and Native American art, but I'd like even more.</b>
-> <p><i>Tori Amos</i></p>
+> <b>Art is the lie that enables us to realize the truth.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
