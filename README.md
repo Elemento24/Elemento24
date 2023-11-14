@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't appreciate the young woman that I was, or my young beauty, because I was so obsessed with the fact that I felt fat. It's never good to add to anybody else's suffering. It's an important topic to really get the gravity and the importance of - dealing with dignity.</b>
-> <p><i>Margaret Cho</i></p>
+> <b>Reason is not automatic. Those who deny it cannot be conquered by it. Do not count on them. Leave them alone.</b>
+> <p><i>Ayn Rand</i></p>
 
 <br>
