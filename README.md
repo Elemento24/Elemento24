@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be happy, we must be true to nature and carry our age along with us.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>Since graduation, I have measured time in 4-by-5-inch pieces of paper, four days on the left and three on the right. Every social engagement, interview, reading, flight, doctor's appointment, birthday and dry-cleaning reminder has been handwritten between metal loops.</b>
+> <p><i>Sloane Crosley</i></p>
 
 <br>
