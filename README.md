@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let your Discourse with Men of Business be Short and Comprehensive.</b>
-> <p><i>George Washington</i></p>
+> <b>When I was a kid I got busted for throwing a rock through a car window and egging a house on halloween.</b>
+> <p><i>Gavin DeGraw</i></p>
 
 <br>
