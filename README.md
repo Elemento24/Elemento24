@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The poor monkey, quietly seated on the ground, seemed to be in sore trouble at this display of anger.</b>
-> <p><i>Henry Walter Bates</i></p>
+> <b>You might say that when you step inside, you're entering a honorific space, but that's something totally different than experiencing it. And in architecture the experience comes first. That has the deepest effect on us.</b>
+> <p><i>Thom Mayne</i></p>
 
 <br>
