@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter what people tell you, words and ideas can change the world.</b>
-> <p><i>Robin Williams</i></p>
+> <b>Old age and treachery will always beat youth and exuberance.</b>
+> <p><i>David Mamet</i></p>
 
 <br>
