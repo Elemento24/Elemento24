@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I ask you to pray for me, for once age has overtaken us, we find consolation only in religion.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>No matter what people tell you, words and ideas can change the world.</b>
+> <p><i>Robin Williams</i></p>
 
 <br>
