@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is indeed a good gift of God but that the good may not think it a great good, God dispenses it even to the wicked.</b>
-> <p><i>Saint Augustine</i></p>
+> <b>Beauty is first and foremost an emotion.</b>
+> <p><i>Tahar Ben Jelloun</i></p>
 
 <br>
