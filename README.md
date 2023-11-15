@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes if you want to see a change for the better, you have to take things into your own hands.</b>
-> <p><i>Clint Eastwood</i></p>
+> <b>He is the best man who, when making his plans, fears and reflects on everything that can happen to him, but in the moment of action is bold.</b>
+> <p><i>Herodotus</i></p>
 
 <br>
