@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since graduation, I have measured time in 4-by-5-inch pieces of paper, four days on the left and three on the right. Every social engagement, interview, reading, flight, doctor's appointment, birthday and dry-cleaning reminder has been handwritten between metal loops.</b>
-> <p><i>Sloane Crosley</i></p>
+> <b>Becoming an author changes your attitude too. Once you see where books come from, and how they're made, they never seem quite as sacred again.</b>
+> <p><i>Lev Grossman</i></p>
 
 <br>
