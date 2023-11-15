@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Keep a good attitude and do the right thing even when it's hard. When you do that you are passing the test. And God promises you your marked moments are on their way.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>The poor monkey, quietly seated on the ground, seemed to be in sore trouble at this display of anger.</b>
+> <p><i>Henry Walter Bates</i></p>
 
 <br>
