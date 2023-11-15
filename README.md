@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Heat cannot be separated from fire, or beauty from The Eternal.</b>
-> <p><i>Dante Alighieri</i></p>
+> <b>In 1993 my birthday present was a star on Hollywood's Walk of Fame.</b>
+> <p><i>Annette Funicello</i></p>
 
 <br>
