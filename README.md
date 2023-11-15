@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Courtesy is a silver lining around the dark clouds of civilization it is the best part of refinement and in many ways, an art of heroic beauty in the vast gallery of man's cruelty and baseness.</b>
-> <p><i>Bryant H. McGill</i></p>
+> <b>Middle age is the awkward period when Father Time starts catching up with Mother Nature.</b>
+> <p><i>Harold Coffin</i></p>
 
 <br>
