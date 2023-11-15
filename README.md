@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is the awkward period when Father Time starts catching up with Mother Nature.</b>
-> <p><i>Harold Coffin</i></p>
+> <b>Sometimes if you want to see a change for the better, you have to take things into your own hands.</b>
+> <p><i>Clint Eastwood</i></p>
 
 <br>
