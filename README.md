@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He is the best man who, when making his plans, fears and reflects on everything that can happen to him, but in the moment of action is bold.</b>
-> <p><i>Herodotus</i></p>
+> <b>Beauty is indeed a good gift of God but that the good may not think it a great good, God dispenses it even to the wicked.</b>
+> <p><i>Saint Augustine</i></p>
 
 <br>
