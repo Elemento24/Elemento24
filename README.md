@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't stop loving or wanting to love because when its right it's the best thing in the world. When you're in a relationship and its good, even if nothing else in your life is right, you feel like your whole world is complete.</b>
-> <p><i>Keith Sweat</i></p>
+> <b>Heat cannot be separated from fire, or beauty from The Eternal.</b>
+> <p><i>Dante Alighieri</i></p>
 
 <br>
