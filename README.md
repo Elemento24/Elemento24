@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not materialistic. I believe in presents from the heart, like a drawing that a child does.</b>
-> <p><i>Victoria Beckham</i></p>
+> <b>Piano playing is a dying art. I love the fact that I can be one guy with one instrument evoking an emotional and musical experience.</b>
+> <p><i>Jon Bon Jovi</i></p>
 
 <br>
