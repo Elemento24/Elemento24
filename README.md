@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Praise or blame has but a momentary effect on the man whose love of beauty in the abstract makes him a severe critic on his own works.</b>
-> <p><i>John Keats</i></p>
+> <b>Always remember that the future comes one day at a time.</b>
+> <p><i>Dean Acheson</i></p>
 
 <br>
