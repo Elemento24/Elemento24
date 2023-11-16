@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The man who goes alone can start today but he who travels with another must wait till that other is ready.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Swift speedy time, feathered with flying hours, Dissolves the beauty of the fairest brow.</b>
+> <p><i>Lord Chesterfield</i></p>
 
 <br>
