@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In any architecture, there is an equity between the pragmatic function and the symbolic function.</b>
-> <p><i>Michael Graves</i></p>
+> <b>I'm not materialistic. I believe in presents from the heart, like a drawing that a child does.</b>
+> <p><i>Victoria Beckham</i></p>
 
 <br>
