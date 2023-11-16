@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
-> <p><i>Euripides</i></p>
+> <b>Praise or blame has but a momentary effect on the man whose love of beauty in the abstract makes him a severe critic on his own works.</b>
+> <p><i>John Keats</i></p>
 
 <br>
