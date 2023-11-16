@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Scouting rises within you and inspires you to put forth your best.</b>
-> <p><i>Juliette Gordon Low</i></p>
+> <b>In any architecture, there is an equity between the pragmatic function and the symbolic function.</b>
+> <p><i>Michael Graves</i></p>
 
 <br>
