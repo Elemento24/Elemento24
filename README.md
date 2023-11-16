@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always remember that the future comes one day at a time.</b>
-> <p><i>Dean Acheson</i></p>
+> <b>I'm not interested in pop art.</b>
+> <p><i>Billy Corgan</i></p>
 
 <br>
