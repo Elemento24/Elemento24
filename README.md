@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Piano playing is a dying art. I love the fact that I can be one guy with one instrument evoking an emotional and musical experience.</b>
-> <p><i>Jon Bon Jovi</i></p>
+> <b>The man who goes alone can start today but he who travels with another must wait till that other is ready.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
