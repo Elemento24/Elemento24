@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be in a situation where you have no rights whatsoever is something I wish everybody could experience. People's attitudes would change. It would be a better place.</b>
-> <p><i>Tommy Chong</i></p>
+> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
+> <p><i>Euripides</i></p>
 
 <br>
