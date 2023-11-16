@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A business of high principle generates greater drive and effectiveness because people know that they can do the right thing decisively and with confidence.</b>
-> <p><i>Marvin Bower</i></p>
+> <b>Revenge is often like biting a dog because the dog bit you.</b>
+> <p><i>Austin O'Malley</i></p>
 
 <br>
