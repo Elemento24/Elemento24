@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember when I first started in the business, I lost a lot of friends. Some were jealous, some were annoyed at the fact that I was an actress.</b>
-> <p><i>Amber Tamblyn</i></p>
+> <b>In art and dream may you proceed with abandon. In life may you proceed with balance and stealth.</b>
+> <p><i>Patti Smith</i></p>
 
 <br>
