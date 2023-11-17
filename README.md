@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men are beginning to realize that they are not individuals but persons in society, that man alone is weak and adrift, that he must seek strength in common action.</b>
-> <p><i>Dorothy Day</i></p>
+> <b>A lot of people get impatient with the pace of change.</b>
+> <p><i>James Levine</i></p>
 
 <br>
