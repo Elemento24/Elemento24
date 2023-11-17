@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek.</b>
-> <p><i>Barack Obama</i></p>
+> <b>Love of beauty is taste. The creation of beauty is art.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
