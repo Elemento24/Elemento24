@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of people get impatient with the pace of change.</b>
-> <p><i>James Levine</i></p>
+> <b>I think there's a suspicion in the South of people putting on airs. You see it in most successful Southern politicians, but you also see it in someone like Richard Petty, who may be a multimillionaire stock car driver, but he's also beloved because he has a nice self-deprecatory way about him.</b>
+> <p><i>John Shelton Reed</i></p>
 
 <br>
