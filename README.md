@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every performance is different. That's the beauty of it.</b>
-> <p><i>Van Morrison</i></p>
+> <b>Both the Obama and Romney campaigns said they pulled all their political ads today in observance of the September 11th anniversary. But politics wasn't very far offstage. The Obama campaign sees foreign policy as an advantage this year.</b>
+> <p><i>Mara Liasson</i></p>
 
 <br>
