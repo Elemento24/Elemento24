@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a grim outlook on the world, and in particular on humanity. Spent years denying it, but I am very misanthropic. And I live alone on a mountain for a reason.</b>
-> <p><i>Caleb Carr</i></p>
+> <b>I just wish the crowd I was associated with was more passionate about what they were doing and less consumed with the commerce of the art form.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
