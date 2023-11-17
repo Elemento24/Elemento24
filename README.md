@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I very much wished not to be noticed, and to be left alone, and I sort of succeeded.</b>
-> <p><i>Mary Oliver</i></p>
+> <b>I have a grim outlook on the world, and in particular on humanity. Spent years denying it, but I am very misanthropic. And I live alone on a mountain for a reason.</b>
+> <p><i>Caleb Carr</i></p>
 
 <br>
