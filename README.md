@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Motivation is the art of getting people to do what you want them to do because they want to do it.</b>
-> <p><i>Dwight D. Eisenhower</i></p>
+> <b>Every performance is different. That's the beauty of it.</b>
+> <p><i>Van Morrison</i></p>
 
 <br>
