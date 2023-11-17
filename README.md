@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are two kinds of artists in this world those that work because the spirit is in them, and they cannot be silent if they would, and those that speak from a conscientious desire to make apparent to others the beauty that has awakened their own admiration.</b>
-> <p><i>Anna Katharine Green</i></p>
+> <b>For the last 20 years of my life, I've had the mantra to do amazing parts with amazing people in amazing projects, so I'm attracted to good story, writing and character and good people. That's what I'm always searching for and I don't think that's ever going to change.</b>
+> <p><i>John Hawkes</i></p>
 
 <br>
