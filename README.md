@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Accuracy is, in every case, advantageous to beauty, and just reasoning to delicate sentiment. In vain would we exalt the one by depreciating the other.</b>
-> <p><i>David Hume</i></p>
+> <b>The art of healing comes from nature, not from the physician. Therefore the physician must start from nature, with an open mind.</b>
+> <p><i>Paracelsus</i></p>
 
 <br>
