@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Recently, I went to a disco with friends, and all the young people were saying, 'Dudamel, we want to go to your concert, but it's impossible because it's sold out.' It's really amazing.</b>
-> <p><i>Gustavo Dudamel</i></p>
+> <b>Some people have such a talent for making the best of a bad situation that they go around creating bad situations so they can make the best of them.</b>
+> <p><i>Jean Kerr</i></p>
 
 <br>
