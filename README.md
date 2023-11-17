@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love of beauty is taste. The creation of beauty is art.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>I started in the restaurant business at the age of 19 as a waitress. I loved the atmosphere and the camaraderie of the restaurant business. I loved not having to go to an office. I loved making people happy.</b>
+> <p><i>Anne Burrell</i></p>
 
 <br>
