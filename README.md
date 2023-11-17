@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Land really is the best art.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>There are two kinds of artists in this world those that work because the spirit is in them, and they cannot be silent if they would, and those that speak from a conscientious desire to make apparent to others the beauty that has awakened their own admiration.</b>
+> <p><i>Anna Katharine Green</i></p>
 
 <br>
