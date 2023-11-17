@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of healing comes from nature, not from the physician. Therefore the physician must start from nature, with an open mind.</b>
-> <p><i>Paracelsus</i></p>
+> <b>Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
