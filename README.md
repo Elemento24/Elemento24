@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A good painting to me has always been like a friend. It keeps me company, comforts and inspires.</b>
-> <p><i>Hedy Lamarr</i></p>
+> <b>Don't worry about people stealing your ideas. If your ideas are any good, you'll have to ram them down people's throats.</b>
+> <p><i>Howard Aiken</i></p>
 
 <br>
