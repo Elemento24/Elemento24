@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The intention to live as long as possible isn't one of the mind's best intentions, because quantity isn't the same as quality.</b>
-> <p><i>Deepak Chopra</i></p>
+> <b>A good painting to me has always been like a friend. It keeps me company, comforts and inspires.</b>
+> <p><i>Hedy Lamarr</i></p>
 
 <br>
