@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The true beauty of music is that it connects people. It carries a message, and we, the musicians, are the messengers.</b>
-> <p><i>Roy Ayers</i></p>
+> <b>Certain kinds of speed, flow, intensity, density of attacks, density of interaction... Music that concentrates on those qualities is, I think, easier achieved by free improvisation between people sharing a common attitude, a common language.</b>
+> <p><i>Evan Parker</i></p>
 
 <br>
