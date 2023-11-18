@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no anger ever in a spiritual. There's always the dream of a hope of a better day coming. That God understands the troubles that I'm experiencing.</b>
-> <p><i>Jessye Norman</i></p>
+> <b>The intention to live as long as possible isn't one of the mind's best intentions, because quantity isn't the same as quality.</b>
+> <p><i>Deepak Chopra</i></p>
 
 <br>
