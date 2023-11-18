@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't believe in one ideal beauty.</b>
-> <p><i>Zac Posen</i></p>
+> <b>When I was a child I asked my mother what homosexuality was about and she said - and this was 100 years ago in Germany and she was very open-minded - 'It's like hair color. It's nothing. Some people are blond and some people have dark hair. It's not a subject.' This was a very healthy attitude.</b>
+> <p><i>Karl Lagerfeld</i></p>
 
 <br>
