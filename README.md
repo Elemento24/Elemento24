@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't worry about people stealing your ideas. If your ideas are any good, you'll have to ram them down people's throats.</b>
-> <p><i>Howard Aiken</i></p>
+> <b>The true beauty of music is that it connects people. It carries a message, and we, the musicians, are the messengers.</b>
+> <p><i>Roy Ayers</i></p>
 
 <br>
