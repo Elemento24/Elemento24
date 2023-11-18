@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most works of art, like most wines, ought to be consumed in the district of their fabrication.</b>
-> <p><i>Simone Weil</i></p>
+> <b>All we need, really, is a change from a near frigid to a tropical attitude of mind.</b>
+> <p><i>Marjory Stoneman Douglas</i></p>
 
 <br>
