@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All we need, really, is a change from a near frigid to a tropical attitude of mind.</b>
-> <p><i>Marjory Stoneman Douglas</i></p>
+> <b>My greatest challenge has been to change the mindset of people. Mindsets play strange tricks on us. We see things the way our minds have instructed our eyes to see.</b>
+> <p><i>Muhammad Yunus</i></p>
 
 <br>
