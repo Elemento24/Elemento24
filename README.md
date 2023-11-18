@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Common sense is the collection of prejudices acquired by age eighteen.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>Just as your car runs more smoothly and requires less energy to go faster and farther when the wheels are in perfect alignment, you perform better when your thoughts, feelings, emotions, goals, and values are in balance.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
