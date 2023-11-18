@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Certain kinds of speed, flow, intensity, density of attacks, density of interaction... Music that concentrates on those qualities is, I think, easier achieved by free improvisation between people sharing a common attitude, a common language.</b>
-> <p><i>Evan Parker</i></p>
+> <b>I'm so happy to be able to give kids the opportunity to learn about amazing world of dance and music that I've have been lucky enough to make such a big part of my own life.</b>
+> <p><i>Britney Spears</i></p>
 
 <br>
