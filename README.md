@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The will to work of everyone in the country is the best guarantee of national survival.</b>
-> <p><i>Bhumibol Adulyadej</i></p>
+> <b>Well I do think, when there are more women, that the tone of the conversation changes, and also the goals of the conversation change. But it doesn't mean that the whole world would be a lot better if it were totally run by women. If you think that, you've forgotten high school.</b>
+> <p><i>Madeleine Albright</i></p>
 
 <br>
