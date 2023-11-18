@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the social business marketplace, brands that hope to build loyal and growing communities do so most effectively when they demonstrate their core values and allow a community to build and engage around it.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>The will to work of everyone in the country is the best guarantee of national survival.</b>
+> <p><i>Bhumibol Adulyadej</i></p>
 
 <br>
