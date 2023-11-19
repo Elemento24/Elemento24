@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A blessed thing it is for any man or woman to have a friend, one human soul whom we can trust utterly, who knows the best and worst of us, and who loves us in spite of all our faults.</b>
-> <p><i>Charles Kingsley</i></p>
+> <b>I am as bad as the worst, but, thank God, I am as good as the best.</b>
+> <p><i>Walt Whitman</i></p>
 
 <br>
