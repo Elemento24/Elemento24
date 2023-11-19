@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We hire people who want to make the best things in the world.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>I have no right to beauty. I had been condemned to masculine ugliness.</b>
+> <p><i>Renee Vivien</i></p>
 
 <br>
