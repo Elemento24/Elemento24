@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody in life gets exactly what they thought they were going to get. But if you work really hard and you're kind, amazing things will happen.</b>
-> <p><i>Conan O'Brien</i></p>
+> <b>Getting through the nights is the toughest part. Being alone. Not having her there to talk to.</b>
+> <p><i>Stuart Appleby</i></p>
 
 <br>
