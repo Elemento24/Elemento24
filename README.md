@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the best things for a woman to hear is that she is sexy.</b>
-> <p><i>Scarlett Johansson</i></p>
+> <b>Towns find it as hard as houses of business to rise again from ruin.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
