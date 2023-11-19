@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I started Netscape I was brand new out of college and all the aspects of building a business, like balance sheets and hiring people, were new to me.</b>
-> <p><i>Marc Andreessen</i></p>
+> <b>One of the best things for a woman to hear is that she is sexy.</b>
+> <p><i>Scarlett Johansson</i></p>
 
 <br>
