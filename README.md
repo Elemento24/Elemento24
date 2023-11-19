@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is composed of an eternal, invariable element whose quantity is extremely difficult to determine, and a relative element which might be, either by turns or all at once, period, fashion, moral, passion.</b>
-> <p><i>Jean-Luc Godard</i></p>
+> <b>Love built on beauty, soon as beauty, dies.</b>
+> <p><i>John Donne</i></p>
 
 <br>
