@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am as bad as the worst, but, thank God, I am as good as the best.</b>
-> <p><i>Walt Whitman</i></p>
+> <b>It's better for me to play with guys because Rock 'n' Roll has such an aggressive attitude.</b>
+> <p><i>Lita Ford</i></p>
 
 <br>
