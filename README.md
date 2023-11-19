@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes, 85 percent of the art you see isn't any good. But everyone has a different opinion about which 85 percent is bad. That in turn creates fantastically unstable interplay and argument.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>You have to visualize a second or two ahead of your car what line you are taking, what you are going to do, before you get there because it comes too fast.</b>
+> <p><i>Emerson Fittipaldi</i></p>
 
 <br>
