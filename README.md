@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Study until twenty-five, investigation until forty, profession until sixty, at which age I would have him retired on a double allowance.</b>
-> <p><i>Thomas Moore</i></p>
+> <b>An artist cannot fail it is a success to be one.</b>
+> <p><i>Charles Horton Cooley</i></p>
 
 <br>
