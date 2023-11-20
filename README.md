@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a victory, and defeat the first and best of victories, the lowest and worst of defeats which each man gains or sustains at the hands not of another, but of himself.</b>
-> <p><i>Plato</i></p>
+> <b>As human beings, we are vulnerable to confusing the unprecedented with the improbable. In our everyday experience, if something has never happened before, we are generally safe in assuming it is not going to happen in the future, but the exceptions can kill you and climate change is one of those exceptions.</b>
+> <p><i>Al Gore</i></p>
 
 <br>
