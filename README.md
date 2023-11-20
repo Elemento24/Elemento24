@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A multitude of bees can tell the time of day, calculate the geometry of the sun's position, argue about the best location for the next swarm. Bees do a lot of close observing of other bees maybe they know what follows stinging and do it anyway.</b>
-> <p><i>Lewis Thomas</i></p>
+> <b>You just can't get too focused on worrying about what's going to happen in the next quarter. You have to worry about where the business is headed long-term.</b>
+> <p><i>James Sinegal</i></p>
 
 <br>
