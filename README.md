@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the most beautiful deception of all. And although people try to incorporate the everyday events of life in it, we must hope that it will remain a deception lest it become a utilitarian thing, sad as a factory.</b>
-> <p><i>Claude Debussy</i></p>
+> <b>I don't feel old. I don't feel anything till noon. That's when it's time for my nap.</b>
+> <p><i>Bob Hope</i></p>
 
 <br>
