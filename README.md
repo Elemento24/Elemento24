@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You just can't get too focused on worrying about what's going to happen in the next quarter. You have to worry about where the business is headed long-term.</b>
-> <p><i>James Sinegal</i></p>
+> <b>The hydrogen powered car, with its high fuel mileage and zero emission rate, is just one example of the products under development that will help increase our energy independence.</b>
+> <p><i>Dan Lipinski</i></p>
 
 <br>
