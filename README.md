@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will not get very far with this attitude.</b>
-> <p><i>Nancy Cartwright</i></p>
+> <b>Study until twenty-five, investigation until forty, profession until sixty, at which age I would have him retired on a double allowance.</b>
+> <p><i>Thomas Moore</i></p>
 
 <br>
