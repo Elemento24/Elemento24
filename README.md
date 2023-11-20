@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is amazing for a woman of my age is that I change as the world is changing-and changing very, very fast. I don't think my mother had that opportunity to change.</b>
-> <p><i>Jeanne Moreau</i></p>
+> <b>I will not get very far with this attitude.</b>
+> <p><i>Nancy Cartwright</i></p>
 
 <br>
