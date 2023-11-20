@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just try to do the best job I possibly can - put the blinders on, go to work and be the best you can possibly be. Once you have done everything that you possibly can - you've put forth your greatest effort - then I can live with whatever's next.</b>
-> <p><i>Bill Parcells</i></p>
+> <b>A multitude of bees can tell the time of day, calculate the geometry of the sun's position, argue about the best location for the next swarm. Bees do a lot of close observing of other bees maybe they know what follows stinging and do it anyway.</b>
+> <p><i>Lewis Thomas</i></p>
 
 <br>
