@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like to produce albums. I hate producing albums, as a matter of fact, because I'm an obsessed mixer and I can't leave it alone.</b>
-> <p><i>David Friedman</i></p>
+> <b>What is amazing for a woman of my age is that I change as the world is changing-and changing very, very fast. I don't think my mother had that opportunity to change.</b>
+> <p><i>Jeanne Moreau</i></p>
 
 <br>
