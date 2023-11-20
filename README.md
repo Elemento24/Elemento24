@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In architecture the idea degenerated. Design allows a more direct and pleasurable route.</b>
-> <p><i>Charles Eames</i></p>
+> <b>But if nothing but soul, or in soul mind, is qualified to count, it is impossible for there to be time unless there is soul, but only that of which time is an attribute, i.e. if change can exist without soul.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
