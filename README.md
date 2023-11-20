@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Contrary to general belief, I do not believe that friends are necessarily the people you like best, they are merely the people who got there first.</b>
-> <p><i>Peter Ustinov</i></p>
+> <b>I just try to do the best job I possibly can - put the blinders on, go to work and be the best you can possibly be. Once you have done everything that you possibly can - you've put forth your greatest effort - then I can live with whatever's next.</b>
+> <p><i>Bill Parcells</i></p>
 
 <br>
