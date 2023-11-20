@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did successfully kick tobacco at the age of 34. I smoked for like 20 years, from 14 to 34.</b>
-> <p><i>Larry Hagman</i></p>
+> <b>Art is the most beautiful deception of all. And although people try to incorporate the everyday events of life in it, we must hope that it will remain a deception lest it become a utilitarian thing, sad as a factory.</b>
+> <p><i>Claude Debussy</i></p>
 
 <br>
