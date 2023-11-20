@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is uttered from the heart alone, Will win the hearts of others to your own.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>You have to wait six months to purchase a fuel efficient automobile made from overseas.</b>
+> <p><i>Ed Markey</i></p>
 
 <br>
