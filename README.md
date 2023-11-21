@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look at the sky. We are not alone. The whole universe is friendly to us and conspires only to give the best to those who dream and work.</b>
-> <p><i>Abdul Kalam</i></p>
+> <b>Age is getting to know all the ways the world turns, so that if you cannot turn the world the way you want, you can at least get out of the way so you won't get run over.</b>
+> <p><i>Miriam Makeba</i></p>
 
 <br>
