@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I once asked a hermit in Italy how he could venture to live alone, in a single cottage, on the top of a mountain, a mile from any habitation? He replied, that Providence was his next-door neighbor.</b>
-> <p><i>Laurence Sterne</i></p>
+> <b>'UFO's' attitude toward the subject is very similar to mine. It's not an advocacy its philosophy is more 'I want to believe this, but I want it proved.'</b>
+> <p><i>Dwight Schultz</i></p>
 
 <br>
