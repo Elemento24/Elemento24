@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The American flag is an enduring symbol of liberty, democracy, and justice. It is fitting that the House act to protect it as we approach our nation's birthday, and as our men and women in uniform rally behind it in Iraq's battlefields.</b>
-> <p><i>Joe Barton</i></p>
+> <b>It was an amazing performer. Very temperamental, it spent a lot of time in its trailer.</b>
+> <p><i>Tilda Swinton</i></p>
 
 <br>
