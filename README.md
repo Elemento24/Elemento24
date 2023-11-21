@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is always the best policy to speak the truth, unless, of course, you are an exceptionally good liar.</b>
-> <p><i>Jerome K. Jerome</i></p>
+> <b>O, thou art fairer than the evening air clad in the beauty of a thousand stars.</b>
+> <p><i>Christopher Marlowe</i></p>
 
 <br>
