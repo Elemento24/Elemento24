@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is getting to know all the ways the world turns, so that if you cannot turn the world the way you want, you can at least get out of the way so you won't get run over.</b>
-> <p><i>Miriam Makeba</i></p>
+> <b>Poetry is emotion put into measure. The emotion must come by nature, but the measure can be acquired by art.</b>
+> <p><i>Thomas Hardy</i></p>
 
 <br>
