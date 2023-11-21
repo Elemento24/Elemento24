@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hope to bring much more attention to important issues and change for issues and practices that are harming animals.</b>
-> <p><i>Kesha</i></p>
+> <b>It is always the best policy to speak the truth, unless, of course, you are an exceptionally good liar.</b>
+> <p><i>Jerome K. Jerome</i></p>
 
 <br>
