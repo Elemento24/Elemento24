@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist cannot fail it is a success to be one.</b>
-> <p><i>Charles Horton Cooley</i></p>
+> <b>Architecture is a visual art, and the buildings speak for themselves.</b>
+> <p><i>Julia Morgan</i></p>
 
 <br>
