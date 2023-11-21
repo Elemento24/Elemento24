@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I'm a bit less inhibited, and not thinking too much before speaking. It's not about being shameful, I'm just a bit more unabashedly myself because of this thing, and it probably started at age 15. I can be around people and say what I think without fear.</b>
-> <p><i>Kristen Stewart</i></p>
+> <b>Integrity is not a conditional word. It doesn't blow in the wind or change with the weather. It is your inner image of yourself, and if you look in there and see a man who won't cheat, then you know he never will.</b>
+> <p><i>John D. MacDonald</i></p>
 
 <br>
