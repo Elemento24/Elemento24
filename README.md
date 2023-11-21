@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was an amazing performer. Very temperamental, it spent a lot of time in its trailer.</b>
-> <p><i>Tilda Swinton</i></p>
+> <b>It is amazing how complete is the delusion that beauty is goodness.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
