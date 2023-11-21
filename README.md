@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't believe the most successful people are the ones who got the best grades, got into the best schools, or made the most money.</b>
-> <p><i>Ben Stein</i></p>
+> <b>The American flag is an enduring symbol of liberty, democracy, and justice. It is fitting that the House act to protect it as we approach our nation's birthday, and as our men and women in uniform rally behind it in Iraq's battlefields.</b>
+> <p><i>Joe Barton</i></p>
 
 <br>
