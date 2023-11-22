@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I use the music to vent, and a lot of the stuff that I am writing about or was writing about contained a lot of anger and anxiety, stress and depression, so that's how the album came out so dark.</b>
-> <p><i>Vanilla Ice</i></p>
+> <b>What we've gone through in the last several years has caused some people to question 'Can we trust Microsoft?'</b>
+> <p><i>Steve Ballmer</i></p>
 
 <br>
