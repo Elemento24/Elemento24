@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are neither good nor bad subjects. From the point of view of pure Art, you could almost establish it as an axiom that the subject is irrelevant, style itself being an absolute manner of seeing things.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>In writing and politicking, it's best not to think about it, just do it.</b>
+> <p><i>Gore Vidal</i></p>
 
 <br>
