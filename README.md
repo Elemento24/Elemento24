@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As I've gotten older I've occasionally found myself nostalgic for earlier periods of solitude, though I realize that's also likely a false nostalgia, as I know there was nothing I wanted more during those periods than to not be alone, whatever that means.</b>
-> <p><i>Chris Ware</i></p>
+> <b>If philosophy is practice, a demand to know the manner in which its history is to be studied is entailed: a theoretical attitude toward it becomes real only in the living appropriation of its contents from the texts.</b>
+> <p><i>Karl Jaspers</i></p>
 
 <br>
