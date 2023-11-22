@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people I've been exposed to have been people of amazing integrity.</b>
-> <p><i>Amy Grant</i></p>
+> <b>There are neither good nor bad subjects. From the point of view of pure Art, you could almost establish it as an axiom that the subject is irrelevant, style itself being an absolute manner of seeing things.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
