@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the first time we're allowing developers who don't work at Facebook to develop applications just as if they were. That's a big deal because it means that all developers have a new way of doing business if they choose to take advantage of it. There are whole companies that are forming whose only product is a Facebook Platform application.</b>
-> <p><i>Mark Zuckerberg</i></p>
+> <b>As I've gotten older I've occasionally found myself nostalgic for earlier periods of solitude, though I realize that's also likely a false nostalgia, as I know there was nothing I wanted more during those periods than to not be alone, whatever that means.</b>
+> <p><i>Chris Ware</i></p>
 
 <br>
