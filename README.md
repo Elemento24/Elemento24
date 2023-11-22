@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What we've gone through in the last several years has caused some people to question 'Can we trust Microsoft?'</b>
-> <p><i>Steve Ballmer</i></p>
+> <b>Fear is that thing that keeps you up there on that other plateau. Fear is that thing that just keeps you closed down, and quite frankly, alone.</b>
+> <p><i>Andrew Shue</i></p>
 
 <br>
