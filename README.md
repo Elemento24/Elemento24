@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>The cult of art gives pride one never has too much of it.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
