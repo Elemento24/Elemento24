@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think what's really amazing is that given the scale of the web and getting the compute power we have today, we're starting to see things that appear intelligent but actually aren't semantically intelligent.</b>
-> <p><i>Marissa Mayer</i></p>
+> <b>There are people who take rumors and embellish them in a way that can be devastating. And this pollution has to be eradicated by people in our business as best we can.</b>
+> <p><i>Bob Woodward</i></p>
 
 <br>
