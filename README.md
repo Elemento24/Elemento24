@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how good getting up and moving makes you feel.</b>
-> <p><i>Paula Deen</i></p>
+> <b>If you can kill animals, the same attitude can kill human beings. The mentality is the same which exploits nature and which creates wars.</b>
+> <p><i>Satish Kumar</i></p>
 
 <br>
