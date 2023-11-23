@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The supreme art of war is to subdue the enemy without fighting.</b>
-> <p><i>Sun Tzu</i></p>
+> <b>The art of government is to make two-thirds of a nation pay all it possibly can pay for the benefit of the other third.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
