@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even when I was a kid, I had a good thing with kids. To this day, if I go to a birthday party with one of my kids, I swear to you, I am so much happier hanging out with my kids and their friends than talking to the grown-ups.</b>
-> <p><i>Shawn Levy</i></p>
+> <b>Our dilemma is that we hate change and love it at the same time what we really want is for things to remain the same but get better.</b>
+> <p><i>Sydney J. Harris</i></p>
 
 <br>
