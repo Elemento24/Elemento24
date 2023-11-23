@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because I'm a young black man driving a really nice, expensive car, I sometimes get harassed when I'm rolling through a ghetto neighbourhood.</b>
-> <p><i>Coolio</i></p>
+> <b>So at a time in which the media give the public everything it wants and desires, maybe art should adopt a much more aggressive attitude towards the public. I myself am very much inclined to take this position.</b>
+> <p><i>Thom Mayne</i></p>
 
 <br>
