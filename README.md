@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of government is to make two-thirds of a nation pay all it possibly can pay for the benefit of the other third.</b>
-> <p><i>Voltaire</i></p>
+> <b>I believe people who go into politics want to do the right thing. And then they hit a big wall of re-election and the pettiness of politics. In the end, politics gets in the way of the business of people.</b>
+> <p><i>Kevin Costner</i></p>
 
 <br>
