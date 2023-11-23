@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We expect all our businesses to have a positive impact on our top and bottom lines. Profitability is very important to us or we wouldn't be in this business.</b>
-> <p><i>Jeff Bezos</i></p>
+> <b>My first job was in retail at the age of 14, and I have worked in the industry ever since.</b>
+> <p><i>Rachel Roy</i></p>
 
 <br>
