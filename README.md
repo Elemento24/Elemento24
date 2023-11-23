@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He leaned about the same way in falling towards Jacqueline, forward, down towards the bottom of the car.</b>
-> <p><i>Abraham Zapruder</i></p>
+> <b>It's amazing how good getting up and moving makes you feel.</b>
+> <p><i>Paula Deen</i></p>
 
 <br>
