@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe people who go into politics want to do the right thing. And then they hit a big wall of re-election and the pettiness of politics. In the end, politics gets in the way of the business of people.</b>
-> <p><i>Kevin Costner</i></p>
+> <b>If it's flipping hamburgers at McDonald's, be the best hamburger flipper in the world. Whatever it is you do you have to master your craft.</b>
+> <p><i>Snoop Dogg</i></p>
 
 <br>
