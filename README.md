@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If it's flipping hamburgers at McDonald's, be the best hamburger flipper in the world. Whatever it is you do you have to master your craft.</b>
-> <p><i>Snoop Dogg</i></p>
+> <b>Both the Obama and Romney campaigns said they pulled all their political ads today in observance of the September 11th anniversary. But politics wasn't very far offstage. The Obama campaign sees foreign policy as an advantage this year.</b>
+> <p><i>Mara Liasson</i></p>
 
 <br>
