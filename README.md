@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But as far as, for I think it will be amazing you know where I find myself years from now because of this film. It's just amazing, I think everybody's going to kind of know this film and because of it, me. So I you know it's crazy.</b>
-> <p><i>Brandon Routh</i></p>
+> <b>Even when I was a kid, I had a good thing with kids. To this day, if I go to a birthday party with one of my kids, I swear to you, I am so much happier hanging out with my kids and their friends than talking to the grown-ups.</b>
+> <p><i>Shawn Levy</i></p>
 
 <br>
