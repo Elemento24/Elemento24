@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our dilemma is that we hate change and love it at the same time what we really want is for things to remain the same but get better.</b>
-> <p><i>Sydney J. Harris</i></p>
+> <b>The supreme art of war is to subdue the enemy without fighting.</b>
+> <p><i>Sun Tzu</i></p>
 
 <br>
