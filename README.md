@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business opportunities are like buses, there's always another one coming.</b>
-> <p><i>Richard Branson</i></p>
+> <b>I was sleeping the other night, alone, thanks to the exterminator.</b>
+> <p><i>Emo Philips</i></p>
 
 <br>
