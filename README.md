@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The American flag is an enduring symbol of liberty, democracy, and justice. It is fitting that the House act to protect it as we approach our nation's birthday, and as our men and women in uniform rally behind it in Iraq's battlefields.</b>
-> <p><i>Joe Barton</i></p>
+> <b>Just call me a family man and an actor who digs his whole scene, side interests and all. Just say I feel mighty good at the ripe old age of 27.</b>
+> <p><i>Bobby Darin</i></p>
 
 <br>
