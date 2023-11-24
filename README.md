@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So at a time in which the media give the public everything it wants and desires, maybe art should adopt a much more aggressive attitude towards the public. I myself am very much inclined to take this position.</b>
-> <p><i>Thom Mayne</i></p>
+> <b>Nobody who ever gave his best regretted it.</b>
+> <p><i>George Halas</i></p>
 
 <br>
