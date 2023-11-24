@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I run from Horatio Street down just past Battery Park City and back. It's amazing to run and see the Statue of Liberty and the ferries coming in. People think if you're not near Central Park, there's nowhere to go, but there's a whole ecosystem happening down here.</b>
-> <p><i>Andy Cohen</i></p>
+> <b>Organized religion is a sham and a crutch for weak-minded people who need strength in numbers. It tells people to go out and stick their noses in other people's business.</b>
+> <p><i>Jesse Ventura</i></p>
 
 <br>
