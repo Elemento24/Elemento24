@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One thing that is almost always said to me is, I grew up with you. They are meeting me and feel that they actually grew up with me. I was with them during their play hours and thinking hours. I was a part of their childhoods. That's one of the most amazing things.</b>
-> <p><i>Mark Goddard</i></p>
+> <b>I spent a lot of my life holding back my cries, and I want to change that because it's not good for me.</b>
+> <p><i>Shania Twain</i></p>
 
 <br>
