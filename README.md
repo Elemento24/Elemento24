@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Trauma happens in relationships, so it can only be healed in relationships. Art can't provide healing. It can be cathartic and therapeutic but a relationship is a three-part journey.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>I run from Horatio Street down just past Battery Park City and back. It's amazing to run and see the Statue of Liberty and the ferries coming in. People think if you're not near Central Park, there's nowhere to go, but there's a whole ecosystem happening down here.</b>
+> <p><i>Andy Cohen</i></p>
 
 <br>
