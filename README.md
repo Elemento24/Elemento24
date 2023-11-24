@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I spent a lot of my life holding back my cries, and I want to change that because it's not good for me.</b>
-> <p><i>Shania Twain</i></p>
+> <b>Do not make best friends with a melancholy sad soul. They always are heavily loaded, and you must bear half.</b>
+> <p><i>Francois Fenelon</i></p>
 
 <br>
