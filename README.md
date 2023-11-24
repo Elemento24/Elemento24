@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not materialistic. I believe in presents from the heart, like a drawing that a child does.</b>
-> <p><i>Victoria Beckham</i></p>
+> <b>Deliberation is the work of many men. Action, of one alone.</b>
+> <p><i>Charles de Gaulle</i></p>
 
 <br>
