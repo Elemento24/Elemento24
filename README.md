@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody who ever gave his best regretted it.</b>
-> <p><i>George Halas</i></p>
+> <b>Art is the proper task of life.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
