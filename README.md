@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You will reciprocally promise love, loyalty and matrimonial honesty. We only want for you this day that these words constitute the principle of your entire life and that with the help of divine grace you will observe these solemn vows that today, before God, you formulate.</b>
-> <p><i>Pope John Paul II</i></p>
+> <b>It's like, no matter what I do, I always feel like I'm five years old, and I end up in the back of my father's car looking out the window, and nothing has changed in 25 years.</b>
+> <p><i>Dylan McDermott</i></p>
 
 <br>
