@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At my age you don't go into fatherhood lightly.</b>
-> <p><i>Rod Stewart</i></p>
+> <b>Inductive reason, which alone makes man master of his environment, is an achievement and when once born it must be reinforced by inhibiting the growth of other modes of knowledge.</b>
+> <p><i>Muhammad Iqbal</i></p>
 
 <br>
