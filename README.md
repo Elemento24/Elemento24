@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was sleeping the other night, alone, thanks to the exterminator.</b>
-> <p><i>Emo Philips</i></p>
+> <b>At my age you don't go into fatherhood lightly.</b>
+> <p><i>Rod Stewart</i></p>
 
 <br>
