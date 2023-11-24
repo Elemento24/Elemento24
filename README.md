@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My justification is that most people my age spend a lot of time thinking about what they're going to do for the next five or ten years. The time they spend thinking about their life, I just spend drinking.</b>
-> <p><i>Amy Winehouse</i></p>
+> <b>Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world.</b>
+> <p><i>Harriet Tubman</i></p>
 
 <br>
