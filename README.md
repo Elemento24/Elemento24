@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was in N.W.A. and didn't get paid all the money I was owed, that's when the business side of showbiz hit me.</b>
-> <p><i>Ice Cube</i></p>
+> <b>Trauma happens in relationships, so it can only be healed in relationships. Art can't provide healing. It can be cathartic and therapeutic but a relationship is a three-part journey.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
