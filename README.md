@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To say that I am organized is an understatement, but my car tells a different story.</b>
-> <p><i>Emily Procter</i></p>
+> <b>I do some of my best thinking while pulling weeds.</b>
+> <p><i>Martha Smith</i></p>
 
 <br>
