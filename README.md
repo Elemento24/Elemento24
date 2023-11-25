@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Damien Hirst is hilarious. And I think he's a true artist. He's not hilarious first I think he is a real artist, and I also think he's got an amazing sense of humor.</b>
-> <p><i>Jemima Kirke</i></p>
+> <b>I have a grim outlook on the world, and in particular on humanity. Spent years denying it, but I am very misanthropic. And I live alone on a mountain for a reason.</b>
+> <p><i>Caleb Carr</i></p>
 
 <br>
