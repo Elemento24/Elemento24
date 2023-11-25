@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the late '70s, maybe just before I started, there was still an attitude that if you did film you didn't do TV and vice versa, but that's gone now.</b>
-> <p><i>Robert Carlyle</i></p>
+> <b>I'm more like my father, personality-wise. But my mom and I get alone really well - obviously, because my mom and my dad get along so well.</b>
+> <p><i>Jenna Bush</i></p>
 
 <br>
