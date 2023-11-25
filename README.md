@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best remedy for those who are afraid, lonely or unhappy is to go outside, somewhere where they can be quiet, alone with the heavens, nature and God. Because only then does one feel that all is as it should be.</b>
-> <p><i>Anne Frank</i></p>
+> <b>I don't have the best body in the world, but I know for a fact that I have a really good voice.</b>
+> <p><i>Kesha</i></p>
 
 <br>
