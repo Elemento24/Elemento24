@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Disbelief in magic can force a poor soul into believing in government and business.</b>
-> <p><i>Tom Robbins</i></p>
+> <b>Remember, the burden of sorrow is doubled when it is borne alone.</b>
+> <p><i>Goran Persson</i></p>
 
 <br>
