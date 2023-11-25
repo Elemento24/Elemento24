@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul.</b>
-> <p><i>John Muir</i></p>
+> <b>There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else.</b>
+> <p><i>Sam Walton</i></p>
 
 <br>
