@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's nobody else on the face of this earth that's playing a sport at a highest level... with a transplant. That alone continues to inspire me, because I realize throughout the whole world the struggles that people are going through. I need to inspire them the best way I can.</b>
-> <p><i>Alonzo Mourning</i></p>
+> <b>Giving birth was the most amazing thing I've ever done. I'd been living in a Third World country, and I said, 'I'm going to just squat behind a tree.' I basically did that but in a chair in my living room. I didn't want a sterile hospital room. I didn't want doctors. I had a midwife.</b>
+> <p><i>Carolyn Murphy</i></p>
 
 <br>
