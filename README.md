@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get in trouble when I say things like, 'I'm attracted to violence.' I was a pretty angry kid, and I got into military history largely as a way to vent my own anger. As I got older it narrowed down to a more specific focus on individual violence. I'm just trying to understand where it came from.</b>
-> <p><i>Caleb Carr</i></p>
+> <b>The only way you can get good, unless you're a genius, is to copy. That's the best thing. Just steal.</b>
+> <p><i>Ritchie Blackmore</i></p>
 
 <br>
