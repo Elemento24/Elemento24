@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Remember, the burden of sorrow is doubled when it is borne alone.</b>
-> <p><i>Goran Persson</i></p>
+> <b>I'm not a music lover in the sense that I look for something to have on. I've never had that attitude to music.</b>
+> <p><i>Harrison Birtwistle</i></p>
 
 <br>
