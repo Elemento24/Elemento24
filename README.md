@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Voting is a right best exercised by people who have taken time to learn about the issues.</b>
-> <p><i>Tony Snow</i></p>
+> <b>I would be married, but I'd have no wife, I would be married to a single life.</b>
+> <p><i>Charles Bukowski</i></p>
 
 <br>
