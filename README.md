@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a music lover in the sense that I look for something to have on. I've never had that attitude to music.</b>
-> <p><i>Harrison Birtwistle</i></p>
+> <b>No community values entrepreneurship and small business more than the Hispanic community.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
