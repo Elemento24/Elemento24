@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My love of fine art increased - the more of it I saw, the more of it I wanted to see.</b>
-> <p><i>Paul Getty</i></p>
+> <b>It's the degree of success and the length of time that is amazing.</b>
+> <p><i>Ruth Handler</i></p>
 
 <br>
