@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We used to think that revolutions are the cause of change. Actually it is the other way around: change prepares the ground for revolution.</b>
-> <p><i>Eric Hoffer</i></p>
+> <b>My acting career began at age three and my parents got me into it. I was in a McDonald's commercial.</b>
+> <p><i>Corey Feldman</i></p>
 
 <br>
