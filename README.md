@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even one voice can be heard loudly all over the world in this day and age.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>Middle age: when you begin to exchange your emotions for symptoms.</b>
+> <p><i>Irvin S. Cobb</i></p>
 
 <br>
