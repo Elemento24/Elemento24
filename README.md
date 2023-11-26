@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our situation today shows that beauty demands for itself at least as much courage and decision as do truth and goodness, and she will not allow herself to be separated and banned from her two sisters without taking them along with herself in an act of mysterious vengeance.</b>
-> <p><i>Hans Urs von Balthasar</i></p>
+> <b>I am a sensitive writer, actor and director. Talking business disgusts me. If you want to talk business, call my disgusting personal manager.</b>
+> <p><i>Sylvester Stallone</i></p>
 
 <br>
