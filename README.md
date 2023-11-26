@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All significant truths are private truths. As they become public they cease to become truths they become facts, or at best, part of the public character or at worst, catchwords.</b>
-> <p><i>T. S. Eliot</i></p>
+> <b>Even one voice can be heard loudly all over the world in this day and age.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
