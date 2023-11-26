@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age: when you begin to exchange your emotions for symptoms.</b>
-> <p><i>Irvin S. Cobb</i></p>
+> <b>It is impossible to exaggerate the wide, and widening, gulf between the American attitude on the Iraq war and the view from our friends across the Atlantic.</b>
+> <p><i>Nick Clooney</i></p>
 
 <br>
