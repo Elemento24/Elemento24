@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love my family very much. I wish I could see them a little more often than I do. But we understand because we're a show business family and we all work.</b>
-> <p><i>Michael Jackson</i></p>
+> <b>Actors are agents of change. A film, a piece of theater, a piece of music, or a book can make a difference. It can change the world.</b>
+> <p><i>Alan Rickman</i></p>
 
 <br>
