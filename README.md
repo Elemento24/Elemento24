@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To live is to change, and to be perfect is to have changed often.</b>
-> <p><i>John Henry Newman</i></p>
+> <b>When I get into bed at night, I hope I don't get into it alone!</b>
+> <p><i>Calvin Klein</i></p>
 
 <br>
