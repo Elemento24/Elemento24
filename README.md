@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Actors are agents of change. A film, a piece of theater, a piece of music, or a book can make a difference. It can change the world.</b>
-> <p><i>Alan Rickman</i></p>
+> <b>In real life, one of my friends was killed in a car accident during our sophomore year.</b>
+> <p><i>Beverley Mitchell</i></p>
 
 <br>
