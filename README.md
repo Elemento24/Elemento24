@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a sensitive writer, actor and director. Talking business disgusts me. If you want to talk business, call my disgusting personal manager.</b>
-> <p><i>Sylvester Stallone</i></p>
+> <b>That attitude that fighting is probably not fair, but you have to defend yourself anyway and damage the enemy, has been profoundly consequential as far as my political activism goes.</b>
+> <p><i>June Jordan</i></p>
 
 <br>
