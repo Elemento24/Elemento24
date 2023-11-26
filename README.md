@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Housing Works is the coolest thrift store in the world, because not only are they the best thrift store - they're not the most thrifty thrift store - but they have amazing stuff and all of their proceeds go directly to kids, mostly homeless kids, living with AIDS and HIV in New York, in the metropolitan area.</b>
-> <p><i>Ezra Miller</i></p>
+> <b>All significant truths are private truths. As they become public they cease to become truths they become facts, or at best, part of the public character or at worst, catchwords.</b>
+> <p><i>T. S. Eliot</i></p>
 
 <br>
