@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is impossible to exaggerate the wide, and widening, gulf between the American attitude on the Iraq war and the view from our friends across the Atlantic.</b>
-> <p><i>Nick Clooney</i></p>
+> <b>To live is to change, and to be perfect is to have changed often.</b>
+> <p><i>John Henry Newman</i></p>
 
 <br>
