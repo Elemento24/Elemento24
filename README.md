@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The characteristic political attitude of today is not one of positive belief, but of despair.</b>
-> <p><i>Herbert Read</i></p>
+> <b>If the career you have chosen has some unexpected inconvenience, console yourself by reflecting that no career is without them.</b>
+> <p><i>Jane Fonda</i></p>
 
 <br>
