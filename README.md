@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People never cease to amaze me.</b>
-> <p><i>Tina Yothers</i></p>
+> <b>Patriotism is best exemplified through auto-critique. When you're willing to stand up within the group and say, 'It is wrong for Black people to be anti-Semitic,' or 'It is wrong for America to discriminate against persons of African descent and made them slaves and based its wealth upon free labor,' it's crucial to say that.</b>
+> <p><i>Henry Louis Gates</i></p>
 
 <br>
