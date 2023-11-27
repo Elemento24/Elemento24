@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Film editing is now something almost everyone can do at a simple level and enjoy it, but to take it to a higher level requires the same dedication and persistence that any art form does.</b>
-> <p><i>Walter Murch</i></p>
+> <b>We Americans are the best informed people on earth as to the events of the last twenty-four hours we are the not the best informed as the events of the last sixty centuries.</b>
+> <p><i>Will Durant</i></p>
 
 <br>
