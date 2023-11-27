@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I get into bed at night, I hope I don't get into it alone!</b>
-> <p><i>Calvin Klein</i></p>
+> <b>We also maintain - again with perfect truth - that mystery is more than half of beauty, the element of strangeness that stirs the senses through the imagination.</b>
+> <p><i>Richard Le Gallienne</i></p>
 
 <br>
