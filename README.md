@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the career you have chosen has some unexpected inconvenience, console yourself by reflecting that no career is without them.</b>
-> <p><i>Jane Fonda</i></p>
+> <b>The reactionary is always willing to take a progressive attitude on any issue that is dead.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
