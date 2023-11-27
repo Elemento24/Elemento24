@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing what ordinary people can do if they set out without preconceived notions.</b>
-> <p><i>Ben Stein</i></p>
+> <b>I've performed solo for 20 years now, but I don't do much of it, because if you only play alone, you go crazy and out of tune and play foolish music.</b>
+> <p><i>Steve Lacy</i></p>
 
 <br>
