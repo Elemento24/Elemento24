@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think people are used to seeing actors be wide open and desperately giving of themselves, and while I do that on a movie set as much as I can, it's so unnatural for me to do it on television, in interviews, in anything like that. I also don't find that my process as an actor is really anyone else's business.</b>
-> <p><i>Kristen Stewart</i></p>
+> <b>The characteristic political attitude of today is not one of positive belief, but of despair.</b>
+> <p><i>Herbert Read</i></p>
 
 <br>
