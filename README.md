@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've performed solo for 20 years now, but I don't do much of it, because if you only play alone, you go crazy and out of tune and play foolish music.</b>
-> <p><i>Steve Lacy</i></p>
+> <b>Film editing is now something almost everyone can do at a simple level and enjoy it, but to take it to a higher level requires the same dedication and persistence that any art form does.</b>
+> <p><i>Walter Murch</i></p>
 
 <br>
