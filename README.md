@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reactionary is always willing to take a progressive attitude on any issue that is dead.</b>
-> <p><i>Theodore Roosevelt</i></p>
+> <b>Government in the U.S. today is a senior partner in every business in the country.</b>
+> <p><i>Norman Cousins</i></p>
 
 <br>
