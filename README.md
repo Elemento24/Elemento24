@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Patriotism is best exemplified through auto-critique. When you're willing to stand up within the group and say, 'It is wrong for Black people to be anti-Semitic,' or 'It is wrong for America to discriminate against persons of African descent and made them slaves and based its wealth upon free labor,' it's crucial to say that.</b>
-> <p><i>Henry Louis Gates</i></p>
+> <b>A little anger is a good thing if it isn't on your own behalf, if it's for others deserving of your anger, your empathy.</b>
+> <p><i>David Simon</i></p>
 
 <br>
