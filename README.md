@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't change, then what's the point of anything happening to you?</b>
-> <p><i>Doug Coupland</i></p>
+> <b>Baseball was, is and always will be to me the best game in the world.</b>
+> <p><i>Babe Ruth</i></p>
 
 <br>
