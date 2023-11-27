@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to master not only the art of listening to your head, you must also master listening to your heart and listening to your gut.</b>
-> <p><i>Carly Fiorina</i></p>
+> <b>Old age, believe me, is a good and pleasant thing. It is true you are gently shouldered off the stage, but then you are given such a comfortable front stall as spectator.</b>
+> <p><i>Confucius</i></p>
 
 <br>
