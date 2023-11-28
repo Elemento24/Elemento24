@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The worst part about celebrating another birthday is the shock that you're only as well as you are.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>It was an amazing performer. Very temperamental, it spent a lot of time in its trailer.</b>
+> <p><i>Tilda Swinton</i></p>
 
 <br>
