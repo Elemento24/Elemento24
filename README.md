@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I swim like a fish and I have an amazing kick.</b>
-> <p><i>Gordon Ramsay</i></p>
+> <b>I get appalled when I see good drivers being left on the sidelines because they haven't come up with the half million to a million to put themselves in a competitive car.</b>
+> <p><i>John Surtees</i></p>
 
 <br>
