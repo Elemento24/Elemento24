@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty comes from the inside.</b>
-> <p><i>Kathy Ireland</i></p>
+> <b>We should concentrate our work not only to a separated housing problem but housing involved in our daily work and all the other functions of the city.</b>
+> <p><i>Alvar Aalto</i></p>
 
 <br>
