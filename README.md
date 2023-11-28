@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age, believe me, is a good and pleasant thing. It is true you are gently shouldered off the stage, but then you are given such a comfortable front stall as spectator.</b>
-> <p><i>Confucius</i></p>
+> <b>I realize that protest paintings are not exactly in vogue, but I've done many.</b>
+> <p><i>Robert Indiana</i></p>
 
 <br>
