@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The finest works of art are precious, among other reasons, because they make it possible for us to know, if only imperfectly and for a little while, what it actually feels like to think subtly and feel nobly.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>Everyone goes to the same exhibitions and the same parties, stays in the same handful of hotels, eats at the same no-star restaurants, and has almost the same opinions. I adore the art world, but this is copycat behavior in a sphere that prides itself on independent thinking.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
