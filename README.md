@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm the most gregarious of men and love good company, but never less alone when alone.</b>
-> <p><i>Peter O'Toole</i></p>
+> <b>The worst part about celebrating another birthday is the shock that you're only as well as you are.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
