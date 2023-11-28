@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have several computer companies. One of them I have a program for wide-format printing. I have a beauty program. So I have several different programs that I own for printing.</b>
-> <p><i>Jerry Mathers</i></p>
+> <b>The finest works of art are precious, among other reasons, because they make it possible for us to know, if only imperfectly and for a little while, what it actually feels like to think subtly and feel nobly.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
