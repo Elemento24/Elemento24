@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was an amazing performer. Very temperamental, it spent a lot of time in its trailer.</b>
-> <p><i>Tilda Swinton</i></p>
+> <b>Mom was 50 when my Dad died. She got on a bus every weekday for years, and rode 40 miles each morning to Madison. She earned a new degree and learned new skills to start her small business. It wasn't just a new livelihood. It was a new life.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
