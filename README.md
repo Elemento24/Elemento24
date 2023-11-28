@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best protection any woman can have... is courage.</b>
-> <p><i>Elizabeth Cady Stanton</i></p>
+> <b>Beauty comes from the inside.</b>
+> <p><i>Kathy Ireland</i></p>
 
 <br>
