@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone goes to the same exhibitions and the same parties, stays in the same handful of hotels, eats at the same no-star restaurants, and has almost the same opinions. I adore the art world, but this is copycat behavior in a sphere that prides itself on independent thinking.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I vividly remember being 14. That was the age when I started to get happy: I started being a writer and stopped being a loser.</b>
+> <p><i>Anthony Horowitz</i></p>
 
 <br>
