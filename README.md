@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We should concentrate our work not only to a separated housing problem but housing involved in our daily work and all the other functions of the city.</b>
-> <p><i>Alvar Aalto</i></p>
+> <b>Thanks to capitalism, the importance placed on beauty has never been so manipulated. We are the guinea pigs force-fed ads that tell us how pathetic we are: that we will never be loved, happy or valuable unless we have the body, the face, the hair, even the personality that will apparently be ours, if only we buy their products.</b>
+> <p><i>Beth Ditto</i></p>
 
 <br>
