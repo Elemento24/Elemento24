@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get appalled when I see good drivers being left on the sidelines because they haven't come up with the half million to a million to put themselves in a competitive car.</b>
-> <p><i>John Surtees</i></p>
+> <b>I did not think that I was angry, but clearly anger was reflected in my writing. I did not think that I had been affected emotionally, but it was clear from my writing that I was still very emotional about the trial some six months after it ended.</b>
+> <p><i>Christopher Darden</i></p>
 
 <br>
