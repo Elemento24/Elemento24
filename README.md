@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My work is not about 'form follows function,' but 'form follows beauty' or, even better, 'form follows feminine.'</b>
-> <p><i>Oscar Niemeyer</i></p>
+> <b>Beauty is but the sensible image of the Infinite. Like truth and justice it lives within us like virtue and the moral law it is a companion of the soul.</b>
+> <p><i>George Bancroft</i></p>
 
 <br>
