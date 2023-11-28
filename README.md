@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the mind disturbed, the still beauty of dawn is nature's finest balm.</b>
-> <p><i>Edwin Way Teale</i></p>
+> <b>I swim like a fish and I have an amazing kick.</b>
+> <p><i>Gordon Ramsay</i></p>
 
 <br>
