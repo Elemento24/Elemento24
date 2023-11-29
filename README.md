@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since I'm always working, my best holiday memories are definitely when I can just go home and spend time with my family.</b>
-> <p><i>Chris Brown</i></p>
+> <b>The best way to predict the future is to create it.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
