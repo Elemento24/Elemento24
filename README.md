@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No nation can meet the world's challenges alone.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>Since I'm always working, my best holiday memories are definitely when I can just go home and spend time with my family.</b>
+> <p><i>Chris Brown</i></p>
 
 <br>
