@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Jordan has a strange, haunting beauty and a sense of timelessness. Dotted with the ruins of empires once great, it is the last resort of yesterday in the world of tomorrow. I love every inch of it.</b>
-> <p><i>King Hussein I</i></p>
+> <b>No nation can meet the world's challenges alone.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
