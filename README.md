@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body is an amazing machine... If you eat the right things your body will perform incredibly well!</b>
-> <p><i>Shawn Johnson</i></p>
+> <b>I hooked up my accelerator pedal in my car to my brake lights. I hit the gas, people behind me stop, and I'm gone.</b>
+> <p><i>Steven Wright</i></p>
 
 <br>
