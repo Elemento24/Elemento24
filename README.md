@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The secret of business is to know something that nobody else knows.</b>
-> <p><i>Aristotle Onassis</i></p>
+> <b>I don't think it's a good attitude in your life to feel that you have to be rich to have self-esteem.</b>
+> <p><i>Tom Petty</i></p>
 
 <br>
