@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The buck stops with the guy who signs the checks.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>The body is an amazing machine... If you eat the right things your body will perform incredibly well!</b>
+> <p><i>Shawn Johnson</i></p>
 
 <br>
