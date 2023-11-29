@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At twenty years of age the will reigns at thirty, the wit and at forty, the judgment.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>Europe is so well gardened that it resembles a work of art, a scientific theory, a neat metaphysical system. Man has re-created Europe in his own image.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
