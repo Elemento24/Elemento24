@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The middle class is so funny, it's the class I know best, and it's the class where you find the most pretension, so that's what makes the middle classes so funny.</b>
-> <p><i>J. K. Rowling</i></p>
+> <b>I have the problems of, I must confess, old age.</b>
+> <p><i>Billy Graham</i></p>
 
 <br>
