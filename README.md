@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As men get older, the toys get more expensive.</b>
-> <p><i>Marvin Davis</i></p>
+> <b>Anger, if not restrained, is frequently more hurtful to us than the injury that provokes it.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
