@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is certain relief in change, even though it be from bad to worse! As I have often found in traveling in a stagecoach, that it is often a comfort to shift one's position, and be bruised in a new place.</b>
-> <p><i>Washington Irving</i></p>
+> <b>The middle class is so funny, it's the class I know best, and it's the class where you find the most pretension, so that's what makes the middle classes so funny.</b>
+> <p><i>J. K. Rowling</i></p>
 
 <br>
