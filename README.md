@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have the problems of, I must confess, old age.</b>
-> <p><i>Billy Graham</i></p>
+> <b>The buck stops with the guy who signs the checks.</b>
+> <p><i>Rupert Murdoch</i></p>
 
 <br>
