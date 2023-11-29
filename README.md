@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would no more quarrel with a man because of his religion than I would because of his art.</b>
-> <p><i>Mary Baker Eddy</i></p>
+> <b>Jordan has a strange, haunting beauty and a sense of timelessness. Dotted with the ruins of empires once great, it is the last resort of yesterday in the world of tomorrow. I love every inch of it.</b>
+> <p><i>King Hussein I</i></p>
 
 <br>
