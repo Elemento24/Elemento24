@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to deal with that is to live in a fully conscious, compassionate, loving way. Don't wait until you're on your deathbed to recognize that this is the only way to live.</b>
-> <p><i>Morrie Schwartz</i></p>
+> <b>We allow our ignorance to prevail upon us and make us think we can survive alone, alone in patches, alone in groups, alone in races, even alone in genders.</b>
+> <p><i>Maya Angelou</i></p>
 
 <br>
