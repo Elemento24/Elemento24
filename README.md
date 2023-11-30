@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Seek art from every time and place, in any form, to connect with those who really move you.</b>
-> <p><i>Martha Beck</i></p>
+> <b>Politics is just like show business. You have a hell of an opening, coast for a while, and then have a hell of a close.</b>
+> <p><i>Ronald Reagan</i></p>
 
 <br>
