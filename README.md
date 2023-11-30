@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Willem de Kooning is generally credited for coming out of the painterly gates strong in the forties, revolutionizing art and abstraction and reaching incredible heights by the early fifties, and then tailing off.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Liberalism is an attitude rather than a set of dogmas - an attitude that insists upon questioning all plausible and self-evident propositions, seeking not to reject them but to find out what evidence there is to support them rather than their possible alternatives.</b>
+> <p><i>Morris Raphael Cohen</i></p>
 
 <br>
