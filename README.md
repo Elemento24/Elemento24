@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth cannot know how age thinks and feels. But old men are guilty if they forget what it was to be young.</b>
-> <p><i>J. K. Rowling</i></p>
+> <b>It's a sad fact about our culture that a poet can earn much more money writing or talking about his art than he can by practicing it.</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
