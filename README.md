@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now that women are jockeys, baseball umpires, atomic scientists, and business executives, maybe someday they can master parallel parking.</b>
-> <p><i>Bill Vaughan</i></p>
+> <b>We couldn't get the car back until well after the end of the race and we had very little time for repairs.</b>
+> <p><i>John Surtees</i></p>
 
 <br>
