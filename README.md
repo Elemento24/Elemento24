@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is said that man doesn't live by bread alone. Sometimes this is unfortunate, because people who cannot live by bread alone too often kill other people in consequence of the fights they get into.</b>
-> <p><i>John McCarthy</i></p>
+> <b>Seek art from every time and place, in any form, to connect with those who really move you.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
