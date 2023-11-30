@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always the aim for me is making people feel like they are not alone. That's just the greatest feeling.</b>
-> <p><i>Zooey Deschanel</i></p>
+> <b>I remember when I took Quentin Tarantino with me to a very private screening of the documentary 'Roman Polanski: Wanted and Desired,' which shows some of the legal irregularities of his case. I was involved by the film, and it was an amazing experience to see people weep at the end of it.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
