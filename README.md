@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let me tell you quite bluntly that this king business has given me personally nothing but headaches.</b>
-> <p><i>Mohammed Reza Pahlavi</i></p>
+> <b>Willem de Kooning is generally credited for coming out of the painterly gates strong in the forties, revolutionizing art and abstraction and reaching incredible heights by the early fifties, and then tailing off.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
