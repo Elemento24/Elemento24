@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Modesty: the gentle art of enhancing your charm by pretending not to be aware of it.</b>
-> <p><i>Oliver Herford</i></p>
+> <b>From 18 to 22, I was alone, living in L.A. with a bunch of friends, partying.</b>
+> <p><i>Heath Ledger</i></p>
 
 <br>
