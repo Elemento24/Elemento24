@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember when I took Quentin Tarantino with me to a very private screening of the documentary 'Roman Polanski: Wanted and Desired,' which shows some of the legal irregularities of his case. I was involved by the film, and it was an amazing experience to see people weep at the end of it.</b>
-> <p><i>Harvey Weinstein</i></p>
+> <b>It is said that man doesn't live by bread alone. Sometimes this is unfortunate, because people who cannot live by bread alone too often kill other people in consequence of the fights they get into.</b>
+> <p><i>John McCarthy</i></p>
 
 <br>
