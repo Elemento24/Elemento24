@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not by the gray of the hair that one knows the age of the heart.</b>
-> <p><i>Edward G. Bulwer-Lytton</i></p>
+> <b>At this present time, matter is still the best way to think of architecture, but I'm not so sure for very long. The computer is radicalizing the way we think about our world.</b>
+> <p><i>Ben Nicholson</i></p>
 
 <br>
