@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think good art does come from a dark place.</b>
-> <p><i>Rick Springfield</i></p>
+> <b>I never ask a man what his business is, for it never interests me. What I ask him about are his thoughts and dreams.</b>
+> <p><i>H. P. Lovecraft</i></p>
 
 <br>
