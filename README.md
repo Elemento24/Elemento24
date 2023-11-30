@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is just like show business. You have a hell of an opening, coast for a while, and then have a hell of a close.</b>
-> <p><i>Ronald Reagan</i></p>
+> <b>The best way to resolve any problem in the human world is for all sides to sit down and talk.</b>
+> <p><i>Dalai Lama</i></p>
 
 <br>
