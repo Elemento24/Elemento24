@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was advised by an American agent when I was about 19 to change my surname.</b>
-> <p><i>Rachel Weisz</i></p>
+> <b>Modesty: the gentle art of enhancing your charm by pretending not to be aware of it.</b>
+> <p><i>Oliver Herford</i></p>
 
 <br>
