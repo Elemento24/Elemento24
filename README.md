@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At this present time, matter is still the best way to think of architecture, but I'm not so sure for very long. The computer is radicalizing the way we think about our world.</b>
-> <p><i>Ben Nicholson</i></p>
+> <b>Now that women are jockeys, baseball umpires, atomic scientists, and business executives, maybe someday they can master parallel parking.</b>
+> <p><i>Bill Vaughan</i></p>
 
 <br>
