@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I probably spent the first 20 years of my life wanting to be as American as possible. Through my 20s, and into my 30s, I began to become aware of how so much of my art and architecture has a decidedly Eastern character.</b>
-> <p><i>Maya Lin</i></p>
+> <b>I once bought an old car back after I sold it because I missed it so much and I had forgotten that it never ran. It was a British racing car. You know, because I just wanted it back. I could only remember what was good about it.</b>
+> <p><i>Connie Chung</i></p>
 
 <br>
