@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a limit to the application of democratic methods. You can inquire of all the passengers as to what type of car they like to ride in, but it is impossible to question them as to whether to apply the brakes when the train is at full speed and accident threatens.</b>
-> <p><i>Leon Trotsky</i></p>
+> <b>Walking with a friend in the dark is better than walking alone in the light.</b>
+> <p><i>Helen Keller</i></p>
 
 <br>
