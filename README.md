@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Swing voters are more appropriately known as the 'idiot voters' because they have no set of philosophical principles. By the age of fourteen, you're either a Conservative or a Liberal if you have an IQ above a toaster.</b>
-> <p><i>Ann Coulter</i></p>
+> <b>What an amazing opportunity to do something like direct a movie and step out of your creative comfort zone and yet do something that is also so familiar at the same time. I was also just excited to have the chance to direct, which I may never get to do again.</b>
+> <p><i>Georgina Chapman</i></p>
 
 <br>
