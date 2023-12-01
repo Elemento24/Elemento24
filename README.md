@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I once bought an old car back after I sold it because I missed it so much and I had forgotten that it never ran. It was a British racing car. You know, because I just wanted it back. I could only remember what was good about it.</b>
-> <p><i>Connie Chung</i></p>
+> <b>I think sometimes when children grow up, their parents grow up. Mine grew up with me. We coexist. I don't try to change them anymore, and I don't think they try to change me. We agree to disagree.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
