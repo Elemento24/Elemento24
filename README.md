@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to test my maximum and see how much I can do. And I want to change the world of swimming.</b>
-> <p><i>Michael Phelps</i></p>
+> <b>I believe very strongly, and have fought since many years ago - at least over 30 years ago - to get architecture not just within schools, but architecture talked about under history, geography, science, technology, art.</b>
+> <p><i>Richard Rogers</i></p>
 
 <br>
