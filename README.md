@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Normal social behavior requires that we be able to recognize identities in spite of change. Unless we can do so, there can be no human society as we know it.</b>
-> <p><i>Kenneth L. Pike</i></p>
+> <b>The pool is terrible, but that doesn't have much to do with my record swims. That's all mental attitude.</b>
+> <p><i>Mark Spitz</i></p>
 
 <br>
