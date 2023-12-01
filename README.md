@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Design in art, is a recognition of the relation between various things, various elements in the creative flux. You can't invent a design. You recognize it, in the fourth dimension. That is, with your blood and your bones, as well as with your eyes.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>I've spent more on my Dodger tickets that I did on my car.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
