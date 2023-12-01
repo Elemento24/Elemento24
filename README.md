@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What an amazing opportunity to do something like direct a movie and step out of your creative comfort zone and yet do something that is also so familiar at the same time. I was also just excited to have the chance to direct, which I may never get to do again.</b>
-> <p><i>Georgina Chapman</i></p>
+> <b>Every man should follow the bent of his nature in art and letters, always provided that he does not offend against the rules of morality and good taste.</b>
+> <p><i>Thomas Edward Brown</i></p>
 
 <br>
