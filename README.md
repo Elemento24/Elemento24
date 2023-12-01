@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The god whom science recognizes must be a God of universal laws exclusively, a God who does a wholesale, not a retail business. He cannot accommodate his processes to the convenience of individuals.</b>
-> <p><i>William James</i></p>
+> <b>Johnny Guitar... just one of my favorite singers of all time. I met him when we were both on the road with Johnny Otis in the '50s when I was a teenager. We traveled the country in a car together.I would hear him sing every night.</b>
+> <p><i>Etta James</i></p>
 
 <br>
