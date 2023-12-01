@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All of Koons's best art - the encased vacuum cleaners, the stainless-steel Rabbit (the late-twentieth century's signature work of Simulationist sculpture), the amazing gleaming Balloon Dog, and the cast-iron re-creation of a Civil War mortar exhibited last month at the Armory - has simultaneously flaunted extreme realism, idealism, and fantasy.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Each child is an adventure into a better life - an opportunity to change the old pattern and make it new.</b>
+> <p><i>Hubert H. Humphrey</i></p>
 
 <br>
