@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Johnny Guitar... just one of my favorite singers of all time. I met him when we were both on the road with Johnny Otis in the '50s when I was a teenager. We traveled the country in a car together.I would hear him sing every night.</b>
-> <p><i>Etta James</i></p>
+> <b>I want to test my maximum and see how much I can do. And I want to change the world of swimming.</b>
+> <p><i>Michael Phelps</i></p>
 
 <br>
