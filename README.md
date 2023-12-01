@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pool is terrible, but that doesn't have much to do with my record swims. That's all mental attitude.</b>
-> <p><i>Mark Spitz</i></p>
+> <b>The god whom science recognizes must be a God of universal laws exclusively, a God who does a wholesale, not a retail business. He cannot accommodate his processes to the convenience of individuals.</b>
+> <p><i>William James</i></p>
 
 <br>
