@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm done with men... I'm going to be alone. I have no luck with relationships. I don't think I'm made for marriage.</b>
-> <p><i>Halle Berry</i></p>
+> <b>Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.</b>
+> <p><i>Joel Osteen</i></p>
 
 <br>
