@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps one of the most important accomplishments of my administration has been minding my own business.</b>
-> <p><i>Calvin Coolidge</i></p>
+> <b>Tell me thy company, and I'll tell thee what thou art.</b>
+> <p><i>Miguel de Cervantes</i></p>
 
 <br>
