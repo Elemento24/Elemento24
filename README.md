@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To love and win is the best thing. To love and lose, the next best.</b>
-> <p><i>William Makepeace Thackeray</i></p>
+> <b>On Memorial Day, I was out floating on Lake Norman and came across Denny Hamlin. We struck up a conversation, and one of the first things we were talking about was how much it helped him when he started racing the Cup car and how much it helped his Nationwide program.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
