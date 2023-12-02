@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to be the best, you have to do things that other people aren't willing to do.</b>
-> <p><i>Michael Phelps</i></p>
+> <b>The Internet has changed the way we communicate with each other, the way we learn about the world and the way we conduct business.</b>
+> <p><i>Ron Wyden</i></p>
 
 <br>
