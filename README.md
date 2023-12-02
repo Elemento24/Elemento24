@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I moved to New York last year and I love it. It's a huge change and I've always wanted to spend time there. It's like a more intense London, and everything's up a few notches. The lights are brighter, the pace is faster and the food's better.</b>
-> <p><i>Rachel Weisz</i></p>
+> <b>We shouldn't feel restricted by our sexuality, and our sexuality doesn't have to be a cultural choice. That's an amazing variety of music within those five main performers.</b>
+> <p><i>Neil Tennant</i></p>
 
 <br>
