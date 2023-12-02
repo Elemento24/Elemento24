@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I heard someone from the music business saying they are no longer looking for talent, they want people with a certain look and a willingness to cooperate.</b>
-> <p><i>Joni Mitchell</i></p>
+> <b>Get the best people and train them well.</b>
+> <p><i>Scott McNealy</i></p>
 
 <br>
