@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Internet has changed the way we communicate with each other, the way we learn about the world and the way we conduct business.</b>
-> <p><i>Ron Wyden</i></p>
+> <b>I heard someone from the music business saying they are no longer looking for talent, they want people with a certain look and a willingness to cooperate.</b>
+> <p><i>Joni Mitchell</i></p>
 
 <br>
