@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty in art is often nothing but ugliness subdued.</b>
-> <p><i>Jean Rostand</i></p>
+> <b>I just wish the crowd I was associated with was more passionate about what they were doing and less consumed with the commerce of the art form.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
