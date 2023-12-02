@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just wish the crowd I was associated with was more passionate about what they were doing and less consumed with the commerce of the art form.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>There has been a change in men's attitudes toward their clothes. Men are more aware of fashion they're not afraid of it.</b>
+> <p><i>Calvin Klein</i></p>
 
 <br>
