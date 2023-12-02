@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just wish the crowd I was associated with was more passionate about what they were doing and less consumed with the commerce of the art form.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>Artists don't talk about art. Artists talk about work. If I have anything to say to young writers, it's stop thinking of writing as art. Think of it as work.</b>
+> <p><i>Paddy Chayefsky</i></p>
 
 <br>
