@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We cannot change our past. We can not change the fact that people act in a certain way. We can not change the inevitable. The only thing we can do is play on the one string we have, and that is our attitude.</b>
-> <p><i>Charles R. Swindoll</i></p>
+> <b>I just wish the crowd I was associated with was more passionate about what they were doing and less consumed with the commerce of the art form.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
