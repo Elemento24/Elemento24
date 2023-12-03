@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have my favourite fashion decade, yes, yes, yes: '60s. It was a sort of little revolution the clothes were amazing but not too exaggerated.</b>
-> <p><i>Valentino Garavani</i></p>
+> <b>My attitude to writing is like when you do wallpapering, you remember where all the little bits are that don't meet. And then your friends say: It's terrific!</b>
+> <p><i>Harrison Birtwistle</i></p>
 
 <br>
