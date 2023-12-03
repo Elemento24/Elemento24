@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way of architecture is the quiet voice that underlies it and has guided it from the beginning.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>I already gave my best. I have no regrets at all.</b>
+> <p><i>William Hung</i></p>
 
 <br>
