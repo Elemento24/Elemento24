@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I already gave my best. I have no regrets at all.</b>
-> <p><i>William Hung</i></p>
+> <b>I got my diploma from Ealing College of Art, in graphics and illustration.</b>
+> <p><i>Freddie Mercury</i></p>
 
 <br>
