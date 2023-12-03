@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the sport of wrestling, which I became involved with at the age of 14... I competed until I was 34, kind of old for a contact sport. I coached the sport until I was 47. I think the discipline of wrestling has given me the discipline I have to write.</b>
-> <p><i>John Irving</i></p>
+> <b>A belief in God is vitally important, not just in show business, but stability in life. You know, to recognize deity is the most important thing that you can do. I mean, it comes to the Ten Commandments. They weren't ten suggestions. They were Ten Commandments.</b>
+> <p><i>Donny Osmond</i></p>
 
 <br>
