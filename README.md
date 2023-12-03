@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I got my diploma from Ealing College of Art, in graphics and illustration.</b>
-> <p><i>Freddie Mercury</i></p>
+> <b>My view is pensioners don't have the one option that people of working age have. They can't really increase their income, because they are no longer able to work.</b>
+> <p><i>Iain Duncan Smith</i></p>
 
 <br>
