@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the first time we're allowing developers who don't work at Facebook to develop applications just as if they were. That's a big deal because it means that all developers have a new way of doing business if they choose to take advantage of it. There are whole companies that are forming whose only product is a Facebook Platform application.</b>
-> <p><i>Mark Zuckerberg</i></p>
+> <b>What troubles me is the Internet and the electronic technology revolution. Shyness is fueled in part by so many people spending huge amounts of time alone, isolated on e-mail, in chat rooms, which reduces their face-to-face contact with other people.</b>
+> <p><i>Philip Zimbardo</i></p>
 
 <br>
