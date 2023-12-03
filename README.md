@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Errors are not in the art but in the artificers.</b>
-> <p><i>Isaac Newton</i></p>
+> <b>The way of architecture is the quiet voice that underlies it and has guided it from the beginning.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
