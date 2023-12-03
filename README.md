@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything a writer learns about the art or craft of fiction takes just a little away from his need or desire to write at all. In the end he knows all the tricks and has nothing to say.</b>
-> <p><i>Raymond Chandler</i></p>
+> <b>Inner beauty should be the most important part of improving one's self.</b>
+> <p><i>Priscilla Presley</i></p>
 
 <br>
