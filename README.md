@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Absolute truth belongs to Thee alone.</b>
-> <p><i>Gotthold Ephraim Lessing</i></p>
+> <b>With my wife I don't get no respect. I made a toast on her birthday to 'the best woman a man ever had.' The waiter joined me.</b>
+> <p><i>Rodney Dangerfield</i></p>
 
 <br>
