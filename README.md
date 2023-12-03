@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A city building, you experience when you walk a suburban building, you experience when you drive.</b>
-> <p><i>Helmut Jahn</i></p>
+> <b>I have heard show business characterized as a refuge for childlike persons in flight from all things harsh and real.</b>
+> <p><i>Carroll O'Connor</i></p>
 
 <br>
