@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Inner beauty should be the most important part of improving one's self.</b>
-> <p><i>Priscilla Presley</i></p>
+> <b>Errors are not in the art but in the artificers.</b>
+> <p><i>Isaac Newton</i></p>
 
 <br>
