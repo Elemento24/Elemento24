@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude to writing is like when you do wallpapering, you remember where all the little bits are that don't meet. And then your friends say: It's terrific!</b>
-> <p><i>Harrison Birtwistle</i></p>
+> <b>Absolute truth belongs to Thee alone.</b>
+> <p><i>Gotthold Ephraim Lessing</i></p>
 
 <br>
