@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A belief in God is vitally important, not just in show business, but stability in life. You know, to recognize deity is the most important thing that you can do. I mean, it comes to the Ten Commandments. They weren't ten suggestions. They were Ten Commandments.</b>
-> <p><i>Donny Osmond</i></p>
+> <b>I have my favourite fashion decade, yes, yes, yes: '60s. It was a sort of little revolution the clothes were amazing but not too exaggerated.</b>
+> <p><i>Valentino Garavani</i></p>
 
 <br>
