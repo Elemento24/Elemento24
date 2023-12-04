@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that clearly it has an influence, to be coming of age during the punk rock era, to come from a difficult and sporadically violent background, to have been in and out of such chaos, I think it actually helps. But I don't know for sure.</b>
-> <p><i>Craig Ferguson</i></p>
+> <b>The two elements the traveler first captures in the big city are extra human architecture and furious rhythm. Geometry and anguish.</b>
+> <p><i>Federico Garcia Lorca</i></p>
 
 <br>
