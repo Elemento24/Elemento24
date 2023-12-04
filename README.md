@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When the youth of America gets together, amazing things happen.</b>
-> <p><i>Tom Ford</i></p>
+> <b>Always do your best. What you plant now, you will harvest later.</b>
+> <p><i>Og Mandino</i></p>
 
 <br>
