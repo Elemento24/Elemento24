@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The difference between a movie star and a movie actor is this - a movie star will say, 'How can I change the script to suit me?' and a movie actor will say. 'How can I change me to suit the script?'</b>
-> <p><i>Michael Caine</i></p>
+> <b>Business is war. I go out there, I want to kill the competitors. I want to make their lives miserable. I want to steal their market share. I want them to fear me and I want everyone on my team thinking we're going to win.</b>
+> <p><i>Kevin O'Leary</i></p>
 
 <br>
