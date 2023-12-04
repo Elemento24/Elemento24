@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can change a tire, but I couldn't change a fuse on the computer panel on my car.</b>
-> <p><i>Mike O'Malley</i></p>
+> <b>When you Google me, you'll find a lot of people don't like Richard Dreyfuss. Because I'm cocky and I present a cocky attitude. But no one has ever disagreed with the notion I represent, that we need more civic education. So far there's 100 percent support for that.</b>
+> <p><i>Richard Dreyfuss</i></p>
 
 <br>
