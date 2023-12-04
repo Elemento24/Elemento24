@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business is war. I go out there, I want to kill the competitors. I want to make their lives miserable. I want to steal their market share. I want them to fear me and I want everyone on my team thinking we're going to win.</b>
-> <p><i>Kevin O'Leary</i></p>
+> <b>I do not regard advertising as entertainment or an art form, but as a medium of information.</b>
+> <p><i>David Ogilvy</i></p>
 
 <br>
