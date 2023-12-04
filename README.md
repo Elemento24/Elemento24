@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The study of beauty is a duel in which the artist cries with terror before being defeated.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>That show, 'The Amazing Race' - is that about white people?</b>
+> <p><i>Zach Galifianakis</i></p>
 
 <br>
