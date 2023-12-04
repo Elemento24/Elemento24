@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm proof against that word failure. I've seen behind it. The only failure a man ought to fear is failure of cleaving to the purpose he sees to be best.</b>
-> <p><i>George Eliot</i></p>
+> <b>I think that clearly it has an influence, to be coming of age during the punk rock era, to come from a difficult and sporadically violent background, to have been in and out of such chaos, I think it actually helps. But I don't know for sure.</b>
+> <p><i>Craig Ferguson</i></p>
 
 <br>
