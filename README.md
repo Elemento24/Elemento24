@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the most amazing things I got from the film, so much green screen, there are so many moments and it really taught me about how important it is to have an intention when flying, when going somewhere and having an intention.</b>
-> <p><i>Brandon Routh</i></p>
+> <b>On the dance floor, as much as you say, 'Ladies, you are the car. He is the driver. You can only go where he takes you,' they still try to be in control.</b>
+> <p><i>Len Goodman</i></p>
 
 <br>
