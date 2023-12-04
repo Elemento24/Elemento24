@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tried acupuncture, the patch, and hypnosis, but found that I needed to do it alone - when the time was right for me.</b>
-> <p><i>Christy Turlington</i></p>
+> <b>One of the most amazing things I got from the film, so much green screen, there are so many moments and it really taught me about how important it is to have an intention when flying, when going somewhere and having an intention.</b>
+> <p><i>Brandon Routh</i></p>
 
 <br>
