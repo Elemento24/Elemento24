@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always do your best. What you plant now, you will harvest later.</b>
-> <p><i>Og Mandino</i></p>
+> <b>That's one of the nice things. I mean, part of the beauty of me is that I'm very rich. So if I need $600 million, I can put $600 million myself. That's a huge advantage. I must tell you, that's a huge advantage over the other candidates.</b>
+> <p><i>Donald Trump</i></p>
 
 <br>
