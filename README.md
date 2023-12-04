@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The question of the value of nationality in art is perhaps unsolvable.</b>
-> <p><i>Edward Hopper</i></p>
+> <b>I tried acupuncture, the patch, and hypnosis, but found that I needed to do it alone - when the time was right for me.</b>
+> <p><i>Christy Turlington</i></p>
 
 <br>
