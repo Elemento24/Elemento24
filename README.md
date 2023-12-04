@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The principle of all successful effort is to try to do not what is absolutely the best, but what is easily within our power, and suited for our temperament and condition.</b>
-> <p><i>John Ruskin</i></p>
+> <b>The study of beauty is a duel in which the artist cries with terror before being defeated.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
