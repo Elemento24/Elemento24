@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Gwen Stefani has amazing style. I used to really love Courtney Love, and anything she wore I loved. Or Chloe Sevigny, because I really love that sort of classic look, and I like being girly and flowery, and wearing little D&ampG dresses. I wear hats a lot, too. I think it goes back to when I was a bit grungy and was a skater girl for a bit.</b>
-> <p><i>Ellie Goulding</i></p>
+> <b>I'm proof against that word failure. I've seen behind it. The only failure a man ought to fear is failure of cleaving to the purpose he sees to be best.</b>
+> <p><i>George Eliot</i></p>
 
 <br>
