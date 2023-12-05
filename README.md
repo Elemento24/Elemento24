@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to go down every year for the remembrance of Elvis' birthday. Memphis State College invited me to sit in the auditorium and speak to the people for one of those Elvis days.</b>
-> <p><i>Otis Blackwell</i></p>
+> <b>Since we live in this world, we have to do our best for this world.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
