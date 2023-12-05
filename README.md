@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm from Naples. I was born in a poor neighborhood and I always, in my heart, felt like it would be amazing to be able to adopt a child from Naples. I could give someone the opportunity I had. I would love to give back in that way and pay it forward.</b>
-> <p><i>Giuliana Rancic</i></p>
+> <b>No one's going to be able to operate without a grounding in the basic sciences. Language would be helpful, although English is becoming increasingly international. And travel. You have to have a global attitude.</b>
+> <p><i>Rupert Murdoch</i></p>
 
 <br>
