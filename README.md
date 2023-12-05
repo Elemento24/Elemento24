@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wisdom I know is social. She seeks her fellows. But Beauty is jealous, and illy bears the presence of a rival.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>The best way to navigate through life is to give up all of our controls.</b>
+> <p><i>Gerald Jampolsky</i></p>
 
 <br>
