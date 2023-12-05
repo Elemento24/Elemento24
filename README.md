@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For a long time I thought I could deal with my anger and hostility on my own. But I couldn't. I denied that it had affected me, and yet I was so frantic on the inside with other people: I needed to be constantly reassured.</b>
-> <p><i>Kelly McGillis</i></p>
+> <b>Wisdom I know is social. She seeks her fellows. But Beauty is jealous, and illy bears the presence of a rival.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
