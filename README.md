@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Major labels didn't start showing up really until they smelled money, and that's all they're ever going to be attracted to is money-that's the business they're in- making money.</b>
-> <p><i>Ian MacKaye</i></p>
+> <b>As an editor, I read Charlotte Rogan's amazing debut novel, 'The Lifeboat,' when it was still in manuscript. I read it in one night, and I really wanted my company to publish it, but we lost it to another house. It's such a wonderful combination of beautiful writing and suspenseful storytelling.</b>
+> <p><i>Karen Thompson Walker</i></p>
 
 <br>
