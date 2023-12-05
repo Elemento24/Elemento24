@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The awesomeness of God is that even in the works of the Beach Boys, Beatles, etc., the beauty of the music is a mere reflection of what God does everyday. He creates music of all kinds and moods.</b>
-> <p><i>John Foster</i></p>
+> <b>For a long time I thought I could deal with my anger and hostility on my own. But I couldn't. I denied that it had affected me, and yet I was so frantic on the inside with other people: I needed to be constantly reassured.</b>
+> <p><i>Kelly McGillis</i></p>
 
 <br>
