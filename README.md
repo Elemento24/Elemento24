@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A country is made not by policy alone, but by its music, its entertainment shows, all of it.</b>
-> <p><i>Glenn Beck</i></p>
+> <b>Win as if you were used to it, lose as if you enjoyed it for a change.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
