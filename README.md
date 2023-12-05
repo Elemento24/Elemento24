@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Expect the best, plan for the worst, and prepare to be surprised.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>A country is made not by policy alone, but by its music, its entertainment shows, all of it.</b>
+> <p><i>Glenn Beck</i></p>
 
 <br>
