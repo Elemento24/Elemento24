@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not regard advertising as entertainment or an art form, but as a medium of information.</b>
-> <p><i>David Ogilvy</i></p>
+> <b>I was blessed with certain gifts and talents and God gave them to me to be the best person I can be and to have a positive impact on other people.</b>
+> <p><i>Bryan Clay</i></p>
 
 <br>
