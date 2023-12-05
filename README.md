@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The wealthy are always surrounded by hangers-on science and art are as well.</b>
-> <p><i>Anton Chekhov</i></p>
+> <b>I wrote and produced millions and millions of selling records, so my publishing company alone was worth millions of dollars. I didn't have to work anymore in life because when the rappers started sampling... I'm the most sampled artist in history.</b>
+> <p><i>Rick James</i></p>
 
 <br>
