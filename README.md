@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the supreme art of the teacher to awaken joy in creative expression and knowledge.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>I used to go down every year for the remembrance of Elvis' birthday. Memphis State College invited me to sit in the auditorium and speak to the people for one of those Elvis days.</b>
+> <p><i>Otis Blackwell</i></p>
 
 <br>
