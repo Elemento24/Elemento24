@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No one's going to be able to operate without a grounding in the basic sciences. Language would be helpful, although English is becoming increasingly international. And travel. You have to have a global attitude.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>Expect the best, plan for the worst, and prepare to be surprised.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
