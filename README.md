@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have nothing to hide in art. The initial force alone can bring anyone to the end he must attain.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Major labels didn't start showing up really until they smelled money, and that's all they're ever going to be attracted to is money-that's the business they're in- making money.</b>
+> <p><i>Ian MacKaye</i></p>
 
 <br>
