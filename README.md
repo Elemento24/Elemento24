@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Win as if you were used to it, lose as if you enjoyed it for a change.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>It is the supreme art of the teacher to awaken joy in creative expression and knowledge.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
