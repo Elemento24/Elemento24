@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A work of art which did not begin in emotion is not art.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>The awesomeness of God is that even in the works of the Beach Boys, Beatles, etc., the beauty of the music is a mere reflection of what God does everyday. He creates music of all kinds and moods.</b>
+> <p><i>John Foster</i></p>
 
 <br>
