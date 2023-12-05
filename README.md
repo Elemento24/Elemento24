@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They say eyes clear with age.</b>
-> <p><i>Philip Larkin</i></p>
+> <b>The wealthy are always surrounded by hangers-on science and art are as well.</b>
+> <p><i>Anton Chekhov</i></p>
 
 <br>
