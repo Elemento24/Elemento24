@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a huge Wes Anderson fan I would faint if I met him, let alone got to work with him.</b>
-> <p><i>Emma Roberts</i></p>
+> <b>Man shall not live by bread alone, but by every word that proceeds from the mouth of God.</b>
+> <p><i>Jesus Christ</i></p>
 
 <br>
