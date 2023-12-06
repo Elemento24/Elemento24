@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Treat your kid like a darling for the first five years. For the next five years, scold them. By the time they turn sixteen, treat them like a friend. Your grown up children are your best friends.</b>
-> <p><i>Chanakya</i></p>
+> <b>Geoengineering - the deliberate, large-scale manipulation of the earth's climate to offset global warming - is a nightmare fix for climate change.</b>
+> <p><i>Jeff Goodell</i></p>
 
 <br>
