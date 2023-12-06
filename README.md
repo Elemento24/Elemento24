@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A person who is too nice an observer of the business of the crowd, like one who is too curious in observing the labor of bees, will often be stung for his curiosity.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>It is after all the greatest art to limit and isolate oneself.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
