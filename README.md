@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business practices and how we treat the planet are also in desperate need of re-humanization.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Women have a lot of power in private life. There are many men who would say, 'Hey, women already rule my life.' But with women, more is more. The more there are, the more the world gets used to seeing them. We change the culture. We begin to expand options and lead and manage.</b>
+> <p><i>Dee Dee Myers</i></p>
 
 <br>
