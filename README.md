@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not enough to do your best you must know what to do, and then do your best.</b>
-> <p><i>W. Edwards Deming</i></p>
+> <b>Earth teach me to forget myself as melted snow forgets its life. Earth teach me resignation as the leaves which die in the fall. Earth teach me courage as the tree which stands all alone. Earth teach me regeneration as the seed which rises in the spring.</b>
+> <p><i>William Alexander</i></p>
 
 <br>
