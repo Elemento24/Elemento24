@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unlike a drop of water which loses its identity when it joins the ocean, man does not lose his being in the society in which he lives. Man's life is independent. He is born not for the development of the society alone, but for the development of his self.</b>
-> <p><i>B. R. Ambedkar</i></p>
+> <b>I admit to wasting my life messing around with fast cars and motorcycles.</b>
+> <p><i>Brock Yates</i></p>
 
 <br>
