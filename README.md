@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a screamer. I'm confrontational, but I don't think that translates into anger.</b>
-> <p><i>Rachel Maddow</i></p>
+> <b>It is not enough to do your best you must know what to do, and then do your best.</b>
+> <p><i>W. Edwards Deming</i></p>
 
 <br>
