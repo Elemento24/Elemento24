@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Painting is easy when you don't know how, but very difficult when you do.</b>
-> <p><i>Edgar Degas</i></p>
+> <b>I'm a huge Wes Anderson fan I would faint if I met him, let alone got to work with him.</b>
+> <p><i>Emma Roberts</i></p>
 
 <br>
