@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't need you to remind me of my age. I have a bladder to do that for me.</b>
-> <p><i>Stephen Fry</i></p>
+> <b>I really believe you can predict when someone has a great attitude, a real well of talent.</b>
+> <p><i>Taylor Hackford</i></p>
 
 <br>
