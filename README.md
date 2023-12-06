@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Women have a lot of power in private life. There are many men who would say, 'Hey, women already rule my life.' But with women, more is more. The more there are, the more the world gets used to seeing them. We change the culture. We begin to expand options and lead and manage.</b>
-> <p><i>Dee Dee Myers</i></p>
+> <b>In science, as in art, and, as I believe, in every other sphere of human activity, there may be wisdom in a multitude of counsellors, but it is only in one or two of them.</b>
+> <p><i>Thomas Huxley</i></p>
 
 <br>
