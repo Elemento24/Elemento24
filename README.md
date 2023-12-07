@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't see that any buildings should be excluded from the term architecture, as long as they are done properly.</b>
-> <p><i>Arne Jacobsen</i></p>
+> <b>Everyone talks about age, but it's not about age. It's about work ethic. Winning never gets old.</b>
+> <p><i>Lisa Leslie</i></p>
 
 <br>
