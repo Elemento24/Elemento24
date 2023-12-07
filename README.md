@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The biggest challenge is how to affect public attitudes and make people care.</b>
-> <p><i>Jim Fowler</i></p>
+> <b>I like to have a massage therapist come to my house, get a massage, take a bath, go to bed. That's a perfect night alone for me.</b>
+> <p><i>Stacy Keibler</i></p>
 
 <br>
