@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reality is sobering: in the United States one in three girls will become pregnant before age 20, totaling more than 750,000 girls per year.</b>
-> <p><i>Jane Fonda</i></p>
+> <b>A man's work is nothing but this slow trek to rediscover, through the detours of art, those two or three great and simple images in whose presence his heart first opened.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
