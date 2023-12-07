@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was born at the age of twelve on an MGM lot.</b>
-> <p><i>Judy Garland</i></p>
+> <b>The best way to have a good idea is to have a lot of ideas.</b>
+> <p><i>Linus Pauling</i></p>
 
 <br>
