@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is a collaboration between God and the artist, and the less the artist does the better.</b>
-> <p><i>Andre Gide</i></p>
+> <b>Change alone is unchanging.</b>
+> <p><i>Heraclitus</i></p>
 
 <br>
