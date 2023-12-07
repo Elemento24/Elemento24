@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Acting advice is a bit like your parents teaching you how to drive a car. You know they're right, but you still kind of want them to shut up a bit.</b>
-> <p><i>Max Irons</i></p>
+> <b>I can't live without my beauty products. I love to be in my bathroom with my candles lit, morning, noon and night. I like taking hot baths and hot showers, using my body scrubs and lotions.</b>
+> <p><i>Traci Bingham</i></p>
 
 <br>
