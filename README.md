@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.</b>
-> <p><i>Paul Getty</i></p>
+> <b>Art is a collaboration between God and the artist, and the less the artist does the better.</b>
+> <p><i>Andre Gide</i></p>
 
 <br>
