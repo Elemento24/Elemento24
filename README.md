@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to have a massage therapist come to my house, get a massage, take a bath, go to bed. That's a perfect night alone for me.</b>
-> <p><i>Stacy Keibler</i></p>
+> <b>I don't see that any buildings should be excluded from the term architecture, as long as they are done properly.</b>
+> <p><i>Arne Jacobsen</i></p>
 
 <br>
