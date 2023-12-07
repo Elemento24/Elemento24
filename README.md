@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man's work is nothing but this slow trek to rediscover, through the detours of art, those two or three great and simple images in whose presence his heart first opened.</b>
-> <p><i>Albert Camus</i></p>
+> <b>If you don't like something, change it. If you can't change it, change your attitude.</b>
+> <p><i>Maya Angelou</i></p>
 
 <br>
