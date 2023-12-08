@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't have to save the world, but you can be in the world-that's where the beauty comes from.</b>
-> <p><i>Daphne Zuniga</i></p>
+> <b>It's amazing how quickly people on the internet can pick something up, but it's also amazing how quickly they can drop it.</b>
+> <p><i>Tim Berners Lee</i></p>
 
 <br>
