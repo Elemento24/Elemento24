@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, no one asks beauty secrets of me, or 'What size do you wear?' or 'Who's your couturier?' They ask me about really deep things and I love that.</b>
-> <p><i>Shirley MacLaine</i></p>
+> <b>I truly don't know why the boys are getting all the votes - it could be because they are really amazing, and that's all there is to it. They're really, really good and every single boy deserves to be in the competition right now, and so do the two girls.</b>
+> <p><i>Pia Toscano</i></p>
 
 <br>
