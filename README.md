@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A wonderful emotion to get things moving when one is stuck is anger. It was anger more than anything else that had set me off, roused me into productivity and creativity.</b>
-> <p><i>Mary Garden</i></p>
+> <b>It is sad to grow old but nice to ripen.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
