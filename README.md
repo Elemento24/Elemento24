@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes, I guess you could say I am a loner, but I feel more lonely in a crowed room with boring people than I feel on my own.</b>
-> <p><i>Henry Rollins</i></p>
+> <b>It is important to fund young researchers who want to do curiosity-driven research. Curiosity-driven research is a part of life. Some people are curious. They want to learn more about nature and society should help that. It's like art: you can learn more and bring more beauty.</b>
+> <p><i>Serge Haroche</i></p>
 
 <br>
