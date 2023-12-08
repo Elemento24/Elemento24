@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best friend is the man who in wishing me well wishes it for my sake.</b>
-> <p><i>Aristotle</i></p>
+> <b>A wonderful emotion to get things moving when one is stuck is anger. It was anger more than anything else that had set me off, roused me into productivity and creativity.</b>
+> <p><i>Mary Garden</i></p>
 
 <br>
