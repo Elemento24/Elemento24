@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Technological considerations are of great importance to architecture and cities in the informational society.</b>
-> <p><i>Kenzo Tange</i></p>
+> <b>There's no question 'Amazing Race' is a beautifully produced show.</b>
+> <p><i>Nigel Lythgoe</i></p>
 
 <br>
