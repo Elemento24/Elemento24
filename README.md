@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first feminine feature that goes, with advancing age, is the neck.</b>
-> <p><i>Gloria Swanson</i></p>
+> <b>The best friend is the man who in wishing me well wishes it for my sake.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
