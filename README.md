@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never chased fame. I came into this business to be a theatre actress. I was nine when I first appeared on stage. But I can't say I would turn my back on fortune. I'm someone who enjoys the benefits of money.</b>
-> <p><i>Joan Collins</i></p>
+> <b>Beauty is not just physical.</b>
+> <p><i>Halle Berry</i></p>
 
 <br>
