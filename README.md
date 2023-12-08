@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is important to fund young researchers who want to do curiosity-driven research. Curiosity-driven research is a part of life. Some people are curious. They want to learn more about nature and society should help that. It's like art: you can learn more and bring more beauty.</b>
-> <p><i>Serge Haroche</i></p>
+> <b>I've never chased fame. I came into this business to be a theatre actress. I was nine when I first appeared on stage. But I can't say I would turn my back on fortune. I'm someone who enjoys the benefits of money.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
