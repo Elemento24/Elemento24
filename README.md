@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.</b>
-> <p><i>Paul Getty</i></p>
+> <b>I look at Jagger and the like and if I see a good attitude I'll admire it but I wouldn't copy their style.</b>
+> <p><i>Michael Hutchence</i></p>
 
 <br>
