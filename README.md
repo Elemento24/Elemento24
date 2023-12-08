@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to have a good idea is to have a lot of ideas.</b>
-> <p><i>Linus Pauling</i></p>
+> <b>At my age flowers scare me.</b>
+> <p><i>George Burns</i></p>
 
 <br>
