@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dad was a journalist. He was in Rwanda right after the genocide. In Berlin when the wall came down. He was always disappearing and coming back with amazing stories. So telling stories for a living made sense to me.</b>
-> <p><i>Patrick J. Adams</i></p>
+> <b>Yes, I guess you could say I am a loner, but I feel more lonely in a crowed room with boring people than I feel on my own.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
