@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At my age flowers scare me.</b>
-> <p><i>George Burns</i></p>
+> <b>The first feminine feature that goes, with advancing age, is the neck.</b>
+> <p><i>Gloria Swanson</i></p>
 
 <br>
