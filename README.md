@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can barely conceive of a type of beauty in which there is no Melancholy.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>To feel the presence of the Lord is an amazing thing.</b>
+> <p><i>Lisa Leslie</i></p>
 
 <br>
