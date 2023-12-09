@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An archaeologist is the best husband a woman can have. The older she gets the more interested he is in her.</b>
-> <p><i>Agatha Christie</i></p>
+> <b>It will always be a battle a day between those who want maximum change and those who want to maintain the status quo.</b>
+> <p><i>Gerry Adams</i></p>
 
 <br>
