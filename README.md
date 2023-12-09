@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being fired was the best luck of my life. It made me stop and reflect. It was the birth of my life as a writer.</b>
-> <p><i>Jose Saramago</i></p>
+> <b>I don't have perfect teeth, I'm not stick thin. I want to be the person who feels great in her body and can say that she loves it and doesn't want to change anything.</b>
+> <p><i>Emma Watson</i></p>
 
 <br>
