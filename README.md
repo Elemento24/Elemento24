@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The 'self-image' is the key to human personality and human behavior. Change the self image and you change the personality and the behavior.</b>
-> <p><i>Maxwell Maltz</i></p>
+> <b>Being fired was the best luck of my life. It made me stop and reflect. It was the birth of my life as a writer.</b>
+> <p><i>Jose Saramago</i></p>
 
 <br>
