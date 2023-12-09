@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd be lying if I said I wasn't angry some days. But I really have worked hard to put a lot of the anger and disappointment in the past.</b>
-> <p><i>Monica Lewinsky</i></p>
+> <b>The day which we fear as our last is but the birthday of eternity.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
