@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is man's constant effort to create for himself a different order of reality from that which is given to him.</b>
-> <p><i>Chinua Achebe</i></p>
+> <b>America doesn't reward people of my age, either in day-to-day life or for their performances.</b>
+> <p><i>Meryl Streep</i></p>
 
 <br>
