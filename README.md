@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The day which we fear as our last is but the birthday of eternity.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>Hollywood needs to recognise all shades of African American beauty.</b>
+> <p><i>Gabrielle Union</i></p>
 
 <br>
