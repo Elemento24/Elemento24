@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Under any circumstance, simply do your best, and you will avoid self-judgment, self-abuse and regret.</b>
-> <p><i>Miguel Angel Ruiz</i></p>
+> <b>And I trusted someone to look after me on the business side of life.</b>
+> <p><i>Elton John</i></p>
 
 <br>
