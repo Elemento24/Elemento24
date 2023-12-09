@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To feel the presence of the Lord is an amazing thing.</b>
-> <p><i>Lisa Leslie</i></p>
+> <b>Photography is more than a medium for factual communication of ideas. It is a creative art.</b>
+> <p><i>Ansel Adams</i></p>
 
 <br>
