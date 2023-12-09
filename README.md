@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Photography is more than a medium for factual communication of ideas. It is a creative art.</b>
-> <p><i>Ansel Adams</i></p>
+> <b>The bare recollection of anger kindles anger.</b>
+> <p><i>Publilius Syrus</i></p>
 
 <br>
