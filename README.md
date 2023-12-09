@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>America doesn't reward people of my age, either in day-to-day life or for their performances.</b>
-> <p><i>Meryl Streep</i></p>
+> <b>The 'self-image' is the key to human personality and human behavior. Change the self image and you change the personality and the behavior.</b>
+> <p><i>Maxwell Maltz</i></p>
 
 <br>
