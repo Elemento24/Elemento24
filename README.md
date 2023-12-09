@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Stevie Ray Vaughan was very intense. Maybe that's what caught everybody's attention. As a player, he didn't do anything amazing.</b>
-> <p><i>Ritchie Blackmore</i></p>
+> <b>I rise to taste the dawn, and find that love alone will shine today.</b>
+> <p><i>Ken Wilber</i></p>
 
 <br>
