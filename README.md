@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't have perfect teeth, I'm not stick thin. I want to be the person who feels great in her body and can say that she loves it and doesn't want to change anything.</b>
-> <p><i>Emma Watson</i></p>
+> <b>Expect the best, plan for the worst, and prepare to be surprised.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
