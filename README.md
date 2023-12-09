@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I'm in a business where you have to look good, and it's totally youth-oriented.</b>
-> <p><i>Joan Rivers</i></p>
+> <b>I can barely conceive of a type of beauty in which there is no Melancholy.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
