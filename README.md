@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never wanted to do TV. I just did what I was trained to do through the Special Forces, and I've been doing that from a very young age.</b>
-> <p><i>Bear Grylls</i></p>
+> <b>Art is man's constant effort to create for himself a different order of reality from that which is given to him.</b>
+> <p><i>Chinua Achebe</i></p>
 
 <br>
