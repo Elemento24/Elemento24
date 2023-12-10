@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I suppose there's an anger in all of us. Some hidden rage that you keep at bay.</b>
-> <p><i>Dominic Cooper</i></p>
+> <b>I think a lot of writers, male and female, write as if their parents were killed in a car accident when they were 2, and they have no one to hold accountable. And unfortunately, I don't have that. I have parents who I care about what they think.</b>
+> <p><i>Mindy Kaling</i></p>
 
 <br>
