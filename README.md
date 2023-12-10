@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I rise to taste the dawn, and find that love alone will shine today.</b>
-> <p><i>Ken Wilber</i></p>
+> <b>Time changes everything except something within us which is always surprised by change.</b>
+> <p><i>Thomas Hardy</i></p>
 
 <br>
