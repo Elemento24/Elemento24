@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now I'm having to live with sales of around 50,000 per album - but I'm pretty content with my place in the general scheme of things, even if it's meant I don't drive a fancy car and can't afford grand vacations.</b>
-> <p><i>David Knopfler</i></p>
+> <b>For the past 33 years, I have looked in the mirror every morning and asked myself: 'If today were the last day of my life, would I want to do what I am about to do today?' And whenever the answer has been 'No' for too many days in a row, I know I need to change something.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
