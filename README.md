@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To copy beauty forfeits all pretense to fame to copy faults is want of sense.</b>
-> <p><i>Charles Churchill</i></p>
+> <b>I rise to taste the dawn, and find that love alone will shine today.</b>
+> <p><i>Ken Wilber</i></p>
 
 <br>
