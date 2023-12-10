@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since graduation, I have measured time in 4-by-5-inch pieces of paper, four days on the left and three on the right. Every social engagement, interview, reading, flight, doctor's appointment, birthday and dry-cleaning reminder has been handwritten between metal loops.</b>
-> <p><i>Sloane Crosley</i></p>
+> <b>The private interest of the individual would not be sufficiently provided for by reasonable and cool self-love alone therefore the appetites and passions are placed within as a guard and further security, without which it would not be taken due care of.</b>
+> <p><i>Joseph Butler</i></p>
 
 <br>
