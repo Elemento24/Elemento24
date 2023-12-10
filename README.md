@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My success just evolved from working hard at the business at hand each day.</b>
-> <p><i>Johnny Carson</i></p>
+> <b>To copy beauty forfeits all pretense to fame to copy faults is want of sense.</b>
+> <p><i>Charles Churchill</i></p>
 
 <br>
