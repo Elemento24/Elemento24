@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I loved hip-hop. The first stuff I heard was Public Enemy, and I couldn't believe it. It was amazing, and I've always loved hip-hop.</b>
-> <p><i>Joaquin Phoenix</i></p>
+> <b>I had been offered a Hollywood contract before my 18th birthday. It gave me the spark I needed.</b>
+> <p><i>Gene Tierney</i></p>
 
 <br>
