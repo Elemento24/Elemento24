@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother is a beauty.</b>
-> <p><i>Mary-Louise Parker</i></p>
+> <b>I suppose there's an anger in all of us. Some hidden rage that you keep at bay.</b>
+> <p><i>Dominic Cooper</i></p>
 
 <br>
