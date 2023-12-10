@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The private interest of the individual would not be sufficiently provided for by reasonable and cool self-love alone therefore the appetites and passions are placed within as a guard and further security, without which it would not be taken due care of.</b>
-> <p><i>Joseph Butler</i></p>
+> <b>My mother is a beauty.</b>
+> <p><i>Mary-Louise Parker</i></p>
 
 <br>
