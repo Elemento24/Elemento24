@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's so touching is the way we fight the war right until the moment our business is taken care of and then we turn on a dime and we immediately start taking care of people. It's like a shock and aw shucks campaign.</b>
-> <p><i>Dennis Miller</i></p>
+> <b>It's amazing to me that, in the 42 years since President Kennedy signed the Equal Pay Act into law, women today still receive fewer wages than men for the same work.</b>
+> <p><i>Mike Honda</i></p>
 
 <br>
