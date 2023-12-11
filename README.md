@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Geoengineering - the deliberate, large-scale manipulation of the earth's climate to offset global warming - is a nightmare fix for climate change.</b>
-> <p><i>Jeff Goodell</i></p>
+> <b>Go for a business that any idiot can run - because sooner or later, any idiot probably is going to run it.</b>
+> <p><i>Peter Lynch</i></p>
 
 <br>
