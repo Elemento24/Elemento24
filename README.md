@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is tragic that people who are incarcerated are unable to vote. They are probably the most important voices to listen to because they can tell us what we need to change.</b>
-> <p><i>Margaret Cho</i></p>
+> <b>The belief in a supernatural source of evil is not necessary men alone are quite capable of every wickedness.</b>
+> <p><i>Joseph Conrad</i></p>
 
 <br>
