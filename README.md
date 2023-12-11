@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think I'm such an amazing person who needs to be written about.</b>
-> <p><i>Amy Winehouse</i></p>
+> <b>It's amazing how much trouble you can get in when you don't have anything else to do.</b>
+> <p><i>Quincy Jones</i></p>
 
 <br>
