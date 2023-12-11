@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children, dear and loving children, can alone console a woman for the loss of her beauty.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>I wouldn't change a single thing, because one change alters every moment that follows it.</b>
+> <p><i>Sidney Poitier</i></p>
 
 <br>
