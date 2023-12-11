@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wouldn't change a single thing, because one change alters every moment that follows it.</b>
-> <p><i>Sidney Poitier</i></p>
+> <b>Ignorance is always afraid of change.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
