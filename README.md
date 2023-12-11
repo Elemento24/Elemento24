@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are unjust to anger - it can be enlivening and a lot of fun.</b>
-> <p><i>Philip Roth</i></p>
+> <b>Children, dear and loving children, can alone console a woman for the loss of her beauty.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
