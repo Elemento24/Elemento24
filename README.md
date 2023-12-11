@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate art auctions.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It is error alone which needs the support of government. Truth can stand by itself.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
