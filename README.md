@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Go for a business that any idiot can run - because sooner or later, any idiot probably is going to run it.</b>
-> <p><i>Peter Lynch</i></p>
+> <b>Finds progress, man's distinctive mark alone, Not God's, and not the beast's God is, they are, Man partly is, and wholly hopes to be.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
