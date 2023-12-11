@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Government, even in its best state, is but a necessary evil in its worst state, an intolerable one.</b>
-> <p><i>Thomas Paine</i></p>
+> <b>It is tragic that people who are incarcerated are unable to vote. They are probably the most important voices to listen to because they can tell us what we need to change.</b>
+> <p><i>Margaret Cho</i></p>
 
 <br>
