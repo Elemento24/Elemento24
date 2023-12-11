@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The belief in a supernatural source of evil is not necessary men alone are quite capable of every wickedness.</b>
-> <p><i>Joseph Conrad</i></p>
+> <b>Thou art my single day, God lends to leaven What were all earth else, with a feel of heaven.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
