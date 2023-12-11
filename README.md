@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Remind people that profit is the difference between revenue and expense. This makes you look smart.</b>
-> <p><i>Scott Adams</i></p>
+> <b>Government, even in its best state, is but a necessary evil in its worst state, an intolerable one.</b>
+> <p><i>Thomas Paine</i></p>
 
 <br>
