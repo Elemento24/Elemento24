@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Thou art my single day, God lends to leaven What were all earth else, with a feel of heaven.</b>
-> <p><i>Robert Browning</i></p>
+> <b>QUOTE</b>
+> <p><i>AUTHOR</i></p>
 
 <br>
