@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is error alone which needs the support of government. Truth can stand by itself.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>There is no question that climate change is happening the only arguable point is what part humans are playing in it.</b>
+> <p><i>David Attenborough</i></p>
 
 <br>
