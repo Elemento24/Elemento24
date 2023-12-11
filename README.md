@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ignorance is always afraid of change.</b>
-> <p><i>Jawaharlal Nehru</i></p>
+> <b>Remind people that profit is the difference between revenue and expense. This makes you look smart.</b>
+> <p><i>Scott Adams</i></p>
 
 <br>
