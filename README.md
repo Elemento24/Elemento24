@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think art is the only thing that's spiritual in the world. And I refuse to forced to believe in other people's interpretations of God. I don't think anybody should be. No one person can own the copyright to what God means.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>When a parent shows up with an attitude of entitlement, understand that under it is a boatload of anxiety.</b>
+> <p><i>Robert Evans</i></p>
 
 <br>
