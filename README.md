@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hooked up my accelerator pedal in my car to my brake lights. I hit the gas, people behind me stop, and I'm gone.</b>
-> <p><i>Steven Wright</i></p>
+> <b>I hate art auctions.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
