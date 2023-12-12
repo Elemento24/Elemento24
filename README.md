@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A steady patriot of the world alone, The friend of every country but his own.</b>
-> <p><i>George Canning</i></p>
+> <b>Boxing is my real passion. I can go to ballet, theatre, movies, or other sporting events... and nothing is like the fights to me. I'm excited by the visual beauty of it. A boxer can look so spectacular by doing a good job.</b>
+> <p><i>LeRoy Neiman</i></p>
 
 <br>
