@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of the past belongs to the past.</b>
-> <p><i>Margaret Bourke-White</i></p>
+> <b>Associate yourself with people of good quality, for it is better to be alone than in bad company.</b>
+> <p><i>Booker T. Washington</i></p>
 
 <br>
