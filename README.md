@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whether you were talking about Pillsbury, Burger King, Godfather's, the National Restaurant Association, in each one of those situations, I had a daunting problem that I had to solve. And I used the same business principles to approach the problem and, more importantly, solve the problem in every one of the situations.</b>
-> <p><i>Herman Cain</i></p>
+> <b>All I try to do is create an atmosphere that seems comfortable enough, that it removes tension and everyone feels free. If they feel free then behaviour happens, small moments happen and that's what ultimately works the best for me.</b>
+> <p><i>Barry Levinson</i></p>
 
 <br>
