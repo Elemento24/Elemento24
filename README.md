@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All I try to do is create an atmosphere that seems comfortable enough, that it removes tension and everyone feels free. If they feel free then behaviour happens, small moments happen and that's what ultimately works the best for me.</b>
-> <p><i>Barry Levinson</i></p>
+> <b>As regards parents, I should like to see them as highly educated as possible, and I do not restrict this remark to fathers alone.</b>
+> <p><i>Quintilian</i></p>
 
 <br>
