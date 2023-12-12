@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Associate yourself with people of good quality, for it is better to be alone than in bad company.</b>
-> <p><i>Booker T. Washington</i></p>
+> <b>Artists don't talk about art. Artists talk about work. If I have anything to say to young writers, it's stop thinking of writing as art. Think of it as work.</b>
+> <p><i>Paddy Chayefsky</i></p>
 
 <br>
