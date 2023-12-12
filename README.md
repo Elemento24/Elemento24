@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As regards parents, I should like to see them as highly educated as possible, and I do not restrict this remark to fathers alone.</b>
-> <p><i>Quintilian</i></p>
+> <b>A steady patriot of the world alone, The friend of every country but his own.</b>
+> <p><i>George Canning</i></p>
 
 <br>
