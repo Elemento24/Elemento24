@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Boxing is my real passion. I can go to ballet, theatre, movies, or other sporting events... and nothing is like the fights to me. I'm excited by the visual beauty of it. A boxer can look so spectacular by doing a good job.</b>
-> <p><i>LeRoy Neiman</i></p>
+> <b>I never wanted to go on stage alone because if you mess up, who can you blame?</b>
+> <p><i>Patti LaBelle</i></p>
 
 <br>
