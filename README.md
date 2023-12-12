@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Americans worship creativity the way they worship physical beauty - as a way of enjoying elitism without guilt: God did it.</b>
-> <p><i>Florence King</i></p>
+> <b>I mean one of the things about being alone is that you've no people to define yourself off, I mean, people are like all-round mirrors, because let's face it, we don't often see ourselves all round in a mirror anyway, do we.</b>
+> <p><i>Diana Wynne Jones</i></p>
 
 <br>
