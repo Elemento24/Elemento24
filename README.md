@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those issues are biblical issues: to care for the sick, to feed the hungry, to stand up for the oppressed. I contend that if the evangelical community became more biblical, everything would change.</b>
-> <p><i>Tony Campolo</i></p>
+> <b>Artschwager's art always involves looking closely at surfaces, questions what an object is, wants to make you forget the name of the thing you're looking at so that it might mushroom in your mind into something that triggers unexpected infinities.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
