@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of us grow up and we grow out of the literal interpretation that we get when we're children, but we bear the scars all our life. Whether they're scars of beauty or scars of ugliness, it's pretty much in the eye of the beholder.</b>
-> <p><i>Stephen King</i></p>
+> <b>The beauty of the past belongs to the past.</b>
+> <p><i>Margaret Bourke-White</i></p>
 
 <br>
