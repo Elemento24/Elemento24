@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty in art is often nothing but ugliness subdued.</b>
-> <p><i>Jean Rostand</i></p>
+> <b>Since change is constant, you wonder if people crave death because it's the only way they can get anything really finished.</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
