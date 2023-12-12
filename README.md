@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never wanted to go on stage alone because if you mess up, who can you blame?</b>
-> <p><i>Patti LaBelle</i></p>
+> <b>Townes van Zandt is the best songwriter in the whole world and I'll stand on Bob Dylan's coffee table in my cowboy boots and say that.</b>
+> <p><i>Steve Earle</i></p>
 
 <br>
