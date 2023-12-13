@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude is, do as much as I can while I'm free. And if I'm arrested I'll still do as much as I can.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>I had more clothes than I had closets, more cars than garage space, but no money.</b>
+> <p><i>Sammy Davis, Jr.</i></p>
 
 <br>
