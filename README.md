@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>History repeats itself, but the special call of an art which has passed away is never reproduced. It is as utterly gone out of the world as the song of a destroyed wild bird.</b>
-> <p><i>Joseph Conrad</i></p>
+> <b>Acting is magical. Change your look and your attitude, and you can be anyone.</b>
+> <p><i>Alicia Witt</i></p>
 
 <br>
