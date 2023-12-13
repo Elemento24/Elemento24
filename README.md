@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obviously the first sentiment is disappointment that we didn't get the car home and more disappointment that at the time that it stopped the car was in the lead.</b>
-> <p><i>John Surtees</i></p>
+> <b>Can anyone understand how it is to have lived in the White House and then, suddenly, to be living alone as the President's widow?</b>
+> <p><i>Jackie Kennedy</i></p>
 
 <br>
