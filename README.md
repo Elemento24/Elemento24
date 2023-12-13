@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have found there are four steps to change. 1. You must want it. 2. You must believe it. 3. You must live it. 4. You will become it.</b>
-> <p><i>Glenn Beck</i></p>
+> <b>Obviously the first sentiment is disappointment that we didn't get the car home and more disappointment that at the time that it stopped the car was in the lead.</b>
+> <p><i>John Surtees</i></p>
 
 <br>
