@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So I'm not worried about the emotions I carry with me, because I'm happy that I have them I think it's good for the work I do. The emotions that are not healthy are the ones you hold inside, like anger.</b>
-> <p><i>Diana Ross</i></p>
+> <b>I can't tell anybody else how to run their life or their business, but I really believe I've got a good bead on myself.</b>
+> <p><i>Dolly Parton</i></p>
 
 <br>
