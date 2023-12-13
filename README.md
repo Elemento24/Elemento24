@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing to do with the best things in life is to give them up.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>I have found there are four steps to change. 1. You must want it. 2. You must believe it. 3. You must live it. 4. You will become it.</b>
+> <p><i>Glenn Beck</i></p>
 
 <br>
