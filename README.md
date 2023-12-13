@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Acting is magical. Change your look and your attitude, and you can be anyone.</b>
-> <p><i>Alicia Witt</i></p>
+> <b>This film business, perhaps more so in America than in Europe, has always been about young sexuality. It's not true of theatre, but in America, film audiences are young. It's not an intellectual cinema in America.</b>
+> <p><i>Jacqueline Bisset</i></p>
 
 <br>
