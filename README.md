@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had more clothes than I had closets, more cars than garage space, but no money.</b>
-> <p><i>Sammy Davis, Jr.</i></p>
+> <b>Government's role should be only to keep the playing field level, and to work hand in hand with business on issues such as employment. But beyond this, to as great an extent as possible, it should get the hell out of the way.</b>
+> <p><i>Jesse Ventura</i></p>
 
 <br>
