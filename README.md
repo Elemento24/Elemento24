@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Democrats think the country works better with a strong middle class, real opportunities for poor people to work their way into it and a relentless focus on the future, with business and government working together to promote growth and broadly shared prosperity. We think 'we're all in this together' is a better philosophy than 'you're on your own.'</b>
-> <p><i>William J. Clinton</i></p>
+> <b>My attitude is, do as much as I can while I'm free. And if I'm arrested I'll still do as much as I can.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
