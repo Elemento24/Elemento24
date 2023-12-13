@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part is it's a dream come true. I've always wanted to be a working actor, and the good part of it... it's all good! I work long hours, but it's amazing. They pay me. That's amazing! I get to kiss Keri Russell, and that ain't too bad.</b>
-> <p><i>Scott Foley</i></p>
+> <b>Proportions are what makes the old Greek temples classic in their beauty. They are like huge blocks, from which the air has been literally hewn out between the columns.</b>
+> <p><i>Arne Jacobsen</i></p>
 
 <br>
