@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Government's role should be only to keep the playing field level, and to work hand in hand with business on issues such as employment. But beyond this, to as great an extent as possible, it should get the hell out of the way.</b>
-> <p><i>Jesse Ventura</i></p>
+> <b>We can be tired, weary and emotionally distraught, but after spending time alone with God, we find that He injects into our bodies energy, power and strength.</b>
+> <p><i>Charles Stanley</i></p>
 
 <br>
