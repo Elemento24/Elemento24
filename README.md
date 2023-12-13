@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The question of the value of nationality in art is perhaps unsolvable.</b>
-> <p><i>Edward Hopper</i></p>
+> <b>Why don't you start believing that no matter what you have or haven't done, that your best days are still out in front of you.</b>
+> <p><i>Joel Osteen</i></p>
 
 <br>
