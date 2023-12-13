@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can be tired, weary and emotionally distraught, but after spending time alone with God, we find that He injects into our bodies energy, power and strength.</b>
-> <p><i>Charles Stanley</i></p>
+> <b>I'm asked all the time in interviews about who I am, and I know a few people my age who have a strong sense of self, but I couldn't say I know myself and sum it up and give it to you in a little package. I don't know myself at all yet.</b>
+> <p><i>Kristen Stewart</i></p>
 
 <br>
