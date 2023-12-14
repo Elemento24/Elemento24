@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a lot of interest in the arts, music, theatre, filmmaking, engineering, architecture and software design. I think we have now transitioned the modern-day version of the entrepreneur into the creative economy.</b>
-> <p><i>John Baldacci</i></p>
+> <b>Beauty, like ice, our footing does betray Who can tread sure on the smooth, slippery way: Pleased with the surface, we glide swiftly on, And see the dangers that we cannot shun.</b>
+> <p><i>John Dryden</i></p>
 
 <br>
