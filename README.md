@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hatred is an affair of the heart contempt that of the head.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>There is a lot of interest in the arts, music, theatre, filmmaking, engineering, architecture and software design. I think we have now transitioned the modern-day version of the entrepreneur into the creative economy.</b>
+> <p><i>John Baldacci</i></p>
 
 <br>
