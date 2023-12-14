@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business of the advertiser is to see that we go about our business with some magic spell or tune or slogan throbbing quietly in the background of our minds.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>Events will take their course, it is no good of being angry at them he is happiest who wisely turns them to the best account.</b>
+> <p><i>Euripides</i></p>
 
 <br>
