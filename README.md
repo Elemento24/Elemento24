@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The question of the value of nationality in art is perhaps unsolvable.</b>
-> <p><i>Edward Hopper</i></p>
+> <b>I just think we're living in a time of massive, amazing change, like the Industrial Revolution on acid.</b>
+> <p><i>Kelly Lynch</i></p>
 
 <br>
