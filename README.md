@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A leader does not deserve the name unless he is willing occasionally to stand alone.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>Better pass boldly into that other world, in the full glory of some passion, than fade and wither dismally with age.</b>
+> <p><i>James Joyce</i></p>
 
 <br>
