@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There was once a caustic comment from someone suggesting I was breeding a new race. Fans from different countries have married, amazing things like that. I've been to some of the weddings. I went to one here the other day, a pagan ceremony.</b>
-> <p><i>Terry Pratchett</i></p>
+> <b>I always say you can never be extravagant with beauty. Beauty is God made real. Beauty is life.</b>
+> <p><i>Imelda Marcos</i></p>
 
 <br>
