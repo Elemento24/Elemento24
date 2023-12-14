@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Both tears and sweat are salty, but they render a different result. Tears will get you sympathy sweat will get you change.</b>
-> <p><i>Jesse Jackson</i></p>
+> <b>We are the children of a technological age. We have found streamlined ways of doing much of our routine work. Printing is no longer the only way of reproducing books. Reading them, however, has not changed.</b>
+> <p><i>Lawrence Clark Powell</i></p>
 
 <br>
