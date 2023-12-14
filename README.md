@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a spiritually sensitive culture, then, it might well be that age is something to be admired or envied.</b>
-> <p><i>Rowan D. Williams</i></p>
+> <b>I am but an architectural composer.</b>
+> <p><i>Alexander Jackson Davis</i></p>
 
 <br>
