@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But one of the hardest things for me to do was to access anger. I could do it on stage. But when I did it on film it was hard for me. That probably has to do with the intimacy of film. And my own personal issues with expressing anger. So I had to learn how to do that.</b>
-> <p><i>Ellen Barkin</i></p>
+> <b>Speak the truth, do not yield to anger give, if thou art asked for little by these three steps thou wilt go near the gods.</b>
+> <p><i>Confucius</i></p>
 
 <br>
