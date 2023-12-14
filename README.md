@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any architectural project we do takes at least four or five years, so increasingly there is a discrepancy between the acceleration of culture and the continuing slowness of architecture.</b>
-> <p><i>Rem Koolhaas</i></p>
+> <b>Both tears and sweat are salty, but they render a different result. Tears will get you sympathy sweat will get you change.</b>
+> <p><i>Jesse Jackson</i></p>
 
 <br>
