@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't mind my age.</b>
-> <p><i>Heather Mills</i></p>
+> <b>In a spiritually sensitive culture, then, it might well be that age is something to be admired or envied.</b>
+> <p><i>Rowan D. Williams</i></p>
 
 <br>
