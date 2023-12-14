@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always say you can never be extravagant with beauty. Beauty is God made real. Beauty is life.</b>
-> <p><i>Imelda Marcos</i></p>
+> <b>You live in a deranged age, more deranged that usual, because in spite of great scientific and technological advances, man has not the faintest idea of who he is or what he is doing.</b>
+> <p><i>Walker Percy</i></p>
 
 <br>
