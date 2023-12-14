@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am but an architectural composer.</b>
-> <p><i>Alexander Jackson Davis</i></p>
+> <b>Grace in women has more effect than beauty.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
