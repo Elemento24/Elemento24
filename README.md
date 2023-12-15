@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Congress has an obligation to protect our country's natural beauty, embodied in our nation's parks, rivers, and breathtaking landscapes.</b>
-> <p><i>Dave Reichert</i></p>
+> <b>What we have to do, what at any rate it is our duty to do, is to revive the old art of Lying.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
