@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What we have to do, what at any rate it is our duty to do, is to revive the old art of Lying.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>I just make it my business to get along with people so I can have fun. It's that simple.</b>
+> <p><i>Betty White</i></p>
 
 <br>
