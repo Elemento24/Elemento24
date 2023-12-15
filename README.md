@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can get help from teachers, but you are going to have to learn a lot by yourself, sitting alone in a room.</b>
-> <p><i>Dr. Seuss</i></p>
+> <b>Any architectural project we do takes at least four or five years, so increasingly there is a discrepancy between the acceleration of culture and the continuing slowness of architecture.</b>
+> <p><i>Rem Koolhaas</i></p>
 
 <br>
