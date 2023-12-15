@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Actually I think Art lies in both directions - the broad strokes, big picture but on the other hand the minute examination of the apparently mundane. Seeing the whole world in a grain of sand, that kind of thing.</b>
-> <p><i>Peter Hammill</i></p>
+> <b>When taxidermy is done well it's an amazing piece of art.</b>
+> <p><i>Amanda Seyfried</i></p>
 
 <br>
