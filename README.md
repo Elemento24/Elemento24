@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just make it my business to get along with people so I can have fun. It's that simple.</b>
-> <p><i>Betty White</i></p>
+> <b>If you set goals and go after them with all the determination you can muster, your gifts will take you places that will amaze you.</b>
+> <p><i>Les Brown</i></p>
 
 <br>
