@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any architectural project we do takes at least four or five years, so increasingly there is a discrepancy between the acceleration of culture and the continuing slowness of architecture.</b>
-> <p><i>Rem Koolhaas</i></p>
+> <b>As a designer, the mission with which we have been charged is simple: providing space at the right cost.</b>
+> <p><i>Harry von Zell</i></p>
 
 <br>
