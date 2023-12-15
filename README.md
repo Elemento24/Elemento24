@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I rate Morrissey as one of the best lyricists in Britain. For me, he's up there with Bryan Ferry.</b>
-> <p><i>David Bowie</i></p>
+> <b>Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul.</b>
+> <p><i>John Muir</i></p>
 
 <br>
