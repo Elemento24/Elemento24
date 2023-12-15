@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pink isn't just a color, it's an attitude!</b>
-> <p><i>Miley Cyrus</i></p>
+> <b>You can get help from teachers, but you are going to have to learn a lot by yourself, sitting alone in a room.</b>
+> <p><i>Dr. Seuss</i></p>
 
 <br>
