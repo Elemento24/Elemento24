@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The balance of private good and general welfare is at the bottom of civilized morals but the morals of the Heroic Age are founded on individuality, and on nothing else.</b>
-> <p><i>Lascelles Abercrombie</i></p>
+> <b>The creative act lasts but a brief moment, a lightning instant of give-and-take, just long enough for you to level the camera and to trap the fleeting prey in your little box.</b>
+> <p><i>Henri Cartier-Bresson</i></p>
 
 <br>
