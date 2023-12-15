@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have watched people who have nothing to do with the film business, but who have become part of the circle for a short period of time. They can be truly devastated when the film wraps and people leave.</b>
-> <p><i>Jacqueline Bisset</i></p>
+> <b>I rate Morrissey as one of the best lyricists in Britain. For me, he's up there with Bryan Ferry.</b>
+> <p><i>David Bowie</i></p>
 
 <br>
