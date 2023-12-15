@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom, the fabulous Bertie Kinsey, is an amazing seamstress. She quilts and sews and is so crafty. We call her the Southern Martha Stewart!</b>
-> <p><i>Angela Kinsey</i></p>
+> <b>Jealousy is bred in doubts. When those doubts change into certainties, then the passion either ceases or turns absolute madness.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
