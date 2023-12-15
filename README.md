@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you set goals and go after them with all the determination you can muster, your gifts will take you places that will amaze you.</b>
-> <p><i>Les Brown</i></p>
+> <b>Woman is fine for her own satisfaction alone. No man will admire her the more, no woman will like her the better for it. Neatness and fashion are enough for the former, and a something of shabbiness or impropriety will be most endearing to the latter.</b>
+> <p><i>Jane Austen</i></p>
 
 <br>
