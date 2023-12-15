@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a designer, the mission with which we have been charged is simple: providing space at the right cost.</b>
-> <p><i>Harry von Zell</i></p>
+> <b>I have watched people who have nothing to do with the film business, but who have become part of the circle for a short period of time. They can be truly devastated when the film wraps and people leave.</b>
+> <p><i>Jacqueline Bisset</i></p>
 
 <br>
