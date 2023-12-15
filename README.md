@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be remembered for the work that I've done, rather than the car accidents that I've gotten into, the men that I've not dated - or the man that I have.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>Pink isn't just a color, it's an attitude!</b>
+> <p><i>Miley Cyrus</i></p>
 
 <br>
