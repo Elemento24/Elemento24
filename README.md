@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was getting hot flashes and sweats on a regular basis. That's not normal, even for my age.</b>
-> <p><i>Kareem Abdul-Jabbar</i></p>
+> <b>My mom, the fabulous Bertie Kinsey, is an amazing seamstress. She quilts and sews and is so crafty. We call her the Southern Martha Stewart!</b>
+> <p><i>Angela Kinsey</i></p>
 
 <br>
