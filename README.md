@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The creative act lasts but a brief moment, a lightning instant of give-and-take, just long enough for you to level the camera and to trap the fleeting prey in your little box.</b>
-> <p><i>Henri Cartier-Bresson</i></p>
+> <b>I want to be remembered for the work that I've done, rather than the car accidents that I've gotten into, the men that I've not dated - or the man that I have.</b>
+> <p><i>Lindsay Lohan</i></p>
 
 <br>
