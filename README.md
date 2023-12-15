@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You may not be able to change a situation, but with humor you can change your attitude about it.</b>
-> <p><i>Allen Klein</i></p>
+> <b>I was getting hot flashes and sweats on a regular basis. That's not normal, even for my age.</b>
+> <p><i>Kareem Abdul-Jabbar</i></p>
 
 <br>
