@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The culture is going into a psychological depression. We are concerned about our place in the world, about being competitive: Will my children have as much as I have? Will I ever own my own home? How can I pay for a new car? Are immigrants taking away my white world?</b>
-> <p><i>James Hillman</i></p>
+> <b>Then as everything, like I say, things started to come together, when things started to go our way, that's when you results started to come. I was no different driver. I was certainly learning every time I went in the car.</b>
+> <p><i>Dan Wheldon</i></p>
 
 <br>
