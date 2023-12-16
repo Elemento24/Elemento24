@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Secure our borders first. Let us know and let us make sure the American people know that we're taking care of the important business of dealing with the illegal immigration into this country. You cannot begin to address the concerns of the people who are already here unless and until you have made certain that no more are coming in behind them.</b>
-> <p><i>Michael Steele</i></p>
+> <b>But theater, because of its nature, both text, images, multimedia effects, has a wider base of communication with an audience. That's why I call it the most social of the various art forms.</b>
+> <p><i>Wole Soyinka</i></p>
 
 <br>
