@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a lot of bitterness, there's a lot of anger out there. We all have to work hard to heal those wounds.</b>
-> <p><i>Allen Boyd</i></p>
+> <b>Real education should consist of drawing the goodness and the best out of our own students. What better books can there be than the book of humanity?</b>
+> <p><i>Cesar Chavez</i></p>
 
 <br>
