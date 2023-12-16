@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Then as everything, like I say, things started to come together, when things started to go our way, that's when you results started to come. I was no different driver. I was certainly learning every time I went in the car.</b>
-> <p><i>Dan Wheldon</i></p>
+> <b>If you don't die of thirst, there are blessings in the desert. You can be pulled into limitlessness, which we all yearn for, or you can do the beauty of minutiae, the scrimshaw of tiny and precise. The sky is your ocean, and the crystal silence will uplift you like great gospel music, or Neil Young.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
