@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to obtain truth and wisdom is not to ask from books, but to go to God in prayer, and obtain divine teaching.</b>
-> <p><i>Joseph Smith, Jr.</i></p>
+> <b>A government, for protecting business only, is but a carcass, and soon falls by its own corruption and decay.</b>
+> <p><i>Amos Bronson Alcott</i></p>
 
 <br>
