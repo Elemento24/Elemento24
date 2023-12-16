@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't die of thirst, there are blessings in the desert. You can be pulled into limitlessness, which we all yearn for, or you can do the beauty of minutiae, the scrimshaw of tiny and precise. The sky is your ocean, and the crystal silence will uplift you like great gospel music, or Neil Young.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>I cried when I found out I was a finalist, I kind of went limp when they called my name. I felt like my spirit jumped out of my body, and I was just flesh - it was just amazing.</b>
+> <p><i>Naima Adedapo</i></p>
 
 <br>
