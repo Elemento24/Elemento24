@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would as soon put a girl alone into a closet to meditate as give her only the society of her needle.</b>
-> <p><i>Maria Mitchell</i></p>
+> <b>It is utterly false and cruelly arbitrary to put all the play and learning into childhood, all the work into middle age, and all the regrets into old age.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
