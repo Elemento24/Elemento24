@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I prefer to sing in the shower vs. the car. The shower is just steam, you know, its just you, and nature, and no clothing. You know, there's nothing separating you. It's just you, and the voice - you, and the water.</b>
-> <p><i>Jacob Lusk</i></p>
+> <b>Although all the good arts serve to draw man's mind away from vices and lead it toward better things, this function can be more fully performed by this art, which also provides extraordinary intellectual pleasure.</b>
+> <p><i>Nicolaus Copernicus</i></p>
 
 <br>
