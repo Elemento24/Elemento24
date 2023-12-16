@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Although all the good arts serve to draw man's mind away from vices and lead it toward better things, this function can be more fully performed by this art, which also provides extraordinary intellectual pleasure.</b>
-> <p><i>Nicolaus Copernicus</i></p>
+> <b>The main prank that we play with props is for people's birthdays. The special effects people will put a little explosive in the cake so it blows up in their face - that's always fun to play on a guest star, or one of the trainees or someone who's new.</b>
+> <p><i>Catherine Bell</i></p>
 
 <br>
