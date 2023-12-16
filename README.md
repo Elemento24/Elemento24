@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Woman is fine for her own satisfaction alone. No man will admire her the more, no woman will like her the better for it. Neatness and fashion are enough for the former, and a something of shabbiness or impropriety will be most endearing to the latter.</b>
-> <p><i>Jane Austen</i></p>
+> <b>I would as soon put a girl alone into a closet to meditate as give her only the society of her needle.</b>
+> <p><i>Maria Mitchell</i></p>
 
 <br>
