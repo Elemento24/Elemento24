@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is fifteen years older than I am.</b>
-> <p><i>Oliver Wendell Holmes</i></p>
+> <b>The beauty of this country and what people participate in is the competitive nature that we allow to exist and the fact is that we are better because we have great competitors.</b>
+> <p><i>Lee Scott</i></p>
 
 <br>
