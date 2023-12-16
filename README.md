@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom can't defend herself to the world. She is such an amazing woman, with such an open heart. It's a real hard line, and I crossed it. I took everyone's life story and assumed it would be a great thing to put on screen. I was being selfish and I feel so horrible about it. I feel so guilty.</b>
-> <p><i>Nikki Reed</i></p>
+> <b>The culture is going into a psychological depression. We are concerned about our place in the world, about being competitive: Will my children have as much as I have? Will I ever own my own home? How can I pay for a new car? Are immigrants taking away my white world?</b>
+> <p><i>James Hillman</i></p>
 
 <br>
