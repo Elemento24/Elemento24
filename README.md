@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art, in itself, is an attempt to bring order out of chaos.</b>
-> <p><i>Stephen Sondheim</i></p>
+> <b>The best way to obtain truth and wisdom is not to ask from books, but to go to God in prayer, and obtain divine teaching.</b>
+> <p><i>Joseph Smith, Jr.</i></p>
 
 <br>
