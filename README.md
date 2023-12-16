@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been gone for a long time. I really want to give the fans something that they deserve to have. So, I'm working really hard on this. I really want to make it the best work I've done so far.</b>
-> <p><i>Brandy Norwood</i></p>
+> <b>I prefer to sing in the shower vs. the car. The shower is just steam, you know, its just you, and nature, and no clothing. You know, there's nothing separating you. It's just you, and the voice - you, and the water.</b>
+> <p><i>Jacob Lusk</i></p>
 
 <br>
