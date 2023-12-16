@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Both my brothers became physicians and I, of course, wandered into a business where the undisciplined are welcome.</b>
-> <p><i>Carroll O'Connor</i></p>
+> <b>Old age is fifteen years older than I am.</b>
+> <p><i>Oliver Wendell Holmes</i></p>
 
 <br>
