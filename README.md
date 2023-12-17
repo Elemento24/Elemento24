@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother is the coolest, most amazing person I know.</b>
-> <p><i>J. J. Abrams</i></p>
+> <b>I am convinced that living in an enclave shapes the personality, and living alone shapes the personality too.</b>
+> <p><i>Mary Douglas</i></p>
 
 <br>
