@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Real riches are the riches possessed inside.</b>
-> <p><i>B. C. Forbes</i></p>
+> <b>Those who govern, having much business on their hands, do not generally like to take the trouble of considering and carrying into execution new projects. The best public measures are therefore seldom adopted from previous wisdom, but forced by the occasion.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
