@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am convinced that living in an enclave shapes the personality, and living alone shapes the personality too.</b>
-> <p><i>Mary Douglas</i></p>
+> <b>We do not look in our great cities for our best morality.</b>
+> <p><i>Jane Austen</i></p>
 
 <br>
