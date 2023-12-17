@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People criticized me for my photography. They said it's not art.</b>
-> <p><i>David Hockney</i></p>
+> <b>Organized religion is a sham and a crutch for weak-minded people who need strength in numbers. It tells people to go out and stick their noses in other people's business.</b>
+> <p><i>Jesse Ventura</i></p>
 
 <br>
