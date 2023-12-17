@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I became a larger than life figure for one reason only. When you're quoted in the 'Wall Street Journal,' the 'New York Times,' constantly as the expert in the business people assume you're a lot bigger than you are. And then I had to run like hell to catch up with my own image.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>People criticized me for my photography. They said it's not art.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
