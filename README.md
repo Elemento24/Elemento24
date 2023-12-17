@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Camping is nature's way of promoting the motel business.</b>
-> <p><i>Dave Barry</i></p>
+> <b>Divorced men are more likely to meet their car payments than their child support obligations.</b>
+> <p><i>Susan Faludi</i></p>
 
 <br>
