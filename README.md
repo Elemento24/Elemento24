@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think in art, but especially in films, people are trying to confirm their own existences.</b>
-> <p><i>Jim Morrison</i></p>
+> <b>Real riches are the riches possessed inside.</b>
+> <p><i>B. C. Forbes</i></p>
 
 <br>
