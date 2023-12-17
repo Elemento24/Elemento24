@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We do not look in our great cities for our best morality.</b>
-> <p><i>Jane Austen</i></p>
+> <b>Every art and every inquiry, and similarly every action and choice, is thought to aim at some good and for this reason the good has rightly been declared to be that at which all things aim.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
