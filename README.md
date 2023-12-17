@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reason is that they define how I have gone about my business. I have trusted to intuition. I did it at the beginning. I do it even now. I have no idea how things might turn out, where in my writing I might go next.</b>
-> <p><i>V. S. Naipaul</i></p>
+> <b>Camping is nature's way of promoting the motel business.</b>
+> <p><i>Dave Barry</i></p>
 
 <br>
