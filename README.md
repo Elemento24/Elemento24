@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Divorced men are more likely to meet their car payments than their child support obligations.</b>
-> <p><i>Susan Faludi</i></p>
+> <b>Admiration for a quality or an art can be so strong that it deters us from striving to possess it.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
