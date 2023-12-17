@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always felt that a woman has the right to treat the subject of her age with ambiguity until, perhaps, she passes into the realm of over ninety. Then it is better she be candid with herself and with the world.</b>
-> <p><i>Carl Sandburg</i></p>
+> <b>The reason is that they define how I have gone about my business. I have trusted to intuition. I did it at the beginning. I do it even now. I have no idea how things might turn out, where in my writing I might go next.</b>
+> <p><i>V. S. Naipaul</i></p>
 
 <br>
