@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every art and every inquiry, and similarly every action and choice, is thought to aim at some good and for this reason the good has rightly been declared to be that at which all things aim.</b>
-> <p><i>Aristotle</i></p>
+> <b>Older fatherhood isn't all bad: testosterone rates drop about 1% per year as men age, making them less reactive and more patient, and a professionally established middle-aged man is likely to have more time and money to devote to his kids than a twenty-something who's just getting started.</b>
+> <p><i>Jeffrey Kluger</i></p>
 
 <br>
