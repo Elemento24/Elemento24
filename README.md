@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Admiration for a quality or an art can be so strong that it deters us from striving to possess it.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>Everyone enjoys doing the kind of work for which he is best suited.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
