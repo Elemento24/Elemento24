@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art has to move you and design does not, unless it's a good design for a bus.</b>
-> <p><i>David Hockney</i></p>
+> <b>I always find beauty in things that are odd and imperfect - they are much more interesting.</b>
+> <p><i>Marc Jacobs</i></p>
 
 <br>
