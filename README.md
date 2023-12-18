@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty that addresses itself to the eyes is only the spell of the moment the eye of the body is not always that of the soul.</b>
-> <p><i>George Sand</i></p>
+> <b>It's been a joy to be a part of other people's journey, to be able to inspire and be a part of new singers coming up in this business.</b>
+> <p><i>Christina Aguilera</i></p>
 
 <br>
