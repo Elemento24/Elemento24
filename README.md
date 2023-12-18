@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been a joy to be a part of other people's journey, to be able to inspire and be a part of new singers coming up in this business.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>Comedy may be big business but it isn't pretty.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
