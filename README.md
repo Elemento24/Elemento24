@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All I owe the world is my art.</b>
-> <p><i>Sherman Alexie</i></p>
+> <b>Art has to move you and design does not, unless it's a good design for a bus.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
