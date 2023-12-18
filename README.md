@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's naive to pray for world peace if we're not going to change the form in which we live.</b>
-> <p><i>Godfrey Reggio</i></p>
+> <b>Our world is so glutted with useless information, images, useless images, sounds, all this sort of thing. It's a cacophony, it's like a madness I think that's been happening in the past twenty-five years. And I think anything that can help a person sit in a room alone and not worry about it is good.</b>
+> <p><i>Martin Scorsese</i></p>
 
 <br>
