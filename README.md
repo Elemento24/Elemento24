@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tell you, it was kind of two-fold. I fortunately had a lot of support. My coach was amazing - he told me to focus on being prepared and that is what I did. Every athlete is nervous - any athlete who tells you they're not nervous isn't telling you the truth. I was as prepared as I could be.</b>
-> <p><i>Carl Lewis</i></p>
+> <b>What I like about cities is that everything is king size, the beauty and the ugliness.</b>
+> <p><i>Joseph Brodsky</i></p>
 
 <br>
