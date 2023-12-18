@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God's gifts put man's best dreams to shame.</b>
-> <p><i>Elizabeth Barrett Browning</i></p>
+> <b>Advertising is fundamentally persuasion and persuasion happens to be not a science, but an art.</b>
+> <p><i>William Bernbach</i></p>
 
 <br>
