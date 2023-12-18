@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is art that makes life, makes interest, makes importance... and I know of no substitute whatever for the force and beauty of its process.</b>
-> <p><i>Henry James</i></p>
+> <b>I tell you, it was kind of two-fold. I fortunately had a lot of support. My coach was amazing - he told me to focus on being prepared and that is what I did. Every athlete is nervous - any athlete who tells you they're not nervous isn't telling you the truth. I was as prepared as I could be.</b>
+> <p><i>Carl Lewis</i></p>
 
 <br>
