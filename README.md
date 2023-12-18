@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who govern, having much business on their hands, do not generally like to take the trouble of considering and carrying into execution new projects. The best public measures are therefore seldom adopted from previous wisdom, but forced by the occasion.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>When I first thought of the idea for 'Sweet Valley High,' I loved the idea of high school as microcosm of the real world. And what I really liked was how it moved things on from 'Sleeping Beauty'-esque romance novels where the girl had to wait for the hero. This would be girl-driven, very different, I decided - and indeed it is.</b>
+> <p><i>Francine Pascal</i></p>
 
 <br>
