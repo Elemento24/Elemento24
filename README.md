@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always find beauty in things that are odd and imperfect - they are much more interesting.</b>
-> <p><i>Marc Jacobs</i></p>
+> <b>I was very successful from a very early age, and I want to keep it.</b>
+> <p><i>John Mayer</i></p>
 
 <br>
