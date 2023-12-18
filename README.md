@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Comedy may be big business but it isn't pretty.</b>
-> <p><i>Steve Martin</i></p>
+> <b>A visit to a cinema is a little outing in itself. It breaks the monotony of an afternoon or evening it gives a change from the surroundings of home, however pleasant.</b>
+> <p><i>Ivor Novello</i></p>
 
 <br>
