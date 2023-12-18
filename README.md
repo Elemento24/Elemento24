@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was very successful from a very early age, and I want to keep it.</b>
-> <p><i>John Mayer</i></p>
+> <b>God's gifts put man's best dreams to shame.</b>
+> <p><i>Elizabeth Barrett Browning</i></p>
 
 <br>
