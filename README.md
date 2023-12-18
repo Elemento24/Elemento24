@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our world is so glutted with useless information, images, useless images, sounds, all this sort of thing. It's a cacophony, it's like a madness I think that's been happening in the past twenty-five years. And I think anything that can help a person sit in a room alone and not worry about it is good.</b>
-> <p><i>Martin Scorsese</i></p>
+> <b>It is art that makes life, makes interest, makes importance... and I know of no substitute whatever for the force and beauty of its process.</b>
+> <p><i>Henry James</i></p>
 
 <br>
