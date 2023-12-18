@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all know that Art is not truth. Art is a lie that makes us realize the truth, at least the truth that is given to us to understand.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>Some people think my father was a spy, because of working for that government agency in Vietnam, but he can't find his car keys, much less keep a national secret.</b>
+> <p><i>Lauren Graham</i></p>
 
 <br>
