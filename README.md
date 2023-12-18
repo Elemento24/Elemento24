@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people think my father was a spy, because of working for that government agency in Vietnam, but he can't find his car keys, much less keep a national secret.</b>
-> <p><i>Lauren Graham</i></p>
+> <b>People of art should never get married and have children, because it's a selfish experience.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
