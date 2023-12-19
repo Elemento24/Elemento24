@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man does not live by words alone, despite the fact that sometimes he has to eat them.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>It is best to live however one can be.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
