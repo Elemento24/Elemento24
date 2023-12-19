@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of the southern hemisphere is unexplored. We had more exploration ships down there during Captain Cook's time than now. It's amazing.</b>
-> <p><i>Robert Ballard</i></p>
+> <b>Not by age but by capacity is wisdom acquired.</b>
+> <p><i>Plautus</i></p>
 
 <br>
