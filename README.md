@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a building becomes architecture, then it is art.</b>
-> <p><i>Arne Jacobsen</i></p>
+> <b>Life certainly points it out to you - 'you can go this way or the other way.' You have to decide and it's a very strong decision because, would you sleep well knowing that you're living in the best place, but you're letting the place where you should live alone?</b>
+> <p><i>Gael Garcia Bernal</i></p>
 
 <br>
