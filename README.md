@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother was determined to make us independent. When I was four years old, she stopped the car a few miles from our house and made me find my own way home across the fields. I got hopelessly lost.</b>
-> <p><i>Richard Branson</i></p>
+> <b>The first real thought that I had of something that I might do was to write for car magazines, because I always had a car thing.</b>
+> <p><i>Jerry Seinfeld</i></p>
 
 <br>
