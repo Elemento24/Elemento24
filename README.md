@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fame can be just so annoying because people are so critical of you. You can't just say, 'hi'. You say hi and people whisper' man did you see the way she said hi? What an attitude.</b>
-> <p><i>Juliette Lewis</i></p>
+> <b>I'm 36 and if I met a woman of my own age and married her, I'd also be marrying her former life, her past. It might be OK for some people - I don't want to judge it or anything - but it's not for me. It would destroy my creativity.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
