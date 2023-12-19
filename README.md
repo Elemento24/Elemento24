@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is whatever gives joy.</b>
-> <p><i>Edna St. Vincent Millay</i></p>
+> <b>To win one Moonman is amazing, to win two is incredible.</b>
+> <p><i>Harry Styles</i></p>
 
 <br>
