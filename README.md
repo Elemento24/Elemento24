@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's sad when girls think they don't have anything going on except being pretty.</b>
-> <p><i>Keri Russell</i></p>
+> <b>Most of the southern hemisphere is unexplored. We had more exploration ships down there during Captain Cook's time than now. It's amazing.</b>
+> <p><i>Robert Ballard</i></p>
 
 <br>
