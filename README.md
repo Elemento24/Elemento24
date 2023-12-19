@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To win one Moonman is amazing, to win two is incredible.</b>
-> <p><i>Harry Styles</i></p>
+> <b>Animation is not the art of drawings that move but the art of movements that are drawn.</b>
+> <p><i>Norman McLaren</i></p>
 
 <br>
