@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Animation is not the art of drawings that move but the art of movements that are drawn.</b>
-> <p><i>Norman McLaren</i></p>
+> <b>It's sad when girls think they don't have anything going on except being pretty.</b>
+> <p><i>Keri Russell</i></p>
 
 <br>
