@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was amazing that a play that seems dated in this world... A man whose best friend is a six-foot white rabbit... But it caught on, especially with young people - they surprised me most of all.</b>
-> <p><i>James Stewart</i></p>
+> <b>My mother was determined to make us independent. When I was four years old, she stopped the car a few miles from our house and made me find my own way home across the fields. I got hopelessly lost.</b>
+> <p><i>Richard Branson</i></p>
 
 <br>
