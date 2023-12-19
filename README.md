@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the true test of a pop song, for me, and I've talked to a lot of other writers about this, is you take your demo, you pop it in your car and you drive down Sunset Blvd. to Santa Monica, and that's the Hollywood car test.</b>
-> <p><i>Ryan Tedder</i></p>
+> <b>I don't have more money. I won't have more money than any of the candidates, even the Republican candidates. We know that already. But we are building this campaign team like I would build a business. And that is, we are building it so far with no debt.</b>
+> <p><i>Herman Cain</i></p>
 
 <br>
