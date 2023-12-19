@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not merely an imitation of the reality of nature, but in truth a metaphysical supplement to the reality of nature, placed alongside thereof for its conquest.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>Beauty is whatever gives joy.</b>
+> <p><i>Edna St. Vincent Millay</i></p>
 
 <br>
