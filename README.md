@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.</b>
-> <p><i>Charles R. Swindoll</i></p>
+> <b>Write in recollection and amazement for yourself.</b>
+> <p><i>Jack Kerouac</i></p>
 
 <br>
