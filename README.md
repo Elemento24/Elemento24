@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the objectification of feeling.</b>
-> <p><i>Herman Melville</i></p>
+> <b>The principle of the Gothic architecture is infinity made imaginable.</b>
+> <p><i>Samuel Taylor Coleridge</i></p>
 
 <br>
