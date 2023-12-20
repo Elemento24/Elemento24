@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now suddenly there was nothing but a world of cloud, and we three were there alone in the middle of a great white plain with snowy hills and mountains staring at us and it was very still but there were whispers.</b>
-> <p><i>Black Elk</i></p>
+> <b>It's best to have failure happen early in life. It wakes up the Phoenix bird in you so you rise from the ashes.</b>
+> <p><i>Anne Baxter</i></p>
 
 <br>
