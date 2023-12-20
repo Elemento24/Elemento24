@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's best to have failure happen early in life. It wakes up the Phoenix bird in you so you rise from the ashes.</b>
-> <p><i>Anne Baxter</i></p>
+> <b>Diplomacy: the art of restraining power.</b>
+> <p><i>Henry A. Kissinger</i></p>
 
 <br>
