@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dad used to love Steely Dan, the Stones, Jethro Tull and all that. There was always Steely Dan going in my dad's car, but I remember The Royal Scam in particular because it has 'Kid Charlemagne' on it.</b>
-> <p><i>St. Vincent</i></p>
+> <b>I've an enormous respect for my mother who at the age of 39 raised three children, and I grew up with my grandmother in the household. And so it was a really strong household of women - my poor brother! It was great growing up with so many generations of women.</b>
+> <p><i>Cate Blanchett</i></p>
 
 <br>
