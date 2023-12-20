@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A primary function of art and thought is to liberate the individual from the tyranny of his culture in the environmental sense and to permit him to stand beyond it in an autonomy of perception and judgment.</b>
-> <p><i>Beverly Sills</i></p>
+> <b>Beauty is only skin deep, and the world is full of thin skinned people.</b>
+> <p><i>Richard Armour</i></p>
 
 <br>
