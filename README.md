@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The details are the very source of expression in architecture. But we are caught in a vice between art and the bottom line.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>What irritates me is the bland way people go around saying, 'Oh, our attitude has changed. We don't dislike these people any more.' But by the strangest coincidence, they haven't taken away the injustice the laws are still on the books.</b>
+> <p><i>Christopher Isherwood</i></p>
 
 <br>
