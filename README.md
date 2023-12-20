@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If all the economists were laid end to end, they'd never reach a conclusion.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.</b>
+> <p><i>Charles R. Swindoll</i></p>
 
 <br>
