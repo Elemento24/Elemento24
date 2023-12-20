@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Remember, the burden of sorrow is doubled when it is borne alone.</b>
-> <p><i>Goran Persson</i></p>
+> <b>Mediocre men work at their best men seeking excellence strive to do better.</b>
+> <p><i>Edwin Louis Cole</i></p>
 
 <br>
