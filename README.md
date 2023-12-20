@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People dance at any age.</b>
-> <p><i>Mikhail Baryshnikov</i></p>
+> <b>Art is the objectification of feeling.</b>
+> <p><i>Herman Melville</i></p>
 
 <br>
