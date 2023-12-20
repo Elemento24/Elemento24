@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is only skin deep, and the world is full of thin skinned people.</b>
-> <p><i>Richard Armour</i></p>
+> <b>I will never do another TV series. It couldn't top I Love Lucy, and I'd be foolish to try. In this business, you have to know when to get off.</b>
+> <p><i>Lucille Ball</i></p>
 
 <br>
