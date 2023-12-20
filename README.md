@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Utility is the great idol of the age, to which all powers must do service and all talents swear allegiance.</b>
-> <p><i>Friedrich Schiller</i></p>
+> <b>Remember, the burden of sorrow is doubled when it is borne alone.</b>
+> <p><i>Goran Persson</i></p>
 
 <br>
