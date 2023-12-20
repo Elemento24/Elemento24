@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diplomacy: the art of restraining power.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>The very essence of the creative is its novelty, and hence we have no standard by which to judge it.</b>
+> <p><i>Carl Rogers</i></p>
 
 <br>
