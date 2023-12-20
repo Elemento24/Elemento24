@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mediocre men work at their best men seeking excellence strive to do better.</b>
-> <p><i>Edwin Louis Cole</i></p>
+> <b>People dance at any age.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
