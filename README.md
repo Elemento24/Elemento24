@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The principle of the Gothic architecture is infinity made imaginable.</b>
-> <p><i>Samuel Taylor Coleridge</i></p>
+> <b>The details are the very source of expression in architecture. But we are caught in a vice between art and the bottom line.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
