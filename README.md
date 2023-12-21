@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change yourself and your work will seem different.</b>
-> <p><i>Norman Vincent Peale</i></p>
+> <b>Rereading A.J. Liebling carries me happily back to an age when all good journalists knew they had plenty to be modest about, and were.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
