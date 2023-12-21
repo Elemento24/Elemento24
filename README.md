@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is vice. You don't marry it legitimately, you rape it.</b>
-> <p><i>Edgar Degas</i></p>
+> <b>You are forever alone.</b>
+> <p><i>John Buchanan Robinson</i></p>
 
 <br>
