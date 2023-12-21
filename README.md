@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The curious paradox is that when I accept myself just as I am, then I can change.</b>
-> <p><i>Carl Rogers</i></p>
+> <b>Everybody knows about Pearl Harbor. The thing that really fascinated me is that through this tragedy there was this amazing American heroism.</b>
+> <p><i>Michael Bay</i></p>
 
 <br>
