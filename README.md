@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And currently, there are four to five new works in the pipeline for upcoming celebrations such as the Sydney 2000 Olympics, Australian Federation, my 50th Birthday, and Sydney Dance Company's 25th Anniversary.</b>
-> <p><i>Graeme Murphy</i></p>
+> <b>The comic book world is a tough business.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
