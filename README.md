@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In science, as in art, and, as I believe, in every other sphere of human activity, there may be wisdom in a multitude of counsellors, but it is only in one or two of them.</b>
-> <p><i>Thomas Huxley</i></p>
+> <b>My mother encouraged it so much. She was so supportive. Even if as a kid, I would do the dumbest trick, which now that I look back on some things, she would love it, she would say that's amazing, or if I'd make the ugliest drawing, she would hang it up. She was amazing.</b>
+> <p><i>David Blaine</i></p>
 
 <br>
