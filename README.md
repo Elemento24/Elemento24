@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The comic book world is a tough business.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>Art is vice. You don't marry it legitimately, you rape it.</b>
+> <p><i>Edgar Degas</i></p>
 
 <br>
