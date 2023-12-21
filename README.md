@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The racing driver's mind has to have the ability to have amazing anticipation, coordination, and reflex. Because of the speed the car goes.</b>
-> <p><i>Emerson Fittipaldi</i></p>
+> <b>I am really looking forward to driving another of my father?s car at the show in Rotterdam.</b>
+> <p><i>Nelson Piquet</i></p>
 
 <br>
