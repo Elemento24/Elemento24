@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fame and stuff like that is all very cool, but at the end of the day, we're all human beings. Although what I do is incredibly surreal and fun and amazing and I'm really grateful for it, I don't believe my own press release, do you know what I mean?</b>
-> <p><i>Tom Hardy</i></p>
+> <b>The customs and fashions of men change like leaves on the bough, some of which go and others come.</b>
+> <p><i>Dante Alighieri</i></p>
 
 <br>
