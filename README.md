@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is dangerous for mortal beauty, or terrestrial virtue, to be examined by too strong a light. The torch of Truth shows much that we cannot, and all that we would not, see.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>People pay to see movies with women looking beautiful, but I think there will be a place for me to play women looking my own age.</b>
+> <p><i>Debra Winger</i></p>
 
 <br>
