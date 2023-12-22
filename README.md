@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world is full of musicians who can play great, and you wouldn't cross the road to see them. It's people who have this indefinable attitude that are the good ones.</b>
-> <p><i>Nick Lowe</i></p>
+> <b>The really amazing part, to me, was when Florida made it into the Final Four, the Democrats didn't demand a recount.</b>
+> <p><i>Ann Coulter</i></p>
 
 <br>
