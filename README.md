@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love sleeping in a moving car more than sleeping in bed.</b>
-> <p><i>Ben Stein</i></p>
+> <b>I was fired by 'America's Next Top Model' on my birthday.</b>
+> <p><i>Paulina Porizkova</i></p>
 
 <br>
