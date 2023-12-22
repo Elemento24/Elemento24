@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have been in Formula One for 12 years, and out of that I had one year with the perfect car.</b>
-> <p><i>Michael Schumacher</i></p>
+> <b>I truly don't know why the boys are getting all the votes - it could be because they are really amazing, and that's all there is to it. They're really, really good and every single boy deserves to be in the competition right now, and so do the two girls.</b>
+> <p><i>Pia Toscano</i></p>
 
 <br>
