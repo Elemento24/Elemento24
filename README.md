@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beer, it's the best damn drink in the world.</b>
-> <p><i>Jack Nicholson</i></p>
+> <b>I love sleeping in a moving car more than sleeping in bed.</b>
+> <p><i>Ben Stein</i></p>
 
 <br>
