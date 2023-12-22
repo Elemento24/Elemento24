@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry is something to make us wiser and better, by continually revealing those types of beauty and truth, which God has set in all men's souls.</b>
-> <p><i>James Russell Lowell</i></p>
+> <b>Partly because his life ended before the age of 50, Hamilton was defined by the other founding fathers, and he managed, with amazing consistency, to alienate most of them.</b>
+> <p><i>Ron Chernow</i></p>
 
 <br>
