@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your car should drive itself. It's amazing to me that we let humans drive cars... It's a bug that cars were invented before computers.</b>
-> <p><i>Eric Schmidt</i></p>
+> <b>Future shock is the shattering stress and disorientation that we induce in individuals by subjecting them to too much change in too short a time.</b>
+> <p><i>Alvin Toffler</i></p>
 
 <br>
