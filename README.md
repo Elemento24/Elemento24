@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I truly don't know why the boys are getting all the votes - it could be because they are really amazing, and that's all there is to it. They're really, really good and every single boy deserves to be in the competition right now, and so do the two girls.</b>
-> <p><i>Pia Toscano</i></p>
+> <b>It is dangerous for mortal beauty, or terrestrial virtue, to be examined by too strong a light. The torch of Truth shows much that we cannot, and all that we would not, see.</b>
+> <p><i>Samuel Johnson</i></p>
 
 <br>
