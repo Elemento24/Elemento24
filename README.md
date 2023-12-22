@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are craving this great progress in electronics, going after computers, the Internet, etc. It's a giant progress technologically. But they must have a balance of soul, a balance for human beauty. That means art has an important role.</b>
-> <p><i>Mstislav Rostropovich</i></p>
+> <b>It's amazing how fast generations lose sight of other generations. One of the first things the young composers who come to work with me say is that they want to write music people will like, instead of gaining their credentials by being rejected by the audience.</b>
+> <p><i>Carlisle Floyd</i></p>
 
 <br>
