@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Growing up in New York has influenced my style so much, and I have an amazing relationship with my stylist, Estee Stanley. We have so much fun with the whole process. She picks out dresses, I try things on and play dress up, and we get creative to see what works.</b>
-> <p><i>Lea Michele</i></p>
+> <b>Poetry is something to make us wiser and better, by continually revealing those types of beauty and truth, which God has set in all men's souls.</b>
+> <p><i>James Russell Lowell</i></p>
 
 <br>
