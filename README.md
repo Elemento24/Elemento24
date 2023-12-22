@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Future shock is the shattering stress and disorientation that we induce in individuals by subjecting them to too much change in too short a time.</b>
-> <p><i>Alvin Toffler</i></p>
+> <b>Fame and stuff like that is all very cool, but at the end of the day, we're all human beings. Although what I do is incredibly surreal and fun and amazing and I'm really grateful for it, I don't believe my own press release, do you know what I mean?</b>
+> <p><i>Tom Hardy</i></p>
 
 <br>
