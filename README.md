@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People pay to see movies with women looking beautiful, but I think there will be a place for me to play women looking my own age.</b>
-> <p><i>Debra Winger</i></p>
+> <b>The world is full of musicians who can play great, and you wouldn't cross the road to see them. It's people who have this indefinable attitude that are the good ones.</b>
+> <p><i>Nick Lowe</i></p>
 
 <br>
