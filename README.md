@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to think as I looked out on the Hollywood night, 'There must be thousands of girls sitting alone like me dreaming of being a movie star.' But I'm not going to worry about them. I'm dreaming the hardest.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>We hire people who want to make the best things in the world.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
