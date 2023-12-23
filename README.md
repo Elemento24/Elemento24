@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With fame there is a crosswire between intensity and intimacy. You have decoy intimacy, but you are also very much alone.</b>
-> <p><i>Mike Myers</i></p>
+> <b>The sole art that suits me is that which, rising from unrest, tends toward serenity.</b>
+> <p><i>Andre Gide</i></p>
 
 <br>
