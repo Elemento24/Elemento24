@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have become aware of the responsibility for our attitude towards the dark pages in our history. We have understood that bad service is done to the nation by those who are impelling to renounce that past.</b>
-> <p><i>Aleksander Kwasniewski</i></p>
+> <b>Anyone who has played the game professionally, you're always taught that the ball is the most important, most precious thing, so when the ball hits the ground, it's always a mad scramble. It's amazing how many times there is a fumble, and the person who recovers it initially doesn't walk away with the ball.</b>
+> <p><i>Barry Sanders</i></p>
 
 <br>
