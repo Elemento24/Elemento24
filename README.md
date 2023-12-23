@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>English people don't have very good diction. In France you have to pronounce very particularly and clearly, and learning French at an early age helped me enormously.</b>
-> <p><i>Vivien Leigh</i></p>
+> <b>We've just got to be careful - with all sports, let alone cricket - I think there's so much emphasis on doing the right thing all the time, but I think the public want to be entertained when they come to watch sport.</b>
+> <p><i>Shane Warne</i></p>
 
 <br>
