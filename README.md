@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The secret to being a writer is that you have to write. It's not enough to think about writing or to study literature or plan a future life as an author. You really have to lock yourself away, alone, and get to work.</b>
-> <p><i>Augusten Burroughs</i></p>
+> <b>With fame there is a crosswire between intensity and intimacy. You have decoy intimacy, but you are also very much alone.</b>
+> <p><i>Mike Myers</i></p>
 
 <br>
