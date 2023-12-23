@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Think of all the beauty still left around you and be happy.</b>
-> <p><i>Anne Frank</i></p>
+> <b>We all get stuck. We all lose ourselves a little bit in a fantasy or in our jobs and forget how we feel about other things. It's really important to check yourself, to spend some time alone.</b>
+> <p><i>Amanda Seyfried</i></p>
 
 <br>
