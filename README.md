@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best teacher is the one who suggests rather than dogmatizes, and inspires his listener with the wish to teach himself.</b>
-> <p><i>Edward G. Bulwer-Lytton</i></p>
+> <b>English people don't have very good diction. In France you have to pronounce very particularly and clearly, and learning French at an early age helped me enormously.</b>
+> <p><i>Vivien Leigh</i></p>
 
 <br>
