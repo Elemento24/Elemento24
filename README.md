@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every government degenerates when trusted to the rulers of the people alone. The people themselves are its only safe depositories.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>The days when you needed amazing Silicon Graphics machines to run animation software are gone now.</b>
+> <p><i>Dave Rowntree</i></p>
 
 <br>
