@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The days when you needed amazing Silicon Graphics machines to run animation software are gone now.</b>
-> <p><i>Dave Rowntree</i></p>
+> <b>Think of all the beauty still left around you and be happy.</b>
+> <p><i>Anne Frank</i></p>
 
 <br>
