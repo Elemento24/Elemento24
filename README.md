@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The sole art that suits me is that which, rising from unrest, tends toward serenity.</b>
-> <p><i>Andre Gide</i></p>
+> <b>Your life is yours and yours alone. Rise up and live it.</b>
+> <p><i>Terry Goodkind</i></p>
 
 <br>
