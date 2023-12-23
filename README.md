@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know no subject more elevating, more amazing, more ready to the poetical enthusiasm, the philosophical reflection, and the moral sentiment than the works of nature. Where can we meet such variety, such beauty, such magnificence?</b>
-> <p><i>James Thomson</i></p>
+> <b>The summer of 2002 at the Wilson birthday party I met Van Dyke again and I made plans to have dinner with him.</b>
+> <p><i>Matthew Sweet</i></p>
 
 <br>
