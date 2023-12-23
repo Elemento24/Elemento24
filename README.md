@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We hire people who want to make the best things in the world.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>I'm really proud of myself because I've pared my beauty regimen down to a cream blush and berry-tinted lip balm, which has saved me so much time.</b>
+> <p><i>Katherine Heigl</i></p>
 
 <br>
