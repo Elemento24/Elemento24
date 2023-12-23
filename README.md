@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'll watch a Pixar movie over and over and over again. I'll be with friends of mine who have kids, that want to watch 'Finding Nemo,' and I'm like, 'Yeah, okay, let's watch 'Nemo' again, for the seven billionth time!,' because they're amazing movies.</b>
-> <p><i>Zachary Levi</i></p>
+> <b>The best teacher is the one who suggests rather than dogmatizes, and inspires his listener with the wish to teach himself.</b>
+> <p><i>Edward G. Bulwer-Lytton</i></p>
 
 <br>
