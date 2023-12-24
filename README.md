@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.</b>
-> <p><i>Moliere</i></p>
+> <b>A picture is a poem without words.</b>
+> <p><i>Horace</i></p>
 
 <br>
