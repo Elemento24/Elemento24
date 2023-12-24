@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>First of all, plain and simple, you have no real idea of what it means to be famous until you become famous. It's a double-edged sword. Obviously there are a lot of amazing things about fame, but there are also a lot of challenging things about it.</b>
-> <p><i>Michelle Pfeiffer</i></p>
+> <b>Britain, relative to the U.S., is a highly secular society. Philanthropy alone cannot fill the gap left by government cutbacks. And the sources of altruism go deep into our evolutionary past.</b>
+> <p><i>Jonathan Sacks</i></p>
 
 <br>
