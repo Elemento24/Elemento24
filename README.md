@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no reason to change what you are, but if you're not being you, then you need to acknowledge that.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>Whatever you may look like, marry a man your own age - as your beauty fades, so will his eyesight.</b>
+> <p><i>Phyllis Diller</i></p>
 
 <br>
