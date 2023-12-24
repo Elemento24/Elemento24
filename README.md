@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another little known fact about Amazing Tennis - the computer opponents are modeled after real people. In an odd turn of events, I joined a division 3 college tennis team at age 38.</b>
-> <p><i>David Crane</i></p>
+> <b>A woman whose smile is open and whose expression is glad has a kind of beauty no matter what she wears.</b>
+> <p><i>Anne Roiphe</i></p>
 
 <br>
