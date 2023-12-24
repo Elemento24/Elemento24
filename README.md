@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reese Witherspoon is my everywoman. She's managed to have a family and this amazing career. That's the goal.</b>
-> <p><i>Emmanuelle Chriqui</i></p>
+> <b>Another little known fact about Amazing Tennis - the computer opponents are modeled after real people. In an odd turn of events, I joined a division 3 college tennis team at age 38.</b>
+> <p><i>David Crane</i></p>
 
 <br>
