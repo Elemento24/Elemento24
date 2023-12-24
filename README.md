@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ideal attitude is to be physically loose and mentally tight.</b>
-> <p><i>Arthur Ashe</i></p>
+> <b>Onion rings in the car cushions do not improve with time.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
