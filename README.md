@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm really proud of myself because I've pared my beauty regimen down to a cream blush and berry-tinted lip balm, which has saved me so much time.</b>
-> <p><i>Katherine Heigl</i></p>
+> <b>Ignorance is always afraid of change.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
