@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At my age, no one is married, no one has kids, no one has a career.</b>
-> <p><i>Lena Dunham</i></p>
+> <b>Wolfgang Tillman's stunning large-scale pictures, being shown for the first time, were so offhand I failed to see them as art.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
