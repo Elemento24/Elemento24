@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is an element of anger among women who've been raped. There's certainly a major element of humiliation. But it really does seem like a medical condition of shock and horror.</b>
-> <p><i>Nicholas D. Kristof</i></p>
+> <b>We think that democracy can change a lot of things, but we're being fooled, because democracy is not the election. We've been taught that democracy is having elections. And it isn't. Elections are the most horrendous aspect of democracy. It's the most mundane, trivial, disappointing, dirty aspect.</b>
+> <p><i>Gael Garcia Bernal</i></p>
 
 <br>
