@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are two kinds of fools: those who can't change their opinions and those who won't.</b>
-> <p><i>Josh Billings</i></p>
+> <b>I think it's quite extraordinary that people cast me as if I'm Warren Beatty: until I met my present wife, at the age of 35, you could name two girlfriends.</b>
+> <p><i>Colin Firth</i></p>
 
 <br>
