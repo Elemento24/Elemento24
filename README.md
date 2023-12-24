@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's what liberalism is all about, is promoting incompetence on the basis it's fair, because people would be the best if they weren't discriminated against.</b>
-> <p><i>Rush Limbaugh</i></p>
+> <b>The ideal attitude is to be physically loose and mentally tight.</b>
+> <p><i>Arthur Ashe</i></p>
 
 <br>
