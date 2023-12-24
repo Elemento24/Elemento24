@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Britain, relative to the U.S., is a highly secular society. Philanthropy alone cannot fill the gap left by government cutbacks. And the sources of altruism go deep into our evolutionary past.</b>
-> <p><i>Jonathan Sacks</i></p>
+> <b>I am Classic Rock Revisited. I revisit it every waking moment of my life because it has the spirit and the attitude and the fire and the middle finger. I am Rosa Parks with a Gibson guitar.</b>
+> <p><i>Ted Nugent</i></p>
 
 <br>
