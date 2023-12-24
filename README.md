@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A picture is a poem without words.</b>
-> <p><i>Horace</i></p>
+> <b>There's no reason to change what you are, but if you're not being you, then you need to acknowledge that.</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
