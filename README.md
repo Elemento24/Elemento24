@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman whose smile is open and whose expression is glad has a kind of beauty no matter what she wears.</b>
-> <p><i>Anne Roiphe</i></p>
+> <b>Usually when people are sad, they don't do anything. They just cry over their condition. But when they get angry, they bring about a change.</b>
+> <p><i>James Russell Lowell</i></p>
 
 <br>
