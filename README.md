@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Where I come from, it was a heresy to say you wanted to be in movies, leave alone American movies.</b>
-> <p><i>Daniel Day-Lewis</i></p>
+> <b>In the history of the world, no one has ever washed a rented car.</b>
+> <p><i>Lawrence Summers</i></p>
 
 <br>
