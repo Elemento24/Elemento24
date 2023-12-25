@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thoroughly enjoyed working on Enemy of the State. Tony Scott is an important director, and has an amazing ability to express himself, and he doesn't do it in musical terms , he does it in emotional terms. I got along really well with him.</b>
-> <p><i>Trevor Rabin</i></p>
+> <b>I am afraid we must make the world honest before we can honestly say to our children that honesty is the best policy.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
