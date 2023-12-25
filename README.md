@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wise are those who learn that the bottom line doesn't always have to be their top priority.</b>
-> <p><i>William Arthur Ward</i></p>
+> <b>I thoroughly enjoyed working on Enemy of the State. Tony Scott is an important director, and has an amazing ability to express himself, and he doesn't do it in musical terms , he does it in emotional terms. I got along really well with him.</b>
+> <p><i>Trevor Rabin</i></p>
 
 <br>
