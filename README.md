@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The terrifying and edible beauty of Art Nouveau architecture.</b>
-> <p><i>Salvador Dali</i></p>
+> <b>Wise are those who learn that the bottom line doesn't always have to be their top priority.</b>
+> <p><i>William Arthur Ward</i></p>
 
 <br>
