@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But once you have satisfied your material needs, which I think every wealth creator should - the house, the car, the plane, the boat - what comes next?</b>
-> <p><i>Tom Hunter</i></p>
+> <b>A dream without ambition is like a car without gas... you're not going anywhere.</b>
+> <p><i>Sean Hampton</i></p>
 
 <br>
