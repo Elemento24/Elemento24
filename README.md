@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Doorman - a genius who can open the door of your car with one hand, help you in with the other, and still have one left for the tip.</b>
-> <p><i>Dorothy Kilgallen</i></p>
+> <b>If you have a positive attitude and constantly strive to give your best effort, eventually you will overcome your immediate problems and find you are ready for greater challenges.</b>
+> <p><i>Pat Riley</i></p>
 
 <br>
