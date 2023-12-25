@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of writing is the art of discovering what you believe.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>In seeking wisdom thou art wise in imagining that thou hast attained it - thou art a fool.</b>
+> <p><i>Lord Chesterfield</i></p>
 
 <br>
