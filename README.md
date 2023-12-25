@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In every country and every age, the priest had been hostile to Liberty.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>You can't show me an ad on TV with hard bodies and say I have to buy that car. You have to tell me why that car is better and safer than another car.</b>
+> <p><i>Doris Roberts</i></p>
 
 <br>
