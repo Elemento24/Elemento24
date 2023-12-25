@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me, a page of good prose is where one hears the rain and the noise of battle. It has the power to give grief or universality that lends it a youthful beauty.</b>
-> <p><i>John Cheever</i></p>
+> <b>Doorman - a genius who can open the door of your car with one hand, help you in with the other, and still have one left for the tip.</b>
+> <p><i>Dorothy Kilgallen</i></p>
 
 <br>
