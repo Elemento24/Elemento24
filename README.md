@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Things are beautiful if you love them.</b>
-> <p><i>Jean Anouilh</i></p>
+> <b>For me, a page of good prose is where one hears the rain and the noise of battle. It has the power to give grief or universality that lends it a youthful beauty.</b>
+> <p><i>John Cheever</i></p>
 
 <br>
