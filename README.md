@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In seeking wisdom thou art wise in imagining that thou hast attained it - thou art a fool.</b>
-> <p><i>Lord Chesterfield</i></p>
+> <b>Bad news isn't wine. It doesn't improve with age.</b>
+> <p><i>Colin Powell</i></p>
 
 <br>
