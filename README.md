@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sleep is good, death is better but of course, the best thing would to have never been born at all.</b>
-> <p><i>Heinrich Heine</i></p>
+> <b>I listen to every thing, all kinds of stuff. I've been obsessed with the Nas and Damian Marley record, 'Distant Relatives.' I feel like a lot of people haven't heard it, and it's amazing.</b>
+> <p><i>Eve Jihan Jeffers</i></p>
 
 <br>
