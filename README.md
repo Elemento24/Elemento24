@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The music business is motivated by money. Music is motivated by energy and feelings.</b>
-> <p><i>Erykah Badu</i></p>
+> <b>I think we risk becoming the best informed society that has ever died of ignorance.</b>
+> <p><i>Ruben Blades</i></p>
 
 <br>
