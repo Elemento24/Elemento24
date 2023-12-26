@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wouldn't change one thing about my professional life, and I make it a point not to dwell on my mistakes.</b>
-> <p><i>Ethel Merman</i></p>
+> <b>We're not arrogant, we just believe we're the best band in the world.</b>
+> <p><i>Noel Gallagher</i></p>
 
 <br>
