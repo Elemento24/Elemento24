@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Getting through the nights is the toughest part. Being alone. Not having her there to talk to.</b>
-> <p><i>Stuart Appleby</i></p>
+> <b>It can be hard in this business, especially when you're very young, to figure out who you can and can't trust.</b>
+> <p><i>Christina Aguilera</i></p>
 
 <br>
