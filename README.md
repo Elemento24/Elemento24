@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Films for TV have to be much closer to the book, mainly because the objective with a TV movie that translates literature is to get the audience, after seeing this version, to pick up the book and read it themselves. My attitude is that TV can never really be any form of art, because it serves audience expectations.</b>
-> <p><i>Michael Haneke</i></p>
+> <b>Getting through the nights is the toughest part. Being alone. Not having her there to talk to.</b>
+> <p><i>Stuart Appleby</i></p>
 
 <br>
