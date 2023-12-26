@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It can be hard in this business, especially when you're very young, to figure out who you can and can't trust.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>The writing is really hard. You're alone. It really pulls it out of you. You pull it out of your head. But when you're a director, you're shopping - you're picking this actor, you're picking this scene. It's like the most intense kinetic high-speed shopping of all time. You sit in a chair and it will all come rushing at you like a wind tunnel.</b>
+> <p><i>Tony Gilroy</i></p>
 
 <br>
