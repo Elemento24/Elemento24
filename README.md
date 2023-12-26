@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, I think the film business is its own worst enemy because it sells movies on DVD footage and 'behind the scenes,' and now it's a real struggle trying to keep storylines and plotlines a secret.</b>
-> <p><i>Daniel Craig</i></p>
+> <b>I don't divide architecture, landscape and gardening to me they are one.</b>
+> <p><i>Luis Barragan</i></p>
 
 <br>
