@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't divide architecture, landscape and gardening to me they are one.</b>
-> <p><i>Luis Barragan</i></p>
+> <b>The right to be let alone is the underlying principle of the Constitution's Bill of Rights.</b>
+> <p><i>Erwin Griswold</i></p>
 
 <br>
