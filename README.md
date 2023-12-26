@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I gambled and I lost. I failed in securing my options for this choice for myself, but I succeeded in verifying the Dark Age is still with us.</b>
-> <p><i>Jack Kevorkian</i></p>
+> <b>Errors are not in the art but in the artificers.</b>
+> <p><i>Isaac Newton</i></p>
 
 <br>
