@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The right to be let alone is the underlying principle of the Constitution's Bill of Rights.</b>
-> <p><i>Erwin Griswold</i></p>
+> <b>'Breaking Bad' is the best, the greatest, the most amazing thing I have ever watched on television.</b>
+> <p><i>Tony Kaye</i></p>
 
 <br>
