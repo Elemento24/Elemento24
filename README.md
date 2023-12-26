@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Beethoven Experience provided the opportunity to solidify the relationship between the Orchestra and me, the Orchestra and me and the public, between all of us and the city of New York, because Beethoven after all is a really amazing point of reference.</b>
-> <p><i>Lorin Maazel</i></p>
+> <b>I gambled and I lost. I failed in securing my options for this choice for myself, but I succeeded in verifying the Dark Age is still with us.</b>
+> <p><i>Jack Kevorkian</i></p>
 
 <br>
