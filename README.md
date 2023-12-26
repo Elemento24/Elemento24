@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was a wonderful experience to work with Sylvia. She pushed me to be more powerful with my acting, and she told me scores of the most incredible stories I've ever heard. She is amazing.</b>
-> <p><i>Lukas Haas</i></p>
+> <b>You know, I think the film business is its own worst enemy because it sells movies on DVD footage and 'behind the scenes,' and now it's a real struggle trying to keep storylines and plotlines a secret.</b>
+> <p><i>Daniel Craig</i></p>
 
 <br>
