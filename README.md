@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would have probably stolen cars - it would have given me the same adrenaline rush as racing.</b>
-> <p><i>Valentino Rossi</i></p>
+> <b>Middle age occurs when you are too young to take up golf and too old to rush up to the net.</b>
+> <p><i>Franklin P. Adams</i></p>
 
 <br>
