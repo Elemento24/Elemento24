@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a real roller-coaster ride if you're lucky to have longevity in this business - you have to be able to ride those waves.</b>
-> <p><i>Jennifer Lopez</i></p>
+> <b>The Beethoven Experience provided the opportunity to solidify the relationship between the Orchestra and me, the Orchestra and me and the public, between all of us and the city of New York, because Beethoven after all is a really amazing point of reference.</b>
+> <p><i>Lorin Maazel</i></p>
 
 <br>
