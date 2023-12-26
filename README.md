@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The very essence of the creative is its novelty, and hence we have no standard by which to judge it.</b>
-> <p><i>Carl Rogers</i></p>
+> <b>It was a wonderful experience to work with Sylvia. She pushed me to be more powerful with my acting, and she told me scores of the most incredible stories I've ever heard. She is amazing.</b>
+> <p><i>Lukas Haas</i></p>
 
 <br>
