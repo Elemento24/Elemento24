@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For 'Around the World in 80 Plates' we got to travel all over, having what was like a cross between a culinary competition and races. And in each country we had a chef Ambassador. We went to London, Barcelona, Bologna, Hong Kong, Thailand, Morocco... It was amazing.</b>
-> <p><i>Curtis Stone</i></p>
+> <b>Those issues are biblical issues: to care for the sick, to feed the hungry, to stand up for the oppressed. I contend that if the evangelical community became more biblical, everything would change.</b>
+> <p><i>Tony Campolo</i></p>
 
 <br>
