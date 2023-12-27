@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I owe much to mother. She had an expert's understanding, but also approached art emotionally.</b>
-> <p><i>David Rockefeller</i></p>
+> <b>Even crushed against his brother in the Tube the average Englishman pretends desperately that he is alone.</b>
+> <p><i>Germaine Greer</i></p>
 
 <br>
