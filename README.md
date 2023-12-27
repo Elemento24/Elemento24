@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, Johnny Depp has always been a massive inspiration for me and he's somebody who has produced an incredible amount of work, and every single piece that he does is amazing.</b>
-> <p><i>Jamie Campbell Bower</i></p>
+> <b>I never played much golf as a kid. I caddied quite a bit but never got serious into golf until about age 15.</b>
+> <p><i>Lee Trevino</i></p>
 
 <br>
