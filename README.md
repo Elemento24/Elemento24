@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our Lord has written the promise of resurrection, not in books alone, but in every leaf in springtime.</b>
-> <p><i>Martin Luther</i></p>
+> <b>It's amazing how a competitive nature can turn a negative into something positive.</b>
+> <p><i>Barry Mann</i></p>
 
 <br>
