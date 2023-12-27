@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never played much golf as a kid. I caddied quite a bit but never got serious into golf until about age 15.</b>
-> <p><i>Lee Trevino</i></p>
+> <b>The best book, like the best speech, will do it all - make us laugh, think, cry and cheer - preferably in that order.</b>
+> <p><i>Madeleine Albright</i></p>
 
 <br>
