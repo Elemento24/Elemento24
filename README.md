@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how a competitive nature can turn a negative into something positive.</b>
-> <p><i>Barry Mann</i></p>
+> <b>Living the past is a dull and lonely business looking back strains the neck muscles, causing you to bump into people not going your way.</b>
+> <p><i>Edna Ferber</i></p>
 
 <br>
