@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The value of old age depends upon the person who reaches it. To some men of early performance it is useless. To others, who are late to develop, it just enables them to finish the job.</b>
-> <p><i>Thomas Hardy</i></p>
+> <b>Enlightened leadership is spiritual if we understand spirituality not as some kind of religious dogma or ideology but as the domain of awareness where we experience values like truth, goodness, beauty, love and compassion, and also intuition, creativity, insight and focused attention.</b>
+> <p><i>Deepak Chopra</i></p>
 
 <br>
