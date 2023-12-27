@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The future hasn't happened yet and the past is gone. So I think the only moment we have is right here and now, and I try to make the best of those moments, the moments that I'm in.</b>
-> <p><i>Annie Lennox</i></p>
+> <b>The compulsion to do good is an innate American trait. Only North Americans seem to believe that they always should, may, and actually can choose somebody with whom to share their blessings. Ultimately this attitude leads to bombing people into the acceptance of gifts.</b>
+> <p><i>Ivan Illich</i></p>
 
 <br>
