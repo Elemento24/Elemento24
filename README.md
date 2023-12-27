@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think my attitude to human beings has changed since leaving prison.</b>
-> <p><i>Jeffrey Archer</i></p>
+> <b>I have a resistance to change in things that I feel comfortable with and that I'm used to.</b>
+> <p><i>Dennis Quaid</i></p>
 
 <br>
