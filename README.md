@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best book, like the best speech, will do it all - make us laugh, think, cry and cheer - preferably in that order.</b>
-> <p><i>Madeleine Albright</i></p>
+> <b>The value of old age depends upon the person who reaches it. To some men of early performance it is useless. To others, who are late to develop, it just enables them to finish the job.</b>
+> <p><i>Thomas Hardy</i></p>
 
 <br>
