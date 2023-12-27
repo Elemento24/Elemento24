@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a resistance to change in things that I feel comfortable with and that I'm used to.</b>
-> <p><i>Dennis Quaid</i></p>
+> <b>Our Lord has written the promise of resurrection, not in books alone, but in every leaf in springtime.</b>
+> <p><i>Martin Luther</i></p>
 
 <br>
