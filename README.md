@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love, with very young people, is a heartless business. We drink at that age from thirst, or to get drunk it is only later in life that we occupy ourselves with the individuality of our wine.</b>
-> <p><i>Isak Dinesen</i></p>
+> <b>You know, Johnny Depp has always been a massive inspiration for me and he's somebody who has produced an incredible amount of work, and every single piece that he does is amazing.</b>
+> <p><i>Jamie Campbell Bower</i></p>
 
 <br>
