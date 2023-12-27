@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm never overawed by a situation and I think that's because I've always looked several years older than I am. So because people were treating me like I was 40 when I was 29, I've always felt in control of a situation. People used to say, when you're 32, you'll look 32. I'm still waiting for that moment, where my age catches up with my appearance.</b>
-> <p><i>Chris O'Dowd</i></p>
+> <b>For having lived long, I have experienced many instances of being obliged, by better information or fuller consideration, to change opinions, even on important subjects, which I once thought right but found to be otherwise.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
