@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm in London, Claridge's is a great favourite. I'm a big fan of art deco architecture and the rooms are extraordinary.</b>
-> <p><i>Roman Coppola</i></p>
+> <b>I want to test my maximum and see how much I can do. And I want to change the world of swimming.</b>
+> <p><i>Michael Phelps</i></p>
 
 <br>
