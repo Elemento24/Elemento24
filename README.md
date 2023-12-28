@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's important to say that actors can't act alone, it's impossible. What we have to do is support each other.</b>
-> <p><i>Philip Seymour Hoffman</i></p>
+> <b>Generalised anger and frustration is something that gets you in the studio, and gets you to work - though it's not necessarily evident in anything that's finished.</b>
+> <p><i>Bruce Nauman</i></p>
 
 <br>
