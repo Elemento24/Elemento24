@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any film I do is not going to change the way black women have been portrayed, or black people have been portrayed, in cinema since the days of D.W. Griffith.</b>
-> <p><i>Spike Lee</i></p>
+> <b>Maybe more climate activists will think about the climate change not as an international problem to be resolved in an air-conditioned meeting hall, but as a guerilla war to be fought in the streets.</b>
+> <p><i>Jeff Goodell</i></p>
 
 <br>
