@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to test my maximum and see how much I can do. And I want to change the world of swimming.</b>
-> <p><i>Michael Phelps</i></p>
+> <b>In science, as in art, and, as I believe, in every other sphere of human activity, there may be wisdom in a multitude of counsellors, but it is only in one or two of them.</b>
+> <p><i>Thomas Huxley</i></p>
 
 <br>
