@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader.</b>
-> <p><i>Ben Okri</i></p>
+> <b>On stage, I make love to 25,000 different people, then I go home alone.</b>
+> <p><i>Janis Joplin</i></p>
 
 <br>
