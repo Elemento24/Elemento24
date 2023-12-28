@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's important to fall in love with someone you don't want to change.</b>
-> <p><i>Jessica Simpson</i></p>
+> <b>As a busy working mom I'm always pressed for time, so a quick and easy beauty routine is key!</b>
+> <p><i>Angela Kinsey</i></p>
 
 <br>
