@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Generalised anger and frustration is something that gets you in the studio, and gets you to work - though it's not necessarily evident in anything that's finished.</b>
-> <p><i>Bruce Nauman</i></p>
+> <b>My formula for living is quite simple. I get up in the morning and I go to bed at night. In between, I occupy myself as best I can.</b>
+> <p><i>Cary Grant</i></p>
 
 <br>
