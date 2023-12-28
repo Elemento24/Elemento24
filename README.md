@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The love of all-inclusiveness is as dangerous in philosophy as in art.</b>
-> <p><i>George Santayana</i></p>
+> <b>So I did in fact spend two and a half years in the Middlesbrough car park practising skills. But if you spend four or five or six hours a day practising, you get better.</b>
+> <p><i>Craig Johnston</i></p>
 
 <br>
