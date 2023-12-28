@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fall is my favorite season in Los Angeles, watching the birds change color and fall from the trees.</b>
-> <p><i>David Letterman</i></p>
+> <b>I never blame myself when I'm not hitting. I just blame the bat and if it keeps up, I change bats. After all, if I know it isn't my fault that I'm not hitting, how can I get mad at myself?</b>
+> <p><i>Yogi Berra</i></p>
 
 <br>
