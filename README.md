@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maybe more climate activists will think about the climate change not as an international problem to be resolved in an air-conditioned meeting hall, but as a guerilla war to be fought in the streets.</b>
-> <p><i>Jeff Goodell</i></p>
+> <b>The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader.</b>
+> <p><i>Ben Okri</i></p>
 
 <br>
