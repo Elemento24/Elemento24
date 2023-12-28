@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Form follows profit is the aesthetic principle of our times.</b>
-> <p><i>Richard Rogers</i></p>
+> <b>Fall is my favorite season in Los Angeles, watching the birds change color and fall from the trees.</b>
+> <p><i>David Letterman</i></p>
 
 <br>
