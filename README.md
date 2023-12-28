@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So I did in fact spend two and a half years in the Middlesbrough car park practising skills. But if you spend four or five or six hours a day practising, you get better.</b>
-> <p><i>Craig Johnston</i></p>
+> <b>I was drafted into the Army when I was 19 and came out at age 22. Most people that I knew didn't think they'd come home alive. I didn't think I would either, so I was happy when I did.</b>
+> <p><i>Ed Koch</i></p>
 
 <br>
