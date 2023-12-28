@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was drafted into the Army when I was 19 and came out at age 22. Most people that I knew didn't think they'd come home alive. I didn't think I would either, so I was happy when I did.</b>
-> <p><i>Ed Koch</i></p>
+> <b>It's time to end the cruel slaughter of whales and leave these magnificent creatures alone.</b>
+> <p><i>Paul McCartney</i></p>
 
 <br>
