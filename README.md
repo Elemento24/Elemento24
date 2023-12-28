@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a Gemini, so I change my mind every day.</b>
-> <p><i>Natalie Portman</i></p>
+> <b>It's important to fall in love with someone you don't want to change.</b>
+> <p><i>Jessica Simpson</i></p>
 
 <br>
