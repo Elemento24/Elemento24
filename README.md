@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have noticed... that men usually leave married women alone and are inclined to treat all wives with respect. This is no great credit to married women.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>When I'm in London, Claridge's is a great favourite. I'm a big fan of art deco architecture and the rooms are extraordinary.</b>
+> <p><i>Roman Coppola</i></p>
 
 <br>
