@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't have an interest in any car that isn't good for the environment, other than maybe an aesthetic quality in a picture book.</b>
-> <p><i>Emile Hirsch</i></p>
+> <b>The leverage and influence social media gives citizens are rapidly spreading into the business world.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
