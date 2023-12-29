@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Latin life is rich with warmth, family values and history. I want to bring that beauty into American homes.</b>
-> <p><i>Cristina Saralegui</i></p>
+> <b>I'll tell you, there is nothing better in life than being a late bloomer. I believe that success can happen at any time and at any age.</b>
+> <p><i>Salma Hayek</i></p>
 
 <br>
