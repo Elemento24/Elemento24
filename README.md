@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Victims always feel alone and helpless.</b>
-> <p><i>Deepak Chopra</i></p>
+> <b>So it was good for me to play a likable person and it was just an amazing situation to be in.</b>
+> <p><i>Kristin Davis</i></p>
 
 <br>
