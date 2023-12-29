@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best doctors in the world are Doctor Diet, Doctor Quiet, and Doctor Merryman.</b>
-> <p><i>Jonathan Swift</i></p>
+> <b>When I go outside of L.A., no matter where it is, really anywhere I go, people will be stopping me or taking pictures or whatever it is. And it's great. It's amazing. I'm just lucky.</b>
+> <p><i>Michael Welch</i></p>
 
 <br>
