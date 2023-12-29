@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In fact, it is amazing how much European films - Italian, French, German and English - have recovered a certain territory of the audience in their countries over the last few years.</b>
-> <p><i>Wim Wenders</i></p>
+> <b>But look, I was born in 1956, the peak year for births in US history. I think I'm very representative of many of the thought processes my generation have been through and, by and large, people of my age have had their imprint planted on the consciousness of western society for a long time.</b>
+> <p><i>Tom Hanks</i></p>
 
 <br>
