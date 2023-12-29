@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to fight aging I want to take good care of myself, but plastic surgery and all that? I'm not interested.</b>
-> <p><i>Christine Lahti</i></p>
+> <b>I have an internal protectiveness where it's like, if it comes to just me, as frightened as I am of losing someone I love or things going sour or simply being alone, there is a dark place in my brain where I'm like, It could happen and I'm okay, I'm prepared.</b>
+> <p><i>Lena Headey</i></p>
 
 <br>
