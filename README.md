@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On stage, I make love to 25,000 different people, then I go home alone.</b>
-> <p><i>Janis Joplin</i></p>
+> <b>All great art is the work of the whole living creature, body and soul, and chiefly of the soul.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
