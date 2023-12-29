@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So it was good for me to play a likable person and it was just an amazing situation to be in.</b>
-> <p><i>Kristin Davis</i></p>
+> <b>My grandma's the most careful, safe driver in the world. You put her in a rental car, and she's doing doughnuts in the K-Mart parking lot!</b>
+> <p><i>Jeff Foxworthy</i></p>
 
 <br>
