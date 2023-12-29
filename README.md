@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is youth without levity, and age without decay.</b>
-> <p><i>Doris Day</i></p>
+> <b>Should we have background checks, waiting periods? To drive a car you have to pass a test that shows you know how to drive your car safely, you should have to do the same thing with guns.</b>
+> <p><i>Michael D. Barnes</i></p>
 
 <br>
