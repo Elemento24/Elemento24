@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Up until age 40, most men are just not as mature as women. So, it makes sense that a lot of women date up in age a bit.</b>
-> <p><i>Patti Stanger</i></p>
+> <b>I don't have an interest in any car that isn't good for the environment, other than maybe an aesthetic quality in a picture book.</b>
+> <p><i>Emile Hirsch</i></p>
 
 <br>
