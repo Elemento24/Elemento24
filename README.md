@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude to peace is rather based on the Burmese definition of peace - it really means removing all the negative factors that destroy peace in this world. So peace does not mean just putting an end to violence or to war, but to all other factors that threaten peace, such as discrimination, such as inequality, poverty.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>There is no progress whatever. Everything is just the same as it was thousands, and tens of thousands, of years ago. The outward form changes. The essence does not change.</b>
+> <p><i>Robert Louis Stevenson</i></p>
 
 <br>
