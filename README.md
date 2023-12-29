@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Should we have background checks, waiting periods? To drive a car you have to pass a test that shows you know how to drive your car safely, you should have to do the same thing with guns.</b>
-> <p><i>Michael D. Barnes</i></p>
+> <b>Don't clap too hard - it's a very old building.</b>
+> <p><i>John Osborne</i></p>
 
 <br>
