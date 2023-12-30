@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems as if an age of genius must be succeeded by an age of endeavour riot and extravagance by cleanliness and hard work.</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>I have grown up alone. I've taken care of myself. I worked, earned money and was independent at 18.</b>
+> <p><i>Ingrid Bergman</i></p>
 
 <br>
