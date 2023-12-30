@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A satisfied customer is the best business strategy of all.</b>
-> <p><i>Michael LeBoeuf</i></p>
+> <b>After all it is those who have a deep and real inner life who are best able to deal with the irritating details of outer life.</b>
+> <p><i>Evelyn Underhill</i></p>
 
 <br>
