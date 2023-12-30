@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know how I got to this point but it must be as a result of everything that has come before so if I were to change something, I might not be at this point now.</b>
-> <p><i>William Shatner</i></p>
+> <b>I'm not anti-fashion, but I've always had a bit of a punk attitude. That's important, I think. I do my own thing.</b>
+> <p><i>Sade Adu</i></p>
 
 <br>
