@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over.</b>
-> <p><i>Octavia Butler</i></p>
+> <b>I don't know how I got to this point but it must be as a result of everything that has come before so if I were to change something, I might not be at this point now.</b>
+> <p><i>William Shatner</i></p>
 
 <br>
