@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are educated. Your certification is in your degree. You may think of it as the ticket to the good life. Let me ask you to think of an alternative. Think of it as your ticket to change the world.</b>
-> <p><i>Tom Brokaw</i></p>
+> <b>It is clearly better that property should be private, but the use of it common and the special business of the legislator is to create in men this benevolent disposition.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
