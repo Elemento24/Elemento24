@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is clearly better that property should be private, but the use of it common and the special business of the legislator is to create in men this benevolent disposition.</b>
-> <p><i>Aristotle</i></p>
+> <b>The whole point of being in this business and being blessed and being successful is that you're able to do things for your friends or your family, which means that they can have something special in their lives, too.</b>
+> <p><i>Elton John</i></p>
 
 <br>
