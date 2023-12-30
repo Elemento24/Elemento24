@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every few seconds it changes - up an eighth, down an eighth - it's like playing a slot machine. I lose $20 million, I gain $20 million.</b>
-> <p><i>Ted Turner</i></p>
+> <b>The only sense that is common in the long run, is the sense of change and we all instinctively avoid it.</b>
+> <p><i>E. B. White</i></p>
 
 <br>
