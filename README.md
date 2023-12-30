@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Car designers are just going to have to come up with an automobile that outlasts the payments.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>It's best to leap into something you know you love. You might change your mind later, but that is the privilege of youth.</b>
+> <p><i>Charles Kuralt</i></p>
 
 <br>
