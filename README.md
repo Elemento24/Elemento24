@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be courageous. I have seen many depressions in business. Always America has emerged from these stronger and more prosperous. Be brave as your fathers before you. Have faith! Go forward!</b>
-> <p><i>Thomas A. Edison</i></p>
+> <b>Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over.</b>
+> <p><i>Octavia Butler</i></p>
 
 <br>
