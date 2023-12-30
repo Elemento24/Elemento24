@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not anti-fashion, but I've always had a bit of a punk attitude. That's important, I think. I do my own thing.</b>
-> <p><i>Sade Adu</i></p>
+> <b>Car designers are just going to have to come up with an automobile that outlasts the payments.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
