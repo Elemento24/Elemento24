@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no progress whatever. Everything is just the same as it was thousands, and tens of thousands, of years ago. The outward form changes. The essence does not change.</b>
-> <p><i>Robert Louis Stevenson</i></p>
+> <b>It seems as if an age of genius must be succeeded by an age of endeavour riot and extravagance by cleanliness and hard work.</b>
+> <p><i>Virginia Woolf</i></p>
 
 <br>
