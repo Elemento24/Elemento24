@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have grown up alone. I've taken care of myself. I worked, earned money and was independent at 18.</b>
-> <p><i>Ingrid Bergman</i></p>
+> <b>A satisfied customer is the best business strategy of all.</b>
+> <p><i>Michael LeBoeuf</i></p>
 
 <br>
