@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I strive for an architecture from which nothing can be taken away.</b>
-> <p><i>Helmut Jahn</i></p>
+> <b>I feel like women are asked their age more than men.</b>
+> <p><i>Kristen Wiig</i></p>
 
 <br>
