@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the last analysis, even the best man is evil: in the last analysis, even the best woman is bad.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>I always feel like the art's there and I just see it, so it's not really a lot of work.</b>
+> <p><i>Damien Hirst</i></p>
 
 <br>
