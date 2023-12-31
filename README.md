@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The cat could very well be man's best friend but would never stoop to admitting it.</b>
-> <p><i>Doug Larson</i></p>
+> <b>Listen to your inner-voice: Surround yourself with loving, nurturing people. Fall in love with your art and find yourself. Music is the great communicator.</b>
+> <p><i>Glenn Hughes</i></p>
 
 <br>
