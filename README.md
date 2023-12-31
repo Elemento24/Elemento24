@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have an amazing fan base all around the world that love 40FT.</b>
-> <p><i>Steve Brown</i></p>
+> <b>I don't mind my age.</b>
+> <p><i>Heather Mills</i></p>
 
 <br>
