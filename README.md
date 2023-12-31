@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to be alone so I can write. But focus can hurt you. I don't want to be some stress casualty in early middle age.</b>
-> <p><i>James Ellroy</i></p>
+> <b>Beauty always promises, but never gives anything.</b>
+> <p><i>Simone Weil</i></p>
 
 <br>
