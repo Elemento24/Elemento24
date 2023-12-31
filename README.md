@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't mind my age.</b>
-> <p><i>Heather Mills</i></p>
+> <b>The cat could very well be man's best friend but would never stoop to admitting it.</b>
+> <p><i>Doug Larson</i></p>
 
 <br>
