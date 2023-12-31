@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>New needs need new techniques. And the modern artists have found new ways and new means of making their statements... the modern painter cannot express this age, the airplane, the atom bomb, the radio, in the old forms of the Renaissance or of any other past culture.</b>
-> <p><i>Jackson Pollock</i></p>
+> <b>For an actor, you're rejected eight or ten times a day. All you've got to sell is yourself. You're not selling products, they're not turning down a car, they're turning you down. Most people can't handle that. Most people are essentially not set up that way.</b>
+> <p><i>Barry Corbin</i></p>
 
 <br>
