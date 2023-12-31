@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's great that in the German language I've sold almost 30 million books. Isn't that amazing?</b>
-> <p><i>Ken Follet</i></p>
+> <b>Abstract art: a product of the untalented sold by the unprincipled to the utterly bewildered.</b>
+> <p><i>Al Capp</i></p>
 
 <br>
