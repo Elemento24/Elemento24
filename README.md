@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whether you were talking about Pillsbury, Burger King, Godfather's, the National Restaurant Association, in each one of those situations, I had a daunting problem that I had to solve. And I used the same business principles to approach the problem and, more importantly, solve the problem in every one of the situations.</b>
-> <p><i>Herman Cain</i></p>
+> <b>New needs need new techniques. And the modern artists have found new ways and new means of making their statements... the modern painter cannot express this age, the airplane, the atom bomb, the radio, in the old forms of the Renaissance or of any other past culture.</b>
+> <p><i>Jackson Pollock</i></p>
 
 <br>
