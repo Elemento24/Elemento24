@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Listen to your inner-voice: Surround yourself with loving, nurturing people. Fall in love with your art and find yourself. Music is the great communicator.</b>
-> <p><i>Glenn Hughes</i></p>
+> <b>I owe my success to having listened respectfully to the very best advice, and then going away and doing the exact opposite.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
