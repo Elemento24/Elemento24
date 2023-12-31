@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God gave us the gift of life it is up to us to give ourselves the gift of living well.</b>
-> <p><i>Voltaire</i></p>
+> <b>Only in men's imagination does every truth find an effective and undeniable existence. Imagination, not invention, is the supreme master of art as of life.</b>
+> <p><i>Joseph Conrad</i></p>
 
 <br>
