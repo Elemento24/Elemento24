@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never did anything alone. Whatever was accomplished in this country was accomplished collectively.</b>
-> <p><i>Golda Meir</i></p>
+> <b>Wars spring from unseen and generally insignificant causes, the first outbreak being often but an explosion of anger.</b>
+> <p><i>Thucydides</i></p>
 
 <br>
