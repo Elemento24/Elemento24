@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty always promises, but never gives anything.</b>
-> <p><i>Simone Weil</i></p>
+> <b>God gave us the gift of life it is up to us to give ourselves the gift of living well.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
