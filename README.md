@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For an actor, you're rejected eight or ten times a day. All you've got to sell is yourself. You're not selling products, they're not turning down a car, they're turning you down. Most people can't handle that. Most people are essentially not set up that way.</b>
-> <p><i>Barry Corbin</i></p>
+> <b>We have an amazing fan base all around the world that love 40FT.</b>
+> <p><i>Steve Brown</i></p>
 
 <br>
