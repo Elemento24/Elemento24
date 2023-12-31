@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Abstract art: a product of the untalented sold by the unprincipled to the utterly bewildered.</b>
-> <p><i>Al Capp</i></p>
+> <b>I would as soon put a girl alone into a closet to meditate as give her only the society of her needle.</b>
+> <p><i>Maria Mitchell</i></p>
 
 <br>
