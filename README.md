@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Britain, like most of the developed world, stem-cell research is regarded as a great opportunity. America will be left behind if it doesn't change policy.</b>
-> <p><i>Stephen Hawking</i></p>
+> <b>The best way to know God is to love many things.</b>
+> <p><i>Vincent Van Gogh</i></p>
 
 <br>
