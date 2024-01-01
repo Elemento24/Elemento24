@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I delight in my family obligations, but they leave little time for breaks let alone quick trips across the country.</b>
-> <p><i>Carre Otis</i></p>
+> <b>Your living is determined not so much by what life brings to you as by the attitude you bring to life not so much by what happens to you as by the way your mind looks at what happens.</b>
+> <p><i>Khalil Gibran</i></p>
 
 <br>
