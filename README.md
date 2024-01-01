@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every man over forty is a scoundrel.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>With most British actors, it's amazing. I think they start with the character on the outside and work in.</b>
+> <p><i>Norman Jewison</i></p>
 
 <br>
