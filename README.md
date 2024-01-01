@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're in this entertainment business really to give the audience what they want.</b>
-> <p><i>Ice Cube</i></p>
+> <b>Let us celebrate the occasion with wine and sweet words.</b>
+> <p><i>Plautus</i></p>
 
 <br>
