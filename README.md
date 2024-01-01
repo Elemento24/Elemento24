@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to know God is to love many things.</b>
-> <p><i>Vincent Van Gogh</i></p>
+> <b>I delight in my family obligations, but they leave little time for breaks let alone quick trips across the country.</b>
+> <p><i>Carre Otis</i></p>
 
 <br>
