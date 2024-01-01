@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A live concert to me is exciting because of all the electricity that is generated in the crowd and on stage. It's my favorite part of the business, live concerts.</b>
-> <p><i>Elvis Presley</i></p>
+> <b>A woman is gentle, soft, delicate, and a man's position is to protect her, help her up stairs, make sure she's in the car safely first. Take good care of your woman, and the sky's the limit!</b>
+> <p><i>Taraji P. Henson</i></p>
 
 <br>
