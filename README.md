@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing the relationships you forge in a kitchen. When you cooperate in an environment that's hot. Where there's a lot of knives. You're trusting your well-being with someone you've never before met or known.</b>
-> <p><i>Alexandra Guarnaschelli</i></p>
+> <b>You can rule ignorance you can manipulate the illiterate you can do whatever you want when a people are uneducated, so that goes in line with corrupt business and corrupt politics.</b>
+> <p><i>will.i.am</i></p>
 
 <br>
