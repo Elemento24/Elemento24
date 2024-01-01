@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Take care to sell your horse before he dies. The art of life is passing losses on.</b>
-> <p><i>Robert Frost</i></p>
+> <b>It's amazing the relationships you forge in a kitchen. When you cooperate in an environment that's hot. Where there's a lot of knives. You're trusting your well-being with someone you've never before met or known.</b>
+> <p><i>Alexandra Guarnaschelli</i></p>
 
 <br>
