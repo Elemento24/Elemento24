@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will never have a drink and get behind the wheel of a car. It's not illegal to drink and drive, but there becomes a certain point where it does become a crime.</b>
-> <p><i>Tracey Gold</i></p>
+> <b>Art! Who comprehends her? With whom can one consult concerning this great goddess?</b>
+> <p><i>Ludwig van Beethoven</i></p>
 
 <br>
