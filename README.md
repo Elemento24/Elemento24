@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And you can't complain about kissing Emma Watson. Isn't that what everyone in the world wants to do? I've known Emma for a few years. She's this amazing capacity of young and vibrant and brilliant, but also a bright, intelligent old soul.</b>
-> <p><i>Eddie Redmayne</i></p>
+> <b>In Britain, like most of the developed world, stem-cell research is regarded as a great opportunity. America will be left behind if it doesn't change policy.</b>
+> <p><i>Stephen Hawking</i></p>
 
 <br>
