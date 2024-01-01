@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any change, even a change for the better, is always accompanied by drawbacks and discomforts.</b>
-> <p><i>Arnold Bennett</i></p>
+> <b>Take care to sell your horse before he dies. The art of life is passing losses on.</b>
+> <p><i>Robert Frost</i></p>
 
 <br>
