@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only in men's imagination does every truth find an effective and undeniable existence. Imagination, not invention, is the supreme master of art as of life.</b>
-> <p><i>Joseph Conrad</i></p>
+> <b>I will never have a drink and get behind the wheel of a car. It's not illegal to drink and drive, but there becomes a certain point where it does become a crime.</b>
+> <p><i>Tracey Gold</i></p>
 
 <br>
