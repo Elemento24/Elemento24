@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On the one hand, shopping is dependable: You can do it alone, if you lose your heart to something that is wrong for you, you can return it it's instant gratification and yet something you buy may well last for years.</b>
-> <p><i>Judith Krantz</i></p>
+> <b>When you think of what Americans accomplished, building these amazing cities and all the good it's done in the world, it's kind of disheartening to hear so much hatred of America, not just from abroad, but internally.</b>
+> <p><i>Frank Miller</i></p>
 
 <br>
