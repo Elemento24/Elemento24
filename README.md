@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not asking any of you to make drastic changes to every single one of your recipes or to totally change the way you do business. But what I am asking is that you consider reformulating your menu in pragmatic and incremental ways to create healthier versions of the foods that we all love.</b>
-> <p><i>Michelle Obama</i></p>
+> <b>Art! Who comprehends her? With whom can one consult concerning this great goddess?</b>
+> <p><i>Ludwig van Beethoven</i></p>
 
 <br>
