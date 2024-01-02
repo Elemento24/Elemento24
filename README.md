@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Brain power improves by brain use, just as our bodily strength grows with exercise. And there is no doubt that a large proportion of the female population, from school days to late middle age, now have very complicated lives indeed.</b>
-> <p><i>A. N. Wilson</i></p>
+> <b>To be successful in real estate, you must always and consistently put your clients' best interests first. When you do, your personal needs will be realized beyond your greatest expectations.</b>
+> <p><i>Anthony Hitt</i></p>
 
 <br>
