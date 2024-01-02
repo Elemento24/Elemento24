@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you think spreading money around by force seems like an odd definition of fairness, you're not alone.</b>
-> <p><i>Arthur C. Brooks</i></p>
+> <b>Well, I'm in my 60s now. I finally look it, I think. People until I was 60 would always say they thought I looked younger, which I think, without flattering myself, I did, but I think I certainly have, as George Orwell says people do after a certain age, the face they deserve.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
