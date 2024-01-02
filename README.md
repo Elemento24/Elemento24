@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Happiness is spiritual, born of truth and love. It is unselfish therefore it cannot exist alone, but requires all mankind to share it.</b>
-> <p><i>Mary Baker Eddy</i></p>
+> <b>It seems to me that the natural world is the greatest source of excitement the greatest source of visual beauty the greatest source of intellectual interest. It is the greatest source of so much in life that makes life worth living.</b>
+> <p><i>David Attenborough</i></p>
 
 <br>
