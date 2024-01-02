@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems to me that the natural world is the greatest source of excitement the greatest source of visual beauty the greatest source of intellectual interest. It is the greatest source of so much in life that makes life worth living.</b>
-> <p><i>David Attenborough</i></p>
+> <b>It is through art, and through art only, that we can realise our perfection.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
