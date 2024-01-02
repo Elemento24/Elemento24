@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dad had this philosophy that if you tell children they're beautiful and wonderful then they believe it, and they will be. So I never thought I was unattractive. But I was never one of the girls at school who had lots of boyfriends.</b>
-> <p><i>Emily Mortimer</i></p>
+> <b>If you think spreading money around by force seems like an odd definition of fairness, you're not alone.</b>
+> <p><i>Arthur C. Brooks</i></p>
 
 <br>
