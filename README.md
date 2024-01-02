@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been asked, 'What is my favorite car?' and I've always said 'The next one.'</b>
-> <p><i>Caroll Shelby</i></p>
+> <b>Attitude is attitude, whether you're a West Coast gangster or East Coast gangster, you know?</b>
+> <p><i>Paul Walker</i></p>
 
 <br>
