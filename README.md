@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the main reasons I am so drawn to Hitchcock is that he planned his shots way in advance on story-boards, which he designed like classic paintings (he was an art connoisseur). It's why he found shooting on set boring - because he had already composed the film in his head.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>The beauty of having short hair is that I actually can wash and style it at home!</b>
+> <p><i>Meagan Good</i></p>
 
 <br>
