@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music and the music business are two different things.</b>
-> <p><i>Erykah Badu</i></p>
+> <b>Our country will, I believe, sooner forgive an officer for attacking an enemy than for letting it alone.</b>
+> <p><i>Horatio Nelson</i></p>
 
 <br>
