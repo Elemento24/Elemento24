@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude is attitude, whether you're a West Coast gangster or East Coast gangster, you know?</b>
-> <p><i>Paul Walker</i></p>
+> <b>It's just that fun atmosphere, working on the car, being with the guys. This is exactly what I needed.</b>
+> <p><i>Kurt Busch</i></p>
 
 <br>
