@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you think of what Americans accomplished, building these amazing cities and all the good it's done in the world, it's kind of disheartening to hear so much hatred of America, not just from abroad, but internally.</b>
-> <p><i>Frank Miller</i></p>
+> <b>Happiness is spiritual, born of truth and love. It is unselfish therefore it cannot exist alone, but requires all mankind to share it.</b>
+> <p><i>Mary Baker Eddy</i></p>
 
 <br>
