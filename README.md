@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My second husband believed I had such a fickle attitude to friendship that each Friday he would update the list of my 'Top Ten' friends in the manner of a Top Of The Pops chart countdown.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>I think as a Canadian hockey player, you go through it in your mind so many times, being able to stand on that blue line and hear your national anthem play and being a gold medal champion, you dream of that. And then to be able to accomplish that and actually win a gold medal and represent your country its an amazing feeling.</b>
+> <p><i>Sidney Crosby</i></p>
 
 <br>
