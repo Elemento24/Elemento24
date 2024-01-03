@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be successful in real estate, you must always and consistently put your clients' best interests first. When you do, your personal needs will be realized beyond your greatest expectations.</b>
-> <p><i>Anthony Hitt</i></p>
+> <b>Sculpture is the best comment that a painter can make on painting.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
