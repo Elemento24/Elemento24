@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The future belongs to those who believe in the beauty of their dreams.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>If you're lucky enough to have a pretty girl love you and share herself and sleep with you, make that your secret. The best way to spoil love is by talking to too many people about it.</b>
+> <p><i>Rip Torn</i></p>
 
 <br>
