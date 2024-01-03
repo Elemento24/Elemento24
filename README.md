@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're not trying to change the world just music.</b>
-> <p><i>Jonathan Davis</i></p>
+> <b>The future belongs to those who believe in the beauty of their dreams.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
