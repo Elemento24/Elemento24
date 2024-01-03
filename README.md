@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think as a Canadian hockey player, you go through it in your mind so many times, being able to stand on that blue line and hear your national anthem play and being a gold medal champion, you dream of that. And then to be able to accomplish that and actually win a gold medal and represent your country its an amazing feeling.</b>
-> <p><i>Sidney Crosby</i></p>
+> <b>People and squirrels are very different. Most people will not argue that. But I find that there is one situation in which they're very similar. And that is: when I am driving towards them in my car. Then they're kind of hard to tell apart - especially if the human is kind of hairy.</b>
+> <p><i>Demetri Martin</i></p>
 
 <br>
