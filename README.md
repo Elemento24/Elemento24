@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're lucky enough to have a pretty girl love you and share herself and sleep with you, make that your secret. The best way to spoil love is by talking to too many people about it.</b>
-> <p><i>Rip Torn</i></p>
+> <b>The chances of a reunion now are less likely. I was thinking of having a 40th anniversary of the band, but now they are really another band, so it's all a bit weird.</b>
+> <p><i>Alvin Lee</i></p>
 
 <br>
