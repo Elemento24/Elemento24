@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a car singer, in fact sometimes I pretend to take my dog out for a walk, and I'll just drive him around and start singin'.</b>
-> <p><i>Casey Abrams</i></p>
+> <b>The only way to make sense out of change is to plunge into it, move with it, and join the dance.</b>
+> <p><i>Alan Watts</i></p>
 
 <br>
