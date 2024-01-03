@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're in this entertainment business really to give the audience what they want.</b>
-> <p><i>Ice Cube</i></p>
+> <b>It seems to me there is a change in what audiences want to see. I can only hope that's correct, because there's an awful lot of people of my age around now and we outnumber the others.</b>
+> <p><i>Maggie Smith</i></p>
 
 <br>
