@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way to make sense out of change is to plunge into it, move with it, and join the dance.</b>
-> <p><i>Alan Watts</i></p>
+> <b>We're in this entertainment business really to give the audience what they want.</b>
+> <p><i>Ice Cube</i></p>
 
 <br>
