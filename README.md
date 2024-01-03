@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The current Babe Ruth of improv? Sacha Baron Cohen. He's pretty amazing.</b>
-> <p><i>Seth Rogen</i></p>
+> <b>I feel fine, I don't care who the director is. All you have to do is know what your doing - all of us - everybody in the business - that's all you ask anyone - you know your job, I know mine, let's go do it.</b>
+> <p><i>Morgan Freeman</i></p>
 
 <br>
