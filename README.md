@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been pleased to work with so many wonderful stars through the years. This has been an amazing journey. I hope it continues.</b>
-> <p><i>Keanu Reeves</i></p>
+> <b>I'm a car singer, in fact sometimes I pretend to take my dog out for a walk, and I'll just drive him around and start singin'.</b>
+> <p><i>Casey Abrams</i></p>
 
 <br>
