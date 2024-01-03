@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems to me there is a change in what audiences want to see. I can only hope that's correct, because there's an awful lot of people of my age around now and we outnumber the others.</b>
-> <p><i>Maggie Smith</i></p>
+> <b>Mournful and yet grand is the destiny of the artist.</b>
+> <p><i>Franz Liszt</i></p>
 
 <br>
