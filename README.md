@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be slow to fall into friendship but when thou art in, continue firm and constant.</b>
-> <p><i>Socrates</i></p>
+> <b>If a person gets his attitude toward money straight, it will help straighten out almost every other area in his life.</b>
+> <p><i>Billy Graham</i></p>
 
 <br>
