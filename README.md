@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But when you're deprived of it for a lengthy period then you value human companionship. But you have to survive and so you devise all kinds of mental exercises and it's amazing.</b>
-> <p><i>Wole Soyinka</i></p>
+> <b>When you are fitted in a racing car and you race to win, second or third place is not enough.</b>
+> <p><i>Ayrton Senna</i></p>
 
 <br>
