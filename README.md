@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also take pleasure in the so-called negative power in Grotjahn's work. That is, I love his paintings for what they are not. Unlike much art of the past decade, Grotjahn isn't simply working from a prescribed checklist of academically acceptable, curator-approved 'isms' and twists.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Speak when you are angry - and you'll make the best speech you'll ever regret.</b>
+> <p><i>Laurence J. Peter</i></p>
 
 <br>
