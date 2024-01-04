@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The information encoded in your DNA determines your unique biological characteristics, such as sex, eye color, age and Social Security number.</b>
-> <p><i>Dave Barry</i></p>
+> <b>I do not believe in political movements. I believe in personal movement, that movement of the soul when a man who looks at himself is so ashamed that he tries to make some sort of change - within himself, not on the outside.</b>
+> <p><i>Joseph Brodsky</i></p>
 
 <br>
