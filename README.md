@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The true and solid peace of nations consists not in equality of arms, but in mutual trust alone.</b>
-> <p><i>Pope John XXIII</i></p>
+> <b>Let me remind you that credit is the lifeblood of business, the lifeblood of prices and jobs.</b>
+> <p><i>Herbert Hoover</i></p>
 
 <br>
