@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most people have no concept of how an automatic transmission works, yet they know how to drive a car. You don't have to study physics to understand the laws of motion to drive a car. You don't have to understand any of this stuff to use Macintosh.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>Like dogs in a wheel, birds in a cage, or squirrels in a chain, ambitious men still climb and climb, with great labor, and incessant anxiety, but never reach the top.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
