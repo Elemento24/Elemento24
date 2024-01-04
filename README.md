@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like dogs in a wheel, birds in a cage, or squirrels in a chain, ambitious men still climb and climb, with great labor, and incessant anxiety, but never reach the top.</b>
-> <p><i>Robert Browning</i></p>
+> <b>A lot of directors idealize their leading ladies or turn them into these objects of sexuality and beauty.</b>
+> <p><i>Diane Kruger</i></p>
 
 <br>
