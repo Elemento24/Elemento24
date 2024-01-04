@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I see music as fluid architecture.</b>
-> <p><i>Joni Mitchell</i></p>
+> <b>Beauty is the first test: there is no permanent place in the world for ugly mathematics.</b>
+> <p><i>Godfrey Harold Hardy</i></p>
 
 <br>
