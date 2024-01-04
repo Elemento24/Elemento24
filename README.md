@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It usually takes me more than three weeks to prepare a good impromptu speech.</b>
-> <p><i>Mark Twain</i></p>
+> <b>But when you're deprived of it for a lengthy period then you value human companionship. But you have to survive and so you devise all kinds of mental exercises and it's amazing.</b>
+> <p><i>Wole Soyinka</i></p>
 
 <br>
