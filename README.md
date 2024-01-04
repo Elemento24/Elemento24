@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is through art, and through art only, that we can realise our perfection.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>I'm only going to stand before God and give an account for my life, not for somebody else's life. If I have a bad attitude, then I need to say there's no point in me blaming you for what's wrong in my life.</b>
+> <p><i>Joyce Meyer</i></p>
 
 <br>
