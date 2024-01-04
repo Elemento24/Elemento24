@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Speak when you are angry - and you'll make the best speech you'll ever regret.</b>
-> <p><i>Laurence J. Peter</i></p>
+> <b>Music is the art of the prophets and the gift of God.</b>
+> <p><i>Martin Luther</i></p>
 
 <br>
