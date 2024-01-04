@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're in a giant car heading towards a brick wall and everyone's arguing over where they're going to sit.</b>
-> <p><i>David Suzuki</i></p>
+> <b>It usually takes me more than three weeks to prepare a good impromptu speech.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
