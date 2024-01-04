@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being a sex symbol has to do with an attitude, not looks. Most men think it's looks, most women know otherwise.</b>
-> <p><i>Kathleen Turner</i></p>
+> <b>It is through art, and through art only, that we can realise our perfection.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
