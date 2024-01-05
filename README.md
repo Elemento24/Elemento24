@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Color in certain places has the great value of making the outlines and structural planes seem more energetic.</b>
-> <p><i>Antonio Gaudi</i></p>
+> <b>My mom was amazing. She believed in me and we were best friends.</b>
+> <p><i>Carmen Electra</i></p>
 
 <br>
