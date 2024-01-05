@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom was amazing. She believed in me and we were best friends.</b>
-> <p><i>Carmen Electra</i></p>
+> <b>Life is the art of drawing without an eraser.</b>
+> <p><i>John W. Gardner</i></p>
 
 <br>
