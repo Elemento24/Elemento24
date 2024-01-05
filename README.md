@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Teach us that wealth is not elegance, that profusion is not magnificence, that splendor is not beauty.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>Advertising is the art of convincing people to spend money they don't have for something they don't need.</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
