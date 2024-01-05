@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is something in the pang of change More than the heart can bear, Unhappiness remembering happiness.</b>
-> <p><i>Euripedes</i></p>
+> <b>When I get into bed at night, I hope I don't get into it alone!</b>
+> <p><i>Calvin Klein</i></p>
 
 <br>
