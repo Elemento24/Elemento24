@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The essence of all art is to have pleasure in giving pleasure.</b>
-> <p><i>Dale Carnegie</i></p>
+> <b>There is no prejudice that the work of art does not finally overcome.</b>
+> <p><i>Andre Gide</i></p>
 
 <br>
