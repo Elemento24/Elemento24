@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had two romances since moving to Las Vegas. One was with somebody 12 years older than me, and the other was the same age, and neither worked out. I know people still think of me as one of Hugh Hefner's girlfriends, and he of course was much older than me, but that was a whole different lifestyle and a different kind of dating.</b>
-> <p><i>Holly Madison</i></p>
+> <b>I'm trying to get the record that I made at my birthday party last year, trying to get that out, and the lawyers are diddling around with it and it probably won't be out until next year. I don't know.</b>
+> <p><i>Marian McPartland</i></p>
 
 <br>
