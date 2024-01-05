@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The details are the very source of expression in architecture. But we are caught in a vice between art and the bottom line.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>I really have a great deal of humility in that department, and a great deal of respect for people who spend their lives learning how to make these amazing preparations.</b>
+> <p><i>Ted Allen</i></p>
 
 <br>
