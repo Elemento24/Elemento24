@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not living. It is the use of living.</b>
-> <p><i>Audre Lorde</i></p>
+> <b>I would absolutely, definitely never sell my wedding pictures to a magazine. I'd like it to be a special day, not a photo shoot. And once you've done that, your marriage becomes everybody else's business.</b>
+> <p><i>Katherine Jenkins</i></p>
 
 <br>
