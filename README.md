@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I get into bed at night, I hope I don't get into it alone!</b>
-> <p><i>Calvin Klein</i></p>
+> <b>Of all our possessions, wisdom alone is imortal.</b>
+> <p><i>Isocrates</i></p>
 
 <br>
