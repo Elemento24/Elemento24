@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a person gets his attitude toward money straight, it will help straighten out almost every other area in his life.</b>
-> <p><i>Billy Graham</i></p>
+> <b>Now I see the secret of making the best person: it is to grow in the open air and to eat and sleep with the earth.</b>
+> <p><i>Walt Whitman</i></p>
 
 <br>
