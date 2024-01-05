@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The problem with beauty is that it's like being born rich and getting poorer.</b>
-> <p><i>Joan Collins</i></p>
+> <b>There is something in the pang of change More than the heart can bear, Unhappiness remembering happiness.</b>
+> <p><i>Euripedes</i></p>
 
 <br>
