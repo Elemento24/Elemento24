@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of those who make collections of verse or epigram are like men eating cherries or oysters: they choose out the best at first, and end by eating all.</b>
-> <p><i>Nicolas Chamfort</i></p>
+> <b>Color in certain places has the great value of making the outlines and structural planes seem more energetic.</b>
+> <p><i>Antonio Gaudi</i></p>
 
 <br>
