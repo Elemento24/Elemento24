@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really have a great deal of humility in that department, and a great deal of respect for people who spend their lives learning how to make these amazing preparations.</b>
-> <p><i>Ted Allen</i></p>
+> <b>The problem with beauty is that it's like being born rich and getting poorer.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
