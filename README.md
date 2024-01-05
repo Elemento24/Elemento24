@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vitality is radiated from exceptional art and architecture.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>Teach us that wealth is not elegance, that profusion is not magnificence, that splendor is not beauty.</b>
+> <p><i>Benjamin Disraeli</i></p>
 
 <br>
