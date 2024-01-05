@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Advertising is the art of convincing people to spend money they don't have for something they don't need.</b>
-> <p><i>Will Rogers</i></p>
+> <b>Had anyone told me that I was going to have a career in business, I would have said, 'No way.'</b>
+> <p><i>Carly Fiorina</i></p>
 
 <br>
