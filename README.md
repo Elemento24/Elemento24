@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would absolutely, definitely never sell my wedding pictures to a magazine. I'd like it to be a special day, not a photo shoot. And once you've done that, your marriage becomes everybody else's business.</b>
-> <p><i>Katherine Jenkins</i></p>
+> <b>Most of those who make collections of verse or epigram are like men eating cherries or oysters: they choose out the best at first, and end by eating all.</b>
+> <p><i>Nicolas Chamfort</i></p>
 
 <br>
