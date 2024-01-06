@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The aging process has you firmly in its grasp if you never get the urge to throw a snowball.</b>
-> <p><i>Doug Larson</i></p>
+> <b>No dancer can watch Fred Astaire and not know that we all should have been in another business.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
