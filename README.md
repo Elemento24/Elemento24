@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To make pictures big is to make them more powerful.</b>
-> <p><i>Robert Mapplethorpe</i></p>
+> <b>To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.</b>
+> <p><i>Henri Bergson</i></p>
 
 <br>
