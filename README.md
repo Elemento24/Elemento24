@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If government and media and all of us in the Australian tribe got together, and the rock industry, we'd just be the greatest cultural force the world has ever seen - we're such an amazing race.</b>
-> <p><i>Yahoo Serious</i></p>
+> <b>No one ever said on their deathbed, 'Gee, I wish I had spent more time alone with my computer'.</b>
+> <p><i>Danielle Berry</i></p>
 
 <br>
