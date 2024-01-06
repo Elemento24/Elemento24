@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The main dangers in this life are the people who want to change everything... or nothing.</b>
-> <p><i>Nancy Astor</i></p>
+> <b>Follow sound business trends, not fashion trends.</b>
+> <p><i>Janice Dickinson</i></p>
 
 <br>
