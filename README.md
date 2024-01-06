@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter what business you're in, you can't run in place or someone will pass you by. It doesn't matter how many games you've won.</b>
-> <p><i>Jim Valvano</i></p>
+> <b>I feel most empires fell when they started to act human, but then look at Russia. They kept a pretty strong hand, and they fell from Afghanistan alone because Afghanistan is the graveyard of empires. I guess you just can't sustain it.</b>
+> <p><i>Colin Quinn</i></p>
 
 <br>
