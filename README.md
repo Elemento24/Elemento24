@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to change characters and then, slowly I believe the audience treat me as, like an actor who can fight. It's not like an action star.</b>
-> <p><i>Jackie Chan</i></p>
+> <b>Nobody until very recently would have thought that their husband was supposed to be their best friend, confidante, intellectual soul mate, co-parent, inspiration.</b>
+> <p><i>Elizabeth Gilbert</i></p>
 
 <br>
