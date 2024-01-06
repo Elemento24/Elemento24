@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always had an affinity and a passion for cars and that whole car culture.</b>
-> <p><i>Ludacris</i></p>
+> <b>One of the most amazing locations I've ever been is the top of the volcano in Tanzania, Africa. It's an actual volcano where you really have this lava every day.</b>
+> <p><i>Jan de Bont</i></p>
 
 <br>
