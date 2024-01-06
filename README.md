@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like many women my age, I am 28 years old.</b>
-> <p><i>Mary Schmich</i></p>
+> <b>I like to change characters and then, slowly I believe the audience treat me as, like an actor who can fight. It's not like an action star.</b>
+> <p><i>Jackie Chan</i></p>
 
 <br>
