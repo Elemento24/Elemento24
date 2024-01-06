@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.</b>
-> <p><i>Henri Bergson</i></p>
+> <b>The aging process has you firmly in its grasp if you never get the urge to throw a snowball.</b>
+> <p><i>Doug Larson</i></p>
 
 <br>
