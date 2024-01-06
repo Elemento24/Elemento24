@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Golf is so popular simply because it is the best game in the world at which to be bad.</b>
-> <p><i>A. A. Milne</i></p>
+> <b>The whole course of human history may depend on a change of heart in one solitary and even humble individual - for it is in the solitary mind and soul of the individual that the battle between good and evil is waged and ultimately won or lost.</b>
+> <p><i>M. Scott Peck</i></p>
 
 <br>
