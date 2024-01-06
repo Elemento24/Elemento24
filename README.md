@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody until very recently would have thought that their husband was supposed to be their best friend, confidante, intellectual soul mate, co-parent, inspiration.</b>
-> <p><i>Elizabeth Gilbert</i></p>
+> <b>If government and media and all of us in the Australian tribe got together, and the rock industry, we'd just be the greatest cultural force the world has ever seen - we're such an amazing race.</b>
+> <p><i>Yahoo Serious</i></p>
 
 <br>
