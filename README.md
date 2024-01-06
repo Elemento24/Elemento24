@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No dancer can watch Fred Astaire and not know that we all should have been in another business.</b>
-> <p><i>Mikhail Baryshnikov</i></p>
+> <b>I've always had an affinity and a passion for cars and that whole car culture.</b>
+> <p><i>Ludacris</i></p>
 
 <br>
