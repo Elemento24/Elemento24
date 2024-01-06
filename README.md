@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In such ugly times, the only true protest is beauty.</b>
-> <p><i>Phil Ochs</i></p>
+> <b>The main dangers in this life are the people who want to change everything... or nothing.</b>
+> <p><i>Nancy Astor</i></p>
 
 <br>
