@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Follow sound business trends, not fashion trends.</b>
-> <p><i>Janice Dickinson</i></p>
+> <b>No matter what business you're in, you can't run in place or someone will pass you by. It doesn't matter how many games you've won.</b>
+> <p><i>Jim Valvano</i></p>
 
 <br>
