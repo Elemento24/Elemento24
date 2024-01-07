@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can have no progress without change, whether it be basketball or anything else.</b>
-> <p><i>John Wooden</i></p>
+> <b>At 13, I realized that I could fix anything electronic. It was amazing, I could just do it. I started a business repairing radios. It grew to be one of the largest in Philadelphia.</b>
+> <p><i>Amar Bose</i></p>
 
 <br>
