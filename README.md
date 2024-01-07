@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Singing really is acting. In a lot of ways, it's much more personal. I love music, and being able to work on that is amazing.</b>
-> <p><i>Leighton Meester</i></p>
+> <b>There is an infinite difference between a little wrong and just right, between fairly good and the best, between mediocrity and superiority.</b>
+> <p><i>Orison Swett Marden</i></p>
 
 <br>
