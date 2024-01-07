@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At 13, I realized that I could fix anything electronic. It was amazing, I could just do it. I started a business repairing radios. It grew to be one of the largest in Philadelphia.</b>
-> <p><i>Amar Bose</i></p>
+> <b>Some of my best leading men have been dogs and horses.</b>
+> <p><i>Elizabeth Taylor</i></p>
 
 <br>
