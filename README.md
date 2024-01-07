@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really like where Tony Robbins says that we're all hypnotized to see beauty this one specific way, and it's true.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.</b>
+> <p><i>Epictetus</i></p>
 
 <br>
