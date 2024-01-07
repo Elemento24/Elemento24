@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Gardening is not trivial. If you believe that it is, closely examine why you feel that way. You may discover that this attitude has been forced upon you by mass media and the crass culture it creates and maintains. The fact is, gardening is just the opposite - it is, or should be, a central, basic expression of human life.</b>
-> <p><i>Andrew Weil</i></p>
+> <b>I really like where Tony Robbins says that we're all hypnotized to see beauty this one specific way, and it's true.</b>
+> <p><i>Gwyneth Paltrow</i></p>
 
 <br>
