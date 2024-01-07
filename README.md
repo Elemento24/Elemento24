@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.</b>
-> <p><i>Epictetus</i></p>
+> <b>Woman's at best a contradiction still.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
