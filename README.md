@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On stage I make love to twenty five thousand people and then I go home alone.</b>
-> <p><i>Janis Joplin</i></p>
+> <b>There can be no peace in the world so long as a large proportion of the population lack the necessities of life and believe that a change of the political and economic system will make them available. World peace must be based on world plenty.</b>
+> <p><i>John Boyd Orr</i></p>
 
 <br>
