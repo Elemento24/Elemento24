@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Adopting the right attitude can convert a negative stress into a positive one.</b>
-> <p><i>Hans Selye</i></p>
+> <b>On stage I make love to twenty five thousand people and then I go home alone.</b>
+> <p><i>Janis Joplin</i></p>
 
 <br>
