@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Woman's at best a contradiction still.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>These things bring you to reality as to how fragile you are at the same moment you are doing something that nobody else is able to do. The same moment that you are seen as the best, the fastest and somebody that cannot be touched, you are enormously fragile.</b>
+> <p><i>Ayrton Senna</i></p>
 
 <br>
