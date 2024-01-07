@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success is peace of mind which is a direct result of self-satisfaction in knowing you did your best to become the best you are capable of becoming.</b>
-> <p><i>John Wooden</i></p>
+> <b>We're not trying to change the world just music.</b>
+> <p><i>Jonathan Davis</i></p>
 
 <br>
