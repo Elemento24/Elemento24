@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>These things bring you to reality as to how fragile you are at the same moment you are doing something that nobody else is able to do. The same moment that you are seen as the best, the fastest and somebody that cannot be touched, you are enormously fragile.</b>
-> <p><i>Ayrton Senna</i></p>
+> <b>Success is peace of mind which is a direct result of self-satisfaction in knowing you did your best to become the best you are capable of becoming.</b>
+> <p><i>John Wooden</i></p>
 
 <br>
