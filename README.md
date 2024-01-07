@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be courageous. I have seen many depressions in business. Always America has emerged from these stronger and more prosperous. Be brave as your fathers before you. Have faith! Go forward!</b>
-> <p><i>Thomas A. Edison</i></p>
+> <b>We also listen to PJ Harvey a lot of driving music. You need something a little more relaxing in the car.</b>
+> <p><i>Brody Armstrong</i></p>
 
 <br>
