@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth is an amazing thing: I think back on when we did The Lost Boys, and I didn't think I could do anything wrong.</b>
-> <p><i>Kiefer Sutherland</i></p>
+> <b>I believe that history has shape, order, and meaning that exceptional men, as much as economic forces, produce change and that passe abstractions like beauty, nobility, and greatness have a shifting but continuing validity.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
