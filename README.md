@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is great folly to wish to be wise all alone.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>Art is making something out of nothing and selling it.</b>
+> <p><i>Frank Zappa</i></p>
 
 <br>
