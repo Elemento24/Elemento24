@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is making something out of nothing and selling it.</b>
-> <p><i>Frank Zappa</i></p>
+> <b>Studies show that children best flourish when one mom and one dad are there to raise them.</b>
+> <p><i>John Boehner</i></p>
 
 <br>
