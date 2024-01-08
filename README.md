@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Studies show that children best flourish when one mom and one dad are there to raise them.</b>
-> <p><i>John Boehner</i></p>
+> <b>Beauty in distress is much the most affecting beauty.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
