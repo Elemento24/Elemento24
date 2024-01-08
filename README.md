@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the tiniest little thing can change the course of your day, which can change the course of your year, which can change who you are.</b>
-> <p><i>Taylor Swift</i></p>
+> <b>If it's true that our species is alone in the universe, then I'd have to say the universe aimed rather low and settled for very little.</b>
+> <p><i>George Carlin</i></p>
 
 <br>
