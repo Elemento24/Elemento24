@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Funny is an attitude.</b>
-> <p><i>Flip Wilson</i></p>
+> <b>Beauty without grace is the hook without the bait.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
