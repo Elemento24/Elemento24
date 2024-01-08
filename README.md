@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty set up distance between other people and me. It warped their behavior.</b>
-> <p><i>Candice Bergen</i></p>
+> <b>However, democracy cannot be defined as the existence of parliaments and elections alone.</b>
+> <p><i>Recep Tayyip Erdogan</i></p>
 
 <br>
