@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no end of craving. Hence contentment alone is the best way to happiness. Therefore, acquire contentment.</b>
-> <p><i>Sivananda</i></p>
+> <b>All I want to do is change the world.</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
