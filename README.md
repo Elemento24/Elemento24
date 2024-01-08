@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One irreducible residual of 38 years in the business is the number of lasting, loving friendships I have made.</b>
-> <p><i>Carroll O'Connor</i></p>
+> <b>It is great folly to wish to be wise all alone.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
