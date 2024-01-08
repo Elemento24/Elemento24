@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If it's true that our species is alone in the universe, then I'd have to say the universe aimed rather low and settled for very little.</b>
-> <p><i>George Carlin</i></p>
+> <b>Youth is an amazing thing: I think back on when we did The Lost Boys, and I didn't think I could do anything wrong.</b>
+> <p><i>Kiefer Sutherland</i></p>
 
 <br>
