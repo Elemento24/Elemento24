@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>However, democracy cannot be defined as the existence of parliaments and elections alone.</b>
-> <p><i>Recep Tayyip Erdogan</i></p>
+> <b>Funny is an attitude.</b>
+> <p><i>Flip Wilson</i></p>
 
 <br>
