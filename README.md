@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter what age you are, or what your circumstances might be, you are special, and you still have something unique to offer. Your life, because of who you are, has meaning.</b>
-> <p><i>Barbara de Angelis</i></p>
+> <b>Beauty set up distance between other people and me. It warped their behavior.</b>
+> <p><i>Candice Bergen</i></p>
 
 <br>
