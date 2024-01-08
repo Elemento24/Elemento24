@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never - you know also one of the things that would save me for a man my age, it was not that easy to lose that much weight and fall down and look like something draped.</b>
-> <p><i>Karl Lagerfeld</i></p>
+> <b>I think the tiniest little thing can change the course of your day, which can change the course of your year, which can change who you are.</b>
+> <p><i>Taylor Swift</i></p>
 
 <br>
