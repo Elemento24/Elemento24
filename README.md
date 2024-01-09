@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On the average, I don't spend more than 15 minutes in the car - to go to the golf course or the gym. And that's the only time I listen to the radio.</b>
-> <p><i>Dweezil Zappa</i></p>
+> <b>Partly because his life ended before the age of 50, Hamilton was defined by the other founding fathers, and he managed, with amazing consistency, to alienate most of them.</b>
+> <p><i>Ron Chernow</i></p>
 
 <br>
