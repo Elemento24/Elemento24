@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The corruption of the best things gives rise to the worst.</b>
-> <p><i>David Hume</i></p>
+> <b>Each year over 2,500 commercial vessels enter the Port of Hampton Roads alone, so adequate funding for port security is a significant issue for those of us who live in Richmond and Hampton Roads.</b>
+> <p><i>Bobby Scott</i></p>
 
 <br>
