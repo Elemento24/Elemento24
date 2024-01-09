@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm in town on Sundays, I sometimes go down to the Central Bar in the East Village to watch English football. But my natural inclination now is to get in the car with my wife and kids and get out of town.</b>
-> <p><i>Joe Scarborough</i></p>
+> <b>I am happy being able to play roles with people my age because once you do something really mature there is no turning back.</b>
+> <p><i>Lindsay Lohan</i></p>
 
 <br>
