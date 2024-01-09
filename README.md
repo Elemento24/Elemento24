@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am happy being able to play roles with people my age because once you do something really mature there is no turning back.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>Wisdom doesn't necessarily come with age. Sometimes age just shows up all by itself.</b>
+> <p><i>Tom Wilson</i></p>
 
 <br>
