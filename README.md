@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Tis the business of little minds to shrink but he whose heart is firm, and whose conscience approves his conduct, will pursue his principles unto death.</b>
-> <p><i>Thomas Paine</i></p>
+> <b>It was an amazing performer. Very temperamental, it spent a lot of time in its trailer.</b>
+> <p><i>Tilda Swinton</i></p>
 
 <br>
