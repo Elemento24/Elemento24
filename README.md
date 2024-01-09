@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best place a person can die, is where they die for others.</b>
-> <p><i>James M. Barrie</i></p>
+> <b>You get more churches burned down in the United States in the last two years than in the last hundred, because of the lack of understanding of culture and diversity and the beauty of it.</b>
+> <p><i>Edward James Olmos</i></p>
 
 <br>
