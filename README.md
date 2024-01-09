@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wisdom doesn't necessarily come with age. Sometimes age just shows up all by itself.</b>
-> <p><i>Tom Wilson</i></p>
+> <b>I don't think immortality is necessarily the key to understanding the world. You have to be careful with what you think you're achieving. I'm all for science discovering amazing and fantastic things about our world, but I think the motivations behind it are slightly askew.</b>
+> <p><i>Reggie Watts</i></p>
 
 <br>
