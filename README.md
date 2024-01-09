@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each year over 2,500 commercial vessels enter the Port of Hampton Roads alone, so adequate funding for port security is a significant issue for those of us who live in Richmond and Hampton Roads.</b>
-> <p><i>Bobby Scott</i></p>
+> <b>I have a responsibility to nurture and shepherd my talent and when I'm living the parts of my life not related to that I feel I have the right to be left alone.</b>
+> <p><i>Ashley Judd</i></p>
 
 <br>
