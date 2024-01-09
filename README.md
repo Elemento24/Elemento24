@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to come in and be that character when you walk into the room. That's what one of my first acting teachers taught me. You know, don't go in there being Jennifer and then expect to flip and change, because they're not going to have that imagination.</b>
-> <p><i>Jennifer Lopez</i></p>
+> <b>On the average, I don't spend more than 15 minutes in the car - to go to the golf course or the gym. And that's the only time I listen to the radio.</b>
+> <p><i>Dweezil Zappa</i></p>
 
 <br>
