@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel I'd like to share my luck and my life. Being in love is the best thing in the world.</b>
-> <p><i>Susannah York</i></p>
+> <b>'Tis the business of little minds to shrink but he whose heart is firm, and whose conscience approves his conduct, will pursue his principles unto death.</b>
+> <p><i>Thomas Paine</i></p>
 
 <br>
