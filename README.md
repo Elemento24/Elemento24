@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do the best that you can in the place where you are, and be kind.</b>
-> <p><i>Scott Nearing</i></p>
+> <b>Always remember that the future comes one day at a time.</b>
+> <p><i>Dean Acheson</i></p>
 
 <br>
