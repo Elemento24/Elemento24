@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing that this is all happening to Lost in Space.</b>
-> <p><i>Mark Goddard</i></p>
+> <b>The corruption of the best things gives rise to the worst.</b>
+> <p><i>David Hume</i></p>
 
 <br>
