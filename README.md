@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a certain amount of freedom involved in cycling: you're self-propelled and decide exactly where to go. If you see something that catches your eye to the left, you can veer off there, which isn't so easy in a car, and you can't cover as much ground walking.</b>
-> <p><i>David Byrne</i></p>
+> <b>If you're looking for can-do, earthy-crunchy attitude then you've got to go to Wisconsin.</b>
+> <p><i>Dar Williams</i></p>
 
 <br>
