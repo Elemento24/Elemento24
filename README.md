@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is one of my favourite words.</b>
-> <p><i>Carol Vorderman</i></p>
+> <b>I hope the millions of people I've touched have the optimism and desire to share their goals and hard work and persevere with a positive attitude.</b>
+> <p><i>Michael Jordan</i></p>
 
 <br>
