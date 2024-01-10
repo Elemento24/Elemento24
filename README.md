@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reese Witherspoon is my everywoman. She's managed to have a family and this amazing career. That's the goal.</b>
-> <p><i>Emmanuelle Chriqui</i></p>
+> <b>Change is one of my favourite words.</b>
+> <p><i>Carol Vorderman</i></p>
 
 <br>
