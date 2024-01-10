@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mom and Dad were married 64 years. And if you wondered what their secret was, you could have asked the local florist - because every day Dad gave Mom a rose, which he put on her bedside table. That's how she found out what happened on the day my father died - she went looking for him because that morning, there was no rose.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>Book-jacket design may become a lost art, like album-cover design, without which late-20th-century iconography would have been pauperized.</b>
+> <p><i>James Wolcott</i></p>
 
 <br>
