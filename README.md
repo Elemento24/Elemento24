@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not a case of 'look at me in my car' it's more, 'look at the car'. I like the idea of other people enjoying them, because everything has become a bit faceless and nobody likes the motor car any more.</b>
-> <p><i>Jay Kay</i></p>
+> <b>Reese Witherspoon is my everywoman. She's managed to have a family and this amazing career. That's the goal.</b>
+> <p><i>Emmanuelle Chriqui</i></p>
 
 <br>
