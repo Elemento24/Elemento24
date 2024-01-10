@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life could be wonderful if people would leave you alone.</b>
-> <p><i>Charlie Chaplin</i></p>
+> <b>You have to understand the tone of the movie, because if it's supposed to be funny, it can be funny violent like the Home Alone stuff, but you have to really understand the tone of what you're doing and make the action work for that and for the character.</b>
+> <p><i>David R. Ellis</i></p>
 
 <br>
