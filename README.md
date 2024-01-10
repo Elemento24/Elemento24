@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do more than is required. What is the distance between someone who achieves their goals consistently and those who spend their lives and careers merely following? The extra mile.</b>
-> <p><i>Gary Ryan Blair</i></p>
+> <b>It's not a case of 'look at me in my car' it's more, 'look at the car'. I like the idea of other people enjoying them, because everything has become a bit faceless and nobody likes the motor car any more.</b>
+> <p><i>Jay Kay</i></p>
 
 <br>
