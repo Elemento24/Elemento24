@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that Phil Kaufman is one of the best directors that I have come across.</b>
-> <p><i>Clive Owen</i></p>
+> <b>A frenzied passion for art is a canker that devours everything else.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
