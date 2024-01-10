@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children also have artistic ability, and there is wisdom in there having it! The more helpless they are, the more instructive are the examples they furnish us and they must be preserved free of corruption from an early age.</b>
-> <p><i>Paul Klee</i></p>
+> <b>It was amazing to me that, all of a sudden, I was hearing my music on the radio and coming out of cars.</b>
+> <p><i>Lenny Kravitz</i></p>
 
 <br>
