@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the great challenges of our age, in which the tools of our productivity are also the tools of our leisure, is to figure out how to make more useful those moments of procrastination when we're idling in front of our computer screens.</b>
-> <p><i>Joshua Foer</i></p>
+> <b>A little anger is a good thing if it isn't on your own behalf, if it's for others deserving of your anger, your empathy.</b>
+> <p><i>David Simon</i></p>
 
 <br>
