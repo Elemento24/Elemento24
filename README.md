@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was amazing to me that, all of a sudden, I was hearing my music on the radio and coming out of cars.</b>
-> <p><i>Lenny Kravitz</i></p>
+> <b>Nearly all the powerful people of this age are unbelievers, the best of them in doubt and misery, the most in plodding hesitation, doing as well as they can, what practical work lies at hand.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
