@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A gun can be dangerous. But a gun can protect you, you can hunt for food with it - you know, the tool itself is a tool. The intention of the party using the tool is a part of the process, right? You know: the knife cuts the steak, stabs the person, saves somebody from danger, cuts somebody out of a car.</b>
-> <p><i>Peter Guber</i></p>
+> <b>Every one who has a heart, however ignorant of architecture he may be, feels the transcendent beauty and poetry of the mediaeval churches.</b>
+> <p><i>Goldwin Smith</i></p>
 
 <br>
