@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will stay in the car until the last minute that I'm going to jump out and do a standup or jump out and do some interviews.</b>
-> <p><i>Martha Raddatz</i></p>
+> <b>You don't have to worry about whether the car is set up right or not, you know it is, and it's down to you. Ultimately, that's what every driver wants.</b>
+> <p><i>Bobby Rahal</i></p>
 
 <br>
