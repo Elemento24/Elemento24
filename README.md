@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are starting to go on about my weight but I'm not going to change my size because they don't like the way I look.</b>
-> <p><i>Adele</i></p>
+> <b>A gun can be dangerous. But a gun can protect you, you can hunt for food with it - you know, the tool itself is a tool. The intention of the party using the tool is a part of the process, right? You know: the knife cuts the steak, stabs the person, saves somebody from danger, cuts somebody out of a car.</b>
+> <p><i>Peter Guber</i></p>
 
 <br>
