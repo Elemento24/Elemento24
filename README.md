@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's particularly a distinctively American concept that resonates with American culture through biker culture. A motorcycle is an independent thing. You're like, 'I don't want to ride in a car with this person. I want to be independent and ride by myself. But, let's ride in a group. Let's be independent, together.'</b>
-> <p><i>Ryan Hurst</i></p>
+> <b>People are starting to go on about my weight but I'm not going to change my size because they don't like the way I look.</b>
+> <p><i>Adele</i></p>
 
 <br>
