@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is when your broad mind and narrow waist begin to change places.</b>
-> <p><i>E. Joseph Cossman</i></p>
+> <b>My dear brothers, take note of this: Everyone should be quick to listen, slow to speak and slow to become angry, for man's anger does not bring about the righteous life that God desires.</b>
+> <p><i>Beverly Sills</i></p>
 
 <br>
