@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't have to worry about whether the car is set up right or not, you know it is, and it's down to you. Ultimately, that's what every driver wants.</b>
-> <p><i>Bobby Rahal</i></p>
+> <b>I can't change the direction of the wind, but I can adjust my sails to always reach my destination.</b>
+> <p><i>Jimmy Dean</i></p>
 
 <br>
