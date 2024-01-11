@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Censorship is to art as lynching is to justice.</b>
-> <p><i>Henry Louis Gates</i></p>
+> <b>I will stay in the car until the last minute that I'm going to jump out and do a standup or jump out and do some interviews.</b>
+> <p><i>Martha Raddatz</i></p>
 
 <br>
