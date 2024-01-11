@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Something my mum taught me years and years and years ago, is life's just too short to carry around a great bucket-load of anger and resentment and bitterness and hatreds and all that sort of stuff.</b>
-> <p><i>Kevin Rudd</i></p>
+> <b>Really, I have to laugh because there was a whole set of stories that made me sound like the Dragon Lady, you know, 'tough this and tough that.' Then there is this business about 'gooey.' The bottom line is I am a pragmatic idealist.</b>
+> <p><i>Madeleine Albright</i></p>
 
 <br>
