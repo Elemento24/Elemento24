@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without strength and courage it's really hard to perform at the highest levels of international figure skating, because you're alone on the ice and you only have seven minutes over two nights to prove yourself.</b>
-> <p><i>Scott Hamilton</i></p>
+> <b>I think it's particularly a distinctively American concept that resonates with American culture through biker culture. A motorcycle is an independent thing. You're like, 'I don't want to ride in a car with this person. I want to be independent and ride by myself. But, let's ride in a group. Let's be independent, together.'</b>
+> <p><i>Ryan Hurst</i></p>
 
 <br>
