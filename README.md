@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't think that college math was for me. I didn't think I'd be able to hack it. And that perception of math not being for girls, not being for girls who see themselves as socially well adjusted has got to change.</b>
-> <p><i>Danica McKellar</i></p>
+> <b>Something my mum taught me years and years and years ago, is life's just too short to carry around a great bucket-load of anger and resentment and bitterness and hatreds and all that sort of stuff.</b>
+> <p><i>Kevin Rudd</i></p>
 
 <br>
