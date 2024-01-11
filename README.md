@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty is that through disappointment you can gain clarity, and with clarity comes conviction and true originality.</b>
-> <p><i>Conan O'Brien</i></p>
+> <b>Censorship is to art as lynching is to justice.</b>
+> <p><i>Henry Louis Gates</i></p>
 
 <br>
