@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can change friends but not neighbours.</b>
-> <p><i>Atal Bihari Vajpayee</i></p>
+> <b>In college, my big money memory was saving up to buy a car with my boyfriend, whom I lived with.</b>
+> <p><i>Christie Hefner</i></p>
 
 <br>
