@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Really, I have to laugh because there was a whole set of stories that made me sound like the Dragon Lady, you know, 'tough this and tough that.' Then there is this business about 'gooey.' The bottom line is I am a pragmatic idealist.</b>
-> <p><i>Madeleine Albright</i></p>
+> <b>You can change friends but not neighbours.</b>
+> <p><i>Atal Bihari Vajpayee</i></p>
 
 <br>
