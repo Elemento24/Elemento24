@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So as I look at transitioning to the communication platforms of the future, I see that the beauty of Internet protocols is you get the separation of the layers between service and technology.</b>
-> <p><i>Michael K. Powell</i></p>
+> <b>I didn't think that college math was for me. I didn't think I'd be able to hack it. And that perception of math not being for girls, not being for girls who see themselves as socially well adjusted has got to change.</b>
+> <p><i>Danica McKellar</i></p>
 
 <br>
