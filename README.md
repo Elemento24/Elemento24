@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm doing it because I choose it. And if it's not working, I can make a change.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Film will only became an art when its materials are as inexpensive as pencil and paper.</b>
+> <p><i>Jean Cocteau</i></p>
 
 <br>
