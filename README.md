@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hiking is the best workout!... You can hike for three hours and not even realize you're working out. And, hiking alone lets me have some time to myself.</b>
-> <p><i>Jamie Luner</i></p>
+> <b>I gave a funny speech at my wife's birthday party, and I'm thinking, 'Hey, I've still got it.'</b>
+> <p><i>Larry David</i></p>
 
 <br>
