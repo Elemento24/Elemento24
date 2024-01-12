@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I gave a funny speech at my wife's birthday party, and I'm thinking, 'Hey, I've still got it.'</b>
-> <p><i>Larry David</i></p>
+> <b>Why does a woman work ten years to change a man's habits and then complain that he's not the man she married?</b>
+> <p><i>Barbra Streisand</i></p>
 
 <br>
