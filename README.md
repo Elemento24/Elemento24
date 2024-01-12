@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why does a woman work ten years to change a man's habits and then complain that he's not the man she married?</b>
-> <p><i>Barbra Streisand</i></p>
+> <b>When you create art, the world has to wait.</b>
+> <p><i>Will Smith</i></p>
 
 <br>
