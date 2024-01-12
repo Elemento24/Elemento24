@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, the shoe - there is a music to it, there is attitude, there is sound, it's a movement. Clothes - it's a different story. There are a million things I'd rather do before designing clothes: directing, landscaping.</b>
-> <p><i>Christian Louboutin</i></p>
+> <b>Integrate purpose into your for-profit business model through a long term commitment to a cause that is aligned with your core values and those of your community.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
