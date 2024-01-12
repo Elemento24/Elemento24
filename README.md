@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My acting career began at age three and my parents got me into it. I was in a McDonald's commercial.</b>
-> <p><i>Corey Feldman</i></p>
+> <b>Hiking is the best workout!... You can hike for three hours and not even realize you're working out. And, hiking alone lets me have some time to myself.</b>
+> <p><i>Jamie Luner</i></p>
 
 <br>
