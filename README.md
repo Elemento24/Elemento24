@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Failure is not fatal, but failure to change might be.</b>
-> <p><i>John Wooden</i></p>
+> <b>The only way to get the best of an argument is to avoid it.</b>
+> <p><i>Dale Carnegie</i></p>
 
 <br>
