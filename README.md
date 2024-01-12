@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is said that man doesn't live by bread alone. Sometimes this is unfortunate, because people who cannot live by bread alone too often kill other people in consequence of the fights they get into.</b>
-> <p><i>John McCarthy</i></p>
+> <b>I have two children and it's amazing how in tune they are with nature, with light, with smells, with time.</b>
+> <p><i>Hugh Jackman</i></p>
 
 <br>
