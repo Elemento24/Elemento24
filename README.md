@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The foundations of a strong economy don't rest alone on the decisions of Chancellors or the spending programmes of government.</b>
-> <p><i>George Osborne</i></p>
+> <b>Failure is not fatal, but failure to change might be.</b>
+> <p><i>John Wooden</i></p>
 
 <br>
