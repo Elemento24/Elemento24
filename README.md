@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All things are artificial, for nature is the art of God.</b>
-> <p><i>Thomas Browne</i></p>
+> <b>The foundations of a strong economy don't rest alone on the decisions of Chancellors or the spending programmes of government.</b>
+> <p><i>George Osborne</i></p>
 
 <br>
