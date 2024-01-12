@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Film will only became an art when its materials are as inexpensive as pencil and paper.</b>
-> <p><i>Jean Cocteau</i></p>
+> <b>I was confirmed at my prep school at the age of 13.</b>
+> <p><i>Richard Dawkins</i></p>
 
 <br>
