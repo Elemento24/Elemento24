@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want a chainsaw very badly, because I think cutting down a tree would be unbelievably satisfying. I have asked for a chainsaw for my birthday, but I think I'll probably be given jewelry instead.</b>
-> <p><i>Susan Orlean</i></p>
+> <b>Don't go away. I don't want to be alone. I can't stand being alone.</b>
+> <p><i>Arnold Rothstein</i></p>
 
 <br>
