@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some broad themes brought me where I am today. At a very young age, my hobby became thinking and finding connections.</b>
-> <p><i>Dean Kamen</i></p>
+> <b>It is best to live however one can be.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
