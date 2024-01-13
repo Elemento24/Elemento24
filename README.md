@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The age of a woman doesn't mean a thing. The best tunes are played on the oldest fiddles.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>You get to a certain age and you just want to prove that you can still rock - that you've still got it.</b>
+> <p><i>Jarvis Cocker</i></p>
 
 <br>
