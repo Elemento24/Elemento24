@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If thou art a man, admire those who attempt great things, even though they fail.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>Comfort in expressing your emotions will allow you to share the best of yourself with others, but not being able to control your emotions will reveal your worst.</b>
+> <p><i>Bryant H. McGill</i></p>
 
 <br>
