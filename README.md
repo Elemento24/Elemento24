@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is best to live however one can be.</b>
-> <p><i>Sophocles</i></p>
+> <b>I miss Saturday morning, rolling out of bed, not shaving, getting into my car with my girls, driving to the supermarket, squeezing the fruit, getting my car washed, taking walks.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
