@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, I think we're put here on earth to make your own destiny, to begin with. I don't think there's anything you can do this way or that way to change anything.</b>
-> <p><i>Waylon Jennings</i></p>
+> <b>To teach how to live without certainty and yet without being paralysed by hesitation is perhaps the chief thing that philosophy, in our age, can do for those who study it.</b>
+> <p><i>Bertrand Russell</i></p>
 
 <br>
