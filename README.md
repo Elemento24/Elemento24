@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't go away. I don't want to be alone. I can't stand being alone.</b>
-> <p><i>Arnold Rothstein</i></p>
+> <b>If you actually want to change your world, there is a better way of doing it than blowing yourself up.</b>
+> <p><i>Salman Rushdie</i></p>
 
 <br>
