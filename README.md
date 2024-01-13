@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you actually want to change your world, there is a better way of doing it than blowing yourself up.</b>
-> <p><i>Salman Rushdie</i></p>
+> <b>The age of a woman doesn't mean a thing. The best tunes are played on the oldest fiddles.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
