@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not alone, I'm free. I no longer have to be a credit, I don't have to be a symbol to anybody I don't have to be a first to anybody.</b>
-> <p><i>Lena Horne</i></p>
+> <b>I think Alone in the Dark was too much an action creature movie than a horror creature movie.</b>
+> <p><i>Uwe Boll</i></p>
 
 <br>
