@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would've been intrigued by being a film director. I would've been intrigued by politics. I thought about architecture.</b>
-> <p><i>Charlie Rose</i></p>
+> <b>If thou art a man, admire those who attempt great things, even though they fail.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
