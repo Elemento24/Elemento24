@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Alone in the Dark was too much an action creature movie than a horror creature movie.</b>
-> <p><i>Uwe Boll</i></p>
+> <b>I quit after a bad car accident. The thing about boxing is that you can be a star for five or six years, but when you go back to the old life, it's tough.</b>
+> <p><i>Olivier Martinez</i></p>
 
 <br>
