@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The true beauty of music is that it connects people. It carries a message, and we, the musicians, are the messengers.</b>
-> <p><i>Roy Ayers</i></p>
+> <b>As I grew older, I realized that it was much better to insist on the genuine forms of nature, for simplicity is the greatest adornment of art.</b>
+> <p><i>Albrecht Durer</i></p>
 
 <br>
