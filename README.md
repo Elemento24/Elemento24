@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I miss Saturday morning, rolling out of bed, not shaving, getting into my car with my girls, driving to the supermarket, squeezing the fruit, getting my car washed, taking walks.</b>
-> <p><i>Barack Obama</i></p>
+> <b>Criticism is the art of appraising others at one's own value.</b>
+> <p><i>George Jean Nathan</i></p>
 
 <br>
