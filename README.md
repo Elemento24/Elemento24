@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art world is molting - some would say melting. Galleries are closing museums are scaling back.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Any authentic work of art must start an argument between the artist and his audience.</b>
+> <p><i>Rebecca West</i></p>
 
 <br>
