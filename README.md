@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always had an inquisitive mind about everything from flowers to television sets to motor cars. Always pulled them apart - couldn't put 'em back, but always extremely interested in how things work.</b>
-> <p><i>Craig Johnston</i></p>
+> <b>My view is that you still, in order to win from the Labour perspective, have to have a strong alliance with business as well as the unions. You have got to be very much in the centre ground on things like public sector reform.</b>
+> <p><i>Tony Blair</i></p>
 
 <br>
