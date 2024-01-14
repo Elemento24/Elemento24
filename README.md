@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He was afflicted by the thought that where Beauty was, nothing ever ran quite straight, which no doubt, was why so many people looked on it as immoral.</b>
-> <p><i>John Galsworthy</i></p>
+> <b>The world can forgive practically anything except people who mind their own business.</b>
+> <p><i>Margaret Mitchell</i></p>
 
 <br>
