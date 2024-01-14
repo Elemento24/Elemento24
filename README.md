@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Before now, I've always taken my mixes out to the car and listened to them in the parking lot. I still do that, but more so now I'm listening to it on the Beat box, and I think people should give it at least a listen and check it out and see what it is.</b>
-> <p><i>Dr. Dre</i></p>
+> <b>Most of my arguments with musicians through the years have had more to do with their attitude about music, or their attitude about their own lives, or their personal responsibility. Music has never really been the big centerpiece of the fight.</b>
+> <p><i>Billy Corgan</i></p>
 
 <br>
