@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a small thing has the power to make you angry, does that not indicate something about your size?</b>
-> <p><i>Sydney J. Harris</i></p>
+> <b>Most works of art, like most wines, ought to be consumed in the district of their fabrication.</b>
+> <p><i>Simone Weil</i></p>
 
 <br>
