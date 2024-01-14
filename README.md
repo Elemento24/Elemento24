@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Failure doesn't mean you are a failure it just means you haven't succeeded yet.</b>
-> <p><i>Robert H. Schuller</i></p>
+> <b>The beauty of independence, departure, actions that rely on themselves.</b>
+> <p><i>Walt Whitman</i></p>
 
 <br>
