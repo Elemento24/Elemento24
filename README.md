@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any authentic work of art must start an argument between the artist and his audience.</b>
-> <p><i>Rebecca West</i></p>
+> <b>I'm so accustomed to being alone.</b>
+> <p><i>Leighton Meester</i></p>
 
 <br>
