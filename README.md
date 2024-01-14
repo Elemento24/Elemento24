@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get appalled when I see good drivers being left on the sidelines because they haven't come up with the half million to a million to put themselves in a competitive car.</b>
-> <p><i>John Surtees</i></p>
+> <b>The whole aspect of cinema and film festivals should be a moment to come together and celebrate art and humanity. It would be a shame if there was such a divide.</b>
+> <p><i>Keanu Reeves</i></p>
 
 <br>
