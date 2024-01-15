@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The English Bible - a book which, if everything else in our language should perish, would alone suffice to show the whole extent of its beauty and power.</b>
-> <p><i>Thomas B. Macaulay</i></p>
+> <b>Man finds it hard to get what he wants, because he does not want the best God finds it hard to give, because He would give the best, and man will not take it.</b>
+> <p><i>George MacDonald</i></p>
 
 <br>
