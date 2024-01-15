@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People criticized me for my photography. They said it's not art.</b>
-> <p><i>David Hockney</i></p>
+> <b>Talent alone won't make you a success. Neither will being in the right place at the right time, unless you are ready. The most important question is: 'Are your ready?'</b>
+> <p><i>Johnny Carson</i></p>
 
 <br>
