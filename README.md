@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really believe you can predict when someone has a great attitude, a real well of talent.</b>
-> <p><i>Taylor Hackford</i></p>
+> <b>Have regular hours for work and play make each day both useful and pleasant, and prove that you understand the worth of time by employing it well. Then youth will be delightful, old age will bring few regrets, and life will become a beautiful success.</b>
+> <p><i>Louisa May Alcott</i></p>
 
 <br>
