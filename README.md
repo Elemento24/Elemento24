@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to get a bad law repealed is to enforce it strictly.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>Time and space - time to be alone, space to move about - these may well become the great scarcities of tomorrow.</b>
+> <p><i>Edwin Way Teale</i></p>
 
 <br>
