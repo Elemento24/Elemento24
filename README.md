@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of us may just, in one-on-one conversations with our family, with our friends, over the back fence with our neighbors, talk about the reality of our lives and realize that we're not alone, that we have a right to be physically safe and emotionally safe in our own homes.</b>
-> <p><i>Patricia Ireland</i></p>
+> <b>When we're on set, we kind of joke around, and when we're rehearsing, we change up the scenes and make each other laugh. We lighten up the mood. The blooper reel is going to be amazing on 'New Moon.'</b>
+> <p><i>Kellan Lutz</i></p>
 
 <br>
