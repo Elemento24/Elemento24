@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not have evil-doers for friends, do not have low people for friends: have virtuous people for friends, have for friends the best of men.</b>
-> <p><i>George Santayana</i></p>
+> <b>Actually, we got signed in November of 2000 with Dreamworks which is the most amazing label. We have friends on other labels and though we are not selling millions of records, yet, they treat us with tons of respect and give us some very good guidance.</b>
+> <p><i>Adam Rich</i></p>
 
 <br>
