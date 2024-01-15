@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When we're on set, we kind of joke around, and when we're rehearsing, we change up the scenes and make each other laugh. We lighten up the mood. The blooper reel is going to be amazing on 'New Moon.'</b>
-> <p><i>Kellan Lutz</i></p>
+> <b>The English Bible - a book which, if everything else in our language should perish, would alone suffice to show the whole extent of its beauty and power.</b>
+> <p><i>Thomas B. Macaulay</i></p>
 
 <br>
