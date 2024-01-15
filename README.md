@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Plant and your spouse plants with you weed and you weed alone.</b>
-> <p><i>Jean-Jacques Rousseau</i></p>
+> <b>Poetry lifts the veil from the hidden beauty of the world, and makes familiar objects be as if they were not familiar.</b>
+> <p><i>Percy Bysshe Shelley</i></p>
 
 <br>
