@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time and space - time to be alone, space to move about - these may well become the great scarcities of tomorrow.</b>
-> <p><i>Edwin Way Teale</i></p>
+> <b>Do not have evil-doers for friends, do not have low people for friends: have virtuous people for friends, have for friends the best of men.</b>
+> <p><i>George Santayana</i></p>
 
 <br>
