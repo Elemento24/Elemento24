@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry lifts the veil from the hidden beauty of the world, and makes familiar objects be as if they were not familiar.</b>
-> <p><i>Percy Bysshe Shelley</i></p>
+> <b>Speak when you are angry - and you'll make the best speech you'll ever regret.</b>
+> <p><i>Laurence J. Peter</i></p>
 
 <br>
