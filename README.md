@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wanted to do two things when I was growing up, about your age. I wanted to play in the NBA, and I wanted to be a businessman after my basketball career was over, and that is what I am doing now.</b>
-> <p><i>Magic Johnson</i></p>
+> <b>At a young age winning is not the most important thing... the important thing is to develop creative and skilled players with good confidence.</b>
+> <p><i>Arsene Wenger</i></p>
 
 <br>
