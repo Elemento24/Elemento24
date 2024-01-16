@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Before 'Schindler's List,' I wouldn't have believed movies had a lot of power for social change.</b>
-> <p><i>Liam Neeson</i></p>
+> <b>Bid, then, the tender light of faith to shine By which alone the mortal heart is led Unto the thinking of the thought divine.</b>
+> <p><i>George Santayana</i></p>
 
 <br>
