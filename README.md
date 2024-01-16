@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What makes the most money for this business? Dead rock stars.</b>
-> <p><i>Courtney Love</i></p>
+> <b>Smart businesses do not look at labor costs alone anymore. They do look at market access, transportation, telecommunications infrastructure and the education and skill level of the workforce, the development of capital and the regulatory market.</b>
+> <p><i>Janet Napolitano</i></p>
 
 <br>
