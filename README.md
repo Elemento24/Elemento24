@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Amazement awaits us at every corner.</b>
-> <p><i>James Broughton</i></p>
+> <b>Anger is seldom without argument but seldom with a good one.</b>
+> <p><i>Lord Halifax</i></p>
 
 <br>
