@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is quite annoying that we have to change the sound we invented just to avoid sounding like people who simply copy us, but... it is flattering and of course challenging.</b>
-> <p><i>Jonathan Davis</i></p>
+> <b>Not for nothing is their motto TGIF - 'Thank God It's Friday.' They live for the weekends, when they can go do what they really want to do.</b>
+> <p><i>Richard Nelson Bolles</i></p>
 
 <br>
