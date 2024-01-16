@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always an observer, even as a child. I could be satisfied to sit in a car for 3 hours and just look at the street go by while my mother went shopping.</b>
-> <p><i>Jonathan Winters</i></p>
+> <b>I don't want to wake up and not truly be enjoying my life and these amazing things around me.</b>
+> <p><i>LeAnn Rimes</i></p>
 
 <br>
