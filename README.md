@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The team architecture means setting up an organization that helps people produce that great work in teams.</b>
-> <p><i>Jay Chiat</i></p>
+> <b>What makes the most money for this business? Dead rock stars.</b>
+> <p><i>Courtney Love</i></p>
 
 <br>
