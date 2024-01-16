@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bid, then, the tender light of faith to shine By which alone the mortal heart is led Unto the thinking of the thought divine.</b>
-> <p><i>George Santayana</i></p>
+> <b>Art has to move you and design does not, unless it's a good design for a bus.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
