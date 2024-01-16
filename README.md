@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to wake up and not truly be enjoying my life and these amazing things around me.</b>
-> <p><i>LeAnn Rimes</i></p>
+> <b>The truth of the matter is, beauty is a specific thing, rare and fleeting. Some of us have it in our teens, 20s and 30s and then lose it most of us have it not at all. And that's perfectly okay. But lying to yourself that you have it when you don't seems to me simple-minded at best and psychotic at worst.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
