@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is seldom without argument but seldom with a good one.</b>
-> <p><i>Lord Halifax</i></p>
+> <b>I am responsible. Although I may not be able to prevent the worst from happening, I am responsible for my attitude toward the inevitable misfortunes that darken life.</b>
+> <p><i>Walter Anderson</i></p>
 
 <br>
