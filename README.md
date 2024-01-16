@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Europe is so well gardened that it resembles a work of art, a scientific theory, a neat metaphysical system. Man has re-created Europe in his own image.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>It is quite annoying that we have to change the sound we invented just to avoid sounding like people who simply copy us, but... it is flattering and of course challenging.</b>
+> <p><i>Jonathan Davis</i></p>
 
 <br>
