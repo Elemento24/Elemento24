@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me, I don't expect to have a really amazing meal each time I dine out. Having a good meal with your loved ones - that's what makes the experience.</b>
-> <p><i>Wolfgang Puck</i></p>
+> <b>Leave the President's family business to him. You will have plenty to do without trying to manage the First Family. They are likely to do fine without your help.</b>
+> <p><i>Donald Rumsfeld</i></p>
 
 <br>
