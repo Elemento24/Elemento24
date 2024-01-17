@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Painting, sculpture and architecture are finished, but the art habit continues.</b>
-> <p><i>Robert Smithson</i></p>
+> <b>Cheerfulness is the best promoter of health and is as friendly to the mind as to the body.</b>
+> <p><i>Joseph Addison</i></p>
 
 <br>
