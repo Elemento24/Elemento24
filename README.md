@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a civilized society, all crimes are likely to be sins, but most sins are not and ought not to be treated as crimes. Man's ultimate responsibility is to God alone.</b>
-> <p><i>Geoffrey Fisher</i></p>
+> <b>I have Graham Greene's telephone number, but I wouldn't dream of using it. I don't seek out writers because we all want to be alone.</b>
+> <p><i>Patricia Highsmith</i></p>
 
 <br>
