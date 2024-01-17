@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and fullness of tone can be achieved by having the whole orchestra play with high clarinets and a carefully selected number of piccolos.</b>
-> <p><i>Gustav Mahler</i></p>
+> <b>There are two ways to extend a business. Take inventory of what you're good at and extend out from your skills. Or determine what your customers need and work backward, even if it requires learning new skills. Kindle is an example of working backward.</b>
+> <p><i>Jeff Bezos</i></p>
 
 <br>
