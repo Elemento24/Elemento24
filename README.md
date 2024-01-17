@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ted Danson is amazing. He's incredible.</b>
-> <p><i>Alison Brie</i></p>
+> <b>Painting, sculpture and architecture are finished, but the art habit continues.</b>
+> <p><i>Robert Smithson</i></p>
 
 <br>
