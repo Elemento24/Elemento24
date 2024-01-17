@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The artist's world is limitless. It can be found anywhere, far from where he lives or a few feet away. It is always on his doorstep.</b>
-> <p><i>Paul Strand</i></p>
+> <b>All the adversity I've had in my life, all my troubles and obstacles, have strengthened me... You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
