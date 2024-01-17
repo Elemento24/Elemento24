@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the adversity I've had in my life, all my troubles and obstacles, have strengthened me... You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you.</b>
-> <p><i>Walt Disney</i></p>
+> <b>When I was working on Eye of the Beholder, I played a character who is so aloof that my whole lifestyle became very aloof. If someone knocked on my door, there was a part of me that went into a rage, because I wanted to be isolated and alone.</b>
+> <p><i>Ashley Judd</i></p>
 
 <br>
