@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was working on Eye of the Beholder, I played a character who is so aloof that my whole lifestyle became very aloof. If someone knocked on my door, there was a part of me that went into a rage, because I wanted to be isolated and alone.</b>
-> <p><i>Ashley Judd</i></p>
+> <b>Focused. I'm a hustler. And my hustle is trying to figure out the best ways to do what I like without having to do much else.</b>
+> <p><i>Mos Def</i></p>
 
 <br>
