@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bullfighting is the only art in which the artist is in danger of death and in which the degree of brilliance in the performance is left to the fighter's honor.</b>
-> <p><i>Ernest Hemingway</i></p>
+> <b>What we've gone through in the last several years has caused some people to question 'Can we trust Microsoft?'</b>
+> <p><i>Steve Ballmer</i></p>
 
 <br>
