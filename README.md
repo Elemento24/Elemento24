@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are going in one second the length of a football field. That means you brain is receiving information from your body what the car is doing physically, bumping, balance, performance.</b>
-> <p><i>Emerson Fittipaldi</i></p>
+> <b>He that will not apply new remedies must expect new evils for time is the greatest innovator.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
