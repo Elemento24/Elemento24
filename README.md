@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Leave the President's family business to him. You will have plenty to do without trying to manage the First Family. They are likely to do fine without your help.</b>
-> <p><i>Donald Rumsfeld</i></p>
+> <b>Ted Danson is amazing. He's incredible.</b>
+> <p><i>Alison Brie</i></p>
 
 <br>
