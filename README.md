@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The artist belongs to his work, not the work to the artist.</b>
-> <p><i>Novalis</i></p>
+> <b>I believe in prayer. It's the best way we have to draw strength from heaven.</b>
+> <p><i>Josephine Baker</i></p>
 
 <br>
