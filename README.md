@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been able to keep my private life separate from my business.</b>
-> <p><i>Ashley Tisdale</i></p>
+> <b>Beauty and fullness of tone can be achieved by having the whole orchestra play with high clarinets and a carefully selected number of piccolos.</b>
+> <p><i>Gustav Mahler</i></p>
 
 <br>
