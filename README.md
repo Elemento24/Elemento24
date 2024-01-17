@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We, as conservative intellectuals, should not be in the business of making excuses for bad parliamentary decisions by Republican leaders in Congress.</b>
-> <p><i>David Frum</i></p>
+> <b>The artist belongs to his work, not the work to the artist.</b>
+> <p><i>Novalis</i></p>
 
 <br>
