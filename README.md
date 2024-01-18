@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art saved me it got me through my depression and self-loathing, back to a place of innocence.</b>
-> <p><i>Jeanette Winterson</i></p>
+> <b>The optimist thinks this is the best of all possible worlds. The pessimist fears it is true.</b>
+> <p><i>J. Robert Oppenheimer</i></p>
 
 <br>
