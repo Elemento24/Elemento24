@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The optimist thinks this is the best of all possible worlds. The pessimist fears it is true.</b>
-> <p><i>J. Robert Oppenheimer</i></p>
+> <b>I conceived in art college at the age of 20, near the end of term.</b>
+> <p><i>Joni Mitchell</i></p>
 
 <br>
