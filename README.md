@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a book out called 'The Beauty Equation' and it discusses how off track we have gone in considering beauty.</b>
-> <p><i>Nigel Barker</i></p>
+> <b>In things to be seen at once, much variety makes confusion, another vice of beauty. In things that are not seen at once, and have no respect one to another, great variety is commendable, provided this variety transgress not the rules of optics and geometry.</b>
+> <p><i>Christopher Wren</i></p>
 
 <br>
