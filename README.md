@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I feel truly wowed by the architecture and the meaning of the architecture if you get lost in it and think about the man hours in the smallest little chapel, and the love involved. God it's fantastic.</b>
-> <p><i>Paul Bettany</i></p>
+> <b>Be open to the amazing changes which are occurring in the field that interest you.</b>
+> <p><i>Leigh Steinberg</i></p>
 
 <br>
