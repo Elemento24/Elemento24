@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always a singer. But I was always focused on being an actor as my trade. Music I do just for me. The movie business is very difficult but the music business is just impossible.</b>
-> <p><i>Jeremy Renner</i></p>
+> <b>If those committed to the quest fail, they will be forgiven. When lost, they will find another way. The moral imperative of humanism is the endeavor alone, whether successful or not, provided the effort is honorable and failure memorable.</b>
+> <p><i>E. O. Wilson</i></p>
 
 <br>
