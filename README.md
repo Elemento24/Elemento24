@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My duty is to try to reach beauty. Cinema is emotion. When you laugh you cry.</b>
-> <p><i>Roberto Benigni</i></p>
+> <b>The sad truth is that without complex business partnerships between African elites and European traders and commercial agents, the slave trade to the New World would have been impossible, at least on the scale it occurred.</b>
+> <p><i>Henry Louis Gates</i></p>
 
 <br>
