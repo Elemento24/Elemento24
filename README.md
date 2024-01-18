@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man, being reasonable, must get drunk the best of life is but intoxication.</b>
-> <p><i>Lord Byron</i></p>
+> <b>But I feel truly wowed by the architecture and the meaning of the architecture if you get lost in it and think about the man hours in the smallest little chapel, and the love involved. God it's fantastic.</b>
+> <p><i>Paul Bettany</i></p>
 
 <br>
