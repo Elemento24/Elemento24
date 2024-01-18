@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Mr. Wilson will have to be the rest of the way alone.</b>
-> <p><i>Flip Wilson</i></p>
+> <b>I have a book out called 'The Beauty Equation' and it discusses how off track we have gone in considering beauty.</b>
+> <p><i>Nigel Barker</i></p>
 
 <br>
