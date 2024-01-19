@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to keep your friends is not to give them away.</b>
-> <p><i>Wilson Mizner</i></p>
+> <b>It takes a lot of courage to release the familiar and seemingly secure, to embrace the new. But there is no real security in what is no longer meaningful. There is more security in the adventurous and exciting, for in movement there is life, and in change there is power.</b>
+> <p><i>Alan Cohen</i></p>
 
 <br>
