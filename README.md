@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What makes the most money for this business? Dead rock stars.</b>
-> <p><i>Courtney Love</i></p>
+> <b>You and I are stuck with the necessity of taking the worst of two evils or none at all. So-I'm taking the immature Democrat as the best of the two. Nixon is impossible.</b>
+> <p><i>Harry S. Truman</i></p>
 
 <br>
