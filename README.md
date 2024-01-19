@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alas, after a certain age every man is responsible for his face.</b>
-> <p><i>Albert Camus</i></p>
+> <b>You have to surround yourself with people who love you and want the best for you.</b>
+> <p><i>Mena Suvari</i></p>
 
 <br>
