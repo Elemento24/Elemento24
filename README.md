@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to surround yourself with people who love you and want the best for you.</b>
-> <p><i>Mena Suvari</i></p>
+> <b>People assume that all artists make for terrible business people, but I'm in complete charge of my own career.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
