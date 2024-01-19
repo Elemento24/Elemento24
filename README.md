@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had a lot of resentment for a while toward Kim Novak. But I don't mind her anymore. She's okay. We've become friends. I even asked her before this trip for some beauty tips.</b>
-> <p><i>Kim Novak</i></p>
+> <b>Beauty is a manifestation of secret natural laws, which otherwise would have been hidden from us forever.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
