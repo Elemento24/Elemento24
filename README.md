@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is a manifestation of secret natural laws, which otherwise would have been hidden from us forever.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.</b>
+> <p><i>Joel Osteen</i></p>
 
 <br>
