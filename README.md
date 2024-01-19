@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I've got my business notions and my sense for that sort of thing from my dad. My dad never had a chance to go to school. He couldn't read and write. But he was so smart. He was just one of those people that could just make the most of anything and everything that he had to work with.</b>
-> <p><i>Dolly Parton</i></p>
+> <b>The best way to keep your friends is not to give them away.</b>
+> <p><i>Wilson Mizner</i></p>
 
 <br>
