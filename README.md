@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It takes a lot of courage to release the familiar and seemingly secure, to embrace the new. But there is no real security in what is no longer meaningful. There is more security in the adventurous and exciting, for in movement there is life, and in change there is power.</b>
-> <p><i>Alan Cohen</i></p>
+> <b>I had a lot of resentment for a while toward Kim Novak. But I don't mind her anymore. She's okay. We've become friends. I even asked her before this trip for some beauty tips.</b>
+> <p><i>Kim Novak</i></p>
 
 <br>
