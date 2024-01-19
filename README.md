@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The flesh endures the storms of the present alone the mind, those of the past and future as well as the present. Gluttony is a lust of the mind.</b>
-> <p><i>Thomas Hobbes</i></p>
+> <b>In days of doubt, in days of dreary musings on my country's fate, you alone are my comfort and support, oh great, powerful, righteous, and free Russian language!</b>
+> <p><i>Ivan Turgenev</i></p>
 
 <br>
