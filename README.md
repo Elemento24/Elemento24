@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You may call God love, you may call God goodness. But the best name for God is compassion.</b>
-> <p><i>Meister Eckhart</i></p>
+> <b>I sincerely feel that beauty largely comes from within.</b>
+> <p><i>Christy Turlington</i></p>
 
 <br>
