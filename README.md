@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sadly, we do a much better job of making people feel guilty than we do of delivering them from the guilt we create. We need to confess this and change our ways.</b>
-> <p><i>Tony Campolo</i></p>
+> <b>This is a fantastic time to be entering the business world, because business is going to change more in the next 10 years than it has in the last 50.</b>
+> <p><i>Bill Gates</i></p>
 
 <br>
