@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>The flesh endures the storms of the present alone the mind, those of the past and future as well as the present. Gluttony is a lust of the mind.</b>
+> <p><i>Thomas Hobbes</i></p>
 
 <br>
