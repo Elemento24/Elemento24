@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People assume that all artists make for terrible business people, but I'm in complete charge of my own career.</b>
-> <p><i>Tori Amos</i></p>
+> <b>There is nothing so stable as change.</b>
+> <p><i>Bob Dylan</i></p>
 
 <br>
