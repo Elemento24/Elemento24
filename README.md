@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the last 20 years of my life, I've had the mantra to do amazing parts with amazing people in amazing projects, so I'm attracted to good story, writing and character and good people. That's what I'm always searching for and I don't think that's ever going to change.</b>
-> <p><i>John Hawkes</i></p>
+> <b>Film is a very young art that is still evolving. Soon, we shall reach a balance between content and technology.</b>
+> <p><i>Catherine Deneuve</i></p>
 
 <br>
