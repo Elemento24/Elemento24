@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Despite the fact that in America we incarcerate more juveniles for life terms than in any other country in the world, the truth is that the vast majority of youth offenders will one day be released. The question is simple and stark. Do we want to help them change or do we want to help them become even more violent and dangerous?</b>
-> <p><i>Ayelet Waldman</i></p>
+> <b>Even in decline, a virtuous man increases the beauty of his behavior. A burning stick, though turned to the ground, has its flame drawn upwards.</b>
+> <p><i>Saskya Pandita</i></p>
 
 <br>
