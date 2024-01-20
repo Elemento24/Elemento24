@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your attitude, not your aptitude, will determine your altitude.</b>
-> <p><i>Zig Ziglar</i></p>
+> <b>It is not in the nature of politics that the best men should be elected. The best men do not want to govern their fellowmen.</b>
+> <p><i>George MacDonald</i></p>
 
 <br>
