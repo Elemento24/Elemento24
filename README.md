@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of it is when you can just show up and hit the notes.</b>
-> <p><i>John Lone</i></p>
+> <b>The art of acceptance is the art of making someone who has just done you a small favor wish that he might have done you a greater one.</b>
+> <p><i>Martin Luther King, Jr.</i></p>
 
 <br>
