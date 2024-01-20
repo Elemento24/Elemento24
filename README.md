@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even in decline, a virtuous man increases the beauty of his behavior. A burning stick, though turned to the ground, has its flame drawn upwards.</b>
-> <p><i>Saskya Pandita</i></p>
+> <b>I think that narrative, fiction filmmaking is the culmination of several art forms: theater, art history, architecture. Whereas doc filmmaking is more pure cinema, like cinema verite is film in its purest form.</b>
+> <p><i>George Hickenlooper</i></p>
 
 <br>
