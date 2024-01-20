@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is Art? It is the response of man's creative soul to the call of the Real.</b>
-> <p><i>Rabindranath Tagore</i></p>
+> <b>You come into the world alone and you go out of the world alone yet it seems to me you are more alone while living than even going and coming.</b>
+> <p><i>Emily Carr</i></p>
 
 <br>
