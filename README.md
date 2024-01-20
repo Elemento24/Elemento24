@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have no time for those who say there is no way Scotland could go it alone. I know first-hand the contribution Scotland and Scots make to Britain's success - so for me there's no question about whether Scotland could be an independent nation.</b>
-> <p><i>David Cameron</i></p>
+> <b>I looked on child rearing not only as a work of love and duty but as a profession that was fully as interesting and challenging as any honorable profession in the world and one that demanded the best that I could bring to it.</b>
+> <p><i>Rose Kennedy</i></p>
 
 <br>
