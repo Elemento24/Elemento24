@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would not change my blest estate for all the world calls good or great.</b>
-> <p><i>Isaac Watts</i></p>
+> <b>I'm very much into the costuming of any character that I portray and it's one of the great things about making movies is it's a collaborative art form so you get all these artists who are looking specifically about for this instance your character's costume and what that might tell about your character.</b>
+> <p><i>Jeff Bridges</i></p>
 
 <br>
