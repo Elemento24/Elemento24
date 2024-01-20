@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm starting to think about things that I want to do, things that are fun. One of them is driving a car like a Porsche. I've driven a lot of cars - sedans, trucks and big family vehicles all year long. But there's nothing like a four-wheel-drive Porsche.</b>
-> <p><i>Kevin O'Leary</i></p>
+> <b>I've been going through photos of my mother, looking back on her life and trying to put it into context. Very few people age gracefully enough to be photographed through their aging.</b>
+> <p><i>Jamie Lee Curtis</i></p>
 
 <br>
