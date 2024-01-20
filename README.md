@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of acceptance is the art of making someone who has just done you a small favor wish that he might have done you a greater one.</b>
-> <p><i>Martin Luther King, Jr.</i></p>
+> <b>The best player I've ever played with was Paul Gascoigne. He had everything. He was amazing.</b>
+> <p><i>Paul Ince</i></p>
 
 <br>
