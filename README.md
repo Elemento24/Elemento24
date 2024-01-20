@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A final word: I am not knowledgeable about the internet. I do not have a computer. I guess that at 74 years of age, I don't have the patience to learn.</b>
-> <p><i>David Wilkerson</i></p>
+> <b>I would not change my blest estate for all the world calls good or great.</b>
+> <p><i>Isaac Watts</i></p>
 
 <br>
