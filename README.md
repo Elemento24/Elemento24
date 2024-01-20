@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not in the nature of politics that the best men should be elected. The best men do not want to govern their fellowmen.</b>
-> <p><i>George MacDonald</i></p>
+> <b>My heart is so light that it's amazing. I get to play all this grief, all this loss, all this disaster and chaos. It's hysterically funny. I am very light.</b>
+> <p><i>Linda Hamilton</i></p>
 
 <br>
