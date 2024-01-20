@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Competence, like truth, beauty, and contact lenses, is in the eye of the beholder.</b>
-> <p><i>Laurence J. Peter</i></p>
+> <b>A final word: I am not knowledgeable about the internet. I do not have a computer. I guess that at 74 years of age, I don't have the patience to learn.</b>
+> <p><i>David Wilkerson</i></p>
 
 <br>
