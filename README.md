@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that narrative, fiction filmmaking is the culmination of several art forms: theater, art history, architecture. Whereas doc filmmaking is more pure cinema, like cinema verite is film in its purest form.</b>
-> <p><i>George Hickenlooper</i></p>
+> <b>I'm starting to think about things that I want to do, things that are fun. One of them is driving a car like a Porsche. I've driven a lot of cars - sedans, trucks and big family vehicles all year long. But there's nothing like a four-wheel-drive Porsche.</b>
+> <p><i>Kevin O'Leary</i></p>
 
 <br>
