@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Film is a very young art that is still evolving. Soon, we shall reach a balance between content and technology.</b>
-> <p><i>Catherine Deneuve</i></p>
+> <b>I have no time for those who say there is no way Scotland could go it alone. I know first-hand the contribution Scotland and Scots make to Britain's success - so for me there's no question about whether Scotland could be an independent nation.</b>
+> <p><i>David Cameron</i></p>
 
 <br>
