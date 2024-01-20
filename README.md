@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best player I've ever played with was Paul Gascoigne. He had everything. He was amazing.</b>
-> <p><i>Paul Ince</i></p>
+> <b>In editing, it's amazing how you choose the in and out points. What you cut on is everything for creating tension. It's amazing how expanding a shot by five seconds can just ruin the tension.</b>
+> <p><i>Sean Durkin</i></p>
 
 <br>
