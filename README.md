@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sureness is something like a neck brace, which we clamp around our lives, hoping to somehow protect ourselves from the frightening, constant whiplash of change. Sadly, the brace doesn't always hold.</b>
-> <p><i>Elizabeth Gilbert</i></p>
+> <b>My favorite thing is to be alone in a room with a blank paper in front of me and the time to fill it.</b>
+> <p><i>Dirk Benedict</i></p>
 
 <br>
