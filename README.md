@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was brought up in the modern world of all the luxury and the highlight of show business. I was born into a Christian home.</b>
-> <p><i>Cat Stevens</i></p>
+> <b>I don't actually own a car.</b>
+> <p><i>Chris Martin</i></p>
 
 <br>
