@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm fascinated with myself and love hearing the sound of my own voice. I'd like to hear what I have to say. A lot of people don't like being alone because they truly don't like themselves, but I love me.</b>
-> <p><i>Gene Simmons</i></p>
+> <b>A technical solution may be defined as one that requires a change only in the techniques of the natural sciences, demanding little or nothing in the way of change in human values or ideas of morality.</b>
+> <p><i>Garrett Hardin</i></p>
 
 <br>
