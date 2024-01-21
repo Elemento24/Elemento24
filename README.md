@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't look my age, I don't feel my age and I don't act my age. To me age is just a number.</b>
-> <p><i>Joan Collins</i></p>
+> <b>I need that aggressive attitude to play my music and more men have that attitude than women.</b>
+> <p><i>Lita Ford</i></p>
 
 <br>
