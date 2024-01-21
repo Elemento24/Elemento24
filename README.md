@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The game of history is usually played by the best and the worst over the heads of the majority in the middle.</b>
-> <p><i>Eric Hoffer</i></p>
+> <b>I am really looking forward to driving another of my father?s car at the show in Rotterdam.</b>
+> <p><i>Nelson Piquet</i></p>
 
 <br>
