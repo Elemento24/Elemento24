@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art can never exist without naked beauty displayed.</b>
-> <p><i>William Blake</i></p>
+> <b>My parents were kind of like me in that they had tons and tons of weird, amazing stuff.</b>
+> <p><i>Jaron Lanier</i></p>
 
 <br>
