@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Government alone cannot solve the problems we deal with in our correctional facilities, treatment centers, homeless shelters and crisis centers - we need our faith-based and community partners.</b>
-> <p><i>Dirk Kempthorne</i></p>
+> <b>I'm fascinated with myself and love hearing the sound of my own voice. I'd like to hear what I have to say. A lot of people don't like being alone because they truly don't like themselves, but I love me.</b>
+> <p><i>Gene Simmons</i></p>
 
 <br>
