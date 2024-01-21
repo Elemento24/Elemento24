@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Tis the last rose of summer Left blooming alone All her lovely companions Are faded and gone.</b>
-> <p><i>Thomas More</i></p>
+> <b>I don't look my age, I don't feel my age and I don't act my age. To me age is just a number.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
