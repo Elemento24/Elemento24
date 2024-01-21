@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people who live in a golden age usually go around complaining how yellow everything looks.</b>
-> <p><i>Randall Jarrell</i></p>
+> <b>Never doubt that a small group of thoughtful, committed citizens can change the world indeed, it's the only thing that ever has.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
