@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very much into the costuming of any character that I portray and it's one of the great things about making movies is it's a collaborative art form so you get all these artists who are looking specifically about for this instance your character's costume and what that might tell about your character.</b>
-> <p><i>Jeff Bridges</i></p>
+> <b>The beauty of voice-over work is that maybe you come in and record once every two weeks for a couple of hours and do a couple episodes a session. It's awesome! You spend an afternoon playing in the booth, and there you have it. It doesn't interfere with much.</b>
+> <p><i>Emmanuelle Chriqui</i></p>
 
 <br>
