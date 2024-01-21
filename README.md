@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never doubt that a small group of thoughtful, committed citizens can change the world indeed, it's the only thing that ever has.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>Meetings are indispensable when you don't want to do anything.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
