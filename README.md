@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am really looking forward to driving another of my father?s car at the show in Rotterdam.</b>
-> <p><i>Nelson Piquet</i></p>
+> <b>'Tis the last rose of summer Left blooming alone All her lovely companions Are faded and gone.</b>
+> <p><i>Thomas More</i></p>
 
 <br>
