@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't actually own a car.</b>
-> <p><i>Chris Martin</i></p>
+> <b>Art evokes the mystery without which the world would not exist.</b>
+> <p><i>Rene Magritte</i></p>
 
 <br>
