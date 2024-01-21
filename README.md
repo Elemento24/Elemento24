@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sweat equity is the most valuable equity there is. Know your business and industry better than anyone else in the world. Love what you do or don't do it.</b>
-> <p><i>Mark Cuban</i></p>
+> <b>The game of history is usually played by the best and the worst over the heads of the majority in the middle.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
