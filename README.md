@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art evokes the mystery without which the world would not exist.</b>
-> <p><i>Rene Magritte</i></p>
+> <b>I have not lost faith in God. I have moments of anger and protest. Sometimes I've been closer to him for that reason.</b>
+> <p><i>Elie Wiesel</i></p>
 
 <br>
