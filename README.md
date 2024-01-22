@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even if I have to stand alone, I will not be afraid to stand alone. I'm going to fight for you. I'm going to fight for what's right. I'm going to fight to hold people accountable.</b>
-> <p><i>Barbara Boxer</i></p>
+> <b>I feel like I have as good a shot as anybody out there and I have gotten close in the past, so why not have the attitude that I can come out and play great tennis and maybe even win this tournament.</b>
+> <p><i>Michael Chang</i></p>
 
 <br>
