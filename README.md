@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let age, not envy, draw wrinkles on thy cheeks.</b>
-> <p><i>Thomas Browne</i></p>
+> <b>All species capable of grasping this fact manage better in the struggle for existence than those which rely upon their own strength alone: the wolf, which hunts in a pack, has a greater chance of survival than the lion, which hunts alone.</b>
+> <p><i>Christian Lous Lange</i></p>
 
 <br>
