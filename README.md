@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All species capable of grasping this fact manage better in the struggle for existence than those which rely upon their own strength alone: the wolf, which hunts in a pack, has a greater chance of survival than the lion, which hunts alone.</b>
-> <p><i>Christian Lous Lange</i></p>
+> <b>Morality comes with the sad wisdom of age, when the sense of curiosity has withered.</b>
+> <p><i>Graham Greene</i></p>
 
 <br>
