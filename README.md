@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A race is a work of art that people can look at and be affected in as many ways they're capable of understanding.</b>
-> <p><i>Steve Prefontaine</i></p>
+> <b>Even if I have to stand alone, I will not be afraid to stand alone. I'm going to fight for you. I'm going to fight for what's right. I'm going to fight to hold people accountable.</b>
+> <p><i>Barbara Boxer</i></p>
 
 <br>
