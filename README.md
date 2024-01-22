@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Courtesy is a silver lining around the dark clouds of civilization it is the best part of refinement and in many ways, an art of heroic beauty in the vast gallery of man's cruelty and baseness.</b>
-> <p><i>Bryant H. McGill</i></p>
+> <b>What makes America amazing is that there have always been men and women of courage who were willing to think more about the future of their children and grandchildren than they did about their own political careers.</b>
+> <p><i>Scott Walker</i></p>
 
 <br>
