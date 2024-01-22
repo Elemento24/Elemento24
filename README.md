@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One man's ways may be as good as another's, but we all like our own best.</b>
-> <p><i>Jane Austen</i></p>
+> <b>The death of my father is probably the biggest thing that I ever faced. Daddy and I were best friends.</b>
+> <p><i>Joel Osteen</i></p>
 
 <br>
