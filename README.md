@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I need that aggressive attitude to play my music and more men have that attitude than women.</b>
-> <p><i>Lita Ford</i></p>
+> <b>Out with stereotypes, feminism proclaims. But stereotypes are the west's stunning sexual personae, the vehicles of art's assault against nature. The moment there is imagination, there is myth.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
