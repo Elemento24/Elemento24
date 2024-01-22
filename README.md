@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Out with stereotypes, feminism proclaims. But stereotypes are the west's stunning sexual personae, the vehicles of art's assault against nature. The moment there is imagination, there is myth.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>One man's ways may be as good as another's, but we all like our own best.</b>
+> <p><i>Jane Austen</i></p>
 
 <br>
