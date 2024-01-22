@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Morality comes with the sad wisdom of age, when the sense of curiosity has withered.</b>
-> <p><i>Graham Greene</i></p>
+> <b>A race is a work of art that people can look at and be affected in as many ways they're capable of understanding.</b>
+> <p><i>Steve Prefontaine</i></p>
 
 <br>
