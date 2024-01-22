@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a limit to the application of democratic methods. You can inquire of all the passengers as to what type of car they like to ride in, but it is impossible to question them as to whether to apply the brakes when the train is at full speed and accident threatens.</b>
-> <p><i>Leon Trotsky</i></p>
+> <b>It's been amazing to watch, because for 'Thor', which was always a mid-selling book, to be in the top ten for every single issue since the reboot is just a great compliment.</b>
+> <p><i>J. Michael Straczynski</i></p>
 
 <br>
