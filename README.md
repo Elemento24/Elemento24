@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Happiness must be cultivated. It is like character. It is not a thing to be safely let alone for a moment, or it will run to weeds.</b>
-> <p><i>Elizabeth Stuart Phelps</i></p>
+> <b>It just seemed too weird to me. I don't know, maybe they were smoking a joint in the car downstairs from their parents' apartment. I had to go that far to put together a scenario of how they could have possibly recognized me.</b>
+> <p><i>Marc Jacobs</i></p>
 
 <br>
