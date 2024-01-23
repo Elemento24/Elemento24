@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fail I alone, in words and deeds? Why, all men strive and who succeeds?</b>
-> <p><i>Robert Browning</i></p>
+> <b>Government 'help' to business is just as disastrous as government persecution... the only way a government can be of service to national prosperity is by keeping its hands off.</b>
+> <p><i>Ayn Rand</i></p>
 
 <br>
