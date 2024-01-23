@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no planning. On the night it is really great, it's euphoria and if it is not so great there is always tomorrow night. That was his attitude.</b>
-> <p><i>Ed McMahon</i></p>
+> <b>Change brings opportunities. On the other hand, change can be confusing.</b>
+> <p><i>Michael Porter</i></p>
 
 <br>
