@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When characters change on screen, it makes you feel better about yourself. You think, 'Oh I change too, I'm constantly becoming a better person.'</b>
-> <p><i>Jason Reitman</i></p>
+> <b>Aging seems to be the only available way to live a long life.</b>
+> <p><i>Kitty O'Neill Collins</i></p>
 
 <br>
