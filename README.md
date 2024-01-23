@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best place to find God is in a garden. You can dig for him there.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>In Britain, like most of the developed world, stem-cell research is regarded as a great opportunity. America will be left behind if it doesn't change policy.</b>
+> <p><i>Stephen Hawking</i></p>
 
 <br>
