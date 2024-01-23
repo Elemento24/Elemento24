@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Aging seems to be the only available way to live a long life.</b>
-> <p><i>Kitty O'Neill Collins</i></p>
+> <b>My love of fine art increased - the more of it I saw, the more of it I wanted to see.</b>
+> <p><i>Paul Getty</i></p>
 
 <br>
