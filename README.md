@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned what I really love is making films, not the film business. I want to be on the set, meeting with writers, I want that freedom. I love it now.</b>
-> <p><i>Harvey Weinstein</i></p>
+> <b>When characters change on screen, it makes you feel better about yourself. You think, 'Oh I change too, I'm constantly becoming a better person.'</b>
+> <p><i>Jason Reitman</i></p>
 
 <br>
