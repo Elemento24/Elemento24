@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Government 'help' to business is just as disastrous as government persecution... the only way a government can be of service to national prosperity is by keeping its hands off.</b>
-> <p><i>Ayn Rand</i></p>
+> <b>No matter how good you are, how brave you are or anything, it comes down to that car so many times. Not every time, but so many times.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
