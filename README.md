@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Britain, like most of the developed world, stem-cell research is regarded as a great opportunity. America will be left behind if it doesn't change policy.</b>
-> <p><i>Stephen Hawking</i></p>
+> <b>Medicine is not only a science it is also an art. It does not consist of compounding pills and plasters it deals with the very processes of life, which must be understood before they may be guided.</b>
+> <p><i>Paracelsus</i></p>
 
 <br>
