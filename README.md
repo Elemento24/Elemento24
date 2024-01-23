@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of the past belongs to the past.</b>
-> <p><i>Margaret Bourke-White</i></p>
+> <b>I learned what I really love is making films, not the film business. I want to be on the set, meeting with writers, I want that freedom. I love it now.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
