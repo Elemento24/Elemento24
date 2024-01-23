@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is produced by the pleasing appearance and good taste of the whole, and by the dimensions of all the parts being duly proportioned to each other.</b>
-> <p><i>Marcus V. Pollio</i></p>
+> <b>In business, you're the Chief Salesman. Create a sense of demand, rather than waiting to have demand.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
