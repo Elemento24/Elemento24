@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes, I did and a lot of my friends who are in the same program as I were very much supportive, and the most important thing they said to me is do not let this interfere with what you have to do in taking car of yourself. That was the most important thing.</b>
-> <p><i>Naomi Campbell</i></p>
+> <b>Things are never quite as scary when you've got a best friend.</b>
+> <p><i>Bill Watterson</i></p>
 
 <br>
