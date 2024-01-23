@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change brings opportunities. On the other hand, change can be confusing.</b>
-> <p><i>Michael Porter</i></p>
+> <b>You cannot control what happens to you, but you can control your attitude toward what happens to you, and in that, you will be mastering change rather than allowing it to master you.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
