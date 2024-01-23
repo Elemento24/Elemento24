@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In business, you're the Chief Salesman. Create a sense of demand, rather than waiting to have demand.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>Growing up in New York has influenced my style so much, and I have an amazing relationship with my stylist, Estee Stanley. We have so much fun with the whole process. She picks out dresses, I try things on and play dress up, and we get creative to see what works.</b>
+> <p><i>Lea Michele</i></p>
 
 <br>
