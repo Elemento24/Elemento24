@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Growing up in New York has influenced my style so much, and I have an amazing relationship with my stylist, Estee Stanley. We have so much fun with the whole process. She picks out dresses, I try things on and play dress up, and we get creative to see what works.</b>
-> <p><i>Lea Michele</i></p>
+> <b>Yes, I did and a lot of my friends who are in the same program as I were very much supportive, and the most important thing they said to me is do not let this interfere with what you have to do in taking car of yourself. That was the most important thing.</b>
+> <p><i>Naomi Campbell</i></p>
 
 <br>
