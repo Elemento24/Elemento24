@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's only when you're alone that you realize where you are. You have nothing to fall back on except your own resources.</b>
-> <p><i>Paul Theroux</i></p>
+> <b>Patience is the best remedy for every trouble.</b>
+> <p><i>Plautus</i></p>
 
 <br>
