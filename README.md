@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let me recommend the best medicine in the world: a long journey, at a mild season, through a pleasant country, in easy stages.</b>
-> <p><i>James Madison</i></p>
+> <b>Character isn't something you were born with and can't change, like your fingerprints. It's something you weren't born with and must take responsibility for forming.</b>
+> <p><i>Jim Rohn</i></p>
 
 <br>
