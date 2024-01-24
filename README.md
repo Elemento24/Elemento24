@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a single thread of attitude, a single direction of flow, that joins our present time to its early burgeoning in Mediterranean civilization.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>I have a fantastic wife, and not only in terms of external beauty. Her priority and mine is our children. That is our choice.</b>
+> <p><i>Luis Figo</i></p>
 
 <br>
