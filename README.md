@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My curiosity and my appetite for evolving as an actor is one of the main components of me still working today in the business.</b>
-> <p><i>Kim Cattrall</i></p>
+> <b>Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over.</b>
+> <p><i>Octavia Butler</i></p>
 
 <br>
