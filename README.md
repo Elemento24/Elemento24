@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a fantastic wife, and not only in terms of external beauty. Her priority and mine is our children. That is our choice.</b>
-> <p><i>Luis Figo</i></p>
+> <b>It's only when you're alone that you realize where you are. You have nothing to fall back on except your own resources.</b>
+> <p><i>Paul Theroux</i></p>
 
 <br>
