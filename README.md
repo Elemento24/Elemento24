@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The absence of flaw in beauty is itself a flaw.</b>
-> <p><i>Havelock Ellis</i></p>
+> <b>I love making people laugh and feel good, and that's awesome and special for me to be able to do that, but there really is nothing like kicking ass whether it's on a major scale, or whether it's in more of a dramatic fashion. Being physical and taking care of business the old-fashioned way is something that I love doing.</b>
+> <p><i>Dwayne Johnson</i></p>
 
 <br>
