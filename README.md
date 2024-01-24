@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of the most amazing human beings on the face of the planet go to sci-fi conventions, although I'm sure a few of them wouldn't admit it.</b>
-> <p><i>Richard Hatch</i></p>
+> <b>I'm not interested in pop art.</b>
+> <p><i>Billy Corgan</i></p>
 
 <br>
