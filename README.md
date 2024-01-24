@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is absolutely impossible to transcend the laws of nature. What can change in historically different circumstances is only the form in which these laws expose themselves.</b>
-> <p><i>Karl Marx</i></p>
+> <b>Disneyland is a work of love. We didn't go into Disneyland just with the idea of making money.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
