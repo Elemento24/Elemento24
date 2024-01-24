@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Disneyland is a work of love. We didn't go into Disneyland just with the idea of making money.</b>
-> <p><i>Walt Disney</i></p>
+> <b>Listen once in a while. It's amazing what you can hear.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
