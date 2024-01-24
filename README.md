@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The English Bible - a book which, if everything else in our language should perish, would alone suffice to show the whole extent of its beauty and power.</b>
-> <p><i>Thomas B. Macaulay</i></p>
+> <b>My curiosity and my appetite for evolving as an actor is one of the main components of me still working today in the business.</b>
+> <p><i>Kim Cattrall</i></p>
 
 <br>
