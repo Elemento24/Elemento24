@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is man's expression of his joy in labor.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>Let me recommend the best medicine in the world: a long journey, at a mild season, through a pleasant country, in easy stages.</b>
+> <p><i>James Madison</i></p>
 
 <br>
