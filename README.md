@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hope and change? We're not doing that anymore. They're doing attack and blame. And so, I just think people are going to see through this. They want real leadership. They want us to get this country on the right track.</b>
-> <p><i>Paul Ryan</i></p>
+> <b>Sally Field looks amazing in general, never mind her age! She's a phenomenally talented actress and has had a career spanning so many decades.</b>
+> <p><i>Alison Sweeney</i></p>
 
 <br>
