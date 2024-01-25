@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of love is largely the art of persistence.</b>
-> <p><i>Albert Ellis</i></p>
+> <b>Employers and business leaders need people who can think for themselves - who can take initiative and be the solution to problems.</b>
+> <p><i>Stephen Covey</i></p>
 
 <br>
