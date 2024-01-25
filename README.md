@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thing that's tricky is sometimes the best voices - just because someone hits the big notes and sounds amazing - it doesn't necessarily mean they make the greatest artists.</b>
-> <p><i>Kara DioGuardi</i></p>
+> <b>I can't satisfy myself with just trying to tie all of my imagination into music, especially when music is not appreciated as an art form as much as it used to be.</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
