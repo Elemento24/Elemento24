@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All change is not growth, as all movement is not forward.</b>
-> <p><i>Ellen Glasgow</i></p>
+> <b>Beauty, more than bitterness, makes the heart break.</b>
+> <p><i>Sara Teasdale</i></p>
 
 <br>
