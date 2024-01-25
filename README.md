@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A face to lose youth for, to occupy age With the dream of, meet death with.</b>
-> <p><i>Robert Browning</i></p>
+> <b>The architecture of our future is not only unfinished the scaffolding has hardly gone up.</b>
+> <p><i>George Lamming</i></p>
 
 <br>
