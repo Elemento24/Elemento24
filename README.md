@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Patience is the best remedy for every trouble.</b>
-> <p><i>Plautus</i></p>
+> <b>In its most limited sense, modern, art would seem to concern itself only with the technical innovations of the period.</b>
+> <p><i>Edward Hopper</i></p>
 
 <br>
