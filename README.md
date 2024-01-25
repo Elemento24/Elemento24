@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our judgments judge us, and nothing reveals us, exposes our weaknesses, more ingeniously than the attitude of pronouncing upon our fellows.</b>
-> <p><i>Paul Valery</i></p>
+> <b>My dear brothers, take note of this: Everyone should be quick to listen, slow to speak and slow to become angry, for man's anger does not bring about the righteous life that God desires.</b>
+> <p><i>Beverly Sills</i></p>
 
 <br>
