@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sally Field looks amazing in general, never mind her age! She's a phenomenally talented actress and has had a career spanning so many decades.</b>
-> <p><i>Alison Sweeney</i></p>
+> <b>A face to lose youth for, to occupy age With the dream of, meet death with.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
