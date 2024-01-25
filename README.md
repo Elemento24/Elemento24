@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't satisfy myself with just trying to tie all of my imagination into music, especially when music is not appreciated as an art form as much as it used to be.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>The art of love is largely the art of persistence.</b>
+> <p><i>Albert Ellis</i></p>
 
 <br>
