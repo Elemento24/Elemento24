@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Employers and business leaders need people who can think for themselves - who can take initiative and be the solution to problems.</b>
-> <p><i>Stephen Covey</i></p>
+> <b>You may choose your words like a connoisseur, And polish it up with art, But the word that sways, and stirs, and stays, Is the word that comes from the heart.</b>
+> <p><i>Ella Wheeler Wilcox</i></p>
 
 <br>
