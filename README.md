@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fashion is architecture: it is a matter of proportions.</b>
-> <p><i>Coco Chanel</i></p>
+> <b>The thing that's tricky is sometimes the best voices - just because someone hits the big notes and sounds amazing - it doesn't necessarily mean they make the greatest artists.</b>
+> <p><i>Kara DioGuardi</i></p>
 
 <br>
