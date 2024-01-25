@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In its most limited sense, modern, art would seem to concern itself only with the technical innovations of the period.</b>
-> <p><i>Edward Hopper</i></p>
+> <b>Our judgments judge us, and nothing reveals us, exposes our weaknesses, more ingeniously than the attitude of pronouncing upon our fellows.</b>
+> <p><i>Paul Valery</i></p>
 
 <br>
