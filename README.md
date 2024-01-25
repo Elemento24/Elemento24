@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Jealousy is no more than feeling alone against smiling enemies.</b>
-> <p><i>Elizabeth Bowen</i></p>
+> <b>All change is not growth, as all movement is not forward.</b>
+> <p><i>Ellen Glasgow</i></p>
 
 <br>
