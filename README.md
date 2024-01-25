@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The architecture of our future is not only unfinished the scaffolding has hardly gone up.</b>
-> <p><i>George Lamming</i></p>
+> <b>Fashion is architecture: it is a matter of proportions.</b>
+> <p><i>Coco Chanel</i></p>
 
 <br>
