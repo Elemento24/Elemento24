@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You may choose your words like a connoisseur, And polish it up with art, But the word that sways, and stirs, and stays, Is the word that comes from the heart.</b>
-> <p><i>Ella Wheeler Wilcox</i></p>
+> <b>I didn't get my first car until I was 22. It was a BMW 1602 and now I've got it back I'm waiting to restore it.</b>
+> <p><i>Jay Kay</i></p>
 
 <br>
