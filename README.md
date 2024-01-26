@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first time I rode a bike I was four or five. I crashed into the back of a car.</b>
-> <p><i>David Millar</i></p>
+> <b>I don't think I'm really open to having Washington change me.</b>
+> <p><i>Rand Paul</i></p>
 
 <br>
