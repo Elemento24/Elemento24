@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A car to pick me up every day, a chair with my name on it, everybody being very polite... what can you do except sit back and watch it all, try to take it all in?</b>
-> <p><i>Charles Dance</i></p>
+> <b>When I grew up there wasn't air-conditioning or anything of that nature, and this old car had a wall thickness of about ten inches. So we had a little warmer house in the winter and a little cooler in the summer.</b>
+> <p><i>Merle Haggard</i></p>
 
 <br>
