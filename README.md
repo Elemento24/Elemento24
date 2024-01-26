@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think I'm really open to having Washington change me.</b>
-> <p><i>Rand Paul</i></p>
+> <b>It's amazing when you're playing to a crowd who barely understands English but they're singing parts of your song back to you.</b>
+> <p><i>Jason Derulo</i></p>
 
 <br>
