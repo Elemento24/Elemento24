@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing when you're playing to a crowd who barely understands English but they're singing parts of your song back to you.</b>
-> <p><i>Jason Derulo</i></p>
+> <b>The biggest danger to the European Union comes not from those who advocate change, but from those who denounce new thinking as heresy. In its long history Europe has experience of heretics who turned out to have a point.</b>
+> <p><i>David Cameron</i></p>
 
 <br>
