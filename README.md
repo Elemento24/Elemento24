@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In day-to-day commerce, television is not so much interested in the business of communications as in the business of delivering audiences to advertisers. People are the merchandise, not the shows. The shows are merely the bait.</b>
-> <p><i>Les Brown</i></p>
+> <b>The deferring of anger is the best antidote to anger.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
