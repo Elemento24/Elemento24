@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>True art is characterized by an irresistible urge in the creative artist.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>There's something pleasing about large, well-lit spaces. I love that dealers are willing to take massive chances in order to give this much room to their artists. Most of all, I love that more galleries showing more art gives more artists a shot.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
