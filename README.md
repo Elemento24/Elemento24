@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One ever feels his twoness - an American, a Negro two souls, two thoughts, two unreconciled strivings two warring ideals in one dark body, whose dogged strength alone keeps it from being torn asunder.</b>
-> <p><i>W. E. B. Du Bois</i></p>
+> <b>To write the lives of the great in separating them from their works necessarily ends by above all stressing their pettiness, because it is in their work that they have put the best of themselves.</b>
+> <p><i>Simone Weil</i></p>
 
 <br>
