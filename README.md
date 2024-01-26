@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For my birthday this year, my girlfriends - who knew I'd just inherited my dad's turntable - gave me a carton of albums like 'Blue Kentucky Girl,' by Emmylou Harris, and 'Off the Wall,' by Michael Jackson. It's all stuff we grew up with. I mean, you can't have a music collection without Prince's 'Purple Rain' - it just can't be done!</b>
-> <p><i>Connie Britton</i></p>
+> <b>I've made club songs, and I've made radio songs, and I've made the car songs.</b>
+> <p><i>T-Pain</i></p>
 
 <br>
