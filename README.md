@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The deferring of anger is the best antidote to anger.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>I started the site when I was 19. I didn't know much about business back then.</b>
+> <p><i>Mark Zuckerberg</i></p>
 
 <br>
