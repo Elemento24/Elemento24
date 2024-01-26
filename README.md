@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can hype a questionable product for a little while, but you'll never build an enduring business.</b>
-> <p><i>Victor Kiam</i></p>
+> <b>One ever feels his twoness - an American, a Negro two souls, two thoughts, two unreconciled strivings two warring ideals in one dark body, whose dogged strength alone keeps it from being torn asunder.</b>
+> <p><i>W. E. B. Du Bois</i></p>
 
 <br>
