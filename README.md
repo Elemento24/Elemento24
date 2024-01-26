@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art, as far as it is able, follows nature, as a pupil imitates his master thus your art must be, as it were, God's grandchild.</b>
-> <p><i>Dante Alighieri</i></p>
+> <b>Love alone is capable of uniting living beings in such a way as to complete and fulfill them, for it alone takes them and joins them by what is deepest in themselves.</b>
+> <p><i>Pierre Teilhard de Chardin</i></p>
 
 <br>
