@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've made club songs, and I've made radio songs, and I've made the car songs.</b>
-> <p><i>T-Pain</i></p>
+> <b>True art is characterized by an irresistible urge in the creative artist.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
