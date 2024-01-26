@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The automobile engine will come, and then I will consider my life's work complete.</b>
-> <p><i>Rudolf Diesel</i></p>
+> <b>The heart never grows better by age I fear rather worse, always harder. A young liar will be an old one, and a young knave will only be a greater knave as he grows older.</b>
+> <p><i>Lord Chesterfield</i></p>
 
 <br>
