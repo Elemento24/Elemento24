@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's something pleasing about large, well-lit spaces. I love that dealers are willing to take massive chances in order to give this much room to their artists. Most of all, I love that more galleries showing more art gives more artists a shot.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>You can hype a questionable product for a little while, but you'll never build an enduring business.</b>
+> <p><i>Victor Kiam</i></p>
 
 <br>
