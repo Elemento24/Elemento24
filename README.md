@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Further, Take heed that you faithfully perform the business you have to do in the world, from a regard to the commands of God and not from an ambitious desire of being esteemed better than others.</b>
-> <p><i>David Brainerd</i></p>
+> <b>Becoming a mother cannot help but change things. An author's life is reflected in their writing, whether they want it to be or not, and parenthood is one of the biggest life changes there is.</b>
+> <p><i>Sarah Zettel</i></p>
 
 <br>
