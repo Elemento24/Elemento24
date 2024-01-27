@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would've been intrigued by being a film director. I would've been intrigued by politics. I thought about architecture.</b>
-> <p><i>Charlie Rose</i></p>
+> <b>I have believed the best of every man. And find that to believe is enough to make a bad man show him at his best, or even a good man swings his lantern higher.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
