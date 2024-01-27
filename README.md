@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People quit on jobs. They quit on marriages. They quit on school. There's an immediacy of this day and age that doesn't lend itself to being committed to anything.</b>
-> <p><i>Emily Blunt</i></p>
+> <b>Criticism is the windows and chandeliers of art: it illuminates the enveloping darkness in which art might otherwise rest only vaguely discernible, and perhaps altogether unseen.</b>
+> <p><i>George Jean Nathan</i></p>
 
 <br>
