@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are through changing, you are through.</b>
-> <p><i>Bruce Barton</i></p>
+> <b>Take those chances and you can achieve greatness, whereas if you go conservative, you'll never know. I truly believe what doesn't kill you makes you stronger. Even if you fail, learning and moving on is sometimes the best thing.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
