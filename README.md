@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not just in commerce but in the world of ideas too our age is putting on a veritable clearance sale. Everything can be had so dirt cheap that one begins to wonder whether in the end anyone will want to make a bid.</b>
-> <p><i>Soren Kierkegaard</i></p>
+> <b>Even crushed against his brother in the Tube the average Englishman pretends desperately that he is alone.</b>
+> <p><i>Germaine Greer</i></p>
 
 <br>
