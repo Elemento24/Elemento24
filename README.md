@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of acting consists in keeping people from coughing.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>My grandparents got married at a very young age, and a lot of what I think about marriage is based on their relationship. I watched them over the years and saw how they dealt with everything together, as a team.</b>
+> <p><i>Kyle Chandler</i></p>
 
 <br>
