@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is an element of anger among women who've been raped. There's certainly a major element of humiliation. But it really does seem like a medical condition of shock and horror.</b>
-> <p><i>Nicholas D. Kristof</i></p>
+> <b>A moment comes, which comes but rarely in history, when we step out from the old to the new when an age ends and when the soul of a nation long suppressed finds utterance.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
