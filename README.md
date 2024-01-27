@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Criticism is the windows and chandeliers of art: it illuminates the enveloping darkness in which art might otherwise rest only vaguely discernible, and perhaps altogether unseen.</b>
-> <p><i>George Jean Nathan</i></p>
+> <b>100 million iphones don't lie. What an amazing man. He is the apple of all of our i's. We have an i everything and its all so amazing.</b>
+> <p><i>Billy Bush</i></p>
 
 <br>
