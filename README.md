@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is through art, and through art only, that we can realise our perfection.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>People of art should never get married and have children, because it's a selfish experience.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
