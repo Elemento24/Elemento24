@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Loving a child doesn't mean giving in to all his whims to love him is to bring out the best in him, to teach him to love what is difficult.</b>
-> <p><i>Nadia Boulanger</i></p>
+> <b>People quit on jobs. They quit on marriages. They quit on school. There's an immediacy of this day and age that doesn't lend itself to being committed to anything.</b>
+> <p><i>Emily Blunt</i></p>
 
 <br>
