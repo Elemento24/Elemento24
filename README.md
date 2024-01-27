@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My grandparents got married at a very young age, and a lot of what I think about marriage is based on their relationship. I watched them over the years and saw how they dealt with everything together, as a team.</b>
-> <p><i>Kyle Chandler</i></p>
+> <b>It begins and ends with money. It's absurd in this day and age when we need so much money for education, health, for people, that a $100 million dollars can be spent on a film. It's obscene.</b>
+> <p><i>Kathleen Turner</i></p>
 
 <br>
