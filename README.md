@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love alone is capable of uniting living beings in such a way as to complete and fulfill them, for it alone takes them and joins them by what is deepest in themselves.</b>
-> <p><i>Pierre Teilhard de Chardin</i></p>
+> <b>The only thing harder than leaving show business is coming back.</b>
+> <p><i>Dave Chappelle</i></p>
 
 <br>
