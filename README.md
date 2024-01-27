@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There weren't any astronauts until I was about 10. Yuri Gagarin went into space right around my 10th birthday.</b>
-> <p><i>John L. Phillips</i></p>
+> <b>Loving a child doesn't mean giving in to all his whims to love him is to bring out the best in him, to teach him to love what is difficult.</b>
+> <p><i>Nadia Boulanger</i></p>
 
 <br>
