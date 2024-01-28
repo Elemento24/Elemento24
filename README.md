@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is only skin deep, and the world is full of thin skinned people.</b>
-> <p><i>Richard Armour</i></p>
+> <b>Inner beauty should be the most important part of improving one's self.</b>
+> <p><i>Priscilla Presley</i></p>
 
 <br>
