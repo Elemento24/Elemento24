@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like the idea of accessibility, coming from a lower-middle-class background myself, I feel like beauty and products should be accessible to all women over the world.</b>
-> <p><i>Diane Kruger</i></p>
+> <b>I would like to attend college in the future when I have time. I have always been interested in architecture, so perhaps I would pursue a degree in that or business.</b>
+> <p><i>James Maslow</i></p>
 
 <br>
