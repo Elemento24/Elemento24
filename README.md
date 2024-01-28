@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With just about every player in Australia, his whole goal and ambition is to play for Australia. That's why they're playing first class cricket. It's just a different attitude.</b>
-> <p><i>Shane Warne</i></p>
+> <b>The herd instinct among forecasters makes sheep look like independent thinkers.</b>
+> <p><i>Edgar R. Fiedler</i></p>
 
 <br>
