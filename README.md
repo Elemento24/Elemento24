@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We were really grown up for our age and it was an incredible special band.</b>
-> <p><i>Joan Jett</i></p>
+> <b>No heirloom of humankind captures the past as do art and language.</b>
+> <p><i>Theodore Bikel</i></p>
 
 <br>
