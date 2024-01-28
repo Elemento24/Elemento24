@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When angry count to ten before you speak. If very angry, count to one hundred.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>I lived the true American dream, because I was able to pursue what I set as my goals at a very young age.</b>
+> <p><i>Mario Andretti</i></p>
 
 <br>
