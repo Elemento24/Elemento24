@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you work alone, you need to socialize at some level.</b>
-> <p><i>Jeffery Deaver</i></p>
+> <b>When angry count to ten before you speak. If very angry, count to one hundred.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
