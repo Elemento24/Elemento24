@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I lived the true American dream, because I was able to pursue what I set as my goals at a very young age.</b>
-> <p><i>Mario Andretti</i></p>
+> <b>I love vintage shopping, I think it's really fun. And I love the feeling of finding the most amazing piece for less.</b>
+> <p><i>Emma Roberts</i></p>
 
 <br>
