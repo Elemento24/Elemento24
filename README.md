@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Young women from a very young age are taught that life will be easier if you can just turn on the charming smile and say very little and be complacent and docile and sweet.</b>
-> <p><i>Amber Heard</i></p>
+> <b>The average session takes about one to two hours. It's totally amazing because when a person breathes, they go through one stage of relaxation after another, and every stage releases tension.</b>
+> <p><i>Leonard Orr</i></p>
 
 <br>
