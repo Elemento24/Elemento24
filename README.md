@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Philosophy begins in wonder. And, at the end, when philosophic thought has done its best, the wonder remains.</b>
-> <p><i>Alfred North Whitehead</i></p>
+> <b>Old age is a special problem for me because I've never been able to shed the mental image I have of myself - a lad of about 19.</b>
+> <p><i>E. B. White</i></p>
 
 <br>
