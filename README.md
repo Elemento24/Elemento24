@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The buck stops with the guy who signs the checks.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>Beauty is only skin deep, and the world is full of thin skinned people.</b>
+> <p><i>Richard Armour</i></p>
 
 <br>
