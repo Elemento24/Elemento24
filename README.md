@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The average session takes about one to two hours. It's totally amazing because when a person breathes, they go through one stage of relaxation after another, and every stage releases tension.</b>
-> <p><i>Leonard Orr</i></p>
+> <b>Philosophy begins in wonder. And, at the end, when philosophic thought has done its best, the wonder remains.</b>
+> <p><i>Alfred North Whitehead</i></p>
 
 <br>
