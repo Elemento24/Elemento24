@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The herd instinct among forecasters makes sheep look like independent thinkers.</b>
-> <p><i>Edgar R. Fiedler</i></p>
+> <b>We were really grown up for our age and it was an incredible special band.</b>
+> <p><i>Joan Jett</i></p>
 
 <br>
