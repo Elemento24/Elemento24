@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is a special problem for me because I've never been able to shed the mental image I have of myself - a lad of about 19.</b>
-> <p><i>E. B. White</i></p>
+> <b>The buck stops with the guy who signs the checks.</b>
+> <p><i>Rupert Murdoch</i></p>
 
 <br>
