@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I needed to be in the bush. There I find solitude and beauty and purity and focus. That's where my heart lies.</b>
-> <p><i>Mark Burnett</i></p>
+> <b>Great art picks up where nature ends.</b>
+> <p><i>Marc Chagall</i></p>
 
 <br>
