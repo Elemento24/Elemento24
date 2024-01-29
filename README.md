@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing one can do when it's raining is to let it rain.</b>
-> <p><i>Henry Wadsworth Longfellow</i></p>
+> <b>I'm learning a lot about myself being alone, and doing what I'm doing.</b>
+> <p><i>Chantal Kreviazuk</i></p>
 
 <br>
