@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel like writing a book there's always a version in your head that's an amazing version, but then you write the version that you can write.</b>
-> <p><i>Karen Thompson Walker</i></p>
+> <b>Victorian architecture in the United States was copied straight from England.</b>
+> <p><i>Stephen Gardiner</i></p>
 
 <br>
