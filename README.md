@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So here's the question: Without a change in leadership, why would the next four years be any different from the last four years?</b>
-> <p><i>Paul Ryan</i></p>
+> <b>The best thing one can do when it's raining is to let it rain.</b>
+> <p><i>Henry Wadsworth Longfellow</i></p>
 
 <br>
