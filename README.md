@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The past itself, as historical change continues to accelerate, has become the most surreal of subjects - making it possible... to see a new beauty in what is vanishing.</b>
-> <p><i>Susan Sontag</i></p>
+> <b>On the stage, you alone hold the key, and on the night you have to trust that the director has inspired you enough to take the material and run with it.</b>
+> <p><i>Greta Scacchi</i></p>
 
 <br>
