@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No heirloom of humankind captures the past as do art and language.</b>
-> <p><i>Theodore Bikel</i></p>
+> <b>There are elements of intrinsic beauty in the simplification of a house built on the log cabin idea.</b>
+> <p><i>Gustav Stickley</i></p>
 
 <br>
