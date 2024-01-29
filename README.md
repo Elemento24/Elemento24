@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody was playing the soprano saxophone and certainly nobody was trying to do anything with it. So I was all alone. I didn't know that at first.</b>
-> <p><i>Steve Lacy</i></p>
+> <b>Success is peace of mind which is a direct result of self-satisfaction in knowing you did your best to become the best you are capable of becoming.</b>
+> <p><i>John Wooden</i></p>
 
 <br>
