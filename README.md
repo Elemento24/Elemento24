@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At 13, when I was a runaway, I was taken in by the most amazing drag queens in Portland, Ore. We didn't always know where our next meal was coming from, but there was so much camaraderie and love. Not to mention, those girls could paint a face, and I learned how because of them.</b>
-> <p><i>Rose McGowan</i></p>
+> <b>Character isn't something you were born with and can't change, like your fingerprints. It's something you weren't born with and must take responsibility for forming.</b>
+> <p><i>Jim Rohn</i></p>
 
 <br>
