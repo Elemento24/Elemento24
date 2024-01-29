@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great art picks up where nature ends.</b>
-> <p><i>Marc Chagall</i></p>
+> <b>Age steals away all things, even the mind.</b>
+> <p><i>Virgil</i></p>
 
 <br>
