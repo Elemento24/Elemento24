@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What reader wants to be told what attitude to strike?</b>
-> <p><i>Ian Mcewan</i></p>
+> <b>So here's the question: Without a change in leadership, why would the next four years be any different from the last four years?</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
