@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We do not look in our great cities for our best morality.</b>
-> <p><i>Jane Austen</i></p>
+> <b>I needed to be in the bush. There I find solitude and beauty and purity and focus. That's where my heart lies.</b>
+> <p><i>Mark Burnett</i></p>
 
 <br>
