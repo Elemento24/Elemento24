@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Victorian architecture in the United States was copied straight from England.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>Usually when people are sad, they don't do anything. They just cry over their condition. But when they get angry, they bring about a change.</b>
+> <p><i>James Russell Lowell</i></p>
 
 <br>
