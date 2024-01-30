@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man really knows about other human beings. The best he can do is to suppose that they are like himself.</b>
-> <p><i>John Steinbeck</i></p>
+> <b>The beauty of a main title is that you establish your main theme and maybe a bit of your secondary theme. You plant the seed that you're going to go water later in the score. And so, having that removed just made it so much more difficult.</b>
+> <p><i>Danny Elfman</i></p>
 
 <br>
