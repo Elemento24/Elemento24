@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.</b>
-> <p><i>Paul Getty</i></p>
+> <b>I have a fantastic wife, and not only in terms of external beauty. Her priority and mine is our children. That is our choice.</b>
+> <p><i>Luis Figo</i></p>
 
 <br>
