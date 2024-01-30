@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obscenity, which is ever blasphemy against the divine beauty in life, is a monster for which the corruption of society forever brings forth new food, which it devours in secret.</b>
-> <p><i>Percy Bysshe Shelley</i></p>
+> <b>I look away at car crashes, and I know people who look away at car crashes, because it makes us uncomfortable to watch other people in pain.</b>
+> <p><i>John Mayer</i></p>
 
 <br>
