@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a fantastic wife, and not only in terms of external beauty. Her priority and mine is our children. That is our choice.</b>
-> <p><i>Luis Figo</i></p>
+> <b>I went to a rare live Van Dyke show and met him there. And then he came to a show of mine and we spoke back stage. The third time was at Brian Wilson's birthday party.</b>
+> <p><i>Matthew Sweet</i></p>
 
 <br>
