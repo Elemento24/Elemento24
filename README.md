@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is impossible, as impossible as to raise the dead, to restore anything that has ever been great or beautiful in architecture. That which I have insisted upon as the life of the whole, that spirit which is given only by the hand and eye of the workman, can never be recalled.</b>
-> <p><i>John Ruskin</i></p>
+> <b>But I feel truly wowed by the architecture and the meaning of the architecture if you get lost in it and think about the man hours in the smallest little chapel, and the love involved. God it's fantastic.</b>
+> <p><i>Paul Bettany</i></p>
 
 <br>
