@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So, you know, parenting is a very intimate and amazing experience and one of the best experiences of my life.</b>
-> <p><i>Uma Thurman</i></p>
+> <b>I am shocked by the easy attitude of many in the media towards disclosing our Nation's secrets.</b>
+> <p><i>Todd Tiahrt</i></p>
 
 <br>
