@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am shocked by the easy attitude of many in the media towards disclosing our Nation's secrets.</b>
-> <p><i>Todd Tiahrt</i></p>
+> <b>No man really knows about other human beings. The best he can do is to suppose that they are like himself.</b>
+> <p><i>John Steinbeck</i></p>
 
 <br>
