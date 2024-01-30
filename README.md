@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody was playing the soprano saxophone and certainly nobody was trying to do anything with it. So I was all alone. I didn't know that at first.</b>
-> <p><i>Steve Lacy</i></p>
+> <b>I liked the way they treated the first, second, and third place finishers equally. It was an amazing year. I only entered two song contests this year I won one and placed second in the other. And I entered each of them a day or two before the deadline.</b>
+> <p><i>Arthur Godfrey</i></p>
 
 <br>
