@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The right to be let alone is indeed the beginning of all freedoms.</b>
-> <p><i>William O. Douglas</i></p>
+> <b>So, you know, parenting is a very intimate and amazing experience and one of the best experiences of my life.</b>
+> <p><i>Uma Thurman</i></p>
 
 <br>
