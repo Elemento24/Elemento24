@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was raised in Chicago and I guess that was one of the special breeding grounds for gangsters of all colors. That was the Detroit of the gangster world. The car industry was thugs.</b>
-> <p><i>Quincy Jones</i></p>
+> <b>The right to be let alone is indeed the beginning of all freedoms.</b>
+> <p><i>William O. Douglas</i></p>
 
 <br>
