@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When we dream alone it is only a dream, but when many dream together it is the beginning of a new reality.</b>
-> <p><i>Friedensreich Hundertwasser</i></p>
+> <b>Nobody was playing the soprano saxophone and certainly nobody was trying to do anything with it. So I was all alone. I didn't know that at first.</b>
+> <p><i>Steve Lacy</i></p>
 
 <br>
