@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>100 million iphones don't lie. What an amazing man. He is the apple of all of our i's. We have an i everything and its all so amazing.</b>
-> <p><i>Billy Bush</i></p>
+> <b>Man, I hate to get depressing on you, but I don't have a game. I'm so alone, so depressed, so dark, no.</b>
+> <p><i>Jason Schwartzman</i></p>
 
 <br>
