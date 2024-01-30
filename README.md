@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I liked the way they treated the first, second, and third place finishers equally. It was an amazing year. I only entered two song contests this year I won one and placed second in the other. And I entered each of them a day or two before the deadline.</b>
-> <p><i>Arthur Godfrey</i></p>
+> <b>It is impossible, as impossible as to raise the dead, to restore anything that has ever been great or beautiful in architecture. That which I have insisted upon as the life of the whole, that spirit which is given only by the hand and eye of the workman, can never be recalled.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
