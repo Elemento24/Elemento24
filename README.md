@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My business doesn't keep me warm at night.</b>
-> <p><i>Bethenny Frankel</i></p>
+> <b>The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.</b>
+> <p><i>Paul Getty</i></p>
 
 <br>
