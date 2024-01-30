@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went to a rare live Van Dyke show and met him there. And then he came to a show of mine and we spoke back stage. The third time was at Brian Wilson's birthday party.</b>
-> <p><i>Matthew Sweet</i></p>
+> <b>I think my best work is when I'm kind of in charge.</b>
+> <p><i>Chris Rock</i></p>
 
 <br>
