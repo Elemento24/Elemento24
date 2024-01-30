@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best cure for the body is a quiet mind.</b>
-> <p><i>Napoleon Bonaparte</i></p>
+> <b>When we dream alone it is only a dream, but when many dream together it is the beginning of a new reality.</b>
+> <p><i>Friedensreich Hundertwasser</i></p>
 
 <br>
