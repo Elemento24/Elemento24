@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success is peace of mind which is a direct result of self-satisfaction in knowing you did your best to become the best you are capable of becoming.</b>
-> <p><i>John Wooden</i></p>
+> <b>I got to work with Jennifer Tilly, she was amazing. Such, such a smart actress.</b>
+> <p><i>April Bowlby</i></p>
 
 <br>
