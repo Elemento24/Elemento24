@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wasn't very good about juggling family and my career. I was interested in who was coming to the children's birthday party, what my son was writing. I was thinking about Legos.</b>
-> <p><i>Jill Clayburgh</i></p>
+> <b>When you jump for joy, beware that no one moves the ground from beneath your feet.</b>
+> <p><i>Stanislaw Lec</i></p>
 
 <br>
