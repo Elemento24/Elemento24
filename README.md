@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest advances of civilization, whether in architecture or painting, in science and literature, in industry or agriculture, have never come from centralized government.</b>
-> <p><i>Milton Friedman</i></p>
+> <b>What I've enjoyed most, though, is meeting people who have a real interest in food and sharing ideas with them. Good food is a global thing and I find that there is always something new and amazing to learn - I love it!</b>
+> <p><i>Jamie Oliver</i></p>
 
 <br>
