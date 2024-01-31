@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Smiling is definitely one of the best beauty remedies. If you have a good sense of humor and a good approach to life, that's beautiful.</b>
-> <p><i>Rashida Jones</i></p>
+> <b>I have a resistance to change in things that I feel comfortable with and that I'm used to.</b>
+> <p><i>Dennis Quaid</i></p>
 
 <br>
