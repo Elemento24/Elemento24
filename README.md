@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just believe that the feeling of wonder is amazing. I am pushing myself as far as I can humanly push myself... I can only hope for the best and expect the worse.</b>
-> <p><i>David Blaine</i></p>
+> <b>I wasn't very good about juggling family and my career. I was interested in who was coming to the children's birthday party, what my son was writing. I was thinking about Legos.</b>
+> <p><i>Jill Clayburgh</i></p>
 
 <br>
