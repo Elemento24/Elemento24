@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An architect's most useful tools are an eraser at the drafting board, and a wrecking bar at the site.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>But those musics do not address the larger kind of architecture in time that classical music does, whatever each one of us knows that classical music must mean.</b>
+> <p><i>Michael Tilson Thomas</i></p>
 
 <br>
