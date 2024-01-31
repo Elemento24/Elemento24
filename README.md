@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age does not bring you wisdom, age brings you wrinkles.</b>
-> <p><i>Estelle Getty</i></p>
+> <b>I just believe that the feeling of wonder is amazing. I am pushing myself as far as I can humanly push myself... I can only hope for the best and expect the worse.</b>
+> <p><i>David Blaine</i></p>
 
 <br>
