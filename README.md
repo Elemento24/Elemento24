@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a libel to say that I use my newspapers to support my other business interests. The fact is, I haven't got any other business interests.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>A good government may, indeed, redress the grievances of an injured people but a strong people can alone build up a great nation.</b>
+> <p><i>Thomas Francis Meagher</i></p>
 
 <br>
