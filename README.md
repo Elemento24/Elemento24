@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are always the same age inside.</b>
-> <p><i>Gertrude Stein</i></p>
+> <b>If you don't drink, smoke, or drive a car, you're a tax evader.</b>
+> <p><i>Thomas S. Foley</i></p>
 
 <br>
