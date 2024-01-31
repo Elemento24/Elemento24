@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having played many roles of scientific intellect I do have an empathy for that world. It's been hard on me because flying the Enterprise for seven years in Star Trek and sitting in Cerebro in X-men has led people to believe that I know what I'm talking about. But I'm still trying to work out how to operate the air conditioning unit on my car.</b>
-> <p><i>Patrick Stewart</i></p>
+> <b>The greatest advances of civilization, whether in architecture or painting, in science and literature, in industry or agriculture, have never come from centralized government.</b>
+> <p><i>Milton Friedman</i></p>
 
 <br>
