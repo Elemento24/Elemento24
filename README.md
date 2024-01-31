@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you write a novel alone you sit and you weave a little narrative. And it's O.K., but it's of no account.</b>
-> <p><i>V. S. Naipaul</i></p>
+> <b>Age does not bring you wisdom, age brings you wrinkles.</b>
+> <p><i>Estelle Getty</i></p>
 
 <br>
