@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fame and stuff like that is all very cool, but at the end of the day, we're all human beings. Although what I do is incredibly surreal and fun and amazing and I'm really grateful for it, I don't believe my own press release, do you know what I mean?</b>
-> <p><i>Tom Hardy</i></p>
+> <b>An architect's most useful tools are an eraser at the drafting board, and a wrecking bar at the site.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
