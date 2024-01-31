@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't drink, smoke, or drive a car, you're a tax evader.</b>
-> <p><i>Thomas S. Foley</i></p>
+> <b>We need to become good citizens in the global village, instead of competing. What are we competing for - to drive more cars, eat more steaks? That will destroy the world.</b>
+> <p><i>Yuan T. Lee</i></p>
 
 <br>
