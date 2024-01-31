@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We need to become good citizens in the global village, instead of competing. What are we competing for - to drive more cars, eat more steaks? That will destroy the world.</b>
-> <p><i>Yuan T. Lee</i></p>
+> <b>Having played many roles of scientific intellect I do have an empathy for that world. It's been hard on me because flying the Enterprise for seven years in Star Trek and sitting in Cerebro in X-men has led people to believe that I know what I'm talking about. But I'm still trying to work out how to operate the air conditioning unit on my car.</b>
+> <p><i>Patrick Stewart</i></p>
 
 <br>
