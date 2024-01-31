@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A good government may, indeed, redress the grievances of an injured people but a strong people can alone build up a great nation.</b>
-> <p><i>Thomas Francis Meagher</i></p>
+> <b>Few women, I fear, have had such reason as I have to think the long sad years of youth were worth living for the sake of middle age.</b>
+> <p><i>Dwight D. Eisenhower</i></p>
 
 <br>
