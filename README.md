@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get a lot of the ideas when I'm resting - either when I'm meditating or getting some kind of work done on my back, like physical therapy or acupuncture. That's where I get my best ideas, maybe because I'm balancing my body.</b>
-> <p><i>Katy Perry</i></p>
+> <b>Thomas Jefferson once said, 'We should never judge a president by his age, only by his works.' And ever since he told me that, I stopped worrying.</b>
+> <p><i>Ronald Reagan</i></p>
 
 <br>
