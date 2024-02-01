@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Such is the state of life, that none are happy but by the anticipation of change: the change itself is nothing when we have made it, the next wish is to change again.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>One of the most important things to remember about infant care is: don't change diapers in midstream.</b>
+> <p><i>Don Marquis</i></p>
 
 <br>
