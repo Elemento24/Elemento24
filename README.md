@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a resistance to change in things that I feel comfortable with and that I'm used to.</b>
-> <p><i>Dennis Quaid</i></p>
+> <b>Those who visit foreign nations, but associate only with their own country-men, change their climate, but not their customs. They see new meridians, but the same men and with heads as empty as their pockets, return home with traveled bodies, but untravelled minds.</b>
+> <p><i>Charles Caleb Colton</i></p>
 
 <br>
