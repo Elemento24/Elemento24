@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who visit foreign nations, but associate only with their own country-men, change their climate, but not their customs. They see new meridians, but the same men and with heads as empty as their pockets, return home with traveled bodies, but untravelled minds.</b>
-> <p><i>Charles Caleb Colton</i></p>
+> <b>I get a lot of the ideas when I'm resting - either when I'm meditating or getting some kind of work done on my back, like physical therapy or acupuncture. That's where I get my best ideas, maybe because I'm balancing my body.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
