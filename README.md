@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up in a family where we weren't allowed to talk about beauty or to put any emphasis on physical appearance.</b>
-> <p><i>Pam Grier</i></p>
+> <b>By all means use some time to be alone.</b>
+> <p><i>Edward Young</i></p>
 
 <br>
