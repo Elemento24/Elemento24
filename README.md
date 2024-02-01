@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You must take personal responsibility. You cannot change the circumstances, the seasons, or the wind, but you can change yourself. That is something you have charge of.</b>
-> <p><i>Jim Rohn</i></p>
+> <b>We emphasize that we believe in change because we were born of it, we have lived by it, we prospered and grew great by it. So the status quo has never been our god, and we ask no one else to bow down before it.</b>
+> <p><i>Carl T. Rowan</i></p>
 
 <br>
