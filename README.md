@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're old, don't try to change yourself, change your environment.</b>
-> <p><i>B. F. Skinner</i></p>
+> <b>My attitude is, do as much as I can while I'm free. And if I'm arrested I'll still do as much as I can.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
