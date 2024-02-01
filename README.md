@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude is, do as much as I can while I'm free. And if I'm arrested I'll still do as much as I can.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>I'm flatchested, I'm short, I'm brunette, I have droopy eyes, and so people have a hard time casting me as a 'beauty.'</b>
+> <p><i>Selma Blair</i></p>
 
 <br>
