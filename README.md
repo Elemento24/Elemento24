@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My sister and I shared a bedroom our entire lives and I believe she discovered the Beatles when she was about 11 and I'm four years younger. So from the age of 7 until 17 we had nothing but Beatles paraphernalia in our room, even those little stuffed Beatles that went on stands that are dressed as the Sgt. Pepper band.</b>
-> <p><i>Christina Ricci</i></p>
+> <b>Many believe - and I believe - that I have been designated for this work by God. In spite of my old age, I do not want to give it up I work out of love for God and I put all my hope in Him.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
