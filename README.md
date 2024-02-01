@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'll tell you, Quentin Tarantino really writes the most amazing dialogue.</b>
-> <p><i>Christopher Walken</i></p>
+> <b>I grew up in a family where we weren't allowed to talk about beauty or to put any emphasis on physical appearance.</b>
+> <p><i>Pam Grier</i></p>
 
 <br>
