@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Thomas Jefferson once said, 'We should never judge a president by his age, only by his works.' And ever since he told me that, I stopped worrying.</b>
-> <p><i>Ronald Reagan</i></p>
+> <b>Time changes everything except something within us which is always surprised by change.</b>
+> <p><i>Thomas Hardy</i></p>
 
 <br>
