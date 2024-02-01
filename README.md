@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm flatchested, I'm short, I'm brunette, I have droopy eyes, and so people have a hard time casting me as a 'beauty.'</b>
-> <p><i>Selma Blair</i></p>
+> <b>I don't feel old. I don't feel anything till noon. That's when it's time for my nap.</b>
+> <p><i>Bob Hope</i></p>
 
 <br>
