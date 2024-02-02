@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have the best government that money can buy.</b>
-> <p><i>Mark Twain</i></p>
+> <b>To be able to endure odium is the first art to be learned by those who aspire to power.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
