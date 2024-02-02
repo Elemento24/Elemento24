@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing what you can accomplish if you do not care who gets the credit.</b>
-> <p><i>Harry S. Truman</i></p>
+> <b>Morality is simply the attitude we adopt towards people whom we personally dislike.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
