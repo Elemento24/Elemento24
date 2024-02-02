@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My objection to Liberalism is this that it is the introduction into the practical business of life of the highest kind namely, politics of philosophical ideas instead of political principles.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>It is amazing what you can accomplish if you do not care who gets the credit.</b>
+> <p><i>Harry S. Truman</i></p>
 
 <br>
