@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time, in general, has always been a central obsession of mine - what it does to people, how it can constitute a plot all on its own. So naturally, I am interested in old age.</b>
-> <p><i>Anne Tyler</i></p>
+> <b>I really liked the helicopter pilot in 'Dawn of the Dead', when he gets bitten and comes out of the elevator. That guy was amazing. He did this incredible walk that we didn't even know about until we started shooting.</b>
+> <p><i>George A. Romero</i></p>
 
 <br>
