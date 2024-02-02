@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be able to endure odium is the first art to be learned by those who aspire to power.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>A car to pick me up every day, a chair with my name on it, everybody being very polite... what can you do except sit back and watch it all, try to take it all in?</b>
+> <p><i>Charles Dance</i></p>
 
 <br>
