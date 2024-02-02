@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really liked the helicopter pilot in 'Dawn of the Dead', when he gets bitten and comes out of the elevator. That guy was amazing. He did this incredible walk that we didn't even know about until we started shooting.</b>
-> <p><i>George A. Romero</i></p>
+> <b>Wit is more necessary than beauty and I think no young woman ugly that has it, and no handsome woman agreeable without it.</b>
+> <p><i>William Wycherley</i></p>
 
 <br>
