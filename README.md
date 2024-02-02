@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is the reflex of the business and industrial world.</b>
-> <p><i>Emma Goldman</i></p>
+> <b>When I was seventeen, I worked as a counsellor at a co-ed sleep-away camp for eight weeks. I loved it but it could be harrowing - it was far too much responsibility for someone my age.</b>
+> <p><i>Harlan Coben</i></p>
 
 <br>
