@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am at that age when you panic at the slightest thing.</b>
-> <p><i>Rupert Everett</i></p>
+> <b>The artist alone sees spirits. But after he has told of their appearing to him, everybody sees them.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
