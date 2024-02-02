@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At my age flowers scare me.</b>
-> <p><i>George Burns</i></p>
+> <b>I don't even know how to use a parking meter, let alone a phone box.</b>
+> <p><i>Princess Diana</i></p>
 
 <br>
