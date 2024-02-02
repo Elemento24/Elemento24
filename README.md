@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I tell you, having girls has made me a much better man. I have friends who are fathers, but they only have boys, and they have the same attitude toward women they always had, you know? And I don't play that... My girls, you mess with them? I will bury you underground.</b>
-> <p><i>Mark Wahlberg</i></p>
+> <b>All I want to know is that I can keep this house for the rest of my days and I want to make good music... and have the odd sports car in the garage, obviously!</b>
+> <p><i>Jay Kay</i></p>
 
 <br>
