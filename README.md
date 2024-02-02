@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We've always described our sound as a bit more guitar driven than normal pop music. Kind of Pink in a boy band form. We've heard a few people say that so now we use it. I think Pink is amazing person to be compared to.</b>
-> <p><i>Liam Payne</i></p>
+> <b>Abhorrence of apartheid is a moral attitude, not a policy.</b>
+> <p><i>Edward Heath</i></p>
 
 <br>
