@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think, at a child's birth, if a mother could ask a fairy godmother to endow it with the most useful gift, that gift should be curiosity.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>Aging seems to be the only available way to live a long life.</b>
+> <p><i>Kitty O'Neill Collins</i></p>
 
 <br>
