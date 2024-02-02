@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A car to pick me up every day, a chair with my name on it, everybody being very polite... what can you do except sit back and watch it all, try to take it all in?</b>
-> <p><i>Charles Dance</i></p>
+> <b>No matter how loud the stadium is, once you're on that field and that offense walks up to the line, it's silent. You can only hear the guys on the field. It's amazing how much concentration you can have when it's required and how powerful your mind is to give it to you.</b>
+> <p><i>Michael Strahan</i></p>
 
 <br>
