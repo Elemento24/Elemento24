@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All I want to know is that I can keep this house for the rest of my days and I want to make good music... and have the odd sports car in the garage, obviously!</b>
-> <p><i>Jay Kay</i></p>
+> <b>We have the best government that money can buy.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
