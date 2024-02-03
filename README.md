@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wit is more necessary than beauty and I think no young woman ugly that has it, and no handsome woman agreeable without it.</b>
-> <p><i>William Wycherley</i></p>
+> <b>It is the glory and good of Art, That Art remains the one way possible Of speaking truth, to mouths like mine at least.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
