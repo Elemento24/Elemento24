@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents were what I like to call proper musical fans. Lots of Sondheim was played in the car.</b>
-> <p><i>Daniel Radcliffe</i></p>
+> <b>While one finds company in himself and his pursuits, he cannot feel old, no matter what his years may be.</b>
+> <p><i>Amos Bronson Alcott</i></p>
 
 <br>
