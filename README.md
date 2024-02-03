@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Right actions in the future are the best apologies for bad actions in the past.</b>
-> <p><i>Tryon Edwards</i></p>
+> <b>I've been in California for about 15 years now. You're always in your car and insulated. I miss New York so much.</b>
+> <p><i>Jimmy Smits</i></p>
 
 <br>
