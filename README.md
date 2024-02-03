@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the glory and good of Art, That Art remains the one way possible Of speaking truth, to mouths like mine at least.</b>
-> <p><i>Robert Browning</i></p>
+> <b>My parents were what I like to call proper musical fans. Lots of Sondheim was played in the car.</b>
+> <p><i>Daniel Radcliffe</i></p>
 
 <br>
