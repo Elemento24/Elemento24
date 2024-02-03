@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We should often feel ashamed of our best actions if the world could see all the motives which produced them.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>I like to be alone so I can write. But focus can hurt you. I don't want to be some stress casualty in early middle age.</b>
+> <p><i>James Ellroy</i></p>
 
 <br>
