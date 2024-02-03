@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The moment you cheat for the sake of beauty, you know you're an artist.</b>
-> <p><i>David Hockney</i></p>
+> <b>What would be ugly in a garden constitutes beauty in a mountain.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
