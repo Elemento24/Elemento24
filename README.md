@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While one finds company in himself and his pursuits, he cannot feel old, no matter what his years may be.</b>
-> <p><i>Amos Bronson Alcott</i></p>
+> <b>The moment you cheat for the sake of beauty, you know you're an artist.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
