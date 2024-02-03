@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, when a great band is playing together, it's amazing for me.</b>
-> <p><i>John Oates</i></p>
+> <b>Right actions in the future are the best apologies for bad actions in the past.</b>
+> <p><i>Tryon Edwards</i></p>
 
 <br>
