@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What would be ugly in a garden constitutes beauty in a mountain.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>My business doesn't keep me warm at night.</b>
+> <p><i>Bethenny Frankel</i></p>
 
 <br>
