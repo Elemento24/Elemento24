@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been in California for about 15 years now. You're always in your car and insulated. I miss New York so much.</b>
-> <p><i>Jimmy Smits</i></p>
+> <b>Some people have such a talent for making the best of a bad situation that they go around creating bad situations so they can make the best of them.</b>
+> <p><i>Jean Kerr</i></p>
 
 <br>
