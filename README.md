@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only that thing is free which exists by the necessities of its own nature, and is determined in its actions by itself alone.</b>
-> <p><i>Baruch Spinoza</i></p>
+> <b>To me, when a great band is playing together, it's amazing for me.</b>
+> <p><i>John Oates</i></p>
 
 <br>
