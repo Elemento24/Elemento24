@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to sell yourself to others is first to sell the others to yourself.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>You have to stick out the toughness of the business and form relationships with the people in it.</b>
+> <p><i>Rocco DiSpirito</i></p>
 
 <br>
