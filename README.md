@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to stick out the toughness of the business and form relationships with the people in it.</b>
-> <p><i>Rocco DiSpirito</i></p>
+> <b>Art is subject to arbitrary fashion.</b>
+> <p><i>Kary Mullis</i></p>
 
 <br>
