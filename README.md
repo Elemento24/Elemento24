@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great designers seldom make great advertising men, because they get overcome by the beauty of the picture - and forget that merchandise must be sold.</b>
-> <p><i>James Randolph Adams</i></p>
+> <b>I did that Dior Couture 60th anniversary show in July. It took so long to get ready, I think I would have rather been watching.</b>
+> <p><i>Linda Evangelista</i></p>
 
 <br>
