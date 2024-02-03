@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vengeance is not the point change is. But the trouble is that in most people's minds the thought of victory and the thought of punishing the enemy coincide.</b>
-> <p><i>Barbara Deming</i></p>
+> <b>Toyota was the first to put a commercial fuel cell powered car on the road, and I have no doubt that Toyota will continue to be in the front lines in the development of competitive fuel cell vehicles.</b>
+> <p><i>Maurice Strong</i></p>
 
 <br>
