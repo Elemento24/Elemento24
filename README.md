@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My daughter Lila loves the smell of gasoline - she always says, 'Mummy, keep the door open,' when I'm filling up the car. I've heard it is one of the most preferred scents in the world - maybe that's something to study for my next fragrance!</b>
-> <p><i>Kate Moss</i></p>
+> <b>I do like athletes as they have amazing self-discipline.</b>
+> <p><i>Seal</i></p>
 
 <br>
