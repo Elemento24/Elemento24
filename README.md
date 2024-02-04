@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd like to talk about free markets. Information in the computer age is the last genuine free market left on earth except those free markets where indigenous people are still surviving. And that's basically becoming limited.</b>
-> <p><i>Russell Means</i></p>
+> <b>The difference between utility and utility plus beauty is the difference between telephone wires and the spider web.</b>
+> <p><i>Edwin Way Teale</i></p>
 
 <br>
