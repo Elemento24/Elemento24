@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For what the horse does under compulsion, as Simon also observes, is done without understanding and there is no beauty in it either, any more than if one should whip and spur a dancer.</b>
-> <p><i>Xenophon</i></p>
+> <b>It was really fun being in Tara's trailer, working on my lines. Tara is such an amazing actress. She's so good at what she does. I learned a lot from watching her.</b>
+> <p><i>Carson Daly</i></p>
 
 <br>
