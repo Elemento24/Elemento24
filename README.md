@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was really fun being in Tara's trailer, working on my lines. Tara is such an amazing actress. She's so good at what she does. I learned a lot from watching her.</b>
-> <p><i>Carson Daly</i></p>
+> <b>Our main business is not to see what lies dimly at a distance, but to do what lies clearly at hand.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
