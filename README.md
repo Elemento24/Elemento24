@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What other people think about me is not my business.</b>
-> <p><i>Michael J. Fox</i></p>
+> <b>I'd like to talk about free markets. Information in the computer age is the last genuine free market left on earth except those free markets where indigenous people are still surviving. And that's basically becoming limited.</b>
+> <p><i>Russell Means</i></p>
 
 <br>
