@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why does a woman work ten years to change a man's habits and then complain that he's not the man she married?</b>
-> <p><i>Barbra Streisand</i></p>
+> <b>For what the horse does under compulsion, as Simon also observes, is done without understanding and there is no beauty in it either, any more than if one should whip and spur a dancer.</b>
+> <p><i>Xenophon</i></p>
 
 <br>
