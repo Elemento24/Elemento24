@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm most comfortable in my birthday suit.</b>
-> <p><i>Amanda Seyfried</i></p>
+> <b>Why does a woman work ten years to change a man's habits and then complain that he's not the man she married?</b>
+> <p><i>Barbra Streisand</i></p>
 
 <br>
