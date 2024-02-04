@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you ever have the good fortune to meet Tippi Hedren, she's an amazing woman. You can't quite believe she is the age she is.</b>
-> <p><i>Toby Jones</i></p>
+> <b>At my age, I don't think anyone is untouched by cancer.</b>
+> <p><i>Bryan Cranston</i></p>
 
 <br>
