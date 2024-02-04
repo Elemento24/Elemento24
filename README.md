@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The difference between utility and utility plus beauty is the difference between telephone wires and the spider web.</b>
-> <p><i>Edwin Way Teale</i></p>
+> <b>Beauty is indeed a good gift of God but that the good may not think it a great good, God dispenses it even to the wicked.</b>
+> <p><i>Saint Augustine</i></p>
 
 <br>
