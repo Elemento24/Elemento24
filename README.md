@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As an actor you have to wait for someone to cast you, so you're relying on the business.</b>
-> <p><i>Mia Wasikowska</i></p>
+> <b>If you ever have the good fortune to meet Tippi Hedren, she's an amazing woman. You can't quite believe she is the age she is.</b>
+> <p><i>Toby Jones</i></p>
 
 <br>
