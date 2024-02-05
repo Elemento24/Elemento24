@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change in all things is sweet.</b>
-> <p><i>Aristotle</i></p>
+> <b>Let the great world spin for ever down the ringing grooves of change.</b>
+> <p><i>Alfred Lord Tennyson</i></p>
 
 <br>
