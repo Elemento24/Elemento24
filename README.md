@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wars spring from unseen and generally insignificant causes, the first outbreak being often but an explosion of anger.</b>
-> <p><i>Thucydides</i></p>
+> <b>Law is not a profession at all, but rather a business service station and repair shop.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
