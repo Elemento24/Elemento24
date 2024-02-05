@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing else so destroys the power to stand alone as the habit of leaning upon others. If you lean, you will never be strong or original. Stand alone or bury your ambition to be somebody in the world.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>There is no planning. On the night it is really great, it's euphoria and if it is not so great there is always tomorrow night. That was his attitude.</b>
+> <p><i>Ed McMahon</i></p>
 
 <br>
