@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm gonna be making records anyway, even if I had to sell 'em out of the trunk of my car. I'm that kind of musician and singer.</b>
-> <p><i>Dolly Parton</i></p>
+> <b>The Border Ballads, for instance, and the Robin Hood Ballads, clearly suppose a state of society which is nothing but a very circumscribed and not very important heroic age.</b>
+> <p><i>Lascelles Abercrombie</i></p>
 
 <br>
