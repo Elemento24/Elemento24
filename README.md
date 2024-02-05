@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think you have to feel comfortable with your car. You have to go into turn one, every lap, with confidence. You have to be sure of yourself and your equipment.</b>
-> <p><i>Danica Patrick</i></p>
+> <b>I just like art. I get pure pleasure from it. I have a lot of wonderful paintings, and every time I look at them I see something different.</b>
+> <p><i>Jack Nicholson</i></p>
 
 <br>
