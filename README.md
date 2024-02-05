@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude determines the altitude of life.</b>
-> <p><i>Edwin Louis Cole</i></p>
+> <b>Change in all things is sweet.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
