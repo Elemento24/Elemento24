@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All of Koons's best art - the encased vacuum cleaners, the stainless-steel Rabbit (the late-twentieth century's signature work of Simulationist sculpture), the amazing gleaming Balloon Dog, and the cast-iron re-creation of a Civil War mortar exhibited last month at the Armory - has simultaneously flaunted extreme realism, idealism, and fantasy.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Your performance depends on your people. Select the best, train them and back them. When errors occur, give sharper guidance. If errors persist or if the fit feels wrong, help them move on. The country cannot afford amateur hour in the White House.</b>
+> <p><i>Donald Rumsfeld</i></p>
 
 <br>
