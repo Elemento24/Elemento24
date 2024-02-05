@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just like art. I get pure pleasure from it. I have a lot of wonderful paintings, and every time I look at them I see something different.</b>
-> <p><i>Jack Nicholson</i></p>
+> <b>I wrote a screenplay for a 'Sweet Valley High' adaptation, and it's really amazing to me how many women who are my age have responded to the idea and are excited about the movie.</b>
+> <p><i>Diablo Cody</i></p>
 
 <br>
