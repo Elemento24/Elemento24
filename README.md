@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Abstraction brings the world into more complex, variable relations it can extract beauty, alternative topographies, ugliness, and intense actualities from seeming nothingness.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>To work in architecture you are so much involved with society, with politics, with bureaucrats. It's a very complicated process to do large projects. You start to see the society, how it functions, how it works. Then you have a lot of criticism about how it works.</b>
+> <p><i>Ai Weiwei</i></p>
 
 <br>
