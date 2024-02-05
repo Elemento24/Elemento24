@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me, the best times are always going to be the most intense, the ones with the highest highs and the lowest lows.</b>
-> <p><i>Fiona Apple</i></p>
+> <b>Nothing else so destroys the power to stand alone as the habit of leaning upon others. If you lean, you will never be strong or original. Stand alone or bury your ambition to be somebody in the world.</b>
+> <p><i>Orison Swett Marden</i></p>
 
 <br>
