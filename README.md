@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Presents don't really mean much to me. I don't want to sound mawkish, but - it was the realization that I have a great many people in my life who really love me, and who I really love.</b>
-> <p><i>Gabriel Byrne</i></p>
+> <b>Abstraction brings the world into more complex, variable relations it can extract beauty, alternative topographies, ugliness, and intense actualities from seeming nothingness.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
