@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let the great world spin for ever down the ringing grooves of change.</b>
-> <p><i>Alfred Lord Tennyson</i></p>
+> <b>Since I'm always working, my best holiday memories are definitely when I can just go home and spend time with my family.</b>
+> <p><i>Chris Brown</i></p>
 
 <br>
