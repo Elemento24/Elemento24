@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To work in architecture you are so much involved with society, with politics, with bureaucrats. It's a very complicated process to do large projects. You start to see the society, how it functions, how it works. Then you have a lot of criticism about how it works.</b>
-> <p><i>Ai Weiwei</i></p>
+> <b>Especially in the car ride to and from gym. I find myself spacing out a lot, just visualizing what the Olympics would be like and just having such great role models.</b>
+> <p><i>Aly Raisman</i></p>
 
 <br>
