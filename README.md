@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Especially in the car ride to and from gym. I find myself spacing out a lot, just visualizing what the Olympics would be like and just having such great role models.</b>
-> <p><i>Aly Raisman</i></p>
+> <b>Building art is a synthesis of life in materialised form. We should try to bring in under the same hat not a splintered way of thinking, but all in harmony together.</b>
+> <p><i>Alvar Aalto</i></p>
 
 <br>
