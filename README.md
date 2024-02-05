@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since I'm always working, my best holiday memories are definitely when I can just go home and spend time with my family.</b>
-> <p><i>Chris Brown</i></p>
+> <b>I think you have to feel comfortable with your car. You have to go into turn one, every lap, with confidence. You have to be sure of yourself and your equipment.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
