@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Border Ballads, for instance, and the Robin Hood Ballads, clearly suppose a state of society which is nothing but a very circumscribed and not very important heroic age.</b>
-> <p><i>Lascelles Abercrombie</i></p>
+> <b>Wars spring from unseen and generally insignificant causes, the first outbreak being often but an explosion of anger.</b>
+> <p><i>Thucydides</i></p>
 
 <br>
