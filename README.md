@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A change in the weather is sufficient to recreate the world and ourselves.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>Beauty, of course, is the most important requirement and the paramount asset of the applicant.</b>
+> <p><i>Florenz Ziegfeld</i></p>
 
 <br>
