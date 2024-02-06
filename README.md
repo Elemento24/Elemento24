@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is not an inspirational business, it's a rational procedure to do sensible and hopefully beautiful things that's all.</b>
-> <p><i>Harry Seidler</i></p>
+> <b>When so many are lonely as seem to be lonely, it would be inexcusably selfish to be lonely alone.</b>
+> <p><i>Tennessee Williams</i></p>
 
 <br>
