@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a system of philosophy it is not like the Tower of Babel, so daring its high aim as to seek a shelter against God's anger but it is like a pyramid poised on its apex.</b>
-> <p><i>Adam Sedgwick</i></p>
+> <b>Love built on beauty, soon as beauty, dies.</b>
+> <p><i>John Donne</i></p>
 
 <br>
