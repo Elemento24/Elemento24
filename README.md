@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a fountain of youth: it is your mind, your talents, the creativity you bring to your life and the lives of people you love. When you learn to tap this source, you will truly have defeated age.</b>
-> <p><i>Sophia Loren</i></p>
+> <b>One keeps forgetting old age up to the very brink of the grave.</b>
+> <p><i>Sidonie Gabrielle Colette</i></p>
 
 <br>
