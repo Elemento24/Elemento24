@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love having my birthday at Australia Zoo.</b>
-> <p><i>Bindi Irwin</i></p>
+> <b>Time, which alone makes the reputation of men, ends by making their defects respectable.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
