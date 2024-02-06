@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your performance depends on your people. Select the best, train them and back them. When errors occur, give sharper guidance. If errors persist or if the fit feels wrong, help them move on. The country cannot afford amateur hour in the White House.</b>
-> <p><i>Donald Rumsfeld</i></p>
+> <b>A change in the weather is sufficient to recreate the world and ourselves.</b>
+> <p><i>Marcel Proust</i></p>
 
 <br>
