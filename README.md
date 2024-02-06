@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty, of course, is the most important requirement and the paramount asset of the applicant.</b>
-> <p><i>Florenz Ziegfeld</i></p>
+> <b>The wisdom of age: don't stop walking.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
