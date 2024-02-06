@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would like to say to people, open your eyes and find beauty where you normally don't expect it.</b>
-> <p><i>Jean Paul Gaultier</i></p>
+> <b>The greatest ability in business is to get along with others and to influence their actions.</b>
+> <p><i>John Hancock</i></p>
 
 <br>
