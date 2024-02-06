@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For a Jewish Puritan of the middle class, the novel is serious, the novel is work, the novel is conscientious application why, the novel is practically the retail business all over again.</b>
-> <p><i>Howard Nemerov</i></p>
+> <b>After all, it is the divinity within that makes the divinity without and I have been more fascinated by a woman of talent and intelligence, though deficient in personal charms, than I have been by the most regular beauty.</b>
+> <p><i>Washington Irving</i></p>
 
 <br>
