@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When so many are lonely as seem to be lonely, it would be inexcusably selfish to be lonely alone.</b>
-> <p><i>Tennessee Williams</i></p>
+> <b>I'm a huge Wes Anderson fan I would faint if I met him, let alone got to work with him.</b>
+> <p><i>Emma Roberts</i></p>
 
 <br>
