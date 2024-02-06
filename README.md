@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I try to give people a different way of looking at their surroundings. That's art to me.</b>
-> <p><i>Maya Lin</i></p>
+> <b>As a system of philosophy it is not like the Tower of Babel, so daring its high aim as to seek a shelter against God's anger but it is like a pyramid poised on its apex.</b>
+> <p><i>Adam Sedgwick</i></p>
 
 <br>
