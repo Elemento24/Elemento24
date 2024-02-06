@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My time at Honda was amazing. Some of my best times in Formula One, actually. I might not have won races, just one race, but I had a lot of fun.</b>
-> <p><i>Jenson Button</i></p>
+> <b>The moment you cheat for the sake of beauty, you know you're an artist.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
