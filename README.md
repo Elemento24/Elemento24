@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One keeps forgetting old age up to the very brink of the grave.</b>
-> <p><i>Sidonie Gabrielle Colette</i></p>
+> <b>For a Jewish Puritan of the middle class, the novel is serious, the novel is work, the novel is conscientious application why, the novel is practically the retail business all over again.</b>
+> <p><i>Howard Nemerov</i></p>
 
 <br>
