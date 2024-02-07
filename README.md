@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Healing,' Papa would tell me, 'is not a science, but the intuitive art of wooing nature.'</b>
-> <p><i>W. H. Auden</i></p>
+> <b>At home in Ireland, there's a habit of avoidance, an ironical attitude towards the authority figure.</b>
+> <p><i>Seamus Heaney</i></p>
 
 <br>
