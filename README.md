@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I need to develop a car and engineer a car in a position that feels comfortable for me, and I don't think anyone can do a better job than I can in that position. The problem for me is if I can't get the car there I do struggle more than some.</b>
-> <p><i>Jenson Button</i></p>
+> <b>Film editing is now something almost everyone can do at a simple level and enjoy it, but to take it to a higher level requires the same dedication and persistence that any art form does.</b>
+> <p><i>Walter Murch</i></p>
 
 <br>
