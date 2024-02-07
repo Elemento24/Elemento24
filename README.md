@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh who can tell the range of joy or set the bounds of beauty?</b>
-> <p><i>Sara Teasdale</i></p>
+> <b>Say not that honor is the child of boldness, nor believe thou that the hazard of life alone can pay the price of it: it is not to the action that it is due, but to the manner of performing it.</b>
+> <p><i>Akhenaton</i></p>
 
 <br>
