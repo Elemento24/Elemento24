@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is never without a reason, but seldom with a good one.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>There is a fountain of youth: it is your mind, your talents, the creativity you bring to your life and the lives of people you love. When you learn to tap this source, you will truly have defeated age.</b>
+> <p><i>Sophia Loren</i></p>
 
 <br>
