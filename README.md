@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When angry, count to four when very angry, swear.</b>
-> <p><i>Mark Twain</i></p>
+> <b>I've had four amazing men in my life, very strong, powerful, wonderful men. I certainly will have a relationship with someone but I don't think I will get married again.</b>
+> <p><i>Cheryl Tiegs</i></p>
 
 <br>
