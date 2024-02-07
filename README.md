@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have three phobias which, could I mute them, would make my life as slick as a sonnet, but as dull as ditch water: I hate to go to bed, I hate to get up, and I hate to be alone.</b>
-> <p><i>Tallulah Bankhead</i></p>
+> <b>'Healing,' Papa would tell me, 'is not a science, but the intuitive art of wooing nature.'</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
