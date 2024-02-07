@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing is more generally known than our duties which belong to Christianity and yet, how amazing is it, nothing is less practiced?</b>
-> <p><i>George Whitefield</i></p>
+> <b>If you go on stage with the wrong attitude, or something in your performance is off, you can lose an audience in the first minute. That first minute is crucial.</b>
+> <p><i>Allan Carr</i></p>
 
 <br>
