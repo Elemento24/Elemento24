@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had four amazing men in my life, very strong, powerful, wonderful men. I certainly will have a relationship with someone but I don't think I will get married again.</b>
-> <p><i>Cheryl Tiegs</i></p>
+> <b>Nothing is more generally known than our duties which belong to Christianity and yet, how amazing is it, nothing is less practiced?</b>
+> <p><i>George Whitefield</i></p>
 
 <br>
