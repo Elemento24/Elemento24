@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The key to life is your attitude. Whether you're single or married or have kids or don't have kids, it's how you look at your life, what you make of it. It's about making the best of your life wherever you are in life.</b>
-> <p><i>Candace Bushnell</i></p>
+> <b>Anger is never without a reason, but seldom with a good one.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
