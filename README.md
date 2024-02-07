@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a huge Wes Anderson fan I would faint if I met him, let alone got to work with him.</b>
-> <p><i>Emma Roberts</i></p>
+> <b>I love working with a cast and a group of people every day, which is different than recording because you're usually pretty isolated and alone. They serve as a good balance for each other.</b>
+> <p><i>Idina Menzel</i></p>
 
 <br>
