@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I enjoy trying to develop a car and Mercedes are one of the biggest car manufacturers in the world.</b>
-> <p><i>Lewis Hamilton</i></p>
+> <b>I need to develop a car and engineer a car in a position that feels comfortable for me, and I don't think anyone can do a better job than I can in that position. The problem for me is if I can't get the car there I do struggle more than some.</b>
+> <p><i>Jenson Button</i></p>
 
 <br>
