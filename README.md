@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>I was homeless for a little bit. I was on people's couches, but it was an amazing journey. I got to make people laugh all the way.</b>
+> <p><i>Sherri Shepherd</i></p>
 
 <br>
