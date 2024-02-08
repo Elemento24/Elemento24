@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry is not only dream and vision it is the skeleton architecture of our lives. It lays the foundations for a future of change, a bridge across our fears of what has never been before.</b>
-> <p><i>Audre Lorde</i></p>
+> <b>It goes without saying that you should never have more children than you have car windows.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
