@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know so many amazing actors who don't get work... and then there are a bunch of real duds that work all the time. The industry is just not fair in that way.</b>
-> <p><i>Jenna Fischer</i></p>
+> <b>I think having a child can really change you if you're open to it.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
