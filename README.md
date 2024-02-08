@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change does not roll in on the wheels of inevitability, but comes through continuous struggle. And so we must straighten our backs and work for our freedom. A man can't ride you unless your back is bent.</b>
-> <p><i>Martin Luther King, Jr.</i></p>
+> <b>To win one Moonman is amazing, to win two is incredible.</b>
+> <p><i>Harry Styles</i></p>
 
 <br>
