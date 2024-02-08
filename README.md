@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To win one Moonman is amazing, to win two is incredible.</b>
-> <p><i>Harry Styles</i></p>
+> <b>I'm very manipulative towards directors. My theory is that everyone on the set is directing the film, we're all receiving art messages from the universe on how we should do the film.</b>
+> <p><i>Jeff Bridges</i></p>
 
 <br>
