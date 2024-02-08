@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Baseball was, is and always will be to me the best game in the world.</b>
-> <p><i>Babe Ruth</i></p>
+> <b>Only in growth, reform, and change, paradoxically enough, is true security to be found.</b>
+> <p><i>Anne Morrow Lindbergh</i></p>
 
 <br>
