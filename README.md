@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was a great mantel to be able to take on really, an amazing legacy. And you know to finally see it, because I just saw the final product yesterday as well, is really amazing to be part of something like this.</b>
-> <p><i>Brandon Routh</i></p>
+> <b>The belief in a supernatural source of evil is not necessary men alone are quite capable of every wickedness.</b>
+> <p><i>Joseph Conrad</i></p>
 
 <br>
