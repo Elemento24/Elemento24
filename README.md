@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We work in the dark - we do what we can - we give what we have. Our doubt is our passion and our passion is our task. The rest is the madness of art.</b>
-> <p><i>Henry James</i></p>
+> <b>Change your thoughts and you change your world.</b>
+> <p><i>Norman Vincent Peale</i></p>
 
 <br>
