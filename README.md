@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was homeless for a little bit. I was on people's couches, but it was an amazing journey. I got to make people laugh all the way.</b>
-> <p><i>Sherri Shepherd</i></p>
+> <b>I think we love bacon because it has all the qualities of an amazing sensory experience. When we cook it, the sizzling sound is so appetizing, the aroma is maddening, the crunch of the texture is so gratifying and the taste delivers every time.</b>
+> <p><i>Alexandra Guarnaschelli</i></p>
 
 <br>
