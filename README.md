@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All great art is the work of the whole living creature, body and soul, and chiefly of the soul.</b>
-> <p><i>John Ruskin</i></p>
+> <b>We work in the dark - we do what we can - we give what we have. Our doubt is our passion and our passion is our task. The rest is the madness of art.</b>
+> <p><i>Henry James</i></p>
 
 <br>
