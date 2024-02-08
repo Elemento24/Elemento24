@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Back in the mid-1970s, we adopted some fairly ambitious goals to improve efficiency of our cars. What did we get? We got a tremendous boost in efficiency.</b>
-> <p><i>Jay Inslee</i></p>
+> <b>I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
