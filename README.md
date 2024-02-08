@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diligence is the mother of good fortune, and idleness, its opposite, never brought a man to the goal of any of his best wishes.</b>
-> <p><i>Miguel de Cervantes</i></p>
+> <b>Our company is built on people - those who work for us, and those we do business with.</b>
+> <p><i>Harvey S. Firestone</i></p>
 
 <br>
