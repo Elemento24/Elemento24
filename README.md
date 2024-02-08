@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.</b>
-> <p><i>Peter Drucker</i></p>
+> <b>Baseball was, is and always will be to me the best game in the world.</b>
+> <p><i>Babe Ruth</i></p>
 
 <br>
