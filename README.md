@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our company is built on people - those who work for us, and those we do business with.</b>
-> <p><i>Harvey S. Firestone</i></p>
+> <b>Poetry is not only dream and vision it is the skeleton architecture of our lives. It lays the foundations for a future of change, a bridge across our fears of what has never been before.</b>
+> <p><i>Audre Lorde</i></p>
 
 <br>
