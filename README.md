@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Imagine a thousand more such daily intrusions in your life, every hour and minute of every day, and you can grasp the source of this paranoia, this anger that could consume me at any moment if I lost control.</b>
-> <p><i>Jack Henry Abbott</i></p>
+> <b>He took over anger to intimidate subordinates, and in time anger took over him.</b>
+> <p><i>Milan Kundera</i></p>
 
 <br>
