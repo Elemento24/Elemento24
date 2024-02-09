@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prophesy is a good line of business, but it is full of risks.</b>
-> <p><i>Mark Twain</i></p>
+> <b>The New York City Ballet is obviously speaking to a whole new generation and bringing it the same wonder and beauty that it brought previous generations.</b>
+> <p><i>Robert Caro</i></p>
 
 <br>
