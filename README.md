@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Alone in the Dark was too much an action creature movie than a horror creature movie.</b>
-> <p><i>Uwe Boll</i></p>
+> <b>I listened to it last night for the first time since we started this project. I went out to my car and put it in and went to an empty parking lot and just listened and read the little pamphlet that came with it. After two or three songs I burst into tears.</b>
+> <p><i>Randy Bachman</i></p>
 
 <br>
