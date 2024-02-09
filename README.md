@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the end I didn't get a top car any more. I had no toughness left. That was the reality.</b>
-> <p><i>Jacky Ickx</i></p>
+> <b>If you're a basketball player and you don't stop and take pictures with your fans, you can have an amazing game and everyone still loves you.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
