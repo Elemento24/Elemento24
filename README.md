@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Extracting oil from the tar sands is a nasty, polluting, energy-intensive business.</b>
-> <p><i>Jeff Goodell</i></p>
+> <b>Only in growth, reform, and change, paradoxically enough, is true security to be found.</b>
+> <p><i>Anne Morrow Lindbergh</i></p>
 
 <br>
