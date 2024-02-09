@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Passion is universal humanity. Without it religion, history, romance and art would be useless.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>Get the best people and train them well.</b>
+> <p><i>Scott McNealy</i></p>
 
 <br>
