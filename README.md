@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He took over anger to intimidate subordinates, and in time anger took over him.</b>
-> <p><i>Milan Kundera</i></p>
+> <b>I think Alone in the Dark was too much an action creature movie than a horror creature movie.</b>
+> <p><i>Uwe Boll</i></p>
 
 <br>
