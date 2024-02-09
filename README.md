@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Get the best people and train them well.</b>
-> <p><i>Scott McNealy</i></p>
+> <b>Let me tell you something - being thought of as a beautiful woman has spared me nothing in life. No heartache, no trouble. Love has been difficult. Beauty is essentially meaningless and it is always transitory.</b>
+> <p><i>Halle Berry</i></p>
 
 <br>
