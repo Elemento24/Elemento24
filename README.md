@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I listened to it last night for the first time since we started this project. I went out to my car and put it in and went to an empty parking lot and just listened and read the little pamphlet that came with it. After two or three songs I burst into tears.</b>
-> <p><i>Randy Bachman</i></p>
+> <b>I don't find Hollywood interesting, so I'm thinking of studying architecture instead.</b>
+> <p><i>Hayden Christensen</i></p>
 
 <br>
