@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>First, there is the bare beauty of the logs themselves with their long lines and firm curves. Then there is the open charm felt of the structural features which are not hidden under plaster and ornament, but are clearly revealed, a charm felt in Japanese architecture.</b>
-> <p><i>Gustav Stickley</i></p>
+> <b>I don't think I ever got the hang of the writers' room. I love collaborating with people, but I really do my best work alone, and I think I would want to - if I did something again, I think I'd want to take total ownership the way Aaron Sorkin or David Kelley does.</b>
+> <p><i>Diablo Cody</i></p>
 
 <br>
