@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The belief in a supernatural source of evil is not necessary men alone are quite capable of every wickedness.</b>
-> <p><i>Joseph Conrad</i></p>
+> <b>No matter the nationality, no matter the religion, no matter the ethnic background, America brings out the best in people.</b>
+> <p><i>Arnold Schwarzenegger</i></p>
 
 <br>
