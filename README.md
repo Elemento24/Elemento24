@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The New York City Ballet is obviously speaking to a whole new generation and bringing it the same wonder and beauty that it brought previous generations.</b>
-> <p><i>Robert Caro</i></p>
+> <b>In the end I didn't get a top car any more. I had no toughness left. That was the reality.</b>
+> <p><i>Jacky Ickx</i></p>
 
 <br>
