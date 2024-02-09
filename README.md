@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter the nationality, no matter the religion, no matter the ethnic background, America brings out the best in people.</b>
-> <p><i>Arnold Schwarzenegger</i></p>
+> <b>The bonds of matrimony are like any other bonds - they mature slowly.</b>
+> <p><i>Peter De Vries</i></p>
 
 <br>
