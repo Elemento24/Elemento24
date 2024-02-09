@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's harder for people than it should be. But as more and more of us become carbon neutral and change the patterns in our lives to be part of the solution instead of part of the problem, we are now beginning to see the changes in policy that are needed.</b>
-> <p><i>Al Gore</i></p>
+> <b>Passion is universal humanity. Without it religion, history, romance and art would be useless.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
