@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that New York is not the cultural centre of America, but the business and administrative centre of American culture.</b>
-> <p><i>Saul Bellow</i></p>
+> <b>I don't like to go over curbs, because I don't want to be hard on the car.</b>
+> <p><i>Alain Prost</i></p>
 
 <br>
