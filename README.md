@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I longed to arrest all beauty that came before me, and at length the longing has been satisfied.</b>
-> <p><i>Julia Margaret Cameron</i></p>
+> <b>I haven't seen Clones, which has been during this period when I haven't seen much of anything, but I did see Phantom Menace, and see my feelings about it - see, first of all, I think that when you make a lot of movies, your attitude about the movies changes.</b>
+> <p><i>Lawrence Kasdan</i></p>
 
 <br>
