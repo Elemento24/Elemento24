@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love my beauty. It's not my fault.</b>
-> <p><i>Valentino Garavani</i></p>
+> <b>Hip-hop is supposed to uplift and create, to educate people on a larger level and to make a change.</b>
+> <p><i>Doug E. Fresh</i></p>
 
 <br>
