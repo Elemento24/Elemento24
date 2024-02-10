@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are going in one second the length of a football field. That means you brain is receiving information from your body what the car is doing physically, bumping, balance, performance.</b>
-> <p><i>Emerson Fittipaldi</i></p>
+> <b>My inspiration was my mom. She's a great cook, and she still cooks, and we still banter back and forth about cooking. Growing up in a mostly Portuguese community, food was important and the family table was extremely important. At a very young age I understood that.</b>
+> <p><i>Emeril Lagasse</i></p>
 
 <br>
