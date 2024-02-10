@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hip-hop is supposed to uplift and create, to educate people on a larger level and to make a change.</b>
-> <p><i>Doug E. Fresh</i></p>
+> <b>The New York Quarterly is an amazing, intelligent, crazy, creative, strange, and indispensable magazine.</b>
+> <p><i>James Dickey</i></p>
 
 <br>
