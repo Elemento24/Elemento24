@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To dare to live alone is the rarest courage since there are many who had rather meet their bitterest enemy in the field, than their own hearts in their closet.</b>
-> <p><i>Charles Caleb Colton</i></p>
+> <b>I love my beauty. It's not my fault.</b>
+> <p><i>Valentino Garavani</i></p>
 
 <br>
