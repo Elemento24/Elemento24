@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't worry about people stealing your ideas. If your ideas are any good, you'll have to ram them down people's throats.</b>
-> <p><i>Howard Aiken</i></p>
+> <b>Beauty is not caused. It is.</b>
+> <p><i>Emily Dickinson</i></p>
 
 <br>
