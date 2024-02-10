@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Goals provide the energy source that powers our lives. One of the best ways we can get the most from the energy we have is to focus it. That is what goals can do for us concentrate our energy.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>It was amazing and inspiring to see so many people come together through music to aid the great state of Vermont.</b>
+> <p><i>Trey Anastasio</i></p>
 
 <br>
