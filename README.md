@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was old enough to go to movies alone, I got to see 'Frankenstein' and 'Dracula' on the big screen. I just fell in love with them.</b>
-> <p><i>George A. Romero</i></p>
+> <b>Diplomacy, n. is the art of letting somebody else have your way.</b>
+> <p><i>David Frost</i></p>
 
 <br>
