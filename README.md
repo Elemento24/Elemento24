@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I haven't seen Clones, which has been during this period when I haven't seen much of anything, but I did see Phantom Menace, and see my feelings about it - see, first of all, I think that when you make a lot of movies, your attitude about the movies changes.</b>
-> <p><i>Lawrence Kasdan</i></p>
+> <b>When I was old enough to go to movies alone, I got to see 'Frankenstein' and 'Dracula' on the big screen. I just fell in love with them.</b>
+> <p><i>George A. Romero</i></p>
 
 <br>
