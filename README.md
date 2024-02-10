@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He that would be angry and sin not, must not be angry with anything but sin.</b>
-> <p><i>John Ruskin</i></p>
+> <b>Lorne finally said, Do the Blues Brothers thing. The response was amazing. People went nuts.</b>
+> <p><i>Steve Cropper</i></p>
 
 <br>
