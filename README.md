@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like to go over curbs, because I don't want to be hard on the car.</b>
-> <p><i>Alain Prost</i></p>
+> <b>Any revival in which I am involved is liable to change.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
