@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wit as an instrument of revenge is as infamous as art is as a means of sensual titillation.</b>
-> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
+> <b>The best morale exist when you never hear the word mentioned. When you hear a lot of talk about it, it's usually lousy.</b>
+> <p><i>Dwight D. Eisenhower</i></p>
 
 <br>
