@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am an anarchist in politics and an impressionist in art as well as a symbolist in literature. Not that I understand what these terms mean, but I take them to be all merely synonyms of pessimist.</b>
-> <p><i>Henry Adams</i></p>
+> <b>A well-instructed people alone can be permanently a free people.</b>
+> <p><i>James Madison</i></p>
 
 <br>
