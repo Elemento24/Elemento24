@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Truly fertile Music, the only kind that will move us, that we shall truly appreciate, will be a Music conducive to Dream, which banishes all reason and analysis. One must not wish first to understand and then to feel. Art does not tolerate Reason.</b>
-> <p><i>Albert Camus</i></p>
+> <b>Yes, my grandfather worked with Thomas Edison on the electric car, and he sold electric cars at the 1900 World's Fair in Paris.</b>
+> <p><i>Al Jardine</i></p>
 
 <br>
