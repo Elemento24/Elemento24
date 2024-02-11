@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are people in the world who have the power to change our values.</b>
-> <p><i>John Mayer</i></p>
+> <b>And while the law of competition may be sometimes hard for the individual, it is best for the race, because it ensures the survival of the fittest in every department.</b>
+> <p><i>Andrew Carnegie</i></p>
 
 <br>
