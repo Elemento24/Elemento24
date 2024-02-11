@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know that my race must change.</b>
-> <p><i>Chief Joseph</i></p>
+> <b>It is not classified as a pagan religion. The so-called New Age activities and this are not called religions and therefore don't come under the prohibition of mingling church and state that we have in this country.</b>
+> <p><i>Dixie Lee Ray</i></p>
 
 <br>
