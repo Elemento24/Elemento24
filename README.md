@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know what I really love? The CD players in a car. How when you put the CD right up by the slot, it actually takes it out of your hand, like it's hungry. It pulls it in, and you feel like it wants more silver discs.</b>
-> <p><i>Tom Waits</i></p>
+> <b>I know what men want. Men want to be really, really close to someone who will leave them alone.</b>
+> <p><i>Elayne Boosler</i></p>
 
 <br>
