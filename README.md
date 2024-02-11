@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no secret, once we go to qualifying, we all seem to enjoy it. Qualifying is all about putting everything that you have and that the car has in one lap. It's like a rush, I really enjoy that.</b>
-> <p><i>Sebastian Vettel</i></p>
+> <b>I am an anarchist in politics and an impressionist in art as well as a symbolist in literature. Not that I understand what these terms mean, but I take them to be all merely synonyms of pessimist.</b>
+> <p><i>Henry Adams</i></p>
 
 <br>
