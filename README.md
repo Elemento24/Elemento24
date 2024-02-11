@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes, my grandfather worked with Thomas Edison on the electric car, and he sold electric cars at the 1900 World's Fair in Paris.</b>
-> <p><i>Al Jardine</i></p>
+> <b>It is wise to direct your anger towards problems - not people to focus your energies on answers - not excuses.</b>
+> <p><i>William Arthur Ward</i></p>
 
 <br>
