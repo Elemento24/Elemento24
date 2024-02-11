@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sleep is good, death is better but of course, the best thing would to have never been born at all.</b>
-> <p><i>Heinrich Heine</i></p>
+> <b>I want to sell to people my own age, because that's the way I write songs.</b>
+> <p><i>John Mellencamp</i></p>
 
 <br>
