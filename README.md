@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is wise to direct your anger towards problems - not people to focus your energies on answers - not excuses.</b>
-> <p><i>William Arthur Ward</i></p>
+> <b>In this business, if you don't pay your debts you're finished.</b>
+> <p><i>Roger Stone</i></p>
 
 <br>
