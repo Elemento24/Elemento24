@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And while the law of competition may be sometimes hard for the individual, it is best for the race, because it ensures the survival of the fittest in every department.</b>
-> <p><i>Andrew Carnegie</i></p>
+> <b>To me, eyewear goes way beyond being a prescription. It's like makeup. It's the most incredible accessory. The shape of a frame or the color of lenses can change your whole appearance.</b>
+> <p><i>Vera Wang</i></p>
 
 <br>
