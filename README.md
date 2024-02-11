@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pictures deface walls more often than they decorate them.</b>
-> <p><i>William Wordsworth</i></p>
+> <b>The very women who object to the morals of a notoriously beautiful actress, grow big with pride when an admirer suggests their marked resemblance to this stage beauty in physique.</b>
+> <p><i>Minna Antrim</i></p>
 
 <br>
