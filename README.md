@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to sell to people my own age, because that's the way I write songs.</b>
-> <p><i>John Mellencamp</i></p>
+> <b>Truly fertile Music, the only kind that will move us, that we shall truly appreciate, will be a Music conducive to Dream, which banishes all reason and analysis. One must not wish first to understand and then to feel. Art does not tolerate Reason.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
