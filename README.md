@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The very women who object to the morals of a notoriously beautiful actress, grow big with pride when an admirer suggests their marked resemblance to this stage beauty in physique.</b>
-> <p><i>Minna Antrim</i></p>
+> <b>There are people in the world who have the power to change our values.</b>
+> <p><i>John Mayer</i></p>
 
 <br>
