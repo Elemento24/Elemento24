@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people won't go the extra mile, and then on their birthday, when no one makes a fuss, they feel neglected and bitter.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>A man's friendships are one of the best measures of his worth.</b>
+> <p><i>Charles Darwin</i></p>
 
 <br>
