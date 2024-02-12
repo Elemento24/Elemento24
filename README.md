@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business that people do in LA on the social level is amazing. You go to a restaurant, bump into this guy or that guy. The next day you get a call, and they want you in their movie.</b>
-> <p><i>Kevin Bacon</i></p>
+> <b>The percentage you're paying is too high priced While you're living beyond all your means And the man in the suit has just bought a new car From the profit he's made on your dreams.</b>
+> <p><i>Steve Winwood</i></p>
 
 <br>
