@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The logic of Palladian architecture presented an aesthetic formula which could be applied universally.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>You will never change your life until you change something you do daily.</b>
+> <p><i>Mike Murdock</i></p>
 
 <br>
