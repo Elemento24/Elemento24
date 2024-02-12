@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's an amazing quality to be able to roll with the punches and not be totally ruined as a person because life's been rough for you. That's a really admirable way to go through your life.</b>
-> <p><i>Anna Paquin</i></p>
+> <b>I'm very comfortable with how I look. I always have been. I think I look pretty good. There's nothing I want to change. I'm pretty happy with what I've got.</b>
+> <p><i>Avril Lavigne</i></p>
 
 <br>
