@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When hospitality becomes an art it loses its very soul.</b>
-> <p><i>Max Beerbohm</i></p>
+> <b>The business that people do in LA on the social level is amazing. You go to a restaurant, bump into this guy or that guy. The next day you get a call, and they want you in their movie.</b>
+> <p><i>Kevin Bacon</i></p>
 
 <br>
