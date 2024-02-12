@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm fortunate that I've been in this business long enough that I've earned the right to be left alone by my record company.</b>
-> <p><i>Don Henley</i></p>
+> <b>I don't paint things. I only paint the difference between things.</b>
+> <p><i>Henri Matisse</i></p>
 
 <br>
