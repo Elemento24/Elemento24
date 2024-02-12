@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After the first miscarriage, I tried to take the attitude that it was my body's way of telling me that this pregnancy wasn't meant to be.</b>
-> <p><i>Christie Brinkley</i></p>
+> <b>I'm fortunate that I've been in this business long enough that I've earned the right to be left alone by my record company.</b>
+> <p><i>Don Henley</i></p>
 
 <br>
