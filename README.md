@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In an age when the fashion is to be in love with yourself, confessing to be in love with somebody else is an admission of unfaithfulness to one's beloved.</b>
-> <p><i>Russell Baker</i></p>
+> <b>Logic is neither an art nor a science but a dodge.</b>
+> <p><i>Stendhal</i></p>
 
 <br>
