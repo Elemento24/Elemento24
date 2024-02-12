@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Works of art, in my opinion, are the only objects in the material universe to possess internal order, and that is why, though I don't believe that only art matters, I do believe in Art for Art's sake.</b>
-> <p><i>E. M. Forster</i></p>
+> <b>In an age when the fashion is to be in love with yourself, confessing to be in love with somebody else is an admission of unfaithfulness to one's beloved.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
