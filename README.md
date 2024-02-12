@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You will never change your life until you change something you do daily.</b>
-> <p><i>Mike Murdock</i></p>
+> <b>I think we're getting to the point where everyone's getting fat and everyone's getting allergic, or claims to be allergic to something and people can't walk from their front door to their car without a bottle of water in their hand because they have to hydrate every three and half steps.</b>
+> <p><i>Adam Carolla</i></p>
 
 <br>
