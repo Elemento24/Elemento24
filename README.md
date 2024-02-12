@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm selfish, impatient, and a little insecure. I make mistakes, I'm out of control, and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>If I test the car for a year I can be quite competitive the next season.</b>
+> <p><i>Valentino Rossi</i></p>
 
 <br>
