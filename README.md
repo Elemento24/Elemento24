@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My culture-deprived, aspirational mother dragged me once a month from our northern suburb - where the word art never came up - to the Art Institute of Chicago. I hated it.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I get to play golf for a living. What more can you ask for - getting paid for doing what you love.</b>
+> <p><i>Tiger Woods</i></p>
 
 <br>
