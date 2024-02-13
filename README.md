@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My father is an amazing man.</b>
-> <p><i>Sherman Alexie</i></p>
+> <b>Marriage is a coming together for better or for worse, hopefully enduring, and intimate to the degree of being sacred.</b>
+> <p><i>William O. Douglas</i></p>
 
 <br>
