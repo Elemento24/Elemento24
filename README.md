@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The sadness of the incomplete, the sadness that is often Life, but should never be Art.</b>
-> <p><i>E. M. Forster</i></p>
+> <b>We're not arrogant, we just believe we're the best band in the world.</b>
+> <p><i>Noel Gallagher</i></p>
 
 <br>
