@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Best of all is it to preserve everything in a pure, still heart, and let there be for every pulse a thanksgiving, and for every breath a song.</b>
-> <p><i>Konrad von Gesner</i></p>
+> <b>I was so wild and crazy and dumb in my car. It didn't run but 30 miles an hour. You made do.</b>
+> <p><i>Muddy Waters</i></p>
 
 <br>
