@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are stymied by regulations, limited choice and the threat of litigation. Neither consultants nor industry itself provide research which takes architecture forward.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>Only in growth, reform, and change, paradoxically enough, is true security to be found.</b>
+> <p><i>Anne Morrow Lindbergh</i></p>
 
 <br>
