@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage has no guarantees. If that's what you're looking for, go live with a car battery.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>Architecture is basically a container of something. I hope they will enjoy not so much the teacup, but the tea.</b>
+> <p><i>Yoshio Taniguchi</i></p>
 
 <br>
