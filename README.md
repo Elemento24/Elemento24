@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage is a coming together for better or for worse, hopefully enduring, and intimate to the degree of being sacred.</b>
-> <p><i>William O. Douglas</i></p>
+> <b>I saw no African people in the printed and illustrated Sunday school lessons. I began to suspect at this early age that someone had distorted the image of my people. My long search for the true history of African people the world over began.</b>
+> <p><i>John Henrik Clarke</i></p>
 
 <br>
