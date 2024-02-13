@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our prayers should be for blessings in general, for God knows best what is good for us.</b>
-> <p><i>Socrates</i></p>
+> <b>What's amazing is that I'm recognized all over the world through 'Red Dwarf.' British fans are exceptional, but the American fans are something else. Some of them fly 500 miles to stand in line for three hours, just to meet me, then when they do they collapse. It makes you feel like a rock star!</b>
+> <p><i>Craig Charles</i></p>
 
 <br>
