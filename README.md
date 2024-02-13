@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's amazing is that I'm recognized all over the world through 'Red Dwarf.' British fans are exceptional, but the American fans are something else. Some of them fly 500 miles to stand in line for three hours, just to meet me, then when they do they collapse. It makes you feel like a rock star!</b>
-> <p><i>Craig Charles</i></p>
+> <b>Nobody has it all, but for me to even come close is amazing.</b>
+> <p><i>Adam Levine</i></p>
 
 <br>
