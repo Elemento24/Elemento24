@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is my work, and I've spent my whole life at a drawing board, but life is more important than architecture. What matters is to improve human beings.</b>
-> <p><i>Oscar Niemeyer</i></p>
+> <b>The sadness of the incomplete, the sadness that is often Life, but should never be Art.</b>
+> <p><i>E. M. Forster</i></p>
 
 <br>
