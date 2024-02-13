@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is basically a container of something. I hope they will enjoy not so much the teacup, but the tea.</b>
-> <p><i>Yoshio Taniguchi</i></p>
+> <b>Poetry is the art of substantiating shadows, and of lending existence to nothing.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
