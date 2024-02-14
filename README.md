@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was old enough to go to movies alone, I got to see 'Frankenstein' and 'Dracula' on the big screen. I just fell in love with them.</b>
-> <p><i>George A. Romero</i></p>
+> <b>I have learned that acting is not about beauty.</b>
+> <p><i>Vincent Cassel</i></p>
 
 <br>
