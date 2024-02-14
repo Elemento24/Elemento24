@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned from Mr. Wrigley, early in my career, that loyalty wins and it creates friendships. I saw it work for him in his business.</b>
-> <p><i>Ernie Banks</i></p>
+> <b>Would you want to do business with a person who was 99% honest?</b>
+> <p><i>Sydney Madwed</i></p>
 
 <br>
