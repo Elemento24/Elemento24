@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My grandma's the most careful, safe driver in the world. You put her in a rental car, and she's doing doughnuts in the K-Mart parking lot!</b>
-> <p><i>Jeff Foxworthy</i></p>
+> <b>The idea of the sacred is quite simply one of the most conservative notions in any culture, because it seeks to turn other ideas - uncertainty, progress, change - into crimes.</b>
+> <p><i>Salman Rushdie</i></p>
 
 <br>
