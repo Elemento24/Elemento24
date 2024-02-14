@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There has been a change in attitude, though.</b>
-> <p><i>Daniel Petrie</i></p>
+> <b>I came to poetry through the urgent need to denounce injustice, exploitation, humiliation. I know that's not enough to change the world. But to remain silent would have been a kind of intolerable complicity.</b>
+> <p><i>Tahar Ben Jelloun</i></p>
 
 <br>
