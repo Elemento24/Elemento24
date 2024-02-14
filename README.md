@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Palin was a political Hail Mary, a long bomb in the closing minutes of a game that John McCain and Co. were certain to lose. They didn't care if she had the policy or political or emotional capacity to serve as vice president, let alone president. They were willing to drive the country off a cliff, if that's what it took to win.</b>
-> <p><i>Dee Dee Myers</i></p>
+> <b>So while an incredible amount of progress has been made, on this fifth anniversary, I wanted to come here and tell the people of this city directly: My administration is going to stand with you - and fight alongside you - until the job is done. Until New Orleans is all the way back, all the way.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
