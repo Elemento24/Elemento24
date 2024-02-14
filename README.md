@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is something to be proud of. Art is no compromise.</b>
-> <p><i>Christian Bale</i></p>
+> <b>The large majority of the Negroes who have put on the finishing touches of our best colleges are all but worthless in the development of their people.</b>
+> <p><i>Carter G. Woodson</i></p>
 
 <br>
