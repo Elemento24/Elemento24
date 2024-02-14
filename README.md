@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The message I take all round the world is Britain is open for business.</b>
-> <p><i>William Hague</i></p>
+> <b>Palin was a political Hail Mary, a long bomb in the closing minutes of a game that John McCain and Co. were certain to lose. They didn't care if she had the policy or political or emotional capacity to serve as vice president, let alone president. They were willing to drive the country off a cliff, if that's what it took to win.</b>
+> <p><i>Dee Dee Myers</i></p>
 
 <br>
