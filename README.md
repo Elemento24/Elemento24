@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Communication is a continual balancing act, juggling the conflicting needs for intimacy and independence. To survive in the world, we have to act in concert with others, but to survive as ourselves, rather than simply as cogs in a wheel, we have to act alone.</b>
-> <p><i>Deborah Tannen</i></p>
+> <b>I definitely look up to Meryl Streep because she's been in so many amazing movies, and I just think that she's one of the greatest actresses out there. I also look up to Jennifer Lawrence, especially knowing her and knowing that she is so awesome and so nice.</b>
+> <p><i>Willow Shields</i></p>
 
 <br>
