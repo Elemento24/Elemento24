@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So I was getting into my car, and this bloke says to me 'Can you give me a lift?' I said 'Sure, you look great, the world's your oyster, go for it.''</b>
-> <p><i>Tim Vine</i></p>
+> <b>When I was old enough to go to movies alone, I got to see 'Frankenstein' and 'Dracula' on the big screen. I just fell in love with them.</b>
+> <p><i>George A. Romero</i></p>
 
 <br>
