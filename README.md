@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think I could play a character that I couldn't relate to somehow. I'm not unfamiliar with frustration, anger, shame, helplessness and a load of other emotions that make up our psycho-soup. I try to focus on that frustration, that sense of unfairness, and multiply it.</b>
-> <p><i>Terry O'Quinn</i></p>
+> <b>I think we risk becoming the best informed society that has ever died of ignorance.</b>
+> <p><i>Ruben Blades</i></p>
 
 <br>
