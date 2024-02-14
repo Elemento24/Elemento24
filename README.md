@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So while an incredible amount of progress has been made, on this fifth anniversary, I wanted to come here and tell the people of this city directly: My administration is going to stand with you - and fight alongside you - until the job is done. Until New Orleans is all the way back, all the way.</b>
-> <p><i>Barack Obama</i></p>
+> <b>Wives are young men's mistresses, companions for middle age, and old men's nurses.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
