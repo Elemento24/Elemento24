@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Listening to my regular favourites - Mozart, Beethoven, Brahms and so on - I always feel, quite misguidedly, that nothing can be too bad if such beauty and brilliance exists in the world.</b>
-> <p><i>Jane Asher</i></p>
+> <b>With love, you should go ahead and take the risk of getting hurt because love is an amazing feeling.</b>
+> <p><i>Britney Spears</i></p>
 
 <br>
