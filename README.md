@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wives are young men's mistresses, companions for middle age, and old men's nurses.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>It is sad to grow old but nice to ripen.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
