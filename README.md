@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a kid anymore. And I'm excited for all the amazing things to come.</b>
-> <p><i>Paris Hilton</i></p>
+> <b>Listening to my regular favourites - Mozart, Beethoven, Brahms and so on - I always feel, quite misguidedly, that nothing can be too bad if such beauty and brilliance exists in the world.</b>
+> <p><i>Jane Asher</i></p>
 
 <br>
