@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think sometimes all you need is to hear someone else say the same thing that you're going through to realize that you're not alone. I try to put some sense of hope into the songs, into whatever the situation is so that it's not just dirt, drudgery and a life of misery.</b>
-> <p><i>Sarah McLachlan</i></p>
+> <b>My friends, love is better than anger. Hope is better than fear. Optimism is better than despair. So let us be loving, hopeful and optimistic. And we'll change the world.</b>
+> <p><i>Jack Layton</i></p>
 
 <br>
