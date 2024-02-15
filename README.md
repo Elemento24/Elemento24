@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being an actor is the loneliest thing in the world. You are all alone with your concentration and imagination, and that's all you have.</b>
-> <p><i>James Dean</i></p>
+> <b>Few expected very much of Franklin Roosevelt on Inauguration Day in 1933. Like Barack Obama seventy-six years later, he was succeeding a failed Republican president, and Americans had voted for change. What that change might be Roosevelt never clearly said, probably because he himself didn't know.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
