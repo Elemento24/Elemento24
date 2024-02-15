@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There will never be great architects or great architecture without great patrons.</b>
-> <p><i>Edwin Lutyens</i></p>
+> <b>There are three hundred and sixty-four days when you might get un-birthday presents, and only one for birthday presents, you know.</b>
+> <p><i>Lewis Carroll</i></p>
 
 <br>
