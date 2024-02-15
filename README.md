@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you are going to break a Law of Art, make the crime interesting.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>The devil had as good have let Paul alone, for he no sooner comes into prison but he falls a preaching, at which the gates of Satan's prison fly open, and poor sinners come forth.</b>
+> <p><i>William Gurnall</i></p>
 
 <br>
