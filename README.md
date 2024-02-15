@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With love, you should go ahead and take the risk of getting hurt because love is an amazing feeling.</b>
-> <p><i>Britney Spears</i></p>
+> <b>If I weren't performing, I'd be a beauty editor or a therapist. I love creativity, but I also love to help others. My mother was a hairstylist, and they listen to everyone's problems - like a beauty therapist!</b>
+> <p><i>Beyonce Knowles</i></p>
 
 <br>
