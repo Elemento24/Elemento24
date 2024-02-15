@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fashion is only the attempt to realize art in living forms and social intercourse.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>There will never be great architects or great architecture without great patrons.</b>
+> <p><i>Edwin Lutyens</i></p>
 
 <br>
