@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I choose films for their artistic value. I don't need a mansion or a Jaguar. When I leave this Earth, I won't take any money with me. All I will leave behind will be my art.</b>
-> <p><i>Brad Renfro</i></p>
+> <b>I'm not a kid anymore. And I'm excited for all the amazing things to come.</b>
+> <p><i>Paris Hilton</i></p>
 
 <br>
