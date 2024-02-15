@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My philosophy is that not only are you responsible for your life, but doing the best at this moment puts you I the best place for the next moment.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>You don't have to have an attitude if you're famous.</b>
+> <p><i>Adriana Lima</i></p>
 
 <br>
