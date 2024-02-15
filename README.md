@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are three hundred and sixty-four days when you might get un-birthday presents, and only one for birthday presents, you know.</b>
-> <p><i>Lewis Carroll</i></p>
+> <b>I think permitting the game to become too physical takes away a little bit of the beauty.</b>
+> <p><i>John Wooden</i></p>
 
 <br>
