@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is sad to grow old but nice to ripen.</b>
-> <p><i>Brigitte Bardot</i></p>
+> <b>I lead no party I follow no leader. I have given the best part of my life to careful study of Islam, its law and polity, its culture, its history and its literature.</b>
+> <p><i>Muhammad Iqbal</i></p>
 
 <br>
