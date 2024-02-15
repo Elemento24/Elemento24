@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I weren't performing, I'd be a beauty editor or a therapist. I love creativity, but I also love to help others. My mother was a hairstylist, and they listen to everyone's problems - like a beauty therapist!</b>
-> <p><i>Beyonce Knowles</i></p>
+> <b>I think sometimes all you need is to hear someone else say the same thing that you're going through to realize that you're not alone. I try to put some sense of hope into the songs, into whatever the situation is so that it's not just dirt, drudgery and a life of misery.</b>
+> <p><i>Sarah McLachlan</i></p>
 
 <br>
