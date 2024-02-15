@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Certain thoughts are prayers. There are moments when, whatever be the attitude of the body, the soul is on its knees.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>Fashion is only the attempt to realize art in living forms and social intercourse.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
