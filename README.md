@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I lead no party I follow no leader. I have given the best part of my life to careful study of Islam, its law and polity, its culture, its history and its literature.</b>
-> <p><i>Muhammad Iqbal</i></p>
+> <b>European investment in Texas alone exceeds all U.S. investment in China and Japan put together.</b>
+> <p><i>John Bruton</i></p>
 
 <br>
