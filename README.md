@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is the best means we have of digesting time.</b>
-> <p><i>W. H. Auden</i></p>
+> <b>If you are going to break a Law of Art, make the crime interesting.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
