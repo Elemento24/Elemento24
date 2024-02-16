@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't believe in art. I believe in artists.</b>
-> <p><i>Marcel Duchamp</i></p>
+> <b>With a great poet the sense of Beauty overcomes every other consideration, or rather obliterates all consideration.</b>
+> <p><i>John Keats</i></p>
 
 <br>
