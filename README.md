@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I seriously love to cook... My grandmother was an amazing cook. As a kid I used to help her make handmade pasta, Cavatelli and Ravioli. It was one of my favorite things to do. I love the idea of making whatever is in the fridge into something.</b>
-> <p><i>Bradley Cooper</i></p>
+> <b>My parents have a strong work ethic, but their attitude to life, their philosophy, is: 'whatever makes you happy.'</b>
+> <p><i>Sally Hawkins</i></p>
 
 <br>
