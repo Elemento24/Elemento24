@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The season of failure is the best time for sowing the seeds of success.</b>
-> <p><i>Paramahansa Yogananda</i></p>
+> <b>It is amazing how the public steadfastly refuse to attend the third day of a match when so often the last day produces the best and most exciting cricket.</b>
+> <p><i>Frank Woolley</i></p>
 
 <br>
