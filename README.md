@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.</b>
-> <p><i>Walter Benjamin</i></p>
+> <b>Architecture begins where engineering ends.</b>
+> <p><i>Walter Gropius</i></p>
 
 <br>
