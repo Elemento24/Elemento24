@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People until I was 60 would always say they thought I looked younger, which I think, without flattering myself, I did, but I think I certainly have, as George Orwell says people do after a certain age, the face they deserve.</b>
-> <p><i>Christopher Hitchens</i></p>
+> <b>I really love the internet. They say chat-rooms are the trailer park of the internet but I find it amazing.</b>
+> <p><i>Carrie Fisher</i></p>
 
 <br>
