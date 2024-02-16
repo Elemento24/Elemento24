@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really love the internet. They say chat-rooms are the trailer park of the internet but I find it amazing.</b>
-> <p><i>Carrie Fisher</i></p>
+> <b>The principle of art is to pause, not bypass.</b>
+> <p><i>Jerzy Kosinski</i></p>
 
 <br>
