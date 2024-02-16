@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Admiration for a quality or an art can be so strong that it deters us from striving to possess it.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>I think it's naive to pray for world peace if we're not going to change the form in which we live.</b>
+> <p><i>Godfrey Reggio</i></p>
 
 <br>
