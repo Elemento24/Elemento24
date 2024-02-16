@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look, if I were alone in the world, I would have the right to choose despair, solitude and self-fulfillment. But I am not alone.</b>
-> <p><i>Elie Wiesel</i></p>
+> <b>I don't believe in art. I believe in artists.</b>
+> <p><i>Marcel Duchamp</i></p>
 
 <br>
