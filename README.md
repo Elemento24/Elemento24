@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing how the public steadfastly refuse to attend the third day of a match when so often the last day produces the best and most exciting cricket.</b>
-> <p><i>Frank Woolley</i></p>
+> <b>I have to struggle to change people's perceptions of me. I grew very frustrated with the perception that I'm this shy, retiring, inhibited aristocratic creature when I'm absolutely not like that at all. I think I'm much more outgoing and exuberant than my image.</b>
+> <p><i>Helena Bonham Carter</i></p>
 
 <br>
