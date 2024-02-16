@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate the outdoors. To me the outdoors is where the car is.</b>
-> <p><i>Will Durst</i></p>
+> <b>The season of failure is the best time for sowing the seeds of success.</b>
+> <p><i>Paramahansa Yogananda</i></p>
 
 <br>
