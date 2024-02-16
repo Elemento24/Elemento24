@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents have a strong work ethic, but their attitude to life, their philosophy, is: 'whatever makes you happy.'</b>
-> <p><i>Sally Hawkins</i></p>
+> <b>Wushu is a move in Chinese, a physical move. An attack. Wushu is like an art.</b>
+> <p><i>Jet Li</i></p>
 
 <br>
