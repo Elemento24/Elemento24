@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The public history of modern art is the story of conventional people not knowing what they are dealing with.</b>
-> <p><i>Golda Meir</i></p>
+> <b>I feel fortunate that I'm not a beauty. I'm not a classic beauty. I feel it is harder for girls who are like that. There are fewer parts.</b>
+> <p><i>Olivia Colman</i></p>
 
 <br>
