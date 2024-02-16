@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will keep smiling, be positive and never give up! I will give 100 percent each time I play. These are always my goals and my attitude.</b>
-> <p><i>Yani Tseng</i></p>
+> <b>Look, if I were alone in the world, I would have the right to choose despair, solitude and self-fulfillment. But I am not alone.</b>
+> <p><i>Elie Wiesel</i></p>
 
 <br>
