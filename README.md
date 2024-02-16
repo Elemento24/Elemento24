@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's naive to pray for world peace if we're not going to change the form in which we live.</b>
-> <p><i>Godfrey Reggio</i></p>
+> <b>I seriously love to cook... My grandmother was an amazing cook. As a kid I used to help her make handmade pasta, Cavatelli and Ravioli. It was one of my favorite things to do. I love the idea of making whatever is in the fridge into something.</b>
+> <p><i>Bradley Cooper</i></p>
 
 <br>
