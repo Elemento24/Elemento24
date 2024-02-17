@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Goals allow you to control the direction of change in your favor.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>I'm not into business at all.</b>
+> <p><i>Freddie Mercury</i></p>
 
 <br>
