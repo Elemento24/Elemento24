@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Loss means losing what was We want to change but we don't want to lose. Without time for loss, we don't have time for soul.</b>
-> <p><i>James Hillman</i></p>
+> <b>I think if there's any difference between me and a traditional CEO, it's that I've been unwilling to change myself or shape my personality around what's expected.</b>
+> <p><i>Andrew Mason</i></p>
 
 <br>
