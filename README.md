@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm probably the only person who goes to work and says 'Wow, it's really nice here and sweet,' even in the competitive movie business.</b>
-> <p><i>Harvey Weinstein</i></p>
+> <b>Beauty is often worse than wine intoxicating both the holder and beholder.</b>
+> <p><i>John Zimmerman</i></p>
 
 <br>
