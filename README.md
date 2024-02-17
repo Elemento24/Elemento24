@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you put the interest of a kid on money instead of heart then you're destroying the beauty of our lives and our thought process, which should be about how much responsibilities you carry as an athlete and a citizen.</b>
-> <p><i>Alexis Arguello</i></p>
+> <b>I was fired by 'America's Next Top Model' on my birthday.</b>
+> <p><i>Paulina Porizkova</i></p>
 
 <br>
