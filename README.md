@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the right hand of Nature. The latter has only given us being, the former has made us men.</b>
-> <p><i>Friedrich Schiller</i></p>
+> <b>Baseball just a came as simple as a ball and bat. Yet, as complex as the American spirit it symbolizes. A sport, a business and sometimes almost even a religion.</b>
+> <p><i>Ernie Harwell</i></p>
 
 <br>
