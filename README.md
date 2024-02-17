@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Baseball just a came as simple as a ball and bat. Yet, as complex as the American spirit it symbolizes. A sport, a business and sometimes almost even a religion.</b>
-> <p><i>Ernie Harwell</i></p>
+> <b>When you put the interest of a kid on money instead of heart then you're destroying the beauty of our lives and our thought process, which should be about how much responsibilities you carry as an athlete and a citizen.</b>
+> <p><i>Alexis Arguello</i></p>
 
 <br>
