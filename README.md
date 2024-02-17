@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think if there's any difference between me and a traditional CEO, it's that I've been unwilling to change myself or shape my personality around what's expected.</b>
-> <p><i>Andrew Mason</i></p>
+> <b>Filth and old age, I'm sure you will agree, are powerful wardens upon chastity.</b>
+> <p><i>Geoffrey Chaucer</i></p>
 
 <br>
