@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course I know very little about architecture, and the older I get the less I know.</b>
-> <p><i>Richard Rogers</i></p>
+> <b>As his partner on this amazing journey, I can tell you Mitt Romney was not handed success. He built it.</b>
+> <p><i>Ann Romney</i></p>
 
 <br>
