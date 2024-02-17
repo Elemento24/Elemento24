@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm just glad I was able to return to some of that innocence and beauty I had as a child when I started my own family, and my children brought me back some of that spirit.</b>
-> <p><i>Angelina Jolie</i></p>
+> <b>Of course I know very little about architecture, and the older I get the less I know.</b>
+> <p><i>Richard Rogers</i></p>
 
 <br>
