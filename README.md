@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage.</b>
-> <p><i>Jack Welch</i></p>
+> <b>I'm just part of a tradition of people who aren't pleased. I would never think anyone else who has the same attitude was getting it from me. I'd just think they're... sensible.</b>
+> <p><i>Jack Dee</i></p>
 
 <br>
