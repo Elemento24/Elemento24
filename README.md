@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In our relationship, we don't have that situation. I don't require what he needs, and he doesn't require what I need. I know what I do I have an amazing life that nobody knows about.</b>
-> <p><i>John Oates</i></p>
+> <b>Yeah, well I think anyone who likes fast cars will love the Tesla. And it has fantastic handling by the way. I mean this car will crush a Porsche on the track, just crush it. So if you like fast cars, you'll love this car. And then oh, by the way, it happens to be electric and it's twice the efficiency of a Prius.</b>
+> <p><i>Elon Musk</i></p>
 
 <br>
