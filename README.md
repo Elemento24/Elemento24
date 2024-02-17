@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not into business at all.</b>
-> <p><i>Freddie Mercury</i></p>
+> <b>In our relationship, we don't have that situation. I don't require what he needs, and he doesn't require what I need. I know what I do I have an amazing life that nobody knows about.</b>
+> <p><i>John Oates</i></p>
 
 <br>
