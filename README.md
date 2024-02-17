@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think if you give your best as a parent, then that's all you can do.</b>
-> <p><i>Heidi Klum</i></p>
+> <b>I'm probably the only person who goes to work and says 'Wow, it's really nice here and sweet,' even in the competitive movie business.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
