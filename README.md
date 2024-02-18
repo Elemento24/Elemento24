@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a role and function for beauty in our time.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>Know what's weird? Day by day, nothing seems to change. But pretty soon, everything's different.</b>
+> <p><i>Bill Watterson</i></p>
 
 <br>
