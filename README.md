@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I spent a lot of money on booze, birds and fast cars. The rest I just squandered.</b>
-> <p><i>George Best</i></p>
+> <b>Words to me were magic. You could say a word and it could conjure up all kinds of images or feelings or a chilly sensation or whatever. It was amazing to me that words had this power.</b>
+> <p><i>Amy Tan</i></p>
 
 <br>
