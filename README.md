@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Picture yourself vividly as winning, and that alone will contribute immeasurably to success.</b>
-> <p><i>Harry Emerson Fosdick</i></p>
+> <b>It's amazing to me that, in the 42 years since President Kennedy signed the Equal Pay Act into law, women today still receive fewer wages than men for the same work.</b>
+> <p><i>Mike Honda</i></p>
 
 <br>
