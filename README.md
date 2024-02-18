@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A small group of thoughtful people could change the world. Indeed, it's the only thing that ever has.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>Clever men are good, but they are not the best.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
