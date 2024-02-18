@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no more lovely, friendly and charming relationship, communion or company than a good marriage.</b>
-> <p><i>Martin Luther</i></p>
+> <b>A small group of thoughtful people could change the world. Indeed, it's the only thing that ever has.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
