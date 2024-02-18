@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Clever men are good, but they are not the best.</b>
-> <p><i>Thomas Carlyle</i></p>
+> <b>I spent a lot of money on booze, birds and fast cars. The rest I just squandered.</b>
+> <p><i>George Best</i></p>
 
 <br>
