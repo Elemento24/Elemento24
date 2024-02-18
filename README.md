@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As his partner on this amazing journey, I can tell you Mitt Romney was not handed success. He built it.</b>
-> <p><i>Ann Romney</i></p>
+> <b>I don't like to go over curbs, because I don't want to be hard on the car.</b>
+> <p><i>Alain Prost</i></p>
 
 <br>
