@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Buildings should serve people, not the other way around.</b>
-> <p><i>John Portman</i></p>
+> <b>There is a role and function for beauty in our time.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
