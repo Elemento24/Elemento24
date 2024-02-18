@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Know what's weird? Day by day, nothing seems to change. But pretty soon, everything's different.</b>
-> <p><i>Bill Watterson</i></p>
+> <b>There is no more lovely, friendly and charming relationship, communion or company than a good marriage.</b>
+> <p><i>Martin Luther</i></p>
 
 <br>
