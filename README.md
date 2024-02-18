@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I need, absolutely, to be alone.</b>
-> <p><i>Jeanne Moreau</i></p>
+> <b>I feel however, that we architects have a special duty and mission... (to contribute) to the socio-cultural development of architecture and urban planning.</b>
+> <p><i>Kenzo Tange</i></p>
 
 <br>
