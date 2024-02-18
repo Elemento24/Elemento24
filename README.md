@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing to me that, in the 42 years since President Kennedy signed the Equal Pay Act into law, women today still receive fewer wages than men for the same work.</b>
-> <p><i>Mike Honda</i></p>
+> <b>The best way to navigate through life is to give up all of our controls.</b>
+> <p><i>Gerald Jampolsky</i></p>
 
 <br>
