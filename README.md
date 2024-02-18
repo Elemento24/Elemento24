@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to navigate through life is to give up all of our controls.</b>
-> <p><i>Gerald Jampolsky</i></p>
+> <b>Happiness is an attitude of mind, born of the simple determination to be happy under all outward circumstances.</b>
+> <p><i>J. Donald Walters</i></p>
 
 <br>
