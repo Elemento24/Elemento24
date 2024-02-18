@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man should forget his anger before he lies down to sleep.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>The good Lord is amazing He opens up doors. I was close to abandoning the dream, and He was like, 'Hey, slow down there, buddy.'</b>
+> <p><i>David Nail</i></p>
 
 <br>
