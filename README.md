@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like to go over curbs, because I don't want to be hard on the car.</b>
-> <p><i>Alain Prost</i></p>
+> <b>I need, absolutely, to be alone.</b>
+> <p><i>Jeanne Moreau</i></p>
 
 <br>
