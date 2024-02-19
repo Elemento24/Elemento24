@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In any architecture, there is an equity between the pragmatic function and the symbolic function.</b>
-> <p><i>Michael Graves</i></p>
+> <b>Even in decline, a virtuous man increases the beauty of his behavior. A burning stick, though turned to the ground, has its flame drawn upwards.</b>
+> <p><i>Saskya Pandita</i></p>
 
 <br>
