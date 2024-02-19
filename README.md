@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody grows old merely by living a number of years. We grow old by deserting our ideals. Years may wrinkle the skin, but to give up enthusiasm wrinkles the soul.</b>
-> <p><i>Samuel Ullman</i></p>
+> <b>People don't understand that it was maybe my biggest pleasure to drive an F1 car when it's wet.</b>
+> <p><i>Alain Prost</i></p>
 
 <br>
