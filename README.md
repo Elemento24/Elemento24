@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Americans are the most generous country on the planet. I've worked in Europe, I've worked in Australia. There is no where else where you get absolutely no attitude for being a foreigner. If you do your job well, they embrace you.</b>
-> <p><i>Hugh Jackman</i></p>
+> <b>Baalbek is so beautiful. It is the heart of beauty in the Middle East - I want to embrace these people with my music. I will try so hard for them. Their president is a Christian, their prime minister is a Muslim. Music is for everyone.</b>
+> <p><i>Mstislav Rostropovich</i></p>
 
 <br>
