@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At an early age, I started my own paper route. Once I saw how you could service people and do a good job and get paid for it, I just wanted to be the best I could be in whatever I did.</b>
-> <p><i>Puff Daddy</i></p>
+> <b>Have regular hours for work and play make each day both useful and pleasant, and prove that you understand the worth of time by employing it well. Then youth will be delightful, old age will bring few regrets, and life will become a beautiful success.</b>
+> <p><i>Louisa May Alcott</i></p>
 
 <br>
