@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always thought of beauty therapy, 'alternative' treatments and the like as the female equivalent of brothels - for essentially self-deceiving people who feel a bit hollow and have to pay to be touched.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>It was said Daredevil grew up in Hell's Kitchen, an amazing name for a neighbourhood. But that opened a Pandora's box of all the crime stuff I wanted to do. I borrowed liberally from Will Eisner's 'The Spirit' and turned 'Daredevil' into a crime comic.</b>
+> <p><i>Frank Miller</i></p>
 
 <br>
