@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business practices and how we treat the planet are also in desperate need of re-humanization.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>People discuss my art and pretend to understand as if it were necessary to understand, when it's simply necessary to love.</b>
+> <p><i>Claude Monet</i></p>
 
 <br>
