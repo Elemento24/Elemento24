@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even in decline, a virtuous man increases the beauty of his behavior. A burning stick, though turned to the ground, has its flame drawn upwards.</b>
-> <p><i>Saskya Pandita</i></p>
+> <b>I do like change. That's the one thing exciting about me.</b>
+> <p><i>Katherine Heigl</i></p>
 
 <br>
