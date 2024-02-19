@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I loved about 'Summer' was that they were these four bright kids with a wonderful future. In a way, she was the one with the brains, and then you have the beauty queen and the jock and the introvert.</b>
-> <p><i>Kevin Williamson</i></p>
+> <b>If there's ever an example that military power alone cannot be successful in Afghanistan, I think it was the Soviet experience.</b>
+> <p><i>Robert M. Gates</i></p>
 
 <br>
