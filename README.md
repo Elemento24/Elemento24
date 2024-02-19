@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the best temporary cures for pride and affectation is seasickness a man who wants to vomit never puts on airs.</b>
-> <p><i>Josh Billings</i></p>
+> <b>I pretty much borrow my entire beauty regime from my mom.</b>
+> <p><i>Rashida Jones</i></p>
 
 <br>
