@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People don't understand that it was maybe my biggest pleasure to drive an F1 car when it's wet.</b>
-> <p><i>Alain Prost</i></p>
+> <b>I was a student at Columbia College, actually, in the Architecture school. Paul would drive in from Queens, showing me these new songs. I can't remember us working it out.</b>
+> <p><i>Art Garfunkel</i></p>
 
 <br>
