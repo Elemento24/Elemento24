@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I discovered something amazing, which has caused a lot of controversy - the fountain of youth. I have to keep it a secret!</b>
-> <p><i>David Copperfield</i></p>
+> <b>Not every religion has to have St. Augustine's attitude to sex. Why even in our culture marriages are celebrated in a church, everyone present knows what is going to happen that night, but that doesn't prevent it being a religious ceremony.</b>
+> <p><i>Ludwig Wittgenstein</i></p>
 
 <br>
