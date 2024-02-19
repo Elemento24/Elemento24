@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People discuss my art and pretend to understand as if it were necessary to understand, when it's simply necessary to love.</b>
-> <p><i>Claude Monet</i></p>
+> <b>At an early age, I started my own paper route. Once I saw how you could service people and do a good job and get paid for it, I just wanted to be the best I could be in whatever I did.</b>
+> <p><i>Puff Daddy</i></p>
 
 <br>
