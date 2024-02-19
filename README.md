@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The experience of being in space didn't change my perspective of myself or of the planet or of life. I had no spiritual experience.</b>
-> <p><i>Sally Ride</i></p>
+> <b>Death is the mother of Beauty hence from her, alone, shall come fulfillment to our dreams and our desires.</b>
+> <p><i>Wallace Stevens</i></p>
 
 <br>
