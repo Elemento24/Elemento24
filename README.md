@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was said Daredevil grew up in Hell's Kitchen, an amazing name for a neighbourhood. But that opened a Pandora's box of all the crime stuff I wanted to do. I borrowed liberally from Will Eisner's 'The Spirit' and turned 'Daredevil' into a crime comic.</b>
-> <p><i>Frank Miller</i></p>
+> <b>One of the best temporary cures for pride and affectation is seasickness a man who wants to vomit never puts on airs.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
