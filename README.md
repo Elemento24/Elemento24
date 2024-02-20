@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Choose your companions from the best Who draws a bucket with the rest soon topples down the hill.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>We live in a country that used to have a can-do attitude, and now we have a 'what-can-you-do-for-me?' attitude, and what I try to do is find ways that we can develop common ground.</b>
+> <p><i>Benjamin Carson</i></p>
 
 <br>
