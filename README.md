@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I quit high school on my birthday. It was my senior year and I didn't see the point. This was 1962, and I was ready to make music.</b>
-> <p><i>Barry White</i></p>
+> <b>The spirit of democracy is not a mechanical thing to be adjusted by abolition of forms. It requires change of heart.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
