@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If we know the divine art of concentration, if we know the divine art of meditation, if we know the divine art of contemplation, easily and consciously we can unite the inner world and the outer world.</b>
-> <p><i>Sri Chinmoy</i></p>
+> <b>In every country and every age, the priest had been hostile to Liberty.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
