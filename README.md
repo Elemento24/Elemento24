@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Truth is a thing immortal and perpetual, and it gives to us a beauty that fades not away in time.</b>
-> <p><i>Frank Norris</i></p>
+> <b>We mean by 'politics' the people's business - the most important business there is.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
