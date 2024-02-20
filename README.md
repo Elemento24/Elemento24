@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The spirit of democracy is not a mechanical thing to be adjusted by abolition of forms. It requires change of heart.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>Choose your companions from the best Who draws a bucket with the rest soon topples down the hill.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
