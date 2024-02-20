@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd like to state that Spike Lee is not saying that African American culture is just for black people alone to enjoy and cherish. Culture is for everybody.</b>
-> <p><i>Spike Lee</i></p>
+> <b>The best part of the art of living is to know how to grow old gracefully.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
