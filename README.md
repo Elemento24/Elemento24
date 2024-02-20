@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a terrific marriage, but unlike a lot of relationships where they ebb and flow, no matter what happens you fall deeper and deeper in love every day. It's kind of the best thing that can happen to you. It's thrilling.</b>
-> <p><i>Hugh Jackman</i></p>
+> <b>I have never had trouble with any actor being able to visualise things. They are amazing. As long as you have your monster head on a long stick, so you can hold it up there and you can wave it around and let them see it and explain it to them, they are just great.</b>
+> <p><i>Dennis Muren</i></p>
 
 <br>
