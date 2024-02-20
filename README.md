@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Baalbek is so beautiful. It is the heart of beauty in the Middle East - I want to embrace these people with my music. I will try so hard for them. Their president is a Christian, their prime minister is a Muslim. Music is for everyone.</b>
-> <p><i>Mstislav Rostropovich</i></p>
+> <b>Reason clears and plants the wilderness of the imagination to harvest the wheat of art.</b>
+> <p><i>Austin O'Malley</i></p>
 
 <br>
