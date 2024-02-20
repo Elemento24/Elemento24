@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in a country that used to have a can-do attitude, and now we have a 'what-can-you-do-for-me?' attitude, and what I try to do is find ways that we can develop common ground.</b>
-> <p><i>Benjamin Carson</i></p>
+> <b>Investors have few spare tires left. Think of the image of a car on a bumpy road to an uncertain destination that has already used up its spare tire. The cash reserves of people have been eaten up by the recent market volatility.</b>
+> <p><i>Mohamed El-Erian</i></p>
 
 <br>
