@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have never had trouble with any actor being able to visualise things. They are amazing. As long as you have your monster head on a long stick, so you can hold it up there and you can wave it around and let them see it and explain it to them, they are just great.</b>
-> <p><i>Dennis Muren</i></p>
+> <b>If we know the divine art of concentration, if we know the divine art of meditation, if we know the divine art of contemplation, easily and consciously we can unite the inner world and the outer world.</b>
+> <p><i>Sri Chinmoy</i></p>
 
 <br>
