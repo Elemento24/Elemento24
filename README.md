@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We mean by 'politics' the people's business - the most important business there is.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>First let me report that the art in the Barnes Collection has never looked better. My trips to the old Barnes were always amazing, but except on the sunniest days, you could barely see the art. The building always felt pushed beyond its capacity.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
