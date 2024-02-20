@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like many women my age, I am 28 years old.</b>
-> <p><i>Mary Schmich</i></p>
+> <b>My first car was an '84 Ford Taurus. It caught on fire from me trying to change the fuel pump, so that wasn't good at all. Dried leaves on the ground while I was trying to change the fuel pump. Don't do that. Do it on concrete.</b>
+> <p><i>T-Pain</i></p>
 
 <br>
