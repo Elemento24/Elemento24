@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I can change than anyone can change. I promise you that.</b>
-> <p><i>Brett Favre</i></p>
+> <b>It is great folly to wish to be wise all alone.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
