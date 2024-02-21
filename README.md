@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Skill without imagination is craftsmanship and gives us many useful objects such as wickerwork picnic baskets. Imagination without skill gives us modern art.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>When I'm online, I'm alone in a room, tapping on a keyboard, staring at a cathode-ray tube.</b>
+> <p><i>Clifford Stoll</i></p>
 
 <br>
