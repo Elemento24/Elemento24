@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My favorite laser disk ever was the laser disk for The Graduate, which had a commentary track that wasn't even the filmmakers, it was a professor, some film criticism guy who just happen to be this amazing commentator who went off into the whole theory of comedy.</b>
-> <p><i>Jay Roach</i></p>
+> <b>Smiling is definitely one of the best beauty remedies. If you have a good sense of humor and a good approach to life, that's beautiful.</b>
+> <p><i>Rashida Jones</i></p>
 
 <br>
