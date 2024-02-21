@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Smiling is definitely one of the best beauty remedies. If you have a good sense of humor and a good approach to life, that's beautiful.</b>
-> <p><i>Rashida Jones</i></p>
+> <b>Skill without imagination is craftsmanship and gives us many useful objects such as wickerwork picnic baskets. Imagination without skill gives us modern art.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
