@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Animation is not the art of drawings that move but the art of movements that are drawn.</b>
-> <p><i>Norman McLaren</i></p>
+> <b>Investors have few spare tires left. Think of the image of a car on a bumpy road to an uncertain destination that has already used up its spare tire. The cash reserves of people have been eaten up by the recent market volatility.</b>
+> <p><i>Mohamed El-Erian</i></p>
 
 <br>
