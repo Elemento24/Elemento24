@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is great folly to wish to be wise all alone.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>Never Have Your Dog Stuffed is really advice to myself, a reminder to myself not to avoid change or uncertainty, but to go with it, to surf into change.</b>
+> <p><i>Alan Alda</i></p>
 
 <br>
