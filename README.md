@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I look OK. I look better in person than I do on film, which is bad because it's how I make my living, but I am not a beauty and on balance I am glad.</b>
-> <p><i>Felicity Huffman</i></p>
+> <b>No lie ever reaches old age.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
