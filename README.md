@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm online, I'm alone in a room, tapping on a keyboard, staring at a cathode-ray tube.</b>
-> <p><i>Clifford Stoll</i></p>
+> <b>You live in a deranged age, more deranged that usual, because in spite of great scientific and technological advances, man has not the faintest idea of who he is or what he is doing.</b>
+> <p><i>Walker Percy</i></p>
 
 <br>
