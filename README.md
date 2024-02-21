@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just want to do what I do best, and that's fight. I love it.</b>
-> <p><i>Mike Tyson</i></p>
+> <b>Pessimism only describes an attitude, and not facts, and hence is entirely subjective.</b>
+> <p><i>Francis Parker Yockey</i></p>
 
 <br>
