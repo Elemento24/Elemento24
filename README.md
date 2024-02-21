@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A stockbroker urged me to buy a stock that would triple its value every year. I told him, 'At my age, I don't even buy green bananas.'</b>
-> <p><i>Claude Pepper</i></p>
+> <b>I love photography. My boyfriend's got a great camera, which I bought for his birthday.</b>
+> <p><i>Sarah Sutton</i></p>
 
 <br>
