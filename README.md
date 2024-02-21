@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You live in a deranged age, more deranged that usual, because in spite of great scientific and technological advances, man has not the faintest idea of who he is or what he is doing.</b>
-> <p><i>Walker Percy</i></p>
+> <b>Animation is not the art of drawings that move but the art of movements that are drawn.</b>
+> <p><i>Norman McLaren</i></p>
 
 <br>
