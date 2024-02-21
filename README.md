@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pessimism only describes an attitude, and not facts, and hence is entirely subjective.</b>
-> <p><i>Francis Parker Yockey</i></p>
+> <b>I don't have the best body in the world, but I know for a fact that I have a really good voice.</b>
+> <p><i>Kesha</i></p>
 
 <br>
