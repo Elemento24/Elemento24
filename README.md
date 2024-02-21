@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love photography. My boyfriend's got a great camera, which I bought for his birthday.</b>
-> <p><i>Sarah Sutton</i></p>
+> <b>'Breaking Bad' is the best, the greatest, the most amazing thing I have ever watched on television.</b>
+> <p><i>Tony Kaye</i></p>
 
 <br>
