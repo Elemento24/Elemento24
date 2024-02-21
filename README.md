@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No lie ever reaches old age.</b>
-> <p><i>Sophocles</i></p>
+> <b>Art is science made clear.</b>
+> <p><i>Wilson Mizner</i></p>
 
 <br>
