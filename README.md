@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't have the best body in the world, but I know for a fact that I have a really good voice.</b>
-> <p><i>Kesha</i></p>
+> <b>I've always liked traveling around Europe and seeing the architecture. The buildings in capital cities have been there for hundreds and hundreds and hundreds of years. Some look better than the new ones.</b>
+> <p><i>Joe Elliott</i></p>
 
 <br>
