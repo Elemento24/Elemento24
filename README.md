@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never Have Your Dog Stuffed is really advice to myself, a reminder to myself not to avoid change or uncertainty, but to go with it, to surf into change.</b>
-> <p><i>Alan Alda</i></p>
+> <b>My favorite laser disk ever was the laser disk for The Graduate, which had a commentary track that wasn't even the filmmakers, it was a professor, some film criticism guy who just happen to be this amazing commentator who went off into the whole theory of comedy.</b>
+> <p><i>Jay Roach</i></p>
 
 <br>
