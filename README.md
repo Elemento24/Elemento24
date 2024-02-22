@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your children need your presence more than your presents.</b>
-> <p><i>Jesse Jackson</i></p>
+> <b>Book-jacket design may become a lost art, like album-cover design, without which late-20th-century iconography would have been pauperized.</b>
+> <p><i>James Wolcott</i></p>
 
 <br>
