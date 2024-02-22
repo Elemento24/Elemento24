@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to work for a management consulting company, so I dressed differently - business casual, probably a lot of things from Banana Republic. My wardrobe now is definitely more expensive, but I always dress for the occasion.</b>
-> <p><i>John Legend</i></p>
+> <b>There was no respect for youth when I was young, and now that I am old, there is no respect for age, I missed it coming and going.</b>
+> <p><i>J. B. Priestley</i></p>
 
 <br>
