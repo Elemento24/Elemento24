@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The nature of the global business environment guarantees that no matter how hard we work to create a stable and healthy organisation, our organisation will continue to experience dramatic changes far beyond our control.</b>
-> <p><i>Margaret J. Wheatley</i></p>
+> <b>If I am a cup maker, I'm interested in making the best cup I possibly can. My effort goes into that cup, not what people think about it.</b>
+> <p><i>Denzel Washington</i></p>
 
 <br>
