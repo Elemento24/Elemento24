@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember the first time I felt that I was sharing the stage with someone spectacular was dancing with Beyonce. It was the dancers, the band, Beyonce and me in front of thousands of people. That was sick. It was pretty amazing that I got to travel the world with someone like her.</b>
-> <p><i>Harry Shum, Jr.</i></p>
+> <b>Patience is the art of hoping.</b>
+> <p><i>Luc de Clapiers</i></p>
 
 <br>
