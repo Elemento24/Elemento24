@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For a while I felt very alone sort of out there in the world of comics, especially here in the States.</b>
-> <p><i>Bill Sienkiewicz</i></p>
+> <b>The artist one day falls through a hole in the brambles, and from that moment he is following the dark rapids of an underground river which may sometimes flow so near to the surface that the laughing picnic parties are heard above.</b>
+> <p><i>Cyril Connolly</i></p>
 
 <br>
