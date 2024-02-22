@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Book-jacket design may become a lost art, like album-cover design, without which late-20th-century iconography would have been pauperized.</b>
-> <p><i>James Wolcott</i></p>
+> <b>When I walked to school in the mornings I would start out alone but would pick up four other boys along the way. We would set out together after school across the village green.</b>
+> <p><i>Roald Dahl</i></p>
 
 <br>
