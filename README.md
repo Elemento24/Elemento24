@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There was no respect for youth when I was young, and now that I am old, there is no respect for age, I missed it coming and going.</b>
-> <p><i>J. B. Priestley</i></p>
+> <b>I remember the first time I felt that I was sharing the stage with someone spectacular was dancing with Beyonce. It was the dancers, the band, Beyonce and me in front of thousands of people. That was sick. It was pretty amazing that I got to travel the world with someone like her.</b>
+> <p><i>Harry Shum, Jr.</i></p>
 
 <br>
