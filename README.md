@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a rock star. Sure I am, to a certain extent because of the situation, but when kids ask me how it feels to be a rock star, I say leave me alone, I'm not a rock star. I'm not in it for the fame, I'm in it because I like to play.</b>
-> <p><i>Eddie Van Halen</i></p>
+> <b>It's odd, because I used to see pictures, on telly or wherever, of what I now know to be Shaftesbury Avenue and I used to wonder what that amazing street with all the lights was. Well, now I know. I think when you get a wee taste of something, it maybe isn't what you thought it was.</b>
+> <p><i>Shirley Henderson</i></p>
 
 <br>
