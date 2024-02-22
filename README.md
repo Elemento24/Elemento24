@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Research and development needs permanent tax credits to build the technology that spurs our growth. But no government programs alone can get America's students to study more science and math parents must push and help their children to meet this goal.</b>
-> <p><i>Ernest Istook</i></p>
+> <b>I used to do a lot of interviews in the early '80s, when my career started, but it came to a point when I decided I didn't want to talk anymore, and people kind of understood that and left me alone.</b>
+> <p><i>George Strait</i></p>
 
 <br>
