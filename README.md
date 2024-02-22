@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Can space break? I mean the space of art galleries. Over the past 100 years, art galleries have gone from looking like Beaux Arts salons to simple storefronts to industrial lofts to the gleaming giant white cubes of Chelsea with their shiny concrete floors.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Research and development needs permanent tax credits to build the technology that spurs our growth. But no government programs alone can get America's students to study more science and math parents must push and help their children to meet this goal.</b>
+> <p><i>Ernest Istook</i></p>
 
 <br>
