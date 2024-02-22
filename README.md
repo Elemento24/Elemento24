@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The alchemy of good curating amounts to this: Sometimes, placing one work of art near another makes one plus one equal three. Two artworks arranged alchemically leave each intact, transform both, and create a third thing.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Your children need your presence more than your presents.</b>
+> <p><i>Jesse Jackson</i></p>
 
 <br>
