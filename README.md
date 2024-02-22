@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I walked to school in the mornings I would start out alone but would pick up four other boys along the way. We would set out together after school across the village green.</b>
-> <p><i>Roald Dahl</i></p>
+> <b>All great change in America begins at the dinner table.</b>
+> <p><i>Ronald Reagan</i></p>
 
 <br>
