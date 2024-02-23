@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like what I see now in China, but I think the Japanese are a step ahead into craziness and weirdness. I go to galleries there that are the size of a New York elevator, and every time I'm surprised by the amazing things I find. I really hope I'll be able to promote some of these artists, to show their work in the West.</b>
-> <p><i>Jean Pigozzi</i></p>
+> <b>Fall is my favorite season in Los Angeles, watching the birds change color and fall from the trees.</b>
+> <p><i>David Letterman</i></p>
 
 <br>
