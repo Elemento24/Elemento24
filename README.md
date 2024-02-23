@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I needed most was to love and to be loved, eager to be caught. Happily I wrapped those painful bonds around me and sure enough, I would be lashed with the red-hot pokers or jealousy, by suspicions and fear, by burst of anger and quarrels.</b>
-> <p><i>Saint Augustine</i></p>
+> <b>You have to be desirable. And that's why so many woman of my age or even younger are pushed to Botox and plastic surgery, all the things that people say, 'Why do women do this?' Where do you go in your 50s in your career?</b>
+> <p><i>Kim Cattrall</i></p>
 
 <br>
