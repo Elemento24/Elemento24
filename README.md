@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We must stop thinking of the individual and start thinking about what is best for society.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>You know, sitting in the car when they got back in and - first of all, it was relief. I was not - there were two get away cars or switch cars they were called. And, you know, the group tended to include everyone.</b>
+> <p><i>Patty Hearst</i></p>
 
 <br>
