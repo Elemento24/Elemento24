@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Coldplay fans are the best in the world. If you like Coldplay then you're obviously very intelligent and good looking and all-around brilliant.</b>
-> <p><i>Chris Martin</i></p>
+> <b>We must stop thinking of the individual and start thinking about what is best for society.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
