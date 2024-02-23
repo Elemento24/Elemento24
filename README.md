@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're going to shoot one Polaroid per show. I'm going to sign this before it even develops because I know that once it develops with my signature on it, it's worth a fortune. I'll make this a work of magic warlock art.</b>
-> <p><i>Charlie Sheen</i></p>
+> <b>The best cure for insomnia is to get a lot of sleep.</b>
+> <p><i>W. C. Fields</i></p>
 
 <br>
