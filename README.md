@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My second play, The Birthday Party, I wrote in 1958 - or 1957. It was totally destroyed by the critics of the day, who called it an absolute load of rubbish.</b>
-> <p><i>Harold Pinter</i></p>
+> <b>I think I'm pretty smart on what I spend my money on. I still don't have a new car, I drive my old car that I've had forever. But I bought a house in downtown Chicago.</b>
+> <p><i>Chris O'Donnell</i></p>
 
 <br>
