@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Women are smart in business and dumb in love. They won't date outside their zip code, let alone outside the city. They are city snobs.</b>
-> <p><i>Patti Stanger</i></p>
+> <b>Architecture is my work, and I've spent my whole life at a drawing board, but life is more important than architecture. What matters is to improve human beings.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
