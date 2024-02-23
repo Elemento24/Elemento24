@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wushu is a move in Chinese, a physical move. An attack. Wushu is like an art.</b>
-> <p><i>Jet Li</i></p>
+> <b>Those who improve with age embrace the power of personal growth and personal achievement and begin to replace youth with wisdom, innocence with understanding, and lack of purpose with self-actualization.</b>
+> <p><i>Bo Bennett</i></p>
 
 <br>
