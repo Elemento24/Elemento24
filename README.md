@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reason is a crutch for age, but youth is strong enough to walk alone.</b>
-> <p><i>John Dryden</i></p>
+> <b>Coldplay fans are the best in the world. If you like Coldplay then you're obviously very intelligent and good looking and all-around brilliant.</b>
+> <p><i>Chris Martin</i></p>
 
 <br>
