@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how, over time, a person's perspective can be altered.</b>
-> <p><i>Fred Durst</i></p>
+> <b>Nobody has wrestled everybody in the business like I have, especially not Bret Hart.</b>
+> <p><i>Ric Flair</i></p>
 
 <br>
