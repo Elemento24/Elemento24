@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best cure for insomnia is to get a lot of sleep.</b>
-> <p><i>W. C. Fields</i></p>
+> <b>I do not see any beauty in self-restraint.</b>
+> <p><i>Mary MacLane</i></p>
 
 <br>
