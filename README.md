@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The trend in some of the contemporary movements in art, but by no means all, seems to deny this ideal and to me appears to lead to a purely decorative conception of painting.</b>
-> <p><i>Edward Hopper</i></p>
+> <b>Modern bodybuilding is ritual, religion, sport, art, and science, awash in Western chemistry and mathematics. Defying nature, it surpasses it.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
