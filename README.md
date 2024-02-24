@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love isn't an emotion or an instinct - it's an art.</b>
-> <p><i>Mae West</i></p>
+> <b>Beauty is everything.</b>
+> <p><i>Jorja Fox</i></p>
 
 <br>
