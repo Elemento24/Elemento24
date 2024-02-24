@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of the individual poems, some are more lyric and some are more descriptive or narrative. Each poem is fixed in a moment. All those moments written or read together take on the movement and architecture of a narrative.</b>
-> <p><i>Marilyn Hacker</i></p>
+> <b>Love isn't an emotion or an instinct - it's an art.</b>
+> <p><i>Mae West</i></p>
 
 <br>
