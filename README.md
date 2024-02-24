@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any revival in which I am involved is liable to change.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>The trend in some of the contemporary movements in art, but by no means all, seems to deny this ideal and to me appears to lead to a purely decorative conception of painting.</b>
+> <p><i>Edward Hopper</i></p>
 
 <br>
