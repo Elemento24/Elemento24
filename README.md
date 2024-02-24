@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is ironic that the one thing that all religions recognize as separating us from our creator, our very self-consciousness, is also the one thing that divides us from our fellow creatures. It was a bitter birthday present from evolution.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>When I'm in the car and somebody comes on the radio singing the high notes, I try to sing along.</b>
+> <p><i>Burton Cummings</i></p>
 
 <br>
