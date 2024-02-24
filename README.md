@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People used what they called a telephone because they hated being close together and they were scared of being alone.</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>The whole aspect of cinema and film festivals should be a moment to come together and celebrate art and humanity. It would be a shame if there was such a divide.</b>
+> <p><i>Keanu Reeves</i></p>
 
 <br>
