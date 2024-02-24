@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The anger of lovers renews their love.</b>
-> <p><i>Terence</i></p>
+> <b>Illness strikes men when they are exposed to change.</b>
+> <p><i>Herodotus</i></p>
 
 <br>
