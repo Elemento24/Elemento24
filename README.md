@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Join me in Olympic Heros for Abstinence. The best sex is no sex.</b>
-> <p><i>Kurt Angle</i></p>
+> <b>I never get the accountants in before I start up a business. It's done on gut feeling, especially if I can see that they are taking the mickey out of the consumer.</b>
+> <p><i>Richard Branson</i></p>
 
 <br>
