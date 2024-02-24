@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm in the car and somebody comes on the radio singing the high notes, I try to sing along.</b>
-> <p><i>Burton Cummings</i></p>
+> <b>The anger of lovers renews their love.</b>
+> <p><i>Terence</i></p>
 
 <br>
