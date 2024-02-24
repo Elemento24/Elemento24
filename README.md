@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Part of the reason for the ugliness of adults, in a child's eyes, is that the child is usually looking upwards, and few faces are at their best when seen from below.</b>
-> <p><i>George Orwell</i></p>
+> <b>People used what they called a telephone because they hated being close together and they were scared of being alone.</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
