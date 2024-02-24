@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never get the accountants in before I start up a business. It's done on gut feeling, especially if I can see that they are taking the mickey out of the consumer.</b>
-> <p><i>Richard Branson</i></p>
+> <b>Politics is not the art of the possible. It consists in choosing between the disastrous and the unpalatable.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
