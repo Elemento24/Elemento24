@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is not the art of the possible. It consists in choosing between the disastrous and the unpalatable.</b>
-> <p><i>John Kenneth Galbraith</i></p>
+> <b>The summer of 2002 at the Wilson birthday party I met Van Dyke again and I made plans to have dinner with him.</b>
+> <p><i>Matthew Sweet</i></p>
 
 <br>
