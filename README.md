@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In art the best is good enough.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>Artists who seek perfection in everything are those who cannot attain it in anything.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
