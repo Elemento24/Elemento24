@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is change, continuing change, inevitable change, that is the dominant factor in society today. No sensible decision can be made any longer without taking into account not only the world as it is, but the world as it will be.</b>
-> <p><i>Isaac Asimov</i></p>
+> <b>Summer is a great time to visit art museums, which offer the refreshing rinse of swimming pools - only instead of cool water, you immerse yourself in art.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
