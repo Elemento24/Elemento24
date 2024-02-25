@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is important, then, is not that the critic should possess a correct abstract definition of beauty for the intellect, but a certain kind of temperament, the power of being deeply moved by the presence of beautiful objects.</b>
-> <p><i>Walter Pater</i></p>
+> <b>A fool's brain digests philosophy into folly, science into superstition, and art into pedantry. Hence University education.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
