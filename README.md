@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always keep that happy attitude. Pretend that you are holding a beautiful fragrant bouquet.</b>
-> <p><i>Earl Nightingale</i></p>
+> <b>What is important, then, is not that the critic should possess a correct abstract definition of beauty for the intellect, but a certain kind of temperament, the power of being deeply moved by the presence of beautiful objects.</b>
+> <p><i>Walter Pater</i></p>
 
 <br>
