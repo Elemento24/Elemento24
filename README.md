@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I suppose that by being absent from the music business, it appeared that I just dropped out, but really I never did. I was continuously working and doing various things.</b>
-> <p><i>Cat Stevens</i></p>
+> <b>Beauty is a short-lived tyranny.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
