@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a side to this industry that nurtures divas who can't write. It's a big business.</b>
-> <p><i>Tori Amos</i></p>
+> <b>As a kid I had buck teeth and braces and acne. I hated what I saw. I'm still not comfortable, but that's why I change and adapt the way I look.</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
