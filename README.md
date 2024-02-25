@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the first time, I lived alone... in a luxury apartment on Sunset Strip. For a few days I loved the idea, but I got lonely and restless.</b>
-> <p><i>Patty Duke</i></p>
+> <b>People with high blood pressure, diabetes - those are conditions brought about by life style. If you change the life style, those conditions will leave.</b>
+> <p><i>Dick Gregory</i></p>
 
 <br>
