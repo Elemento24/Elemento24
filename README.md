@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A sense of freedom is something that, happily, comes with age and life experience.</b>
-> <p><i>Diane Keaton</i></p>
+> <b>Real popular culture is folk art - coalminers' songs and so forth.</b>
+> <p><i>Noam Chomsky</i></p>
 
 <br>
