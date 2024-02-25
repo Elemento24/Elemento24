@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you believe in what you are doing, then let nothing hold you up in your work. Much of the best work of the world has been done against seeming impossibilities. The thing is to get the work done.</b>
-> <p><i>Dale Carnegie</i></p>
+> <b>It was an amazing mistake to lose 10p on every copy because your sleeve is so expensive.</b>
+> <p><i>Peter Hook</i></p>
 
 <br>
