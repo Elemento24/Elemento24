@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think a simple rule of business is, if you do the things that are easier first, then you can actually make a lot of progress.</b>
-> <p><i>Mark Zuckerberg</i></p>
+> <b>My attitude toward men who mess around is simple: If you find 'em, kill 'em.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
