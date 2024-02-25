@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the world of language, or in other words in the world of art and liberal education, religion necessarily appears as mythology or as Bible.</b>
-> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
+> <b>A sense of freedom is something that, happily, comes with age and life experience.</b>
+> <p><i>Diane Keaton</i></p>
 
 <br>
