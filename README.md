@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am certainly not one of those who need to be prodded. In fact, if anything, I am the prod.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>Strong characters are brought out by change of situation, and gentle ones by permanence.</b>
+> <p><i>Jean Paul</i></p>
 
 <br>
