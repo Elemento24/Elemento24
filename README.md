@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Strong characters are brought out by change of situation, and gentle ones by permanence.</b>
-> <p><i>Jean Paul</i></p>
+> <b>I think we risk becoming the best informed society that has ever died of ignorance.</b>
+> <p><i>Ruben Blades</i></p>
 
 <br>
