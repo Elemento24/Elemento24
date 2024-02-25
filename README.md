@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A fool's brain digests philosophy into folly, science into superstition, and art into pedantry. Hence University education.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>When you're in the car, how well you do is down to you and you alone-no band, no management, no marketing.</b>
+> <p><i>Nick Mason</i></p>
 
 <br>
