@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we risk becoming the best informed society that has ever died of ignorance.</b>
-> <p><i>Ruben Blades</i></p>
+> <b>I think a simple rule of business is, if you do the things that are easier first, then you can actually make a lot of progress.</b>
+> <p><i>Mark Zuckerberg</i></p>
 
 <br>
