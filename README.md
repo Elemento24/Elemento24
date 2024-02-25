@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was an amazing mistake to lose 10p on every copy because your sleeve is so expensive.</b>
-> <p><i>Peter Hook</i></p>
+> <b>For the first time, I lived alone... in a luxury apartment on Sunset Strip. For a few days I loved the idea, but I got lonely and restless.</b>
+> <p><i>Patty Duke</i></p>
 
 <br>
