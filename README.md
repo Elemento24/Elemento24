@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who keeps his cool best wins.</b>
-> <p><i>Norman Cousins</i></p>
+> <b>I think I could go away tomorrow. I've already accomplished something. It's such a selfish business that sometimes I get sick of myself.</b>
+> <p><i>Jim Carrey</i></p>
 
 <br>
