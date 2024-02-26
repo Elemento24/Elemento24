@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Surround yourself with the best people you can find, delegate authority, and don't interfere as long as the policy you've decided upon is being carried out.</b>
-> <p><i>Ronald Reagan</i></p>
+> <b>It's amazing how fast generations lose sight of other generations. One of the first things the young composers who come to work with me say is that they want to write music people will like, instead of gaining their credentials by being rejected by the audience.</b>
+> <p><i>Carlisle Floyd</i></p>
 
 <br>
