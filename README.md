@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Design is about point of view, and there should be some sort of woman or lifestyle or attitude in one's head as a designer.</b>
-> <p><i>Vera Wang</i></p>
+> <b>If Galileo had said in verse that the world moved, the inquisition might have let him alone.</b>
+> <p><i>Thomas Hardy</i></p>
 
 <br>
