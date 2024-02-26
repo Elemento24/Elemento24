@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I test the car for a year I can be quite competitive the next season.</b>
-> <p><i>Valentino Rossi</i></p>
+> <b>Simply by not owning three medium-sized castles in Tuscany I have saved enough money in the last forty years on insurance premiums alone to buy a medium-sized castle in Tuscany.</b>
+> <p><i>Ludwig Mies van der Rohe</i></p>
 
 <br>
