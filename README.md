@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man does not die of love or his liver or even of old age he dies of being a man.</b>
-> <p><i>Miguel de Unamuno</i></p>
+> <b>Design is about point of view, and there should be some sort of woman or lifestyle or attitude in one's head as a designer.</b>
+> <p><i>Vera Wang</i></p>
 
 <br>
