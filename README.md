@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Studies have shown that 90% of error in thinking is due to error in perception. If you can change your perception, you can change your emotion and this can lead to new ideas.</b>
-> <p><i>Edward de Bono</i></p>
+> <b>There is nothing in the world of art like the songs mother used to sing.</b>
+> <p><i>Billy Sunday</i></p>
 
 <br>
