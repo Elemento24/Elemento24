@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I could go away tomorrow. I've already accomplished something. It's such a selfish business that sometimes I get sick of myself.</b>
-> <p><i>Jim Carrey</i></p>
+> <b>In the social business marketplace, brands that hope to build loyal and growing communities do so most effectively when they demonstrate their core values and allow a community to build and engage around it.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
