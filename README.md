@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm doing it because I choose it. And if it's not working, I can make a change.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Are creeds such simple things like the clothes which a man can change at will and put on at will? Creeds are such for which people live for ages and ages.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
