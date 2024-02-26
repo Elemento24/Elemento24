@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the social business marketplace, brands that hope to build loyal and growing communities do so most effectively when they demonstrate their core values and allow a community to build and engage around it.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>If you take different mythologies from different cultures, the names may change and the story lines may vary but there is always something in common.</b>
+> <p><i>Maynard James Keenan</i></p>
 
 <br>
