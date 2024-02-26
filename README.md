@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Postal Service's unmatched ability to reach every household and business in America six days a week is a vital part of the nation's infrastructure.</b>
-> <p><i>Joe Baca</i></p>
+> <b>If I test the car for a year I can be quite competitive the next season.</b>
+> <p><i>Valentino Rossi</i></p>
 
 <br>
