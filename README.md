@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man's work is nothing but this slow trek to rediscover, through the detours of art, those two or three great and simple images in whose presence his heart first opened.</b>
-> <p><i>Albert Camus</i></p>
+> <b>A man does not die of love or his liver or even of old age he dies of being a man.</b>
+> <p><i>Miguel de Unamuno</i></p>
 
 <br>
