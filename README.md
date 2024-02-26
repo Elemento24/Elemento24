@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you take different mythologies from different cultures, the names may change and the story lines may vary but there is always something in common.</b>
-> <p><i>Maynard James Keenan</i></p>
+> <b>I'm doing it because I choose it. And if it's not working, I can make a change.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
