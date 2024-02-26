@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how fast generations lose sight of other generations. One of the first things the young composers who come to work with me say is that they want to write music people will like, instead of gaining their credentials by being rejected by the audience.</b>
-> <p><i>Carlisle Floyd</i></p>
+> <b>Don't change on me. Don't extort me unless you intend to do it forever.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
