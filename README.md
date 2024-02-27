@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A Harvard Medical School study has determined that rectal thermometers are still the best way to tell a baby's temperature. Plus, it really teaches the baby who's boss.</b>
-> <p><i>Tina Fey</i></p>
+> <b>One must learn, if one is to see the beauty in Japan, to like an extraordinarily restrained and delicate loveliness.</b>
+> <p><i>Miriam Beard</i></p>
 
 <br>
