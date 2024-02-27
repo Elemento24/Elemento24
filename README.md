@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dear God! how beauty varies in nature and art. In a woman the flesh must be like marble in a statue the marble must be like flesh.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>I don't think radio is selling records like they used to. They'd hawk the song and hawk the artist and you'd get so excited, you'd stop your car and go into the nearest record store.</b>
+> <p><i>Herb Alpert</i></p>
 
 <br>
