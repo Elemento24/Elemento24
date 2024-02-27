@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You use a glass mirror to see your face you use works of art to see your soul.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>A man is relieved and gay when he has put his heart into his work and done his best but what he has said or done otherwise shall give him no peace.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
