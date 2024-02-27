@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first mistake in public business is the going into it.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>You use a glass mirror to see your face you use works of art to see your soul.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
