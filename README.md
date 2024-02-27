@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best government is a benevolent tyranny tempered by an occasional assassination.</b>
-> <p><i>Voltaire</i></p>
+> <b>The unconditional love for you child, it's truly amazing.</b>
+> <p><i>Jourdan Dunn</i></p>
 
 <br>
