@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude and capacity of the factory, the old metal table and the new ideas of the wooden furniture quickly and naturally suggested the possibility of metal furniture.</b>
-> <p><i>Donald Judd</i></p>
+> <b>The most useless are those who never change through the years.</b>
+> <p><i>James M. Barrie</i></p>
 
 <br>
