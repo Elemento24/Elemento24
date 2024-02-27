@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love nicknames. It makes me feel loved. It makes me feel less alone in this world.</b>
-> <p><i>Ellen Page</i></p>
+> <b>A cardinal principle of Total Quality escapes too many managers: you cannot continuously improve interdependent systems and processes until you progressively perfect interdependent, interpersonal relationships.</b>
+> <p><i>Stephen Covey</i></p>
 
 <br>
