@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whoever incites anger has a strong insurance against indifference.</b>
-> <p><i>Philip Stanhope</i></p>
+> <b>None of us will ever accomplish anything excellent or commanding except when he listens to this whisper which is heard by him alone.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
