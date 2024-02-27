@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If Galileo had said in verse that the world moved, the inquisition might have let him alone.</b>
-> <p><i>Thomas Hardy</i></p>
+> <b>In the age of the individual's liquidation, the question of individuality must be raised anew.</b>
+> <p><i>Theodor Adorno</i></p>
 
 <br>
