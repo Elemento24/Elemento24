@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A positive attitude is something everyone can work on, and everyone can learn how to employ it.</b>
-> <p><i>Joan Lunden</i></p>
+> <b>A Harvard Medical School study has determined that rectal thermometers are still the best way to tell a baby's temperature. Plus, it really teaches the baby who's boss.</b>
+> <p><i>Tina Fey</i></p>
 
 <br>
