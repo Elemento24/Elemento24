@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the right hand of Nature. The latter has only given us being, the former has made us men.</b>
-> <p><i>Friedrich Schiller</i></p>
+> <b>I like to read books and be alone I'm not social butterfly person.</b>
+> <p><i>Hope Solo</i></p>
 
 <br>
