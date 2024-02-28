@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You need only reflect that one of the best ways to get yourself a reputation as a dangerous citizen these days is to go about repeating the very phrases which our founding fathers used in the struggle for independence.</b>
-> <p><i>Charles A. Beard</i></p>
+> <b>Being an actress is similar to trying to fit in with the popular kids in high school. You're expected to drive the right car, wear the right clothes and say the right things.</b>
+> <p><i>Lauren Ambrose</i></p>
 
 <br>
