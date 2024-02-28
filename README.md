@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're looking for can-do, earthy-crunchy attitude then you've got to go to Wisconsin.</b>
-> <p><i>Dar Williams</i></p>
+> <b>When science, art, literature, and philosophy are simply the manifestation of personality they are on a level where glorious and dazzling achievements are possible, which can make a man's name live for thousands of years.</b>
+> <p><i>Denis Diderot</i></p>
 
 <br>
