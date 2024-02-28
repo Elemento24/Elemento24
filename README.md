@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prayer is talking with God. God knows your heart and is not so concerned with your words as He is with the attitude of your heart.</b>
-> <p><i>Josh McDowell</i></p>
+> <b>At first I missed it, but it was the amazing energy thing that happened during shows, when a lot of people were like Yay Yay Yeah! I missed that for a while. But I don't miss the regular and the business side of that whole thing.</b>
+> <p><i>Bill Kreutzmann</i></p>
 
 <br>
