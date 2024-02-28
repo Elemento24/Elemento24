@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I spend a good portion of my dinner-party conversation defending America because no matter what the political agenda, it's still a fantastic, amazing place.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>The world in general doesn't know what to make of originality it is startled out of its comfortable habits of thought, and its first reaction is one of anger.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
