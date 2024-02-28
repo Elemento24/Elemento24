@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world in general doesn't know what to make of originality it is startled out of its comfortable habits of thought, and its first reaction is one of anger.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>From 1997 when we came in, you guys and the public bought seven million more cars. You didn't get rid of the second car, did you? So what is happening is the growth of cars on the motorway.</b>
+> <p><i>John Prescott</i></p>
 
 <br>
