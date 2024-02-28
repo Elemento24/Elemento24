@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being an actress is similar to trying to fit in with the popular kids in high school. You're expected to drive the right car, wear the right clothes and say the right things.</b>
-> <p><i>Lauren Ambrose</i></p>
+> <b>Prayer is talking with God. God knows your heart and is not so concerned with your words as He is with the attitude of your heart.</b>
+> <p><i>Josh McDowell</i></p>
 
 <br>
