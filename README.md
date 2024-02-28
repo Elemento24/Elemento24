@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At first I missed it, but it was the amazing energy thing that happened during shows, when a lot of people were like Yay Yay Yeah! I missed that for a while. But I don't miss the regular and the business side of that whole thing.</b>
-> <p><i>Bill Kreutzmann</i></p>
+> <b>Young people discovering their sexuality must know they walk with a strong tradition and that they are not alone. They have a right to information without being pressured.</b>
+> <p><i>Jasmine Guy</i></p>
 
 <br>
