@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When science, art, literature, and philosophy are simply the manifestation of personality they are on a level where glorious and dazzling achievements are possible, which can make a man's name live for thousands of years.</b>
-> <p><i>Denis Diderot</i></p>
+> <b>You need only reflect that one of the best ways to get yourself a reputation as a dangerous citizen these days is to go about repeating the very phrases which our founding fathers used in the struggle for independence.</b>
+> <p><i>Charles A. Beard</i></p>
 
 <br>
