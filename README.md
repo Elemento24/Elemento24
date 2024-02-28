@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who writes knows that ultimately the majority of your time is spent alone in a room with a piano or a guitar, no matter what the project is.</b>
-> <p><i>Trey Anastasio</i></p>
+> <b>We can be tired, weary and emotionally distraught, but after spending time alone with God, we find that He injects into our bodies energy, power and strength.</b>
+> <p><i>Charles Stanley</i></p>
 
 <br>
