@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of leadership is saying no, not saying yes. It is very easy to say yes.</b>
-> <p><i>Tony Blair</i></p>
+> <b>If you don't drive your business, you will be driven out of business.</b>
+> <p><i>B. C. Forbes</i></p>
 
 <br>
