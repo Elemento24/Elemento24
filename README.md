@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our dilemma is that we hate change and love it at the same time what we really want is for things to remain the same but get better.</b>
-> <p><i>Sydney J. Harris</i></p>
+> <b>The creative act lasts but a brief moment, a lightning instant of give-and-take, just long enough for you to level the camera and to trap the fleeting prey in your little box.</b>
+> <p><i>Henri Cartier-Bresson</i></p>
 
 <br>
