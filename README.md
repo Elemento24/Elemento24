@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is there no Latin word for Tea? Upon my soul, if I had known that I would have let the vulgar stuff alone.</b>
-> <p><i>Hilaire Belloc</i></p>
+> <b>I think being able to age gracefully is a very important talent. It is too late for me.</b>
+> <p><i>Clint Eastwood</i></p>
 
 <br>
