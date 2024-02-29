@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty we love is very silent. It smiles softly to itself, but never speaks.</b>
-> <p><i>Richard Le Gallienne</i></p>
+> <b>And then we watched an amazing number of movies from the late '60s and '70s, which is my favorite time, and we studied their camera movements, their stocks, the way they lit stuff, the colors they used.</b>
+> <p><i>Ted Demme</i></p>
 
 <br>
