@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would always encourage people of any age not to be so quick to follow other people's truths but to search and follow your own moral code and live by your own integrity, and mostly just be brave.</b>
-> <p><i>Jewel</i></p>
+> <b>Our dilemma is that we hate change and love it at the same time what we really want is for things to remain the same but get better.</b>
+> <p><i>Sydney J. Harris</i></p>
 
 <br>
