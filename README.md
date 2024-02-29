@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to have enough respect for other human beings to leave their lives alone. If you admire that life, build it for yourself. Don't just try to come in and take somebody else's life.</b>
-> <p><i>Elizabeth Edwards</i></p>
+> <b>A boy's story is the best that is ever told.</b>
+> <p><i>Charles Dickens</i></p>
 
 <br>
