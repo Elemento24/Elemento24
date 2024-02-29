@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not drunk is he who from the floor - Can rise alone and still drink more But drunk is They, who prostrate lies, Without the power to drink or rise.</b>
-> <p><i>Thomas Love Peacock</i></p>
+> <b>If you're truly in a band and you guys have been together for a long time, there's a family bond that you have. In fact, I've talked about this with therapists, especially if you're talking about a relationship, because when you're with somebody, you're going to your family, and she's alone.</b>
+> <p><i>Gary Allan</i></p>
 
 <br>
