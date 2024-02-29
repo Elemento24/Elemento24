@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think being able to age gracefully is a very important talent. It is too late for me.</b>
-> <p><i>Clint Eastwood</i></p>
+> <b>Fatigue is the best pillow.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
