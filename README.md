@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The creative act lasts but a brief moment, a lightning instant of give-and-take, just long enough for you to level the camera and to trap the fleeting prey in your little box.</b>
-> <p><i>Henri Cartier-Bresson</i></p>
+> <b>The human body and mind are tremendous forces that are continually amazing scientists and society. Therefore, we have no choice but to keep an open mind as to what the human being can achieve.</b>
+> <p><i>Evelyn Glennie</i></p>
 
 <br>
