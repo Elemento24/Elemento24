@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're truly in a band and you guys have been together for a long time, there's a family bond that you have. In fact, I've talked about this with therapists, especially if you're talking about a relationship, because when you're with somebody, you're going to your family, and she's alone.</b>
-> <p><i>Gary Allan</i></p>
+> <b>Only I can change my life. No one can do it for me.</b>
+> <p><i>Carol Burnett</i></p>
 
 <br>
