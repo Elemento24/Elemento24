@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a huge, active imagination, and I think I'm really scared of being alone because if I'm left to my own devices, I'll just turn into a madwoman.</b>
-> <p><i>Claire Danes</i></p>
+> <b>There is no business in America that would be prevented from taking results into account when making personnel decisions.</b>
+> <p><i>Michael Bloomberg</i></p>
 
 <br>
