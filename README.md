@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And then we watched an amazing number of movies from the late '60s and '70s, which is my favorite time, and we studied their camera movements, their stocks, the way they lit stuff, the colors they used.</b>
-> <p><i>Ted Demme</i></p>
+> <b>Religion is the possibility of the removal of every ground of confidence except confidence in God alone.</b>
+> <p><i>Karl Barth</i></p>
 
 <br>
