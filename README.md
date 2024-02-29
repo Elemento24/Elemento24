@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fatigue is the best pillow.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>The beauty we love is very silent. It smiles softly to itself, but never speaks.</b>
+> <p><i>Richard Le Gallienne</i></p>
 
 <br>
