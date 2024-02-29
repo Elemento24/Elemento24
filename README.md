@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The human body and mind are tremendous forces that are continually amazing scientists and society. Therefore, we have no choice but to keep an open mind as to what the human being can achieve.</b>
-> <p><i>Evelyn Glennie</i></p>
+> <b>Not drunk is he who from the floor - Can rise alone and still drink more But drunk is They, who prostrate lies, Without the power to drink or rise.</b>
+> <p><i>Thomas Love Peacock</i></p>
 
 <br>
