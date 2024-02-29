@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't understand why the Democratic parties seem so hostile to economic growth and business.</b>
-> <p><i>Jack Kemp</i></p>
+> <b>As I approach my 88th birthday, it's become apparent to me that my eyes and ears, among other appurtenances, aren't quite what they used to be. The prospect of long flights to wherever in search of whatever are not quite as appealing.</b>
+> <p><i>Mike Wallace</i></p>
 
 <br>
