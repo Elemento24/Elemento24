@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religion is the possibility of the removal of every ground of confidence except confidence in God alone.</b>
-> <p><i>Karl Barth</i></p>
+> <b>I can't understand why the Democratic parties seem so hostile to economic growth and business.</b>
+> <p><i>Jack Kemp</i></p>
 
 <br>
