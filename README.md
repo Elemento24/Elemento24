@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Research and development needs permanent tax credits to build the technology that spurs our growth. But no government programs alone can get America's students to study more science and math parents must push and help their children to meet this goal.</b>
-> <p><i>Ernest Istook</i></p>
+> <b>The truth is that we can learn to condition our minds, bodies, and emotions to link pain or pleasure to whatever we choose. By changing what we link pain and pleasure to, we will instantly change our behaviors.</b>
+> <p><i>Tony Robbins</i></p>
 
 <br>
