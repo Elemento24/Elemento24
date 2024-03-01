@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like anything else that happens on its own, the act of writing is beyond currency. Money is great stuff to have, but when it comes to the act of creation, the best thing is not to think of money too much. It constipates the whole process.</b>
-> <p><i>Stephen King</i></p>
+> <b>That Moorish architecture is all over the place, of course. It affects me everywhere I see it, as it does so many people. But Brand Library was a special place to me, and I know I've paid homage to it many times in my drawings.</b>
+> <p><i>Jim Woodring</i></p>
 
 <br>
