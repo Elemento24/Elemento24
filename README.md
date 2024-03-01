@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that making love is the best form of exercise.</b>
-> <p><i>Cary Grant</i></p>
+> <b>I've got a great team of engineers behind this race car. I've got a great bunch of mechanics that make it reliable. This car is developed to go out there and be better than the Reynard, and I feel that it is.</b>
+> <p><i>Al Unser</i></p>
 
 <br>
