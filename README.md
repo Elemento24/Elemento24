@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The truth is that we can learn to condition our minds, bodies, and emotions to link pain or pleasure to whatever we choose. By changing what we link pain and pleasure to, we will instantly change our behaviors.</b>
-> <p><i>Tony Robbins</i></p>
+> <b>I had this really great amazing thing happen where I almost finished the book and I really needed to come up with an ending and I decided to go back and re-read the book and see if I could come up with an ending.</b>
+> <p><i>Cory Doctorow</i></p>
 
 <br>
