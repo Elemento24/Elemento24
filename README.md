@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always detested any departure from reality, an attitude which I relate to my mother's poor mental health.</b>
-> <p><i>Jean Piaget</i></p>
+> <b>How often it is that the angry man rages denial of what his inner self is telling him.</b>
+> <p><i>Frank Herbert</i></p>
 
 <br>
