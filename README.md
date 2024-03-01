@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How often it is that the angry man rages denial of what his inner self is telling him.</b>
-> <p><i>Frank Herbert</i></p>
+> <b>Canada's the best country in the world.</b>
+> <p><i>Justin Bieber</i></p>
 
 <br>
