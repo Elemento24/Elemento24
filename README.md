@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How many deaf people do you know in real life? Unless they live in a cave, or are 14, which seems to be true for most people in this business, what could I possibly tell them that they don't already know?</b>
-> <p><i>Marlee Matlin</i></p>
+> <b>I think we risk becoming the best informed society that has ever died of ignorance.</b>
+> <p><i>Ruben Blades</i></p>
 
 <br>
