@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had this really great amazing thing happen where I almost finished the book and I really needed to come up with an ending and I decided to go back and re-read the book and see if I could come up with an ending.</b>
-> <p><i>Cory Doctorow</i></p>
+> <b>Like anything else that happens on its own, the act of writing is beyond currency. Money is great stuff to have, but when it comes to the act of creation, the best thing is not to think of money too much. It constipates the whole process.</b>
+> <p><i>Stephen King</i></p>
 
 <br>
