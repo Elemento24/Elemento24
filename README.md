@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is not a disease - it is strength and survivorship, triumph over all kinds of vicissitudes and disappointments, trials and illnesses.</b>
-> <p><i>Maggie Kuhn</i></p>
+> <b>How many deaf people do you know in real life? Unless they live in a cave, or are 14, which seems to be true for most people in this business, what could I possibly tell them that they don't already know?</b>
+> <p><i>Marlee Matlin</i></p>
 
 <br>
