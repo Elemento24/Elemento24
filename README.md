@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Canada's the best country in the world.</b>
-> <p><i>Justin Bieber</i></p>
+> <b>We have art in order not to die of the truth.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
