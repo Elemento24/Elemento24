@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is awfully important to know what is and what is not your business.</b>
-> <p><i>Gertrude Stein</i></p>
+> <b>I'm a huge Wes Anderson fan I would faint if I met him, let alone got to work with him.</b>
+> <p><i>Emma Roberts</i></p>
 
 <br>
