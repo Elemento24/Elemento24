@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That Moorish architecture is all over the place, of course. It affects me everywhere I see it, as it does so many people. But Brand Library was a special place to me, and I know I've paid homage to it many times in my drawings.</b>
-> <p><i>Jim Woodring</i></p>
+> <b>I think that making love is the best form of exercise.</b>
+> <p><i>Cary Grant</i></p>
 
 <br>
