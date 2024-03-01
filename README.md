@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we risk becoming the best informed society that has ever died of ignorance.</b>
-> <p><i>Ruben Blades</i></p>
+> <b>We find delight in the beauty and happiness of children that makes the heart too big for the body.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
