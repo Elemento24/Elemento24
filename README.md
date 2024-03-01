@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember when I was 6 years old and my brother used to go seek out guys that were 13 to come over and play football against me while he was the 'permanent quarterback.' I didn't know exactly what the age difference was, but I was already playing against older guys.</b>
-> <p><i>Junior Seau</i></p>
+> <b>Research and development needs permanent tax credits to build the technology that spurs our growth. But no government programs alone can get America's students to study more science and math parents must push and help their children to meet this goal.</b>
+> <p><i>Ernest Istook</i></p>
 
 <br>
