@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's none of their business that you have to learn how to write. Let them think you were born that way.</b>
-> <p><i>Ernest Hemingway</i></p>
+> <b>Old age is not a disease - it is strength and survivorship, triumph over all kinds of vicissitudes and disappointments, trials and illnesses.</b>
+> <p><i>Maggie Kuhn</i></p>
 
 <br>
