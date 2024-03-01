@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've lost touch with a lot of that boutique-type music just because of my age, and raising my son and the multiple jobs I have at this point.</b>
-> <p><i>Liz Phair</i></p>
+> <b>I remember when I was 6 years old and my brother used to go seek out guys that were 13 to come over and play football against me while he was the 'permanent quarterback.' I didn't know exactly what the age difference was, but I was already playing against older guys.</b>
+> <p><i>Junior Seau</i></p>
 
 <br>
