@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are always free to change your mind and choose a different future, or a different past.</b>
-> <p><i>Richard Bach</i></p>
+> <b>I'm only wanted by directors for the image I give off, and it makes me angry. I always wanted to be an actor and not a beauty pageant winner.</b>
+> <p><i>Jude Law</i></p>
 
 <br>
