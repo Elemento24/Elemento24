@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Trying to describe something musical is like dancing to architecture, it's really difficult.</b>
-> <p><i>Robert Palmer</i></p>
+> <b>A business of high principle generates greater drive and effectiveness because people know that they can do the right thing decisively and with confidence.</b>
+> <p><i>Marvin Bower</i></p>
 
 <br>
