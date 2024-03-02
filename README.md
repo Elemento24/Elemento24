@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In any architecture, there is an equity between the pragmatic function and the symbolic function.</b>
-> <p><i>Michael Graves</i></p>
+> <b>An American, a Negro... two souls, two thoughts, two unreconciled strivings two warring ideals in one dark body, whose dogged strength alone keeps it from being torn asunder.</b>
+> <p><i>W. E. B. Du Bois</i></p>
 
 <br>
