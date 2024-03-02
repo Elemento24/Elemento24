@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ought to be a worldwide cultural taskforce that just stops you when you have ideas like combining The Red Desert with an armored car heist movie.</b>
-> <p><i>Steven Soderbergh</i></p>
+> <b>Although born in a prosperous realm, we did not believe that its boundaries should limit our knowledge, and that the lore of the East should alone enlighten us.</b>
+> <p><i>Charles de Secondat</i></p>
 
 <br>
