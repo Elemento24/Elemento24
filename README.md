@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Raising a small child as a woman while travelling 10 months out of the year would, I believe, be something I would not be able or even want to do, although with the amazing example of Leila, I am no longer so sure.</b>
-> <p><i>Lara St. John</i></p>
+> <b>I think beauty comes from within. If you're happy and look at life in the best way you can, even when there are problems, it can make you beautiful on the outside.</b>
+> <p><i>Faith Hill</i></p>
 
 <br>
