@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I try and have a relaxed attitude and stay quite switched off until about an hour before kick-off.</b>
-> <p><i>Roy Keane</i></p>
+> <b>I have a lot of amazing women, you know, women in my life who have been an example for me of what not to do.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
