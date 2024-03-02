@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An American, a Negro... two souls, two thoughts, two unreconciled strivings two warring ideals in one dark body, whose dogged strength alone keeps it from being torn asunder.</b>
-> <p><i>W. E. B. Du Bois</i></p>
+> <b>Societies need rules that make no sense for individuals. For example, it makes no difference whether a single car drives on the left or on the right. But it makes all the difference when there are many cars!</b>
+> <p><i>Marvin Minsky</i></p>
 
 <br>
