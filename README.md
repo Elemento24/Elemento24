@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Things are never quite as scary when you've got a best friend.</b>
-> <p><i>Bill Watterson</i></p>
+> <b>The amazing fact is that America is founded on a document. It's a work in progress. It can be tested by each generation.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
