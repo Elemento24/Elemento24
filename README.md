@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A nation devoid of art and artists cannot have a full existence.</b>
-> <p><i>Kemal Ataturk</i></p>
+> <b>You are always free to change your mind and choose a different future, or a different past.</b>
+> <p><i>Richard Bach</i></p>
 
 <br>
