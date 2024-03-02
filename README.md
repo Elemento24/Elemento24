@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to predict the future is to create it.</b>
-> <p><i>Peter Drucker</i></p>
+> <b>Things are never quite as scary when you've got a best friend.</b>
+> <p><i>Bill Watterson</i></p>
 
 <br>
