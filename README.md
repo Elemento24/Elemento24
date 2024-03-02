@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think beauty comes from within. If you're happy and look at life in the best way you can, even when there are problems, it can make you beautiful on the outside.</b>
-> <p><i>Faith Hill</i></p>
+> <b>Trying to describe something musical is like dancing to architecture, it's really difficult.</b>
+> <p><i>Robert Palmer</i></p>
 
 <br>
