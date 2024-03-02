@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm only wanted by directors for the image I give off, and it makes me angry. I always wanted to be an actor and not a beauty pageant winner.</b>
-> <p><i>Jude Law</i></p>
+> <b>The best way to predict the future is to create it.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
