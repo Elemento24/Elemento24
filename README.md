@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As Ralph's character begins to discover the political thriller aspect of the film, he falls deeper in love with his wife, so the two run together. That's the beauty of this film. It has fast pace and excitement, but it also has heart and soul.</b>
-> <p><i>Rachel Weisz</i></p>
+> <b>I'm enamored with the art world. Anytime you look at anything that's considered artistic, there's a commercial world around it: the ballet, opera, any kind of music. It can't exist without it.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
