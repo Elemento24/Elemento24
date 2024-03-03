@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You marry somebody you love everything about them. You grow to learn about them. You never learn everything.</b>
-> <p><i>Chris Daughtry</i></p>
+> <b>As Ralph's character begins to discover the political thriller aspect of the film, he falls deeper in love with his wife, so the two run together. That's the beauty of this film. It has fast pace and excitement, but it also has heart and soul.</b>
+> <p><i>Rachel Weisz</i></p>
 
 <br>
