@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It wasn't so long ago that I was a working mom myself. And I know that sometimes, much as we all hate to admit it, it's just easier to park the kids in front of the TV for a few hours, so we can pay the bills or do the laundry or just have some peace and quiet for a change.</b>
-> <p><i>Michelle Obama</i></p>
+> <b>We all get stuck. We all lose ourselves a little bit in a fantasy or in our jobs and forget how we feel about other things. It's really important to check yourself, to spend some time alone.</b>
+> <p><i>Amanda Seyfried</i></p>
 
 <br>
