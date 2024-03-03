@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The accumulation of skill and science which has been directed to diminish the difficulty of producing manufactured goods, has not been beneficial to that country alone in which it is concentrated distant kingdoms have participated in its advantages.</b>
-> <p><i>Charles Babbage</i></p>
+> <b>Beauty and the Beast became the first animated feature ever nominated for best picture.</b>
+> <p><i>Leonard Maltin</i></p>
 
 <br>
