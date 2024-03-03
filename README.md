@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'10' was amazing! I had no career before '10' and then all of a sudden I was able to do pretty much whatever I was able to do in the business.</b>
-> <p><i>Bo Derek</i></p>
+> <b>It's a lot of work to keep reinventing yourself and coming up with new stuff, but that's what it takes to be in show business.</b>
+> <p><i>Donny Osmond</i></p>
 
 <br>
