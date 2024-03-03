@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel fine, I don't care who the director is. All you have to do is know what your doing - all of us - everybody in the business - that's all you ask anyone - you know your job, I know mine, let's go do it.</b>
-> <p><i>Morgan Freeman</i></p>
+> <b>And when an architect has designed a house with large windows, which is a necessity today in order to pull the daylight into these very deep houses, then curtains come to play a big role in architecture.</b>
+> <p><i>Arne Jacobsen</i></p>
 
 <br>
