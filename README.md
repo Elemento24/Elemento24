@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And when an architect has designed a house with large windows, which is a necessity today in order to pull the daylight into these very deep houses, then curtains come to play a big role in architecture.</b>
-> <p><i>Arne Jacobsen</i></p>
+> <b>You marry somebody you love everything about them. You grow to learn about them. You never learn everything.</b>
+> <p><i>Chris Daughtry</i></p>
 
 <br>
