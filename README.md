@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger may repast with thee for an hour, but not repose for a night the continuance of anger is hatred, the continuance of hatred turns malice.</b>
-> <p><i>Francis Quarles</i></p>
+> <b>Anybody who really knows about the TV business knows that it would be impossible to just march in one day and say to your colleagues and bosses, 'Oh yes, I'm hosting my own show.'</b>
+> <p><i>Andy Cohen</i></p>
 
 <br>
