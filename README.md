@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mathematics is, as it were, a sensuous logic, and relates to philosophy as do the arts, music, and plastic art to poetry.</b>
-> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
+> <b>A woman knows by intuition, or instinct, what is best for herself.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
