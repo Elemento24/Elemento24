@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all get stuck. We all lose ourselves a little bit in a fantasy or in our jobs and forget how we feel about other things. It's really important to check yourself, to spend some time alone.</b>
-> <p><i>Amanda Seyfried</i></p>
+> <b>Nicole will come up in conversations where it's in a part of the conversation. Or we may be somewhere and I would tell some story about their mother and I. You know, we always honor her birthday.</b>
+> <p><i>O. J. Simpson</i></p>
 
 <br>
