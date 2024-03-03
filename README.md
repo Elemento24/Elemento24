@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The person who knows one thing and does it better than anyone else, even if it only be the art of raising lentils, receives the crown he merits. If he raises all his energy to that end, he is a benefactor of mankind and its rewarded as such.</b>
-> <p><i>Og Mandino</i></p>
+> <b>Employees are a company's greatest asset - they're your competitive advantage. You want to attract and retain the best provide them with encouragement, stimulus, and make them feel that they are an integral part of the company's mission.</b>
+> <p><i>Anne M. Mulcahy</i></p>
 
 <br>
