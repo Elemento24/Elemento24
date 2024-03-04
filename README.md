@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We should learn to accept that change is truly the only thing that's going on always, and learn to ride with it and enjoy it.</b>
-> <p><i>Alice Walker</i></p>
+> <b>For a while I felt very alone sort of out there in the world of comics, especially here in the States.</b>
+> <p><i>Bill Sienkiewicz</i></p>
 
 <br>
