@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men are but children of a larger growth, Our appetites as apt to change as theirs, And full as craving too, and full as vain.</b>
-> <p><i>Diane Arbus</i></p>
+> <b>To Follow by faith alone is to follow blindly.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
