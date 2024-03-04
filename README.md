@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to keep one's word is not to give it.</b>
-> <p><i>Napoleon Bonaparte</i></p>
+> <b>Men are but children of a larger growth, Our appetites as apt to change as theirs, And full as craving too, and full as vain.</b>
+> <p><i>Diane Arbus</i></p>
 
 <br>
