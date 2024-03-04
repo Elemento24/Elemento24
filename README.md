@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People have often asked if I'm gay because I don't go out of my way to spit and scratch and give people attitude.</b>
-> <p><i>Jason Bateman</i></p>
+> <b>What if I couldn't handle people's opinions of me? I know that shouldn't dictate a person's degree of peace or happiness in life, but the problem is, I chose a business saturated in judgment.</b>
+> <p><i>Chris Evans</i></p>
 
 <br>
