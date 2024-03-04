@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The idea of regretting not doing this seemed insane to me. Sitting in the corner at a bar at age 60, saying: 'I could've been Bond. Buy me a drink.' That's the saddest place I could be. At least now at 60 I can say: 'I was Bond. Now buy me a drink.'</b>
-> <p><i>Daniel Craig</i></p>
+> <b>If you get half a million, at a certain stage you probably will get 4 million people, if they are able to hear it. The touring thing is unbelievable. It really is amazing from what we did the last tour even to what we are doing now.</b>
+> <p><i>John Mayer</i></p>
 
 <br>
