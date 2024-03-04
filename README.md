@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Summer is a great time to visit art museums, which offer the refreshing rinse of swimming pools - only instead of cool water, you immerse yourself in art.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>For me, 'revolution' simply means radical change.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
