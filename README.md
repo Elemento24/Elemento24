@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To succeed in business it is necessary to make others see things as you see them.</b>
-> <p><i>Aristotle Onassis</i></p>
+> <b>The first real thought that I had of something that I might do was to write for car magazines, because I always had a car thing.</b>
+> <p><i>Jerry Seinfeld</i></p>
 
 <br>
