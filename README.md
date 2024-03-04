@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In real life, one of my friends was killed in a car accident during our sophomore year.</b>
-> <p><i>Beverley Mitchell</i></p>
+> <b>People have often asked if I'm gay because I don't go out of my way to spit and scratch and give people attitude.</b>
+> <p><i>Jason Bateman</i></p>
 
 <br>
