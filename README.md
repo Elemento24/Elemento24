@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rereading A.J. Liebling carries me happily back to an age when all good journalists knew they had plenty to be modest about, and were.</b>
-> <p><i>Russell Baker</i></p>
+> <b>My mother asked me what I wanted for my birthday, so I said I wanted to read poetry with her.</b>
+> <p><i>Guy Johnson</i></p>
 
 <br>
