@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother asked me what I wanted for my birthday, so I said I wanted to read poetry with her.</b>
-> <p><i>Guy Johnson</i></p>
+> <b>The idea of regretting not doing this seemed insane to me. Sitting in the corner at a bar at age 60, saying: 'I could've been Bond. Buy me a drink.' That's the saddest place I could be. At least now at 60 I can say: 'I was Bond. Now buy me a drink.'</b>
+> <p><i>Daniel Craig</i></p>
 
 <br>
