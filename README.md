@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In true dialogue, both sides are willing to change.</b>
-> <p><i>Nhat Hanh</i></p>
+> <b>Raising children is an incredibly hard and risky business in which no cumulative wisdom is gained: each generation repeats the mistakes the previous one made.</b>
+> <p><i>Bill Cosby</i></p>
 
 <br>
