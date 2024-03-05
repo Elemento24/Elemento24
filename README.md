@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd really like to get the girl, shoot the gun, drive the car, have fun. I even have these kind of action dreams, where I'm the action guy.</b>
-> <p><i>Kevin Bacon</i></p>
+> <b>Maybe I'll be a feminist in my old age.</b>
+> <p><i>Bjork</i></p>
 
 <br>
