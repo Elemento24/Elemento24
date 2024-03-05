@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No woman has to be a victim of physical abuse. Women have to feel like they are not alone.</b>
-> <p><i>Salma Hayek</i></p>
+> <b>Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old.</b>
+> <p><i>Franz Kafka</i></p>
 
 <br>
