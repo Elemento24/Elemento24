@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude toward graduate students was different, I must say. I used graduate students as colleagues: I gave them the best problems to work on, and I encouraged them.</b>
-> <p><i>Frank Press</i></p>
+> <b>I think we all have blocks between us and the best version of ourselves, whether it's shyness, insecurity, anxiety, whether it's a physical block, and the story of a person overcoming that block to their best self. It's truly inspiring because I think all of us are engaged in that every day.</b>
+> <p><i>Tom Hooper</i></p>
 
 <br>
