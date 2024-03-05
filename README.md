@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old.</b>
-> <p><i>Franz Kafka</i></p>
+> <b>I don't know the first real thing about the dating game. I don't know how to talk to a specific person and connect. I just think you have to go to person by person and do the best you can with people in general.</b>
+> <p><i>Jason Schwartzman</i></p>
 
 <br>
