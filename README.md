@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, there is amazing amount of oil and gas and other resources out beneath the sea. It's staggering.</b>
-> <p><i>Robert Ballard</i></p>
+> <b>I'd really like to get the girl, shoot the gun, drive the car, have fun. I even have these kind of action dreams, where I'm the action guy.</b>
+> <p><i>Kevin Bacon</i></p>
 
 <br>
