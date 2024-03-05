@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know the first real thing about the dating game. I don't know how to talk to a specific person and connect. I just think you have to go to person by person and do the best you can with people in general.</b>
-> <p><i>Jason Schwartzman</i></p>
+> <b>There is no more lovely, friendly and charming relationship, communion or company than a good marriage.</b>
+> <p><i>Martin Luther</i></p>
 
 <br>
