@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maybe I'll be a feminist in my old age.</b>
-> <p><i>Bjork</i></p>
+> <b>Every creator painfully experiences the chasm between his inner vision and its ultimate expression.</b>
+> <p><i>Isaac Bashevis Singer</i></p>
 
 <br>
