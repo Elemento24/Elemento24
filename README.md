@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What goes on in Europe concerns us greatly because, if Europe comes apart, the E.U. comes apart, then you're going to have enormous impact on America, that's a very big trading partner of ours, and people own securities around the world in this day and age.</b>
-> <p><i>Michael Bloomberg</i></p>
+> <b>I mean, there is amazing amount of oil and gas and other resources out beneath the sea. It's staggering.</b>
+> <p><i>Robert Ballard</i></p>
 
 <br>
