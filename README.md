@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first real thought that I had of something that I might do was to write for car magazines, because I always had a car thing.</b>
-> <p><i>Jerry Seinfeld</i></p>
+> <b>Shockingly, a University of Pennsylvania study says the number of young people addicted to gambling - largely due to increased exposure to the Internet and Internet gambling - grew by an alarming 20 percent between 2004 and 2005 alone.</b>
+> <p><i>Spencer Bachus</i></p>
 
 <br>
