@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of life's two chief prizes, beauty and truth, I found the first in a loving heart and the second in a laborer's hand.</b>
-> <p><i>Khalil Gibran</i></p>
+> <b>Beauty is the result of having been through an experience all the way through to the end - therefore it has a poignancy. Beauty that is singular always comes from following an experience to the point where you can go no further.</b>
+> <p><i>Joan Chen</i></p>
 
 <br>
