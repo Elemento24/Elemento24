@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I call architecture frozen music.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>You do have to do business with and to try to influence people you don't agree with, or find disagreeable, so it's important to stress that balance.</b>
+> <p><i>William Hague</i></p>
 
 <br>
