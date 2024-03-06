@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Proving I'm a good mother is the one achievement I'm most proud of. It's brought out the best in me.</b>
-> <p><i>Sheena Easton</i></p>
+> <b>Anger is a great force. If you control it, it can be transmuted into a power which can move the whole world.</b>
+> <p><i>William Shenstone</i></p>
 
 <br>
