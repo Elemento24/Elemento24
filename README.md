@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being black is not a matter of pigmentation - being black is a reflection of a mental attitude.</b>
-> <p><i>Steven Biko</i></p>
+> <b>Writing is truly a creative art - putting word to a blank piece of paper and ending up with a full-fledged story rife with character and plot.</b>
+> <p><i>William Shatner</i></p>
 
 <br>
