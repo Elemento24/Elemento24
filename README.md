@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just wanna give a big shout out to all the fans out there who have followed my work up until now. You guys are amazing!! Hearing from fans is the best feeling in the world.</b>
-> <p><i>Lindsey Shaw</i></p>
+> <b>The seated lotus postures are an amazing way to go into meditation, or simply just to take a moment to ground oneself.</b>
+> <p><i>Christy Turlington</i></p>
 
 <br>
