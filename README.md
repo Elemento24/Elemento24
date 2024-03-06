@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Early-twentieth-century abstraction is art's version of Einstein's Theory of Relativity. It's the idea that changed everything everywhere: quickly, decisively, for good.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Being black is not a matter of pigmentation - being black is a reflection of a mental attitude.</b>
+> <p><i>Steven Biko</i></p>
 
 <br>
