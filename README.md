@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Government, even in its best state, is but a necessary evil in its worst state, an intolerable one.</b>
-> <p><i>Thomas Paine</i></p>
+> <b>Proving I'm a good mother is the one achievement I'm most proud of. It's brought out the best in me.</b>
+> <p><i>Sheena Easton</i></p>
 
 <br>
