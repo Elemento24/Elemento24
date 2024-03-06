@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how everyone has an opinion on how you should live your life.</b>
-> <p><i>Sherry Stringfield</i></p>
+> <b>We should meet abuse by forbearance. Human nature is so constituted that if we take absolutely no notice of anger or abuse, the person indulging in it will soon weary of it and stop.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
