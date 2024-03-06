@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody minded what you did in bed or what you said about God, a very civilized attitude in 1948.</b>
-> <p><i>Simon Raven</i></p>
+> <b>The deferring of anger is the best antidote to anger.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
