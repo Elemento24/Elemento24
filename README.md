@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Turbulence is life force. It is opportunity. Let's love turbulence and use it for change.</b>
-> <p><i>Ramsey Clark</i></p>
+> <b>The secret of staying young is to live honestly, eat slowly, and lie about your age.</b>
+> <p><i>Lucille Ball</i></p>
 
 <br>
