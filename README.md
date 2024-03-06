@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change of fashion is the tax levied by the industry of the poor on the vanity of the rich.</b>
-> <p><i>Nicolas Chamfort</i></p>
+> <b>It's amazing how everyone has an opinion on how you should live your life.</b>
+> <p><i>Sherry Stringfield</i></p>
 
 <br>
