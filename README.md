@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no end to the violations committed by children on children, quietly talking alone.</b>
-> <p><i>Elizabeth Bowen</i></p>
+> <b>Let each man exercise the art he knows.</b>
+> <p><i>Aristophanes</i></p>
 
 <br>
