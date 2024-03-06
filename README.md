@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The secret of staying young is to live honestly, eat slowly, and lie about your age.</b>
-> <p><i>Lucille Ball</i></p>
+> <b>We all have to find beauty within us, as opposed to just our exterior.</b>
+> <p><i>Shay Mitchell</i></p>
 
 <br>
