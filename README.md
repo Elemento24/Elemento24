@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The deferring of anger is the best antidote to anger.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>Government, even in its best state, is but a necessary evil in its worst state, an intolerable one.</b>
+> <p><i>Thomas Paine</i></p>
 
 <br>
