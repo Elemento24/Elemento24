@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work of art, just like any fragment of human life considered in its deepest meaning, seems to me devoid of value if it does not offer the hardness, the rigidity, the regularity, the luster on every interior and exterior facet, of the crystal.</b>
-> <p><i>Pope Paul VI</i></p>
+> <b>Life is short and if you're looking for extension, you had best do well. 'Cause there's good deeds and then there's good intentions. They are as far apart as Heaven and Hell.</b>
+> <p><i>Ben Harper</i></p>
 
 <br>
