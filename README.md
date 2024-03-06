@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We should meet abuse by forbearance. Human nature is so constituted that if we take absolutely no notice of anger or abuse, the person indulging in it will soon weary of it and stop.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>Early-twentieth-century abstraction is art's version of Einstein's Theory of Relativity. It's the idea that changed everything everywhere: quickly, decisively, for good.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
