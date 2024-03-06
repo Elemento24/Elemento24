@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is short and if you're looking for extension, you had best do well. 'Cause there's good deeds and then there's good intentions. They are as far apart as Heaven and Hell.</b>
-> <p><i>Ben Harper</i></p>
+> <b>Nobody minded what you did in bed or what you said about God, a very civilized attitude in 1948.</b>
+> <p><i>Simon Raven</i></p>
 
 <br>
