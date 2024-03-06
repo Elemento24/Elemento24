@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let each man exercise the art he knows.</b>
-> <p><i>Aristophanes</i></p>
+> <b>Hatred is settled anger.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
