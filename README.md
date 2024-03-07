@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody kind of perceives me as being angry. It's not anger, it's motivation.</b>
-> <p><i>Roger Clemens</i></p>
+> <b>A complainer is like a Death Eater because there's a suction of negative energy. You can catch a great attitude from great people.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
