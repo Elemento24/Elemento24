@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're a nation of laws, but the good thing about America, is that laws reside in the people and people can change the laws.</b>
-> <p><i>Rick Warren</i></p>
+> <b>One person alone can't do anything as important as bringing genuine democracy to a country.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
