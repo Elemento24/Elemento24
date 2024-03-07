@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All diseases run into one, old age.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>I might have some character traits that some might see as innocence or naive. That's because I discovered peace and happiness in my soul. And with this knowledge, I also see the beauty of human life.</b>
+> <p><i>Tobey Maguire</i></p>
 
 <br>
