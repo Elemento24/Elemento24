@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old.</b>
-> <p><i>Franz Kafka</i></p>
+> <b>People are unjust to anger - it can be enlivening and a lot of fun.</b>
+> <p><i>Philip Roth</i></p>
 
 <br>
