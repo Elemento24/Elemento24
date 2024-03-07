@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A complainer is like a Death Eater because there's a suction of negative energy. You can catch a great attitude from great people.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>Smiling is definitely one of the best beauty remedies. If you have a good sense of humor and a good approach to life, that's beautiful.</b>
+> <p><i>Rashida Jones</i></p>
 
 <br>
