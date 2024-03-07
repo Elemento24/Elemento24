@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People can cry much easier than they can change.</b>
-> <p><i>James A. Baldwin</i></p>
+> <b>The art which we may call generally art of the wayside, as opposed to that which is the business of men's lives, is, in the best sense of the word, Grotesque.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
