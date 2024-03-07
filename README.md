@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One person alone can't do anything as important as bringing genuine democracy to a country.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>He who rejects change is the architect of decay. The only human institution which rejects progress is the cemetery.</b>
+> <p><i>Harold Wilson</i></p>
 
 <br>
