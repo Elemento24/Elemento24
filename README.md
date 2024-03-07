@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age and treachery will always beat youth and exuberance.</b>
-> <p><i>David Mamet</i></p>
+> <b>The true measure of the value of any business leader and manager is performance.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
