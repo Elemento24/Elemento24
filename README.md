@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you realize that all things change, there is nothing you will try to hold on to. If you are not afraid of dying, there is nothing you cannot achieve.</b>
-> <p><i>Lao Tzu</i></p>
+> <b>We're a nation of laws, but the good thing about America, is that laws reside in the people and people can change the laws.</b>
+> <p><i>Rick Warren</i></p>
 
 <br>
