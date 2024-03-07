@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While I'm not a celebrity, it's such a weird concept that society has cooked up for us. Astronauts and teachers are much more amazing than actors.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>A positive attitude is something everyone can work on, and everyone can learn how to employ it.</b>
+> <p><i>Joan Lunden</i></p>
 
 <br>
