@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I might have some character traits that some might see as innocence or naive. That's because I discovered peace and happiness in my soul. And with this knowledge, I also see the beauty of human life.</b>
-> <p><i>Tobey Maguire</i></p>
+> <b>Obviously the first sentiment is disappointment that we didn't get the car home and more disappointment that at the time that it stopped the car was in the lead.</b>
+> <p><i>John Surtees</i></p>
 
 <br>
