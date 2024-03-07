@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A race is a work of art that people can look at and be affected in as many ways they're capable of understanding.</b>
-> <p><i>Steve Prefontaine</i></p>
+> <b>So I was getting into my car, and this bloke says to me 'Can you give me a lift?' I said 'Sure, you look great, the world's your oyster, go for it.'</b>
+> <p><i>Tommy Cooper</i></p>
 
 <br>
