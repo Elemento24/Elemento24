@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter how many modern parts I do, people still refer to me as Mrs. Costume Drama. Fight Club is a studio pic, and I've done very few of those. I've got a feeling it's going to change things for me.</b>
-> <p><i>Helena Bonham Carter</i></p>
+> <b>While I'm not a celebrity, it's such a weird concept that society has cooked up for us. Astronauts and teachers are much more amazing than actors.</b>
+> <p><i>Joseph Gordon-Levitt</i></p>
 
 <br>
