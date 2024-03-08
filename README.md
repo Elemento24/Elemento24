@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A final word: I am not knowledgeable about the internet. I do not have a computer. I guess that at 74 years of age, I don't have the patience to learn.</b>
-> <p><i>David Wilkerson</i></p>
+> <b>In this business you have to develop a thick skin, but I'm always going to feel everything. It's my nature.</b>
+> <p><i>Taylor Swift</i></p>
 
 <br>
