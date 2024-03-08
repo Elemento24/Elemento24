@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Microsoft has had two goals in the last 10 years. One was to copy the Mac, and the other was to copy Lotus' success in the spreadsheet - basically, the applications business. And over the course of the last 10 years, Microsoft accomplished both of those goals. And now they are completely lost.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>It is commonly supposed that the art of pleasing is a wonderful aid in the pursuit of fortune but the art of being bored is infinitely more successful.</b>
+> <p><i>Nicolas Chamfort</i></p>
 
 <br>
