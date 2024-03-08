@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obviously the first sentiment is disappointment that we didn't get the car home and more disappointment that at the time that it stopped the car was in the lead.</b>
-> <p><i>John Surtees</i></p>
+> <b>Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.</b>
+> <p><i>Theodore Isaac Rubin</i></p>
 
 <br>
