@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fairest and dearest, your wrath and anger are more heavy than I can bear but learn that I cannot tell what you wish me to say without sinning against my honour too grievously.</b>
-> <p><i>Marie de France</i></p>
+> <b>The GTO is such an important car because it's a racing car and a touring car and that's pretty unusual.</b>
+> <p><i>Nick Mason</i></p>
 
 <br>
