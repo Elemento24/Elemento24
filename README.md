@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to be in my car all day. I love getting up in the morning in Venice and walking my dogs down to the cafe to get my tea, and then perhaps going to a bookstore and sitting and reading, then walking to the beach.</b>
-> <p><i>Jessica Chastain</i></p>
+> <b>Some people change when they think they're a star or something.</b>
+> <p><i>Paris Hilton</i></p>
 
 <br>
