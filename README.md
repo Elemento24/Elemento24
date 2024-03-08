@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was drafted into the Army when I was 19 and came out at age 22. Most people that I knew didn't think they'd come home alive. I didn't think I would either, so I was happy when I did.</b>
-> <p><i>Ed Koch</i></p>
+> <b>I think, if you put a camera in anyone's life and document it daily from the age of 21 to 27, there are going to be things that aren't always pretty.</b>
+> <p><i>Sienna Miller</i></p>
 
 <br>
