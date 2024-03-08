@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's an amazing luxury to say I'm 31 years old and I'm gonna take a year off. That's pretty amazing.</b>
-> <p><i>Sarah McLachlan</i></p>
+> <b>I was drafted into the Army when I was 19 and came out at age 22. Most people that I knew didn't think they'd come home alive. I didn't think I would either, so I was happy when I did.</b>
+> <p><i>Ed Koch</i></p>
 
 <br>
