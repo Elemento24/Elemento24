@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One irreducible residual of 38 years in the business is the number of lasting, loving friendships I have made.</b>
-> <p><i>Carroll O'Connor</i></p>
+> <b>The best way to sell yourself to others is first to sell the others to yourself.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
