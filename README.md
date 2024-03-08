@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The GTO is such an important car because it's a racing car and a touring car and that's pretty unusual.</b>
-> <p><i>Nick Mason</i></p>
+> <b>I can barely conceive of a type of beauty in which there is no Melancholy.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
