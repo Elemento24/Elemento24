@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After my second-to-last record, 'The Greatest', I had gone on tour for a while, and I didn't play an instrument for about five years. And I got kind of - it's not self-esteem or whatever, or anger toward myself - but disappointed in myself that I hadn't been challenging myself to learn musically.</b>
-> <p><i>Cat Power</i></p>
+> <b>Beauty itself is but the sensible image of the Infinite.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
