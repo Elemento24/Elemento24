@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude is attitude, whether you're a West Coast gangster or East Coast gangster, you know?</b>
-> <p><i>Paul Walker</i></p>
+> <b>You come into the world alone and you go out of the world alone yet it seems to me you are more alone while living than even going and coming.</b>
+> <p><i>Emily Carr</i></p>
 
 <br>
