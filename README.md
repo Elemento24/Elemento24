@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty itself is but the sensible image of the Infinite.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>I don't want to be in my car all day. I love getting up in the morning in Venice and walking my dogs down to the cafe to get my tea, and then perhaps going to a bookstore and sitting and reading, then walking to the beach.</b>
+> <p><i>Jessica Chastain</i></p>
 
 <br>
