@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people change when they think they're a star or something.</b>
-> <p><i>Paris Hilton</i></p>
+> <b>With age, you see people fail more. You see yourself fail more. How do you keep that fearlessness of a kid? You keep going. Luckily, I'm not afraid to make a fool of myself.</b>
+> <p><i>Hugh Jackman</i></p>
 
 <br>
