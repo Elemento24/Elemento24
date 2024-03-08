@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think, if you put a camera in anyone's life and document it daily from the age of 21 to 27, there are going to be things that aren't always pretty.</b>
-> <p><i>Sienna Miller</i></p>
+> <b>When I'm bored or tired of being blonde, I'll throw on a wig. It's a lot less of a permanent way to change your look, and I have about 10 - all different colors, shapes, bobs, long hair, short, feathered.</b>
+> <p><i>Sara Blakely</i></p>
 
 <br>
