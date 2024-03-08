@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to sell yourself to others is first to sell the others to yourself.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>It's an amazing luxury to say I'm 31 years old and I'm gonna take a year off. That's pretty amazing.</b>
+> <p><i>Sarah McLachlan</i></p>
 
 <br>
