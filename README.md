@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Going to church doesn't make you any more a Christian than going to the garage makes you a car.</b>
-> <p><i>Laurence J. Peter</i></p>
+> <b>Fairest and dearest, your wrath and anger are more heavy than I can bear but learn that I cannot tell what you wish me to say without sinning against my honour too grievously.</b>
+> <p><i>Marie de France</i></p>
 
 <br>
