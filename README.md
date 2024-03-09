@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is a myth that art has to be sold. It is not like stocking a grocery store where people fill a pushcart. Art is a product that has no apparent need. The salesperson builds the need in the mind of the buyer.</b>
-> <p><i>Jack White</i></p>
+> <b>I'm from the Madeleine L'Engle school. The more she delves into science, the more she knows there's a creator who's behind these amazing laws, these amazing events. The symmetry of nature, the structure and order of it.</b>
+> <p><i>Tom Shadyac</i></p>
 
 <br>
