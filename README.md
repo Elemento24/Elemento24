@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing what ordinary people can do if they set out without preconceived notions.</b>
-> <p><i>Ben Stein</i></p>
+> <b>Real beauty is to be true to oneself. That's what makes me feel good.</b>
+> <p><i>Laetitia Casta</i></p>
 
 <br>
