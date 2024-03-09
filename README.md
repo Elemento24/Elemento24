@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My son is now an 'entrepreneur.' That's what you're called when you don't have a job.</b>
-> <p><i>Ted Turner</i></p>
+> <b>It's amazing what ordinary people can do if they set out without preconceived notions.</b>
+> <p><i>Ben Stein</i></p>
 
 <br>
