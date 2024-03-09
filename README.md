@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are some things you learn best in calm, and some in storm.</b>
-> <p><i>Willa Cather</i></p>
+> <b>O, thou art fairer than the evening air clad in the beauty of a thousand stars.</b>
+> <p><i>Christopher Marlowe</i></p>
 
 <br>
