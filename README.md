@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To want friendship is a great fault. Friendship ought to be a gratuitous joy, like the joys afforded by art or life.</b>
-> <p><i>Simone Weil</i></p>
+> <b>We cannot make events. Our business is wisely to improve them.</b>
+> <p><i>Samuel Adams</i></p>
 
 <br>
