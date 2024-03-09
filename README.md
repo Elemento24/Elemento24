@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think in politics, in Congress, you often do things that are Republican, or you do things because you're a Democrat. Sometimes that's good, obviously, and sometimes that's obviously bad. But in the news business, there's no such thing as Republican or Democratic news. News is news.</b>
-> <p><i>J. C. Watts</i></p>
+> <b>Most executives, many scientists, and almost all business school graduates believe that if you analyze data, this will give you new ideas. Unfortunately, this belief is totally wrong. The mind can only see what it is prepared to see.</b>
+> <p><i>Edward de Bono</i></p>
 
 <br>
