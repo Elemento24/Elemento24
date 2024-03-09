@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been a joy to be a part of other people's journey, to be able to inspire and be a part of new singers coming up in this business.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>All great art is the work of the whole living creature, body and soul, and chiefly of the soul.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
