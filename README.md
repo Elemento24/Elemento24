@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was in San Diego and I was onstage and couldn't remember how to play the guitar properly. I was in terrible pain and my nervous system was just going wild, like somebody had just run a car over me.</b>
-> <p><i>Andy Partridge</i></p>
+> <b>One must learn, if one is to see the beauty in Japan, to like an extraordinarily restrained and delicate loveliness.</b>
+> <p><i>Miriam Beard</i></p>
 
 <br>
