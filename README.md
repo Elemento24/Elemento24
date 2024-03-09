@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One must learn, if one is to see the beauty in Japan, to like an extraordinarily restrained and delicate loveliness.</b>
-> <p><i>Miriam Beard</i></p>
+> <b>The really frightening thing about middle age is the knowledge that you'll grow out of it.</b>
+> <p><i>Doris Day</i></p>
 
 <br>
