@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most executives, many scientists, and almost all business school graduates believe that if you analyze data, this will give you new ideas. Unfortunately, this belief is totally wrong. The mind can only see what it is prepared to see.</b>
-> <p><i>Edward de Bono</i></p>
+> <b>It's been a joy to be a part of other people's journey, to be able to inspire and be a part of new singers coming up in this business.</b>
+> <p><i>Christina Aguilera</i></p>
 
 <br>
