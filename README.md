@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Studies have shown that 90% of error in thinking is due to error in perception. If you can change your perception, you can change your emotion and this can lead to new ideas.</b>
-> <p><i>Edward de Bono</i></p>
+> <b>I didn't have any success in show business until I was 30 to 31 years of age.</b>
+> <p><i>Adam Carolla</i></p>
 
 <br>
