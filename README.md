@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't have any success in show business until I was 30 to 31 years of age.</b>
-> <p><i>Adam Carolla</i></p>
+> <b>My contribution I hope is to get people to eat full-flavored food. If I could come away with that alone, that would be a fantastic accomplishment. I'm also very proud of being a very American chef.</b>
+> <p><i>Bobby Flay</i></p>
 
 <br>
