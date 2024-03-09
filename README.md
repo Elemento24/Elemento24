@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My contribution I hope is to get people to eat full-flavored food. If I could come away with that alone, that would be a fantastic accomplishment. I'm also very proud of being a very American chef.</b>
-> <p><i>Bobby Flay</i></p>
+> <b>I love to collect modern art.</b>
+> <p><i>Maria Sharapova</i></p>
 
 <br>
