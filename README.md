@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To know how to suggest is the great art of teaching. To attain it we must be able to guess what will interest we must learn to read the childish soul as we might a piece of music. Then, by simply changing the key, we keep up the attraction and vary the song.</b>
-> <p><i>Henri Frederic Amiel</i></p>
+> <b>To want friendship is a great fault. Friendship ought to be a gratuitous joy, like the joys afforded by art or life.</b>
+> <p><i>Simone Weil</i></p>
 
 <br>
