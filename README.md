@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the rarest things that a man ever does, is to do the best he can.</b>
-> <p><i>Josh Billings</i></p>
+> <b>The age of chivalry is past. Bores have succeeded to dragons.</b>
+> <p><i>Charles Dickens</i></p>
 
 <br>
