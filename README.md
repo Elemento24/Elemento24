@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look your best - who said love is blind?</b>
-> <p><i>Mae West</i></p>
+> <b>It is impossible, as impossible as to raise the dead, to restore anything that has ever been great or beautiful in architecture. That which I have insisted upon as the life of the whole, that spirit which is given only by the hand and eye of the workman, can never be recalled.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
