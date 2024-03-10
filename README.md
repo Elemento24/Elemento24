@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The age of chivalry is past. Bores have succeeded to dragons.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>I just find the evangelical church too, well, restrictive. But the School of Practical Philosophy is nonconfrontational. We believe there are many forms of Scripture. What is true is true and will never change, whether it's in the Bible or in Shakespeare. It's about oneness.</b>
+> <p><i>Hugh Jackman</i></p>
 
 <br>
