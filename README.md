@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can be the best actor in the world, but if you don't have that one lucky moment, it kind of doesn't matter. There are a lot of amazing actors who will never get the chance to prove themselves because they won't have that one lucky moment.</b>
-> <p><i>Jeremy Irvine</i></p>
+> <b>Despite the demands of this job, one of the things my wife and I try to do is to spend time together alone. And one of the things we really enjoy doing together is seeing a good movie.</b>
+> <p><i>Warren Christopher</i></p>
 
 <br>
