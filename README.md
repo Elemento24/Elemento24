@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been in love with the same woman for forty-one years. If my wife finds out, she'll kill me.</b>
-> <p><i>Henny Youngman</i></p>
+> <b>You owe it to yourself to be the best person possible. Because if you are, others will want to be with you, want to provide you with the things you want in exchange for what you're giving to them.</b>
+> <p><i>Harry Browne</i></p>
 
 <br>
