@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thing about New York is you can leave your house without a plan and find the day. You can't do that in Los Angeles. You need to get in your car, all this, you can't just drive around like a lunatic. In New York, you can literally walk outside, and wind up anywhere.</b>
-> <p><i>Michael Rapaport</i></p>
+> <b>You can be the best actor in the world, but if you don't have that one lucky moment, it kind of doesn't matter. There are a lot of amazing actors who will never get the chance to prove themselves because they won't have that one lucky moment.</b>
+> <p><i>Jeremy Irvine</i></p>
 
 <br>
