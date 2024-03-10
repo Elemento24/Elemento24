@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Despite the demands of this job, one of the things my wife and I try to do is to spend time together alone. And one of the things we really enjoy doing together is seeing a good movie.</b>
-> <p><i>Warren Christopher</i></p>
+> <b>Everything has combined to make my life in New York an amazing experience. I told my manager a few years ago that I wanted to move here and try acting in the theater.</b>
+> <p><i>Mariska Hargitay</i></p>
 
 <br>
