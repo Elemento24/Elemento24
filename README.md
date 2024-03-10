@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Presents don't really mean much to me. I don't want to sound mawkish, but - it was the realization that I have a great many people in my life who really love me, and who I really love.</b>
-> <p><i>Gabriel Byrne</i></p>
+> <b>In the NFL a lot of times everyone gets caught up in the business side of things. For them it's all about money and it really leaves a sour taste in your mouth.</b>
+> <p><i>Brett Favre</i></p>
 
 <br>
