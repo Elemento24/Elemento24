@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People say I'm extravagant because I want to be surrounded by beauty. But tell me, who wants to be surrounded by garbage?</b>
-> <p><i>Imelda Marcos</i></p>
+> <b>I think I thought it would be important for electronics as we knew it then, but that was a much simpler business and electronics was mostly radio and television and the first computers.</b>
+> <p><i>Jack Kilby</i></p>
 
 <br>
