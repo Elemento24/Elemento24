@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the NFL a lot of times everyone gets caught up in the business side of things. For them it's all about money and it really leaves a sour taste in your mouth.</b>
-> <p><i>Brett Favre</i></p>
+> <b>I've been in love with the same woman for forty-one years. If my wife finds out, she'll kill me.</b>
+> <p><i>Henny Youngman</i></p>
 
 <br>
