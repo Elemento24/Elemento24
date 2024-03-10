@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I thought it would be important for electronics as we knew it then, but that was a much simpler business and electronics was mostly radio and television and the first computers.</b>
-> <p><i>Jack Kilby</i></p>
+> <b>Working on the 'Ice Age' movies, I'm really proud to be in them.</b>
+> <p><i>Seann William Scott</i></p>
 
 <br>
