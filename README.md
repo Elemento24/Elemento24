@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a tremendous difference between alone and lonely. You could be lonely in a group of people. I like being alone. I like eating by myself. I go home at night and just watch a movie or hang out with my dog. I have to exert myself and really say, oh God, I've got to see my friends 'cause I'm too content being by myself.</b>
-> <p><i>Drew Barrymore</i></p>
+> <b>You can be the best actor in the world, but if you don't have that one lucky moment, it kind of doesn't matter. There are a lot of amazing actors who will never get the chance to prove themselves because they won't have that one lucky moment.</b>
+> <p><i>Jeremy Irvine</i></p>
 
 <br>
