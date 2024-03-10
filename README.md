@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business opportunities are like buses, there's always another one coming.</b>
-> <p><i>Richard Branson</i></p>
+> <b>Nothing is as real as a dream. The world can change around you, but your dream will not. Responsibilities need not erase it. Duties need not obscure it. Because the dream is within you, no one can take it away.</b>
+> <p><i>Tom Clancy</i></p>
 
 <br>
