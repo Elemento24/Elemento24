@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just find the evangelical church too, well, restrictive. But the School of Practical Philosophy is nonconfrontational. We believe there are many forms of Scripture. What is true is true and will never change, whether it's in the Bible or in Shakespeare. It's about oneness.</b>
-> <p><i>Hugh Jackman</i></p>
+> <b>There's a tremendous difference between alone and lonely. You could be lonely in a group of people. I like being alone. I like eating by myself. I go home at night and just watch a movie or hang out with my dog. I have to exert myself and really say, oh God, I've got to see my friends 'cause I'm too content being by myself.</b>
+> <p><i>Drew Barrymore</i></p>
 
 <br>
