@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's your mental attitude. So many of us start dreading age in high school and that's a waste of a lovely life. 'Oh... I'm 30, oh, I'm 40, oh, 50.' Make the most of it.</b>
-> <p><i>Betty White</i></p>
+> <b>Brain power improves by brain use, just as our bodily strength grows with exercise. And there is no doubt that a large proportion of the female population, from school days to late middle age, now have very complicated lives indeed.</b>
+> <p><i>A. N. Wilson</i></p>
 
 <br>
