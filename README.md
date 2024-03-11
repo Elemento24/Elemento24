@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing is as real as a dream. The world can change around you, but your dream will not. Responsibilities need not erase it. Duties need not obscure it. Because the dream is within you, no one can take it away.</b>
-> <p><i>Tom Clancy</i></p>
+> <b>The art of being happy lies in the power of extracting happiness from common things.</b>
+> <p><i>Henry Ward Beecher</i></p>
 
 <br>
