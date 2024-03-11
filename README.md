@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to tell my jokes. I want to have time with my children. I want to entertain people. And at one point, I'll walk away from show business. But I don't want to walk away empty-handed.</b>
-> <p><i>Dave Chappelle</i></p>
+> <b>I'm just glad I was able to return to some of that innocence and beauty I had as a child when I started my own family, and my children brought me back some of that spirit.</b>
+> <p><i>Angelina Jolie</i></p>
 
 <br>
