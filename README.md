@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't come into politics to change the Labour Party. I came into politics to change the country.</b>
-> <p><i>Tony Blair</i></p>
+> <b>Negro banks, as a rule, have failed because the people, taught that their own pioneers in business cannot function in this sphere, withdrew their deposits.</b>
+> <p><i>Carter G. Woodson</i></p>
 
 <br>
