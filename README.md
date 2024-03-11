@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't believe it. I'm speechless. It is amazing to see where I've come from the last two years.</b>
-> <p><i>Libby Trickett</i></p>
+> <b>I think people should be angry at things that are worthy of anger. Injustice is outrageous and deserves outrage.</b>
+> <p><i>Chris Hayes</i></p>
 
 <br>
