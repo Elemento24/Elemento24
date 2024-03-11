@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a big fan of Courtney Love. I love Hole and I love her acting and I love her attitude. I just hope I never meet her in a dark alley.</b>
-> <p><i>Jeff Ross</i></p>
+> <b>A man sits in his car at the traffic lights, waiting for them to go green.</b>
+> <p><i>Michael Frayn</i></p>
 
 <br>
