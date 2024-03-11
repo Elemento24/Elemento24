@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know how many thoughts we have a second, but it's quite an amazing number, and just to pin down the appropriate sequence of those, all you really need is a pencil and a piece of paper.</b>
-> <p><i>Robert Wyatt</i></p>
+> <b>The winner's edge is not in a gifted birth, a high IQ, or in talent. The winner's edge is all in the attitude, not aptitude. Attitude is the criterion for success.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
