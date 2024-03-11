@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Brain power improves by brain use, just as our bodily strength grows with exercise. And there is no doubt that a large proportion of the female population, from school days to late middle age, now have very complicated lives indeed.</b>
-> <p><i>A. N. Wilson</i></p>
+> <b>I want to tell my jokes. I want to have time with my children. I want to entertain people. And at one point, I'll walk away from show business. But I don't want to walk away empty-handed.</b>
+> <p><i>Dave Chappelle</i></p>
 
 <br>
