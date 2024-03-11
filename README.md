@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't get a chance to do many of my own stunts on 'Buffy' - none of us do. We have amazing stunt people who make us all look really believable and really good.</b>
-> <p><i>Emma Caulfield</i></p>
+> <b>I don't know how many thoughts we have a second, but it's quite an amazing number, and just to pin down the appropriate sequence of those, all you really need is a pencil and a piece of paper.</b>
+> <p><i>Robert Wyatt</i></p>
 
 <br>
