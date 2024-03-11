@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At that time, I had recently finished a book called Amazing Grace, which many people tell me is a very painful book to read. Well, if it was painful to read, it was also painful to write. I had pains in my chest for two years while I was writing that book.</b>
-> <p><i>Jonathan Kozol</i></p>
+> <b>I didn't come into politics to change the Labour Party. I came into politics to change the country.</b>
+> <p><i>Tony Blair</i></p>
 
 <br>
