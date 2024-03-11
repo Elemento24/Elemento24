@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The winner's edge is not in a gifted birth, a high IQ, or in talent. The winner's edge is all in the attitude, not aptitude. Attitude is the criterion for success.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>For his heart was in his work, and the heart giveth grace unto every art.</b>
+> <p><i>Henry Wadsworth Longfellow</i></p>
 
 <br>
