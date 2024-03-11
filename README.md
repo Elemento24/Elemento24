@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm just glad I was able to return to some of that innocence and beauty I had as a child when I started my own family, and my children brought me back some of that spirit.</b>
-> <p><i>Angelina Jolie</i></p>
+> <b>I'm a big fan of Courtney Love. I love Hole and I love her acting and I love her attitude. I just hope I never meet her in a dark alley.</b>
+> <p><i>Jeff Ross</i></p>
 
 <br>
