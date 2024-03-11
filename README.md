@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The secret of genius is to carry the spirit of the child into old age, which mean never losing your enthusiasm.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>I don't get a chance to do many of my own stunts on 'Buffy' - none of us do. We have amazing stunt people who make us all look really believable and really good.</b>
+> <p><i>Emma Caulfield</i></p>
 
 <br>
