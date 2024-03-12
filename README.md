@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The very essence of the creative is its novelty, and hence we have no standard by which to judge it.</b>
-> <p><i>Carl Rogers</i></p>
+> <b>Aging seems to be the only available way to live a long life.</b>
+> <p><i>Kitty O'Neill Collins</i></p>
 
 <br>
