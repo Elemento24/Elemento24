@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are balanced and when you listen and attend to the needs of your body, mind, and spirit, your natural beauty comes out.</b>
-> <p><i>Christy Turlington</i></p>
+> <b>But in the end, in the end one is alone. We are all of us alone. I mean I'm told these days we have to consider ourselves as being in society... but in the end one knows one is alone, that one lives at the heart of a solitude.</b>
+> <p><i>Harold Bloom</i></p>
 
 <br>
