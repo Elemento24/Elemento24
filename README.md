@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the beginning there was the word. The word was Jah. The word is in I, Jah is in I. I make what is good, better, and what is better, best. I follow this in every aspect of life.</b>
-> <p><i>Peter Tosh</i></p>
+> <b>It goes without saying that you should never have more children than you have car windows.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
