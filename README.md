@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Often, the roles I'm offered in England are melancholic women who are filled with regret for the past, regret for their fading beauty.</b>
-> <p><i>Kristin Scott Thomas</i></p>
+> <b>I'm not into business at all.</b>
+> <p><i>Freddie Mercury</i></p>
 
 <br>
