@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the 19th century, you had bourgeois art without politics - an almost frozen idea of what beauty is.</b>
-> <p><i>Douglas Sirk</i></p>
+> <b>Complainers change their complaints, but they never reduce the amount of time spent in complaining.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
