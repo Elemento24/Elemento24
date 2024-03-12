@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is also submitted to the taste of time, so a beautiful woman from the Belle Epoch is not exactly the perfect beauty of today, so beauty is something that changes with time.</b>
-> <p><i>Karl Lagerfeld</i></p>
+> <b>The very essence of the creative is its novelty, and hence we have no standard by which to judge it.</b>
+> <p><i>Carl Rogers</i></p>
 
 <br>
