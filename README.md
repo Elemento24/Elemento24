@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Chinese people themselves, they really want change.</b>
-> <p><i>Dalai Lama</i></p>
+> <b>The energy of the crowd is insane. Twenty thousand people. It's the biggest jolt of adrenaline. It's very hard to explain. You know the old story about the woman lifting the car off her kid? It's in that realm. You can actually hurt yourself and not know it.</b>
+> <p><i>Tom Petty</i></p>
 
 <br>
