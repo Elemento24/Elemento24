@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There were times when I thought I would never own a car.</b>
-> <p><i>Victor Cruz</i></p>
+> <b>Genius is present in every age, but the men carrying it within them remain benumbed unless extraordinary events occur to heat up and melt the mass so that it flows forth.</b>
+> <p><i>Denis Diderot</i></p>
 
 <br>
