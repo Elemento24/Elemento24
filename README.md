@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Complainers change their complaints, but they never reduce the amount of time spent in complaining.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>In the beginning there was the word. The word was Jah. The word is in I, Jah is in I. I make what is good, better, and what is better, best. I follow this in every aspect of life.</b>
+> <p><i>Peter Tosh</i></p>
 
 <br>
