@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only honest art form is laughter, comedy. You can't fake it... try to fake three laughs in an hour - ha ha ha ha ha - they'll take you away, man. You can't.</b>
-> <p><i>Lenny Bruce</i></p>
+> <b>Yes, my grandfather worked with Thomas Edison on the electric car, and he sold electric cars at the 1900 World's Fair in Paris.</b>
+> <p><i>Al Jardine</i></p>
 
 <br>
