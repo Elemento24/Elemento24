@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Genius is present in every age, but the men carrying it within them remain benumbed unless extraordinary events occur to heat up and melt the mass so that it flows forth.</b>
-> <p><i>Denis Diderot</i></p>
+> <b>The only honest art form is laughter, comedy. You can't fake it... try to fake three laughs in an hour - ha ha ha ha ha - they'll take you away, man. You can't.</b>
+> <p><i>Lenny Bruce</i></p>
 
 <br>
