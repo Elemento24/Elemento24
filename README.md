@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Aging seems to be the only available way to live a long life.</b>
-> <p><i>Kitty O'Neill Collins</i></p>
+> <b>When you are balanced and when you listen and attend to the needs of your body, mind, and spirit, your natural beauty comes out.</b>
+> <p><i>Christy Turlington</i></p>
 
 <br>
