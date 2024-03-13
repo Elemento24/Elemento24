@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As in nature, as in art, so in grace it is rough treatment that gives souls, as well as stones, their luster.</b>
-> <p><i>Thomas Guthrie</i></p>
+> <b>An artist must be a reactionary. He has to stand out against the tenor of the age and not go flopping along.</b>
+> <p><i>Andre Maurois</i></p>
 
 <br>
