@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing to me that young people will still pick up a cigarette.</b>
-> <p><i>Loni Anderson</i></p>
+> <b>There is a destiny which makes us brothers none goes his way alone. All that we send into the lives of others comes back into our own.</b>
+> <p><i>Edwin Markham</i></p>
 
 <br>
