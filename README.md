@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Weakness of attitude becomes weakness of character.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>You only grow when you are alone.</b>
+> <p><i>Paul Newman</i></p>
 
 <br>
