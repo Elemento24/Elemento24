@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Examinations are formidable even to the best prepared, for the greatest fool may ask more than the wisest man can answer.</b>
-> <p><i>Charles Caleb Colton</i></p>
+> <b>Weakness of attitude becomes weakness of character.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
