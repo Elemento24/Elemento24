@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do you like my suit? I think this is an amazing suit, don't you think?</b>
-> <p><i>Tom Selleck</i></p>
+> <b>As in nature, as in art, so in grace it is rough treatment that gives souls, as well as stones, their luster.</b>
+> <p><i>Thomas Guthrie</i></p>
 
 <br>
