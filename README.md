@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As far as luxury goes, about the only thing I do is... I go first class all the way. I live on the road, so when I'm out there, I'm getting the nice hotel suite, I'm getting the luxury car, I'm eating the good food, and I make sure I take care of myself on the road.</b>
-> <p><i>Trish Stratus</i></p>
+> <b>It's amazing to me that young people will still pick up a cigarette.</b>
+> <p><i>Loni Anderson</i></p>
 
 <br>
