@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist must be a reactionary. He has to stand out against the tenor of the age and not go flopping along.</b>
-> <p><i>Andre Maurois</i></p>
+> <b>If you ever have the good fortune to meet Tippi Hedren, she's an amazing woman. You can't quite believe she is the age she is.</b>
+> <p><i>Toby Jones</i></p>
 
 <br>
