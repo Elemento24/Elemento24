@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Heat cannot be separated from fire, or beauty from The Eternal.</b>
-> <p><i>Dante Alighieri</i></p>
+> <b>Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
