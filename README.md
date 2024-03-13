@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>I think it's quite extraordinary that people cast me as if I'm Warren Beatty: until I met my present wife, at the age of 35, you could name two girlfriends.</b>
+> <p><i>Colin Firth</i></p>
 
 <br>
