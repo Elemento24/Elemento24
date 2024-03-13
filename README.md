@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a destiny which makes us brothers none goes his way alone. All that we send into the lives of others comes back into our own.</b>
-> <p><i>Edwin Markham</i></p>
+> <b>There's a lot of great movies that have won the Academy Award, and a lot of great movies that haven't. You just do the best you can.</b>
+> <p><i>Clint Eastwood</i></p>
 
 <br>
