@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up in a family where we weren't allowed to talk about beauty or to put any emphasis on physical appearance.</b>
-> <p><i>Pam Grier</i></p>
+> <b>As far as luxury goes, about the only thing I do is... I go first class all the way. I live on the road, so when I'm out there, I'm getting the nice hotel suite, I'm getting the luxury car, I'm eating the good food, and I make sure I take care of myself on the road.</b>
+> <p><i>Trish Stratus</i></p>
 
 <br>
