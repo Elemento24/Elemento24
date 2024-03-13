@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got a wife, four kids, a business, and a baseball career.</b>
-> <p><i>Curt Schilling</i></p>
+> <b>I studied voice for about two years with an amazing coach, and I never rose above the level of mediocre.</b>
+> <p><i>Danny Strong</i></p>
 
 <br>
