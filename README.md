@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's quite extraordinary that people cast me as if I'm Warren Beatty: until I met my present wife, at the age of 35, you could name two girlfriends.</b>
-> <p><i>Colin Firth</i></p>
+> <b>I hope to find the roles that are age appropriate but not yearning to be younger, or parenting ad nauseam.</b>
+> <p><i>Debra Winger</i></p>
 
 <br>
