@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The purely agitation attitude is not good enough for a detailed consideration of a subject.</b>
-> <p><i>Michael Korda</i></p>
+> <b>Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
