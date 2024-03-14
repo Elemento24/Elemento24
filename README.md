@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having a positive mental attitude is asking how something can be done rather than saying it can't be done.</b>
-> <p><i>Bo Bennett</i></p>
+> <b>A man filled with the love of God is not content with blessing his family alone, but ranges through the whole world, anxious to bless the whole human race.</b>
+> <p><i>Joseph Smith, Jr.</i></p>
 
 <br>
