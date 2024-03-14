@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm so happy to be able to give kids the opportunity to learn about amazing world of dance and music that I've have been lucky enough to make such a big part of my own life.</b>
-> <p><i>Britney Spears</i></p>
+> <b>Having a positive mental attitude is asking how something can be done rather than saying it can't be done.</b>
+> <p><i>Bo Bennett</i></p>
 
 <br>
