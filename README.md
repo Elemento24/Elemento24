@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let me alone: I have yet my legs and one arm. Tell the surgeon to make haste and his instruments. I know I must lose my right arm, so the sooner it's off the better.</b>
-> <p><i>Horatio Nelson</i></p>
+> <b>Men make angry music and it's called rock-and-roll women include anger in their vocabulary and suddenly they're angry and militant.</b>
+> <p><i>Ani DiFranco</i></p>
 
 <br>
