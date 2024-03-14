@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A business absolutely devoted to service will have only one worry about profits. They will be embarrassingly large.</b>
-> <p><i>Henry Ford</i></p>
+> <b>In my job, people tell you that all the time: 'This shoot was great. You look amazing.' But you never know what they say when you turn away.</b>
+> <p><i>Heidi Klum</i></p>
 
 <br>
