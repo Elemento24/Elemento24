@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man does not die of love or his liver or even of old age he dies of being a man.</b>
-> <p><i>Miguel de Unamuno</i></p>
+> <b>What good mothers and fathers instinctively feel like doing for their babies is usually best after all.</b>
+> <p><i>Benjamin Spock</i></p>
 
 <br>
