@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man filled with the love of God is not content with blessing his family alone, but ranges through the whole world, anxious to bless the whole human race.</b>
-> <p><i>Joseph Smith, Jr.</i></p>
+> <b>Let me alone: I have yet my legs and one arm. Tell the surgeon to make haste and his instruments. I know I must lose my right arm, so the sooner it's off the better.</b>
+> <p><i>Horatio Nelson</i></p>
 
 <br>
