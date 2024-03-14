@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother was 45 when she had me, so when I was in high school my parents were the same age as my friends' grandparents.</b>
-> <p><i>Jack White</i></p>
+> <b>A man does not die of love or his liver or even of old age he dies of being a man.</b>
+> <p><i>Miguel de Unamuno</i></p>
 
 <br>
