@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>A business absolutely devoted to service will have only one worry about profits. They will be embarrassingly large.</b>
+> <p><i>Henry Ford</i></p>
 
 <br>
