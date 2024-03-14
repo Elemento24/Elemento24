@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An art which isn't based on feeling isn't an art at all.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Peace is the one condition of survival in this nuclear age.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
