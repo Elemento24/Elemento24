@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Standards of beauty are arbitrary. Body shame exists only to the extent that our physiques don't match our own beliefs about how we should look.</b>
-> <p><i>Martha Beck</i></p>
+> <b>The first time I rode a bike I was four or five. I crashed into the back of a car.</b>
+> <p><i>David Millar</i></p>
 
 <br>
