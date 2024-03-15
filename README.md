@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Training in taekwondo for eight years and then being able to do it in a film was pretty amazing.</b>
-> <p><i>Dev Patel</i></p>
+> <b>Living the past is a dull and lonely business looking back strains the neck muscles, causing you to bump into people not going your way.</b>
+> <p><i>Edna Ferber</i></p>
 
 <br>
