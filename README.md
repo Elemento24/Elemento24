@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first time I rode a bike I was four or five. I crashed into the back of a car.</b>
-> <p><i>David Millar</i></p>
+> <b>I consider my ability to arouse enthusiasm among men the greatest asset I possess. The way to develop the best that is in a man is by appreciation and encouragement.</b>
+> <p><i>Charles Schwab</i></p>
 
 <br>
