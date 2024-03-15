@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would define, in brief, the poetry of words as the rhythmical creation of Beauty.</b>
-> <p><i>Edgar Allan Poe</i></p>
+> <b>I can't hit on women in public any more. I didn't decide this it just doesn't feel right at my age.</b>
+> <p><i>Jack Nicholson</i></p>
 
 <br>
