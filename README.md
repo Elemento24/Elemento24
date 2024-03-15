@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some guys say beauty is only skin deep. But when you walk into a party, you don't see somebody's brain. The initial contact has to be the sniffing.</b>
-> <p><i>James Caan</i></p>
+> <b>The perfect life would be to have an amazing part every year and to spend all my free time to just write.</b>
+> <p><i>Melanie Laurent</i></p>
 
 <br>
