@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Remember, man does not live on bread alone: sometimes he needs a little buttering up.</b>
-> <p><i>John C. Maxwell</i></p>
+> <b>Training in taekwondo for eight years and then being able to do it in a film was pretty amazing.</b>
+> <p><i>Dev Patel</i></p>
 
 <br>
