@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the age of 11 I was about 6 ft. tall and my voice had completely broken. That caused problems. I was this gangly, spotty, very unattractive kid. I wasn't cool and I wasn't a nerd. I didn't even want to fit in with anyone.</b>
-> <p><i>Dan Stevens</i></p>
+> <b>Standards of beauty are arbitrary. Body shame exists only to the extent that our physiques don't match our own beliefs about how we should look.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
