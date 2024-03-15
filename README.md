@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really wanted there to be something in my life that I enjoy just for the beauty of it.</b>
-> <p><i>Robert Caro</i></p>
+> <b>Every age develops its own peculiar forms of pathology, which express in exaggerated form its underlying character structure.</b>
+> <p><i>Christopher Lasch</i></p>
 
 <br>
