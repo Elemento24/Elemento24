@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a side to this industry that nurtures divas who can't write. It's a big business.</b>
-> <p><i>Tori Amos</i></p>
+> <b>You don't have to have an attitude if you're famous.</b>
+> <p><i>Adriana Lima</i></p>
 
 <br>
