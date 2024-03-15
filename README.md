@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't hit on women in public any more. I didn't decide this it just doesn't feel right at my age.</b>
-> <p><i>Jack Nicholson</i></p>
+> <b>But when I was twelve years old I caught my first strong glimpse of one of the fundamental forces of existence, whose votary I was destined to be for life - namely, Beauty.</b>
+> <p><i>Georg Brandes</i></p>
 
 <br>
