@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men are fair, and they have learned not to personalize anger - they can disagree with you and argue to the bone, but afterward they still consider you a nice person with whom the underlying human relationship need not be altered.</b>
-> <p><i>Warren Farrell</i></p>
+> <b>At the age of 11 I was about 6 ft. tall and my voice had completely broken. That caused problems. I was this gangly, spotty, very unattractive kid. I wasn't cool and I wasn't a nerd. I didn't even want to fit in with anyone.</b>
+> <p><i>Dan Stevens</i></p>
 
 <br>
