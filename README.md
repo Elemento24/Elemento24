@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I consider my ability to arouse enthusiasm among men the greatest asset I possess. The way to develop the best that is in a man is by appreciation and encouragement.</b>
-> <p><i>Charles Schwab</i></p>
+> <b>Beauty and the Beast became the first animated feature ever nominated for best picture.</b>
+> <p><i>Leonard Maltin</i></p>
 
 <br>
