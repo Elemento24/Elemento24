@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Living the past is a dull and lonely business looking back strains the neck muscles, causing you to bump into people not going your way.</b>
-> <p><i>Edna Ferber</i></p>
+> <b>The very definition of 'beauty' is outside.</b>
+> <p><i>Adam Carolla</i></p>
 
 <br>
