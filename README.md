@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The anger that Uncle Junior has comes from my background. My father was the son of an Italian immigrant, and I've seen the fire of the Italian temperament. It can be explosive sometimes in ways that are both funny and tragic.</b>
-> <p><i>Dominic Chianese</i></p>
+> <b>The history of philosophy is not, like the history of the sciences, to be studied with the intellect alone. That which is receptive in us and that which impinges upon us from history is the reality of man's being, unfolding itself in thought.</b>
+> <p><i>Karl Jaspers</i></p>
 
 <br>
