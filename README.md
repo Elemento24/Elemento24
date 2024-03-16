@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We expect all our businesses to have a positive impact on our top and bottom lines. Profitability is very important to us or we wouldn't be in this business.</b>
-> <p><i>Jeff Bezos</i></p>
+> <b>Alas! how little does the memory of these human inhabitants enhance the beauty of the landscape!</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
