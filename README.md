@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is our chief means of breaking bread with the dead.</b>
-> <p><i>W. H. Auden</i></p>
+> <b>I never had the high-paying job or the company car. It took me over a decade to pay off my student loans. I never had to worry about where to dock my yacht to reduce my taxes.</b>
+> <p><i>Christine O'Donnell</i></p>
 
 <br>
