@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm someone who loves to enjoy life and tries to focus on real things and real friendships. That's why I live very simply. I'm a jeans and T-shirt kind of girl. I don't spend much time fixing myself up or trying to look cool. I live like a normal person and even though I'm in a very high-profile business, I really don't let it affect the way I live.</b>
-> <p><i>Cameron Diaz</i></p>
+> <b>Look at the Afghans, during the time of the Soviet invasion. They were among the poorest Muslims in the world, yet they were sustained by their faith in God, and God alone.</b>
+> <p><i>Abu Bakar Bashir</i></p>
 
 <br>
