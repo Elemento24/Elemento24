@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age steals away all things, even the mind.</b>
-> <p><i>Virgil</i></p>
+> <b>Happy he who learns to bear what he cannot change.</b>
+> <p><i>Friedrich Schiller</i></p>
 
 <br>
