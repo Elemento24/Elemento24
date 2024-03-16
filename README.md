@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my early professional years I was asking the question: How can I treat, or cure, or change this person? Now I would phrase the question in this way: How can I provide a relationship which this person may use for his own personal growth?</b>
-> <p><i>Carl Rogers</i></p>
+> <b>I'm so happy to have been a part of that process and I would go straight back into the desert in a ton of chain mail for Ridley any day of the week. He's an amazing director and I can't wait to see the long version.</b>
+> <p><i>Orlando Bloom</i></p>
 
 <br>
