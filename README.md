@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only failure one should fear, is not hugging to the purpose they see as best.</b>
-> <p><i>George Eliot</i></p>
+> <b>In my early professional years I was asking the question: How can I treat, or cure, or change this person? Now I would phrase the question in this way: How can I provide a relationship which this person may use for his own personal growth?</b>
+> <p><i>Carl Rogers</i></p>
 
 <br>
