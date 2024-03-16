@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alas! how little does the memory of these human inhabitants enhance the beauty of the landscape!</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>It is the unknown that excites the ardor of scholars, who, in the known alone, would shrivel up with boredom.</b>
+> <p><i>Wallace Stevens</i></p>
 
 <br>
