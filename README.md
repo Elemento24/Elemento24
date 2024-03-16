@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got a great team of engineers behind this race car. I've got a great bunch of mechanics that make it reliable. This car is developed to go out there and be better than the Reynard, and I feel that it is.</b>
-> <p><i>Al Unser</i></p>
+> <b>I wanted to buy a candle holder, but the store didn't have one. So I got a cake.</b>
+> <p><i>Mitch Hedberg</i></p>
 
 <br>
