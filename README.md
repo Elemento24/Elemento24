@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The perfect life would be to have an amazing part every year and to spend all my free time to just write.</b>
-> <p><i>Melanie Laurent</i></p>
+> <b>Now, I'm not saying I'm fashionable, but there are sociological interests that matter to me, things that are theoretical, political, intellectual and also concerned with vanity and beauty that we all think about but that I try to mix up and translate into fashion.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
