@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never had the high-paying job or the company car. It took me over a decade to pay off my student loans. I never had to worry about where to dock my yacht to reduce my taxes.</b>
-> <p><i>Christine O'Donnell</i></p>
+> <b>I've got a great team of engineers behind this race car. I've got a great bunch of mechanics that make it reliable. This car is developed to go out there and be better than the Reynard, and I feel that it is.</b>
+> <p><i>Al Unser</i></p>
 
 <br>
