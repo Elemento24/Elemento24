@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now, I'm not saying I'm fashionable, but there are sociological interests that matter to me, things that are theoretical, political, intellectual and also concerned with vanity and beauty that we all think about but that I try to mix up and translate into fashion.</b>
-> <p><i>Miuccia Prada</i></p>
+> <b>In fact, my courage and my bravery at a young age was the thing I was bullied for, a kind of 'Who do you think you are?'</b>
+> <p><i>Lady Gaga</i></p>
 
 <br>
