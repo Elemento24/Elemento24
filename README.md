@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success or failure depends more upon attitude than upon capacity successful men act as though they have accomplished or are enjoying something. Soon it becomes a reality. Act, look, feel successful, conduct yourself accordingly, and you will be amazed at the positive results.</b>
-> <p><i>William James</i></p>
+> <b>The only failure one should fear, is not hugging to the purpose they see as best.</b>
+> <p><i>George Eliot</i></p>
 
 <br>
