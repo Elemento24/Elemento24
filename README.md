@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look at the Afghans, during the time of the Soviet invasion. They were among the poorest Muslims in the world, yet they were sustained by their faith in God, and God alone.</b>
-> <p><i>Abu Bakar Bashir</i></p>
+> <b>Age steals away all things, even the mind.</b>
+> <p><i>Virgil</i></p>
 
 <br>
