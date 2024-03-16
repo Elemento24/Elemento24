@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think change is possible, but only for individuals who were never truly gay in the first place and who have a strong personal motivation to recover their heterosexuality.</b>
-> <p><i>Marilyn vos Savant</i></p>
+> <b>I would like to attend college in the future when I have time. I have always been interested in architecture, so perhaps I would pursue a degree in that or business.</b>
+> <p><i>James Maslow</i></p>
 
 <br>
