@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always wanted to be a designer. I read books on fashion from the age of 12.</b>
-> <p><i>Alexander McQueen</i></p>
+> <b>I think change is possible, but only for individuals who were never truly gay in the first place and who have a strong personal motivation to recover their heterosexuality.</b>
+> <p><i>Marilyn vos Savant</i></p>
 
 <br>
