@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In fact, my courage and my bravery at a young age was the thing I was bullied for, a kind of 'Who do you think you are?'</b>
-> <p><i>Lady Gaga</i></p>
+> <b>Art is our chief means of breaking bread with the dead.</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
