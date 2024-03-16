@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wanted to buy a candle holder, but the store didn't have one. So I got a cake.</b>
-> <p><i>Mitch Hedberg</i></p>
+> <b>There is nothing new in art except talent.</b>
+> <p><i>Anton Chekhov</i></p>
 
 <br>
