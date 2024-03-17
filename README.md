@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are many little ways to enlarge your child's world. Love of books is the best of all.</b>
-> <p><i>Jackie Kennedy</i></p>
+> <b>A shady business never yields a sunny life.</b>
+> <p><i>B. C. Forbes</i></p>
 
 <br>
