@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change means that what was before wasn't perfect. People want things to be better.</b>
-> <p><i>Esther Dyson</i></p>
+> <b>When you read about a car crash in which two or three youngsters are killed, do you pause to dwell on the amount of love and treasure and patience parents poured into bodies no longer suitable for open caskets?</b>
+> <p><i>Jim Bishop</i></p>
 
 <br>
