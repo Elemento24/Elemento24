@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your attitude is like a box of crayons that color your world. Constantly color your picture gray, and your picture will always be bleak. Try adding some bright colors to the picture by including humor, and your picture begins to lighten up.</b>
-> <p><i>Allen Klein</i></p>
+> <b>Nobody in life gets exactly what they thought they were going to get. But if you work really hard and you're kind, amazing things will happen.</b>
+> <p><i>Conan O'Brien</i></p>
 
 <br>
