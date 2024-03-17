@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you read about a car crash in which two or three youngsters are killed, do you pause to dwell on the amount of love and treasure and patience parents poured into bodies no longer suitable for open caskets?</b>
-> <p><i>Jim Bishop</i></p>
+> <b>I'm one of those people that thinks the Internet is amazing, and I can't believe it exists.</b>
+> <p><i>Mayim Bialik</i></p>
 
 <br>
