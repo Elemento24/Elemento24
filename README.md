@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We've got to lift our game tremendously. We'll sell our business news and information in print, we'll sell it to anyone who's got a cable system, and we'll sell it on the Web.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>In the first book of my Discworld series, published more than 26 years ago, I introduced Death as a character there was nothing particularly new about this - death has featured in art and literature since medieval times, and for centuries we have had a fascination with the Grim Reaper.</b>
+> <p><i>Terry Pratchett</i></p>
 
 <br>
