@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Happy he who learns to bear what he cannot change.</b>
-> <p><i>Friedrich Schiller</i></p>
+> <b>Education is the leading of human souls to what is best, and making what is best out of them.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
