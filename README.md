@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the leading of human souls to what is best, and making what is best out of them.</b>
-> <p><i>John Ruskin</i></p>
+> <b>I have not lost faith in God. I have moments of anger and protest. Sometimes I've been closer to him for that reason.</b>
+> <p><i>Elie Wiesel</i></p>
 
 <br>
