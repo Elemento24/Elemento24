@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The stores and the things like that, the business side of things came out at the point when, I'd say probably in the early '70s, it looked like the year of the singer-songwriter was over, 'cause music changed in our time and the spotlight was out.</b>
-> <p><i>Jimmy Buffett</i></p>
+> <b>A stockbroker urged me to buy a stock that would triple its value every year. I told him, 'At my age, I don't even buy green bananas.'</b>
+> <p><i>Claude Pepper</i></p>
 
 <br>
