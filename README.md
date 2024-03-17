@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel like women are asked their age more than men.</b>
-> <p><i>Kristen Wiig</i></p>
+> <b>I began to speak well at a very advanced age - 15, 16, 17 years old. It was psychological: the trauma of war, my family and growing up on my own. I was more or less a street kid.</b>
+> <p><i>Roberto Cavalli</i></p>
 
 <br>
