@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What good mothers and fathers instinctively feel like doing for their babies is usually best after all.</b>
-> <p><i>Benjamin Spock</i></p>
+> <b>Change means that what was before wasn't perfect. People want things to be better.</b>
+> <p><i>Esther Dyson</i></p>
 
 <br>
