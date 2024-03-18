@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My whole family's been in the business. My whole family is crazy.</b>
-> <p><i>Blake Lively</i></p>
+> <b>In order to effect great change, we need to look at how we can help those in our own communities as well as globally.</b>
+> <p><i>Christina Aguilera</i></p>
 
 <br>
