@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't ever let economic alone determine your career or how you spend the majority of your time.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>First let me report that the art in the Barnes Collection has never looked better. My trips to the old Barnes were always amazing, but except on the sunniest days, you could barely see the art. The building always felt pushed beyond its capacity.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
