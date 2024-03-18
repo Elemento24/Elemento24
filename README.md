@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In order to effect great change, we need to look at how we can help those in our own communities as well as globally.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>The progress of evolution from President Washington to President Grant was alone evidence to upset Darwin.</b>
+> <p><i>Henry Adams</i></p>
 
 <br>
