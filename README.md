@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The time you feel lonely is the time you most need to be by yourself.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>My parents started with very little and were the only ones in their families to graduate from college. As parents, they focused on education, but did not stop at academics - they made sure that we knew music, saw art and theatre and traveled - even though it meant budgeting like crazy.</b>
+> <p><i>Jennifer Garner</i></p>
 
 <br>
