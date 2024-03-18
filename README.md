@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Taste may change, but inclination never.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>My father gave me the greatest gift anyone could give another person, he believed in me.</b>
+> <p><i>Jim Valvano</i></p>
 
 <br>
