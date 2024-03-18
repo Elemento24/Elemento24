@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because I've made a film with such an amazing director as Tarantino, I'm much more conscious of working with good directors from now on, so that's what's important to me. I don't really care about making a big movie - I just want to make good ones.</b>
-> <p><i>Melanie Laurent</i></p>
+> <b>Buying a car used to be an experience so soul-scorching, so confidence-splattering, so existentially rattling that an entire car company was based on the promise that you wouldn't have to come in contact with it.</b>
+> <p><i>Susan Orlean</i></p>
 
 <br>
