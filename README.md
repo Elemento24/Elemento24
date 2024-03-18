@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents started with very little and were the only ones in their families to graduate from college. As parents, they focused on education, but did not stop at academics - they made sure that we knew music, saw art and theatre and traveled - even though it meant budgeting like crazy.</b>
-> <p><i>Jennifer Garner</i></p>
+> <b>It's the degree of success and the length of time that is amazing.</b>
+> <p><i>Ruth Handler</i></p>
 
 <br>
