@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My father gave me the greatest gift anyone could give another person, he believed in me.</b>
-> <p><i>Jim Valvano</i></p>
+> <b>You're only as young as the last time you changed your mind.</b>
+> <p><i>Timothy Leary</i></p>
 
 <br>
