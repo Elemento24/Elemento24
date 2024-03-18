@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Buying a car used to be an experience so soul-scorching, so confidence-splattering, so existentially rattling that an entire car company was based on the promise that you wouldn't have to come in contact with it.</b>
-> <p><i>Susan Orlean</i></p>
+> <b>My unusual beauty tip is that I often use Vaseline to take my make up off. It works great and is good for sensitive skin.</b>
+> <p><i>Rachel Bilson</i></p>
 
 <br>
