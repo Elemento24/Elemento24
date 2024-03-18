@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love the way you can fall in love with a piece of literature how words alone can get your heart doing that.</b>
-> <p><i>Laura Marling</i></p>
+> <b>The challenge is to practice politics as the art of making what appears to be impossible, possible.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
