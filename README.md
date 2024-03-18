@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A stockbroker urged me to buy a stock that would triple its value every year. I told him, 'At my age, I don't even buy green bananas.'</b>
-> <p><i>Claude Pepper</i></p>
+> <b>My whole family's been in the business. My whole family is crazy.</b>
+> <p><i>Blake Lively</i></p>
 
 <br>
