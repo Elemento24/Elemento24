@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most high courts in other nations do not have discretion, such as we enjoy, in selecting the cases that the high court reviews. Our court is virtually alone in the amount of discretion it has.</b>
-> <p><i>Sandra Day O'Connor</i></p>
+> <b>As far as I'm aware, everybody in the shadow cabinet accepts that there's a compelling case on climate change and a strong scientific case.</b>
+> <p><i>William Hague</i></p>
 
 <br>
