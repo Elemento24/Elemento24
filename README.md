@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's the degree of success and the length of time that is amazing.</b>
-> <p><i>Ruth Handler</i></p>
+> <b>Don't ever let economic alone determine your career or how you spend the majority of your time.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
