@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My unusual beauty tip is that I often use Vaseline to take my make up off. It works great and is good for sensitive skin.</b>
-> <p><i>Rachel Bilson</i></p>
+> <b>Most high courts in other nations do not have discretion, such as we enjoy, in selecting the cases that the high court reviews. Our court is virtually alone in the amount of discretion it has.</b>
+> <p><i>Sandra Day O'Connor</i></p>
 
 <br>
