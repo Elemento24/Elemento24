@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As far as I'm aware, everybody in the shadow cabinet accepts that there's a compelling case on climate change and a strong scientific case.</b>
-> <p><i>William Hague</i></p>
+> <b>The time you feel lonely is the time you most need to be by yourself.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
