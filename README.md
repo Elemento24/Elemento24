@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Had 'Bridesmaids' not ended up being so amazing and successful, we would never have been able to make 'Bachelorette.' So we are in awe of 'Bridesmaids' and totally owe them so much.</b>
-> <p><i>Lizzy Caplan</i></p>
+> <b>My first job was in retail at the age of 14, and I have worked in the industry ever since.</b>
+> <p><i>Rachel Roy</i></p>
 
 <br>
