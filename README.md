@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Girls are taught to sing high and pretty, like Antony, not low and from the guts like Nina Simone. But we're slowly trying to change that. There are so many things we're not told growing up, and it's our true feminist responsibility to take the truth to the people who need to hear it.</b>
-> <p><i>Beth Ditto</i></p>
+> <b>Had 'Bridesmaids' not ended up being so amazing and successful, we would never have been able to make 'Bachelorette.' So we are in awe of 'Bridesmaids' and totally owe them so much.</b>
+> <p><i>Lizzy Caplan</i></p>
 
 <br>
