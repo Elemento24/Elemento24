@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So many people suffer from abuse, and suffer alone.</b>
-> <p><i>Pamela Stephenson</i></p>
+> <b>The art of dancing stands at the source of all the arts that express themselves first in the human person. The art of building, or architecture, is the beginning of all the arts that lie outside the person and in the end they unite.</b>
+> <p><i>Havelock Ellis</i></p>
 
 <br>
