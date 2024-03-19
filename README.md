@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I strongly believe that missionaries make better products. They care more. For a missionary, it's not just about the business. There has to be a business, and the business has to make sense, but that's not why you do it. You do it because you have something meaningful that motivates you.</b>
-> <p><i>Jeff Bezos</i></p>
+> <b>Well, Jeff Buckley for me is one of the greatest singers I've ever heard. And the reason why is he has an amazing range, amazing emotional power in his voice. And the music he put around it also just had this passion and this soul to it and this spirit to it that very few artists have, and he passed at a very young age.</b>
+> <p><i>John Legend</i></p>
 
 <br>
