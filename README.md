@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is literally true that you can succeed best and quickest by helping others to succeed.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>Man cannot live by bread alone he must have peanut butter.</b>
+> <p><i>James A. Garfield</i></p>
 
 <br>
