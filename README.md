@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Chicago is known for good steaks, expensive stores and beautiful architecture. Unfortunately, the Windy City also enjoys a reputation for corrupt politics, violent crime, and some of the strictest gun control laws anywhere in the country.</b>
-> <p><i>Bob Barr</i></p>
+> <b>It's great when people appreciate your work, but I don't know how seriously to take it. The amazing thing is that I found something so early that I can support myself doing, and that can even be extremely lucrative, but I love it either way.</b>
+> <p><i>Adrien Brody</i></p>
 
 <br>
