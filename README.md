@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people work hard in this business and become really popular, really big stars but they never receive an award from within the business. Somehow, when your colleagues and friends believe in you to the point of handing you an award it means so much more.</b>
-> <p><i>Sharon Stone</i></p>
+> <b>There's a lot of thought in art. People get to talk about important things. There's a lot of sex, you know, in art. There's a lot of naked women and men, and there's intrigue, there's fakery. It's a real microcosm of the larger world.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
