@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think guitar is the best thing in the world.</b>
-> <p><i>Shaun White</i></p>
+> <b>Vitality is radiated from exceptional art and architecture.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
