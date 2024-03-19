@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first job was in retail at the age of 14, and I have worked in the industry ever since.</b>
-> <p><i>Rachel Roy</i></p>
+> <b>They say eyes clear with age.</b>
+> <p><i>Philip Larkin</i></p>
 
 <br>
