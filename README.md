@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I quit high school on my birthday. It was my senior year and I didn't see the point. This was 1962, and I was ready to make music.</b>
-> <p><i>Barry White</i></p>
+> <b>I think guitar is the best thing in the world.</b>
+> <p><i>Shaun White</i></p>
 
 <br>
