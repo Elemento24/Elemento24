@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a need to make these sorts of connections literal sometimes, and a vehicle often helps to do that. I have a relationship to car culture. It isn't really about loving cars. It's sort of about needing them.</b>
-> <p><i>Matthew Barney</i></p>
+> <b>Unfortunately we don't have all the bits and pieces on the car that we had hoped to have by this stage so we've got to make as good a job as we can with what we have and we feel we are doing well with that at the moment.</b>
+> <p><i>David Leslie</i></p>
 
 <br>
