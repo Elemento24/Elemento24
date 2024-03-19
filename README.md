@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the Frieze Art Fair catches on, I imagine at least two great things happening. First, we will once again have a huge art fair in town that isn't too annoying to go to. More importantly, Frieze may finally show New Yorkers that we can cross our own waters for visual culture. That would change everything.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I quit high school on my birthday. It was my senior year and I didn't see the point. This was 1962, and I was ready to make music.</b>
+> <p><i>Barry White</i></p>
 
 <br>
