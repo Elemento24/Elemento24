@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of dancing stands at the source of all the arts that express themselves first in the human person. The art of building, or architecture, is the beginning of all the arts that lie outside the person and in the end they unite.</b>
-> <p><i>Havelock Ellis</i></p>
+> <b>With Stacy, it was interesting because you know he was within all this chaos, all these different lives that were so broken and so much anger and so much frustration and their skating came out of that, their different styles came out of that.</b>
+> <p><i>John Robinson</i></p>
 
 <br>
