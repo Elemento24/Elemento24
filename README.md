@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man cannot live by bread alone he must have peanut butter.</b>
-> <p><i>James A. Garfield</i></p>
+> <b>If the Frieze Art Fair catches on, I imagine at least two great things happening. First, we will once again have a huge art fair in town that isn't too annoying to go to. More importantly, Frieze may finally show New Yorkers that we can cross our own waters for visual culture. That would change everything.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
