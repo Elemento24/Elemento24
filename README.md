@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With Stacy, it was interesting because you know he was within all this chaos, all these different lives that were so broken and so much anger and so much frustration and their skating came out of that, their different styles came out of that.</b>
-> <p><i>John Robinson</i></p>
+> <b>Could we change our attitude, we should not only see life differently, but life itself would come to be different.</b>
+> <p><i>Katherine Mansfield</i></p>
 
 <br>
