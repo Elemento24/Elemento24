@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a lot of thought in art. People get to talk about important things. There's a lot of sex, you know, in art. There's a lot of naked women and men, and there's intrigue, there's fakery. It's a real microcosm of the larger world.</b>
-> <p><i>Steve Martin</i></p>
+> <b>It is literally true that you can succeed best and quickest by helping others to succeed.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
