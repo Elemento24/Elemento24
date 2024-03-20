@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is lovely, when I forget all birthdays, including my own, to find that somebody remembers me.</b>
-> <p><i>Ellen Glasgow</i></p>
+> <b>Success in its highest and noblest form calls for peace of mind and enjoyment and happiness which come only to the man who has found the work that he likes best.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
