@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Probably only an art-worlder like me could assign deeper meaning to something as simple and silly as Tebowing. But, to us, anytime people repeat a stance or a little dance, alone or together, we see that it can mean something. Imagistic and unspoken language is our thing.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>This is what I asked for, and in this day and age that's what actually goes on. But what hurts me the most is that I work just as hard as any other actress around my age, like Scarlett Johansson, but I just don't get the opportunities that they get because people are so distracted by the mess that I created in my life.</b>
+> <p><i>Lindsay Lohan</i></p>
 
 <br>
