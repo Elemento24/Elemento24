@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The 150th anniversary of Penn State will highlight what is important and good about this distinguished institution and the fine people and research that it produces.</b>
-> <p><i>Don Sherwood</i></p>
+> <b>Life is an unfoldment, and the further we travel the more truth we can comprehend. To understand the things that are at our door is the best preparation for understanding those that lie beyond.</b>
+> <p><i>Hypatia</i></p>
 
 <br>
