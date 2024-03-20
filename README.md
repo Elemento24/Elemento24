@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Trauma happens in relationships, so it can only be healed in relationships. Art can't provide healing. It can be cathartic and therapeutic but a relationship is a three-part journey.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Townes van Zandt is the best songwriter in the whole world and I'll stand on Bob Dylan's coffee table in my cowboy boots and say that.</b>
+> <p><i>Steve Earle</i></p>
 
 <br>
