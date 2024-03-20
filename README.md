@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is what I asked for, and in this day and age that's what actually goes on. But what hurts me the most is that I work just as hard as any other actress around my age, like Scarlett Johansson, but I just don't get the opportunities that they get because people are so distracted by the mess that I created in my life.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>Experts tell us that 90% of all brain development occurs by the age of five. If we don't begin thinking about education in the early years, our children are at risk of falling behind by the time they start Kindergarten.</b>
+> <p><i>Robert. L. Ehrlich</i></p>
 
 <br>
