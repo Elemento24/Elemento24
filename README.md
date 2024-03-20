@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rock stars get room keys, I get business cards.</b>
-> <p><i>Thomas Friedman</i></p>
+> <b>The best revenge is to live on and prove yourself.</b>
+> <p><i>Eddie Vedder</i></p>
 
 <br>
