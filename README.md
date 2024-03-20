@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best revenge is to live on and prove yourself.</b>
-> <p><i>Eddie Vedder</i></p>
+> <b>If a site is done with pleasure and a fun attitude, it's a great way to communicate with your fans.</b>
+> <p><i>Christopher Lambert</i></p>
 
 <br>
