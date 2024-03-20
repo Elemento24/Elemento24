@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The youth of an art is, like the youth of anything else, its most interesting period. When it has come to the knowledge of good and evil it is stronger, but we care less about it.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>Common sense is the collection of prejudices acquired by age eighteen.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
