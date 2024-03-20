@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Resolve and thou art free.</b>
-> <p><i>Henry Wadsworth Longfellow</i></p>
+> <b>I've always been able to keep my private life separate from my business.</b>
+> <p><i>Ashley Tisdale</i></p>
 
 <br>
