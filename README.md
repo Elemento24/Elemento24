@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success in its highest and noblest form calls for peace of mind and enjoyment and happiness which come only to the man who has found the work that he likes best.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>Probably only an art-worlder like me could assign deeper meaning to something as simple and silly as Tebowing. But, to us, anytime people repeat a stance or a little dance, alone or together, we see that it can mean something. Imagistic and unspoken language is our thing.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
