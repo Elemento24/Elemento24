@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The prerequisite of originality is the art of forgetting, at the proper moment, what we know.</b>
-> <p><i>Arthur Koestler</i></p>
+> <b>The satisfaction you get when you finally beat your dad is amazing, that rush of adrenaline.</b>
+> <p><i>Lee Westwood</i></p>
 
 <br>
