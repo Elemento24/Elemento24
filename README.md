@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is the art of the prophets and the gift of God.</b>
-> <p><i>Martin Luther</i></p>
+> <b>Rock stars get room keys, I get business cards.</b>
+> <p><i>Thomas Friedman</i></p>
 
 <br>
