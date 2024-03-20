@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a site is done with pleasure and a fun attitude, it's a great way to communicate with your fans.</b>
-> <p><i>Christopher Lambert</i></p>
+> <b>The youth of an art is, like the youth of anything else, its most interesting period. When it has come to the knowledge of good and evil it is stronger, but we care less about it.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
