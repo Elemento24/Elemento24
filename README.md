@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyday life is like programming, I guess. If you love something you can put beauty into it.</b>
-> <p><i>Donald Knuth</i></p>
+> <b>Anger: an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
