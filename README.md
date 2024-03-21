@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is an unfoldment, and the further we travel the more truth we can comprehend. To understand the things that are at our door is the best preparation for understanding those that lie beyond.</b>
-> <p><i>Hypatia</i></p>
+> <b>I mean, we've built a lot of products that we think are good, and will help people share photos and share videos and write messages to each other. But it's really all about how people are spreading Facebook around the world in all these different countries. And that's what's so amazing about the scale that it's at today.</b>
+> <p><i>Mark Zuckerberg</i></p>
 
 <br>
