@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I married two weeks after my 18th birthday, far too young, and by the time I was 23 I was a single mother of three small children, Sean, Daniel and Victoria, living in a prefab house.</b>
-> <p><i>Sue Townsend</i></p>
+> <b>I will stay in the car until the last minute that I'm going to jump out and do a standup or jump out and do some interviews.</b>
+> <p><i>Martha Raddatz</i></p>
 
 <br>
