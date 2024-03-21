@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music should probably provide answers in terms of lyrical content, and giving people a sense of togetherness and oneness, as opposed to being alone in their thoughts and dilemmas or regrets or happiness or whatever.</b>
-> <p><i>Peabo Bryson</i></p>
+> <b>It's not catastrophes, murders, deaths, diseases, that age and kill us it's the way people look and laugh, and run up the steps of omnibuses.</b>
+> <p><i>Virginia Woolf</i></p>
 
 <br>
