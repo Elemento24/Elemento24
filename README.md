@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is a blessed thing that in every age some one has had the individuality enough and courage enough to stand by his own convictions.</b>
-> <p><i>Robert Green Ingersoll</i></p>
+> <b>Music should probably provide answers in terms of lyrical content, and giving people a sense of togetherness and oneness, as opposed to being alone in their thoughts and dilemmas or regrets or happiness or whatever.</b>
+> <p><i>Peabo Bryson</i></p>
 
 <br>
