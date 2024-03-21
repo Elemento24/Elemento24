@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's monotonous about being an actor and often makes me want to throw in the towel or drive a car off a bridge is the auditioning - the waiting around.</b>
-> <p><i>Chris Messina</i></p>
+> <b>By 2050, the Australian population is expected to grow from 22 million to 36 million. That increase alone will put huge pressure on our towns and our cities. We will need more homes, more roads, more rail lines, more hospitals, more schools, just to accommodate so many Australians.</b>
+> <p><i>Kevin Rudd</i></p>
 
 <br>
