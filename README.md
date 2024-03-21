@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will stay in the car until the last minute that I'm going to jump out and do a standup or jump out and do some interviews.</b>
-> <p><i>Martha Raddatz</i></p>
+> <b>No Congress ever has seen fit to amend the Constitution to address any issue related to marriage. No Constitutional Amendment was needed to ban polygamy or bigamy, nor was a Constitutional Amendment needed to set a uniform age of majority to ban child marriages.</b>
+> <p><i>Judy Biggert</i></p>
 
 <br>
