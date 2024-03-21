@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the right hand of Nature. The latter has only given us being, the former has made us men.</b>
-> <p><i>Friedrich Schiller</i></p>
+> <b>Our nation is being led astray by ungodly judges, mayors and governors, who are given to change, defying the Constitution and substituting their own wicked agendas.</b>
+> <p><i>David Wilkerson</i></p>
 
 <br>
