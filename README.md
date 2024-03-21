@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Stay humble. Always answer your phone - no matter who else is in the car.</b>
-> <p><i>Jack Lemmon</i></p>
+> <b>What's monotonous about being an actor and often makes me want to throw in the towel or drive a car off a bridge is the auditioning - the waiting around.</b>
+> <p><i>Chris Messina</i></p>
 
 <br>
