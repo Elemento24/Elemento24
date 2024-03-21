@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a man's character is to be abused there's nobody like a relative to do the business.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>The best artist has that thought alone Which is contained within the marble shell The sculptor's hand can only break the spell To free the figures slumbering in the stone.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
