@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having inner beauty is something you develop on your own, and I like to think I have that.</b>
-> <p><i>Cindy Margolis</i></p>
+> <b>Without change, something sleeps inside us, and seldom awakens. The sleeper must awaken.</b>
+> <p><i>Frank Herbert</i></p>
 
 <br>
