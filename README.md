@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our nation is being led astray by ungodly judges, mayors and governors, who are given to change, defying the Constitution and substituting their own wicked agendas.</b>
-> <p><i>David Wilkerson</i></p>
+> <b>Outstanding leaders go out of their way to boost the self-esteem of their personnel. If people believe in themselves, it's amazing what they can accomplish.</b>
+> <p><i>Sam Walton</i></p>
 
 <br>
