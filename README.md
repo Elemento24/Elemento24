@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By 2050, the Australian population is expected to grow from 22 million to 36 million. That increase alone will put huge pressure on our towns and our cities. We will need more homes, more roads, more rail lines, more hospitals, more schools, just to accommodate so many Australians.</b>
-> <p><i>Kevin Rudd</i></p>
+> <b>Knowing your own darkness is the best method for dealing with the darknesses of other people.</b>
+> <p><i>Carl Jung</i></p>
 
 <br>
