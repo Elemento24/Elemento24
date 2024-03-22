@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Driving race cars was an avenue for me to learn how to build my own car, and that was my ambition all along.</b>
-> <p><i>Caroll Shelby</i></p>
+> <b>Emmanuel Lewis was amazing to work with. I'll love that guy to the end of time.</b>
+> <p><i>Corin Nemec</i></p>
 
 <br>
