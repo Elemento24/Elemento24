@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My business is the enforcement of the tax laws and the integrity of the tax code and making sure that trustees of charitable giving are true trustees.</b>
-> <p><i>Chuck Grassley</i></p>
+> <b>Love is our true destiny. We do not find the meaning of life by ourselves alone - we find it with another.</b>
+> <p><i>Thomas Merton</i></p>
 
 <br>
