@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Form your life humanly, and you have done enough: but you will never reach the height of art and the depth of science without something divine.</b>
-> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
+> <b>Dear motorist on the information superhighway. I'm sorry I do not have a car.</b>
+> <p><i>Eric San</i></p>
 
 <br>
