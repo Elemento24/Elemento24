@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When they searched my car, they said that they found a gasoline canister and I think duct tape. Who wouldn't have a gasoline canister on them when driving 3,000 miles across country?</b>
-> <p><i>Sherman Austin</i></p>
+> <b>All art is autobiographical. The pearl is the oyster's autobiography.</b>
+> <p><i>Federico Fellini</i></p>
 
 <br>
