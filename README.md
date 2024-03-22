@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A good marriage is one which allows for change and growth in the individuals and in the way they express their love.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>Driving race cars was an avenue for me to learn how to build my own car, and that was my ambition all along.</b>
+> <p><i>Caroll Shelby</i></p>
 
 <br>
