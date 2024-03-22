@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's only at this age that I can say the word 'art' without flinching.</b>
-> <p><i>Mira Nair</i></p>
+> <b>A good marriage is one which allows for change and growth in the individuals and in the way they express their love.</b>
+> <p><i>Pearl S. Buck</i></p>
 
 <br>
