@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My goal in the beginning was to buy my mother a house. Now I realize, okay, if I really focus and become a key player in business, then I can build an empire.</b>
-> <p><i>Nicki Minaj</i></p>
+> <b>It's only at this age that I can say the word 'art' without flinching.</b>
+> <p><i>Mira Nair</i></p>
 
 <br>
