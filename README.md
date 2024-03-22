@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love is our true destiny. We do not find the meaning of life by ourselves alone - we find it with another.</b>
-> <p><i>Thomas Merton</i></p>
+> <b>Art is not a handicraft, it is the transmission of feeling the artist has experienced.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
