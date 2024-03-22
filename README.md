@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dear motorist on the information superhighway. I'm sorry I do not have a car.</b>
-> <p><i>Eric San</i></p>
+> <b>It's great that New York has large spaces for art. But the enormous immaculate box has become a dated, even oppressive place. Many of these spaces were designed for sprawling installations, large paintings, and the Relational Aesthetics work of the past fifteen years.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
