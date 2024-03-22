@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All art is autobiographical. The pearl is the oyster's autobiography.</b>
-> <p><i>Federico Fellini</i></p>
+> <b>The money is in a different league these days, of course, but I have special memories of the 60s and 70s which players today don't have. There wasn't the same celebrity attitude and media exposure. We had a bit more freedom.</b>
+> <p><i>Peter Shilton</i></p>
 
 <br>
