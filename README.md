@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very pleased to be here. Let's face it, at my age I'm very pleased to be anywhere.</b>
-> <p><i>George Burns</i></p>
+> <b>My goal in the beginning was to buy my mother a house. Now I realize, okay, if I really focus and become a key player in business, then I can build an empire.</b>
+> <p><i>Nicki Minaj</i></p>
 
 <br>
