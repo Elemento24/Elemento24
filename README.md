@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because I've made a film with such an amazing director as Tarantino, I'm much more conscious of working with good directors from now on, so that's what's important to me. I don't really care about making a big movie - I just want to make good ones.</b>
-> <p><i>Melanie Laurent</i></p>
+> <b>I really think we should pass a law in every state, I don't care whether it takes the independence away from an old person or not. You shouldn't be driving a car if you're over the age of 80. Maybe even less than that.</b>
+> <p><i>Evel Knievel</i></p>
 
 <br>
