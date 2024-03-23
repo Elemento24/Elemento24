@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Corporations are not in business to be social-welfare organizations they are there to make money.</b>
-> <p><i>Benjamin Carson</i></p>
+> <b>I smoke ten to fifteen cigars a day. At my age I have to hold on to something.</b>
+> <p><i>George Burns</i></p>
 
 <br>
