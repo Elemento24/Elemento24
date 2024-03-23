@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Find beauty not only in the thing itself but in the pattern of the shadows, the light and dark which that thing provides.</b>
-> <p><i>Junichiro Tanizaki</i></p>
+> <b>I don't know if you can change things, but it's a drop in the ocean.</b>
+> <p><i>Julie Walters</i></p>
 
 <br>
