@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All men's miseries derive from not being able to sit in a quiet room alone.</b>
-> <p><i>Blaise Pascal</i></p>
+> <b>It's hard to say what drives a three year-old, but I think I had a sense that nature was my solace, and nature was a place in which there was beauty, in which there was order.</b>
+> <p><i>Story Musgrave</i></p>
 
 <br>
