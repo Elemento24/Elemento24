@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always detested any departure from reality, an attitude which I relate to my mother's poor mental health.</b>
-> <p><i>Jean Piaget</i></p>
+> <b>My recipe for dealing with anger and frustration: set the kitchen timer for twenty minutes, cry, rant, and rave, and at the sound of the bell, simmer down and go about business as usual.</b>
+> <p><i>Phyllis Diller</i></p>
 
 <br>
