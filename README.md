@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My recipe for dealing with anger and frustration: set the kitchen timer for twenty minutes, cry, rant, and rave, and at the sound of the bell, simmer down and go about business as usual.</b>
-> <p><i>Phyllis Diller</i></p>
+> <b>A revised schedule is to business what a new season is to an athlete or a new canvas to an artist.</b>
+> <p><i>Norman Ralph Augustine</i></p>
 
 <br>
