@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To give anything less than your best, is to sacrifice the gift.</b>
-> <p><i>Steve Prefontaine</i></p>
+> <b>The Egyptian contribution to architecture was more concerned with remembering the dead than the living.</b>
+> <p><i>Stephen Gardiner</i></p>
 
 <br>
