@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want art to make me think. In order to do that, it may piss me off, or make me uncomfortable. That promotes awareness and change, or at least some discussion.</b>
-> <p><i>Pink</i></p>
+> <b>Among all the tests President Obama faced in his first term, his biggest failure was climate change.</b>
+> <p><i>Jeff Goodell</i></p>
 
 <br>
