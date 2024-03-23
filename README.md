@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Emmanuel Lewis was amazing to work with. I'll love that guy to the end of time.</b>
-> <p><i>Corin Nemec</i></p>
+> <b>That is what we are supposed to do when we are at our best - make it all up - but make it up so truly that later it will happen that way.</b>
+> <p><i>Ernest Hemingway</i></p>
 
 <br>
