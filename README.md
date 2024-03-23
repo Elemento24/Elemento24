@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I smoke ten to fifteen cigars a day. At my age I have to hold on to something.</b>
-> <p><i>George Burns</i></p>
+> <b>All men's miseries derive from not being able to sit in a quiet room alone.</b>
+> <p><i>Blaise Pascal</i></p>
 
 <br>
