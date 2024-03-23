@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A revised schedule is to business what a new season is to an athlete or a new canvas to an artist.</b>
-> <p><i>Norman Ralph Augustine</i></p>
+> <b>I want art to make me think. In order to do that, it may piss me off, or make me uncomfortable. That promotes awareness and change, or at least some discussion.</b>
+> <p><i>Pink</i></p>
 
 <br>
