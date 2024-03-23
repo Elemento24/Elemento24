@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It really was hand-to-mouth and you can say, 'Poor little me, how dreadful, what a deprived childhood', but I didn't feel that way at all. It's all about the attitude at home.</b>
-> <p><i>Carol Vorderman</i></p>
+> <b>I film quite a bit of footage, then edit. Changes before your eyes, things you can do and things you can't. My attitude is always 'let it keep rolling.'</b>
+> <p><i>Terrence Malick</i></p>
 
 <br>
