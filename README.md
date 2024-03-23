@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As far as luxury goes, about the only thing I do is... I go first class all the way. I live on the road, so when I'm out there, I'm getting the nice hotel suite, I'm getting the luxury car, I'm eating the good food, and I make sure I take care of myself on the road.</b>
-> <p><i>Trish Stratus</i></p>
+> <b>Because I've made a film with such an amazing director as Tarantino, I'm much more conscious of working with good directors from now on, so that's what's important to me. I don't really care about making a big movie - I just want to make good ones.</b>
+> <p><i>Melanie Laurent</i></p>
 
 <br>
