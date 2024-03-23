@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is the worst of woes that wait on age? What stamps the wrinkle deeper on the brow? To view each loved one blotted from life's page, And be alone on earth, as I am now.</b>
-> <p><i>Lord Byron</i></p>
+> <b>Corporations are not in business to be social-welfare organizations they are there to make money.</b>
+> <p><i>Benjamin Carson</i></p>
 
 <br>
