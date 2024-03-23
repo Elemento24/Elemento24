@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know if you can change things, but it's a drop in the ocean.</b>
-> <p><i>Julie Walters</i></p>
+> <b>I have always detested any departure from reality, an attitude which I relate to my mother's poor mental health.</b>
+> <p><i>Jean Piaget</i></p>
 
 <br>
