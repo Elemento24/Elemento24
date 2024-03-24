@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I married a pretty famous girl, and when we drive through town there's usually a car following us, when I walk out of my front door in Chelsea there's six guys waiting for me.</b>
-> <p><i>Kevin Pietersen</i></p>
+> <b>The time that people aren't expecting what's going to happen, I find that's the best time to really cause the damage that needs to be done.</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
