@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The genius of a good leader is to leave behind him a situation which common sense, without the grace of genius, can deal with successfully.</b>
-> <p><i>Walter Lippmann</i></p>
+> <b>My age and health will never allow me to realize the dream of art I've been pursuing all my life.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
