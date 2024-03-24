@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>George wrote Taxman, and I played guitar on it. He wrote it in anger at finding out what the taxman did. He had never known before then what could happen to your money.</b>
-> <p><i>Paul McCartney</i></p>
+> <b>I didn't come into politics to change the Labour Party. I came into politics to change the country.</b>
+> <p><i>Tony Blair</i></p>
 
 <br>
