@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people call it global warming some people call it climate change. What is the difference?</b>
-> <p><i>Frank Luntz</i></p>
+> <b>I probably spent the first 20 years of my life wanting to be as American as possible. Through my 20s, and into my 30s, I began to become aware of how so much of my art and architecture has a decidedly Eastern character.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
