@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best government is that which teaches us to govern ourselves.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>The genius of a good leader is to leave behind him a situation which common sense, without the grace of genius, can deal with successfully.</b>
+> <p><i>Walter Lippmann</i></p>
 
 <br>
