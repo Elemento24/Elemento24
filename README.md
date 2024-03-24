@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in an age when to be young and to be indifferent can be no longer synonymous. We must prepare for the coming hour. The claims of the Future are represented by suffering millions and the Youth of a Nation are the trustees of Posterity.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>As a kid who wasn't into sports, at school I felt almost alienated at times, whereas in the theatre community there was this amazing sense of camaraderie. Early on, we would go to rehearsals with my dad and I was like the mascot for the backstage crew. That was a big part of my childhood, so I dreamed of one day doing a play in London.</b>
+> <p><i>Zach Braff</i></p>
 
 <br>
