@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't come into politics to change the Labour Party. I came into politics to change the country.</b>
-> <p><i>Tony Blair</i></p>
+> <b>Beauty is the bait which with delight allures man to enlarge his kind.</b>
+> <p><i>Socrates</i></p>
 
 <br>
