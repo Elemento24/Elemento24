@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are no menial jobs, only menial attitudes.</b>
-> <p><i>William J. Brennan, Jr.</i></p>
+> <b>Being in an area of the planet where scientists believe mankind started is quite amazing.</b>
+> <p><i>Jan de Bont</i></p>
 
 <br>
