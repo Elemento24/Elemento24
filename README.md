@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being in an area of the planet where scientists believe mankind started is quite amazing.</b>
-> <p><i>Jan de Bont</i></p>
+> <b>George wrote Taxman, and I played guitar on it. He wrote it in anger at finding out what the taxman did. He had never known before then what could happen to your money.</b>
+> <p><i>Paul McCartney</i></p>
 
 <br>
