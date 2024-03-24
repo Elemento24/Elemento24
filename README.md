@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any time women come together with a collective intention, it's a powerful thing. Whether it's sitting down making a quilt, in a kitchen preparing a meal, in a club reading the same book, or around the table playing cards, or planning a birthday party, when women come together with a collective intention, magic happens.</b>
-> <p><i>Phylicia Rashad</i></p>
+> <b>Some people call it global warming some people call it climate change. What is the difference?</b>
+> <p><i>Frank Luntz</i></p>
 
 <br>
