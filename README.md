@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Katy Perry is the sexiest woman I've ever kissed. It was amazing and very purple - she had purple lipstick on. I don't think there will ever be anything cooler than kissing her... until I marry her maybe!</b>
-> <p><i>Niall Horan</i></p>
+> <b>The best director is the one you don't see.</b>
+> <p><i>Billy Wilder</i></p>
 
 <br>
