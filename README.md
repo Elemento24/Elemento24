@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents were amazing people who had no business being together - and they knew it.</b>
-> <p><i>James Denton</i></p>
+> <b>Magic becomes art when it has nothing to hide.</b>
+> <p><i>Ben Okri</i></p>
 
 <br>
