@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My biggest hero, Gregory Peck, was my birthday present on April 14, 1973. I just sat and stared at him.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>Thus, the poet's word is beginning to strike forcefully upon the hearts of all men, while absolute men of letters think that they alone live in the real world.</b>
+> <p><i>Salvatore Quasimodo</i></p>
 
 <br>
