@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can never get to a place of comfort in this business. As soon as you hit that little cushy spot, somebody's gonna kick you out. So I have a constant need to do it better.</b>
-> <p><i>Charlize Theron</i></p>
+> <b>Man has no Body distinct from his Soul for that called Body is a portion of Soul discerned by the five Senses, the chief inlets of Soul in this age.</b>
+> <p><i>William Blake</i></p>
 
 <br>
