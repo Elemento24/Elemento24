@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Spiritual space is lost in gaining convenience. I saw the need to create a mixture of Japanese spiritual culture and modern western architecture.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>Your Majesty, I took the liberty because I was so desirous of visiting alone with you for a few minutes before the rest of the other peasants arrived.</b>
+> <p><i>Walter Annenberg</i></p>
 
 <br>
