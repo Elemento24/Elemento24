@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Magic becomes art when it has nothing to hide.</b>
-> <p><i>Ben Okri</i></p>
+> <b>Why is Cloud 9 so amazing? What is wrong with Cloud 8? That joke came off the top of my head, and the top of my head ain't funny!</b>
+> <p><i>Mitch Hedberg</i></p>
 
 <br>
