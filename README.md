@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A positive attitude is not going to save you. What it's going to do is, everyday, between now and the day you die, whether that's a short time from now or a long time from now, that every day, you're going to actually live.</b>
-> <p><i>Elizabeth Edwards</i></p>
+> <b>I do think I feel it but you don't think you are cause at a certain time you are no age but you don't think you are anything. You feel the life you have lived. I feel that. It's been a long fifty years.</b>
+> <p><i>Bob Geldof</i></p>
 
 <br>
