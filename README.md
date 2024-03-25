@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Best of all is it to preserve everything in a pure, still heart, and let there be for every pulse a thanksgiving, and for every breath a song.</b>
-> <p><i>Konrad von Gesner</i></p>
+> <b>Spiritual space is lost in gaining convenience. I saw the need to create a mixture of Japanese spiritual culture and modern western architecture.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
