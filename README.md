@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am really looking forward to driving another of my father?s car at the show in Rotterdam.</b>
-> <p><i>Nelson Piquet</i></p>
+> <b>I like change. There's something Buddhist about it - continuous change is wonderful.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
