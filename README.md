@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politically, Obama's amazing streak of self-destructing opponents who have lain beneath his feet during his unlikely political career appears to be holding.</b>
-> <p><i>Eric Alterman</i></p>
+> <b>I am really looking forward to driving another of my father?s car at the show in Rotterdam.</b>
+> <p><i>Nelson Piquet</i></p>
 
 <br>
