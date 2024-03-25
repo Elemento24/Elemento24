@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like change. There's something Buddhist about it - continuous change is wonderful.</b>
-> <p><i>David Bailey</i></p>
+> <b>There are people still in the Republican Party that I believe practice the communication of anger, of disappointment, of regret, of pain, of sorrow, of suffering. That's not what the American people want to hear.</b>
+> <p><i>Frank Luntz</i></p>
 
 <br>
