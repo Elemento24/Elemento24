@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's why I began doing makeup in the first place: I was hoping that through helping people see the beauty in themselves, I could try and find it in me.</b>
-> <p><i>Kevyn Aucoin</i></p>
+> <b>It is not the business of generals to shoot one another.</b>
+> <p><i>Arthur Wellesley</i></p>
 
 <br>
