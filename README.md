@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man has no Body distinct from his Soul for that called Body is a portion of Soul discerned by the five Senses, the chief inlets of Soul in this age.</b>
-> <p><i>William Blake</i></p>
+> <b>Each player must accept the cards life deals him or her: but once they are in hand, he or she alone must decide how to play the cards in order to win the game.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
