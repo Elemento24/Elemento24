@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Lord gets his best soldiers out of the highlands of affliction.</b>
-> <p><i>Charles Spurgeon</i></p>
+> <b>It's time to get real, folks. Hope and change ain't working. Hope and change is not a solution. Hope and change is not a job.</b>
+> <p><i>Herman Cain</i></p>
 
 <br>
