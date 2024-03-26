@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And fifth, we will champion small businesses, America's engine of job growth. That means reducing taxes on business, not raising them. It means simplifying and modernizing the regulations that hurt small business the most. And it means that we must rein in the skyrocketing cost of healthcare by repealing and replacing Obamacare.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>Honesty is the best policy.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
