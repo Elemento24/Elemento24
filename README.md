@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success doesn't necessarily come from breakthrough innovation but from flawless execution. A great strategy alone won't win a game or a battle the win comes from basic blocking and tackling.</b>
-> <p><i>Naveen Jain</i></p>
+> <b>My first job was in retail at the age of 14, and I have worked in the industry ever since.</b>
+> <p><i>Rachel Roy</i></p>
 
 <br>
