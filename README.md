@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love street style, seeing how girls wear pieces and how their pair accessories with their outfit. How they pair shoes with a bag and go to day to night and change things up.</b>
-> <p><i>Maria Sharapova</i></p>
+> <b>I promise you a police car on every sidewalk.</b>
+> <p><i>Marion Berry</i></p>
 
 <br>
