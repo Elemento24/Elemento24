@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I gave my beauty and my youth to men. I am going to give my wisdom and experience to animals.</b>
-> <p><i>Brigitte Bardot</i></p>
+> <b>The more people explore the world, the more they realize in every country there's a different aesthetic. Beauty really is in the eye of the beholder.</b>
+> <p><i>Helena Christensen</i></p>
 
 <br>
