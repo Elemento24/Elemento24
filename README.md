@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am as bad as the worst, but, thank God, I am as good as the best.</b>
-> <p><i>Walt Whitman</i></p>
+> <b>I love street style, seeing how girls wear pieces and how their pair accessories with their outfit. How they pair shoes with a bag and go to day to night and change things up.</b>
+> <p><i>Maria Sharapova</i></p>
 
 <br>
