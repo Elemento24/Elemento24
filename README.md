@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me from a pretty young age up until about 21 years old hallucinogenics had a huge place in my life.</b>
-> <p><i>Jon Fishman</i></p>
+> <b>I am as bad as the worst, but, thank God, I am as good as the best.</b>
+> <p><i>Walt Whitman</i></p>
 
 <br>
