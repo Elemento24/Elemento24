@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great art is the outward expression of an inner life in the artist, and this inner life will result in his personal vision of the world.</b>
-> <p><i>Edward Hopper</i></p>
+> <b>The artist is nothing without the gift, but the gift is nothing without work.</b>
+> <p><i>Emile Zola</i></p>
 
 <br>
