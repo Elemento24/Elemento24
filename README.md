@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I promise you a police car on every sidewalk.</b>
-> <p><i>Marion Berry</i></p>
+> <b>The Lord gets his best soldiers out of the highlands of affliction.</b>
+> <p><i>Charles Spurgeon</i></p>
 
 <br>
