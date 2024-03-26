@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But my attitude about it is I have miles to go before I sleep.</b>
-> <p><i>Peabo Bryson</i></p>
+> <b>People used what they called a telephone because they hated being close together and they were scared of being alone.</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
