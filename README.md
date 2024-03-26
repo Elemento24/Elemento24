@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He's this amazing ambassador for all superheroes. What we've made as a film not only examines that but is also an amazing adventure story. It's been an honor to work on. As a comic book fan, Superman is like the Rosetta Stone of all superheroes.</b>
-> <p><i>Zack Snyder</i></p>
+> <b>And fifth, we will champion small businesses, America's engine of job growth. That means reducing taxes on business, not raising them. It means simplifying and modernizing the regulations that hurt small business the most. And it means that we must rein in the skyrocketing cost of healthcare by repealing and replacing Obamacare.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
