@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's my goal to make a building as immaterial as possible. Architecture is a very material thing. It takes a lot of resources, so why not eliminate what you don't need as long as you're able to achieve the same result?</b>
-> <p><i>Helmut Jahn</i></p>
+> <b>In fact, the best thing we could do on taxes for all Americans is to simplify the individual tax code. This will be a tough job, but members of both parties have expressed an interest in doing this, and I am prepared to join them.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
