@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In fact, the best thing we could do on taxes for all Americans is to simplify the individual tax code. This will be a tough job, but members of both parties have expressed an interest in doing this, and I am prepared to join them.</b>
-> <p><i>Barack Obama</i></p>
+> <b>I gave my beauty and my youth to men. I am going to give my wisdom and experience to animals.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
