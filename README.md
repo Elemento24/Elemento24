@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the best performers bring to their role something more, something different than what the author put on paper. That's what makes theatre live. That's why it persists.</b>
-> <p><i>Stephen Sondheim</i></p>
+> <b>If you like a person you say 'let's go into business together.' Man is a social animal after all, but such partnerships are fraught with danger.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
