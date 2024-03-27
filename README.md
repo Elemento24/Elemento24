@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When it comes down to it, it's about who you know, and who's a fan. It's about whether you're the right age, whether you're hot or not, whether the studio is into you or not.</b>
-> <p><i>Marlee Matlin</i></p>
+> <b>I cannot say that the attitude of the United Nations always is for the Israeli attitude. Israel, I think, has been under severe attacks by members of the United Nations many times.</b>
+> <p><i>Ariel Sharon</i></p>
 
 <br>
