@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In life, you need a house and a car. After that, you have a choice.</b>
-> <p><i>Xavier Niel</i></p>
+> <b>The only way to make sense out of change is to plunge into it, move with it, and join the dance.</b>
+> <p><i>Alan Watts</i></p>
 
 <br>
