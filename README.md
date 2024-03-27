@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We would all like to vote for the best man but he is never a candidate.</b>
-> <p><i>Kin Hubbard</i></p>
+> <b>In life, you need a house and a car. After that, you have a choice.</b>
+> <p><i>Xavier Niel</i></p>
 
 <br>
