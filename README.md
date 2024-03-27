@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never want to change so much that people can't recognize me.</b>
-> <p><i>Taylor Swift</i></p>
+> <b>It's nice to just embrace the natural beauty within you.</b>
+> <p><i>Victoria Justice</i></p>
 
 <br>
