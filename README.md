@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a contradictory mess but I see it as my prerogative to change my mood like the weather.</b>
-> <p><i>Shirley Manson</i></p>
+> <b>When you think of it I haven't really done a lot of horror. It's amazing: I have done some really good ones, but I haven't done a lot of them.</b>
+> <p><i>Michael Rooker</i></p>
 
 <br>
