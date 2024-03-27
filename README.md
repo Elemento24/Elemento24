@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way to make sense out of change is to plunge into it, move with it, and join the dance.</b>
-> <p><i>Alan Watts</i></p>
+> <b>When it comes down to it, it's about who you know, and who's a fan. It's about whether you're the right age, whether you're hot or not, whether the studio is into you or not.</b>
+> <p><i>Marlee Matlin</i></p>
 
 <br>
