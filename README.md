@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been amazing how this crazy career has been created. I feel that it's been given to me. I wouldn't be anywhere without Victoria's Secret.</b>
-> <p><i>Candice Swanepoel</i></p>
+> <b>In order to change the world, you have to get your head together first.</b>
+> <p><i>Jimi Hendrix</i></p>
 
 <br>
