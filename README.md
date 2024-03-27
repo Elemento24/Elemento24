@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't wanna hear nobody complain that they're getting paid all this money and people won't leave them alone. It's part of it.</b>
-> <p><i>Mark Wahlberg</i></p>
+> <b>We would all like to vote for the best man but he is never a candidate.</b>
+> <p><i>Kin Hubbard</i></p>
 
 <br>
