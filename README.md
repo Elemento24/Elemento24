@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In order to change the world, you have to get your head together first.</b>
-> <p><i>Jimi Hendrix</i></p>
+> <b>Middle age occurs when you are too young to take up golf and too old to rush up to the net.</b>
+> <p><i>Franklin P. Adams</i></p>
 
 <br>
