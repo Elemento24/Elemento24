@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The majority does not rule in America, but the minority shouldn't hijack it. And it's because we're afraid. They have isolated us and made us feel as though we're alone. We're not.</b>
-> <p><i>Glenn Beck</i></p>
+> <b>I don't wanna hear nobody complain that they're getting paid all this money and people won't leave them alone. It's part of it.</b>
+> <p><i>Mark Wahlberg</i></p>
 
 <br>
