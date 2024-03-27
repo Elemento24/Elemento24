@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you think of it I haven't really done a lot of horror. It's amazing: I have done some really good ones, but I haven't done a lot of them.</b>
-> <p><i>Michael Rooker</i></p>
+> <b>Even from a very early age, I knew I didn't want to miss out on anything life had to offer just because it might be considered dangerous.</b>
+> <p><i>Nicole Kidman</i></p>
 
 <br>
