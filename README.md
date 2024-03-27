@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you like a person you say 'let's go into business together.' Man is a social animal after all, but such partnerships are fraught with danger.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>Memory is a great artist. For every man and for every woman it makes the recollection of his or her life a work of art and an unfaithful record.</b>
+> <p><i>Andre Maurois</i></p>
 
 <br>
