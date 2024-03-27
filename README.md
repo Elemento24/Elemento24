@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cannot say that the attitude of the United Nations always is for the Israeli attitude. Israel, I think, has been under severe attacks by members of the United Nations many times.</b>
-> <p><i>Ariel Sharon</i></p>
+> <b>All the best performers bring to their role something more, something different than what the author put on paper. That's what makes theatre live. That's why it persists.</b>
+> <p><i>Stephen Sondheim</i></p>
 
 <br>
