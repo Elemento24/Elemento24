@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even from a very early age, I knew I didn't want to miss out on anything life had to offer just because it might be considered dangerous.</b>
-> <p><i>Nicole Kidman</i></p>
+> <b>The majority does not rule in America, but the minority shouldn't hijack it. And it's because we're afraid. They have isolated us and made us feel as though we're alone. We're not.</b>
+> <p><i>Glenn Beck</i></p>
 
 <br>
