@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All I try to do is create an atmosphere that seems comfortable enough, that it removes tension and everyone feels free. If they feel free then behaviour happens, small moments happen and that's what ultimately works the best for me.</b>
-> <p><i>Barry Levinson</i></p>
+> <b>The concept of two people living together for 25 years without a serious dispute suggests a lack of spirit only to be admired in sheep.</b>
+> <p><i>A. P. Herbert</i></p>
 
 <br>
