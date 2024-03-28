@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm afraid for all those who'll have the bread snatched from their mouths by these machines. What business has science and capitalism got, bringing all these new inventions into the works, before society has produced a generation educated up to using them!</b>
-> <p><i>Henrik Ibsen</i></p>
+> <b>Qualifying is all about putting everything that you have and that the car has in one lap. It's like a rush, I really enjoy that.</b>
+> <p><i>Sebastian Vettel</i></p>
 
 <br>
