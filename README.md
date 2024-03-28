@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm overly excited to finally announce this amazing global partnership deal back home with EMI Music. I know I have mentioned doing music in the past but for legal reasons I was not in a position to release any new music.</b>
-> <p><i>Melanie Brown</i></p>
+> <b>I really liked the helicopter pilot in 'Dawn of the Dead', when he gets bitten and comes out of the elevator. That guy was amazing. He did this incredible walk that we didn't even know about until we started shooting.</b>
+> <p><i>George A. Romero</i></p>
 
 <br>
