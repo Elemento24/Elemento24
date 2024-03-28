@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love working with a cast and a group of people every day, which is different than recording because you're usually pretty isolated and alone. They serve as a good balance for each other.</b>
-> <p><i>Idina Menzel</i></p>
+> <b>I lived in small town out in the desert and my friend used to steal his mom's car in the middle of the night. He'd drive over to my house, I'd sneak out and we'd go out to the desert and just burn things down.</b>
+> <p><i>Mark Hoppus</i></p>
 
 <br>
