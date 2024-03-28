@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Further, Take heed that you faithfully perform the business you have to do in the world, from a regard to the commands of God and not from an ambitious desire of being esteemed better than others.</b>
-> <p><i>David Brainerd</i></p>
+> <b>I'm overly excited to finally announce this amazing global partnership deal back home with EMI Music. I know I have mentioned doing music in the past but for legal reasons I was not in a position to release any new music.</b>
+> <p><i>Melanie Brown</i></p>
 
 <br>
