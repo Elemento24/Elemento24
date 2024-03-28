@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I find that a man is as old as his work. If his work keeps him from moving forward, he will look forward with the work.</b>
-> <p><i>William Ernest Hocking</i></p>
+> <b>Life is full of beauty. Notice it. Notice the bumble bee, the small child, and the smiling faces. Smell the rain, and feel the wind. Live your life to the fullest potential, and fight for your dreams.</b>
+> <p><i>Ashley Smith</i></p>
 
 <br>
