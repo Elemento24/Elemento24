@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The fact that I even get in Broadway shows is, to me, still amazing, but then to win a Tony was just incredible.</b>
-> <p><i>Jane Krakowski</i></p>
+> <b>My ace in the hole as a human being used to be my capacity for remembering birthdays. I worked at it. Whenever I made a new friend, I made a point of finding out his or her birthday early on, and I would record it in my Filofax calendar.</b>
+> <p><i>Susan Orlean</i></p>
 
 <br>
