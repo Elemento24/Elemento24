@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hatred is settled anger.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.</b>
+> <p><i>Charles R. Swindoll</i></p>
 
 <br>
