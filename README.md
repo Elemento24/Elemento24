@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reading, after a certain age, diverts the mind too much from its creative pursuits. Any man who reads too much and uses his own brain too little falls into lazy habits of thinking.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>I love what I do, and when I don't love what I do, I'll make a change.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
