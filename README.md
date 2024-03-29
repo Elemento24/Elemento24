@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember when metal was something you really had to search out, and now I hear it on car commercials.</b>
-> <p><i>Trevor Dunn</i></p>
+> <b>I've made movies that cost less than one car chase.</b>
+> <p><i>Sam Mendes</i></p>
 
 <br>
