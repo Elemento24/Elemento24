@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm just attracted to playing people who are ostensible unlikable. That's not to say that there's something in there that makes you care. It might be that you just find them so awful that you just can't stop watching, like a car crash.</b>
-> <p><i>Steve Coogan</i></p>
+> <b>Gary Ross is amazing. He's just - he always has a billion ideas of what he wants, but has a very clear perspective also he just makes it work. He really does. He's trying different things and making everything look amazing.</b>
+> <p><i>Liam Hemsworth</i></p>
 
 <br>
