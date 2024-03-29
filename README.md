@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that marriage is an amazing institution and should be preserved, and you can have great marriages, and you must because sharing your life with someone is like the greatest thing. And I loved being able to set a good example for that on television.</b>
-> <p><i>Jenna Elfman</i></p>
+> <b>Everyone thinks of changing the world, but no one thinks of changing himself.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
