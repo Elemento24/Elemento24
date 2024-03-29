@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who's lost someone to cancer will say this, that you have to struggle to try to remember the person before the diagnosis happened, because they really do change - as anyone would change.</b>
-> <p><i>Mindy Kaling</i></p>
+> <b>Always Do Your Best. Your best is going to change from moment to moment it will be different when you are healthy as opposed to sick. Under any circumstance, simply do your best, and you will avoid self-judgment, self-abuse and regret.</b>
+> <p><i>Miguel Angel Ruiz</i></p>
 
 <br>
