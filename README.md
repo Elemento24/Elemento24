@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>I remember when metal was something you really had to search out, and now I hear it on car commercials.</b>
+> <p><i>Trevor Dunn</i></p>
 
 <br>
