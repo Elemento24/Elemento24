@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Work alone is noble.</b>
-> <p><i>Thomas Carlyle</i></p>
+> <b>I think that marriage is an amazing institution and should be preserved, and you can have great marriages, and you must because sharing your life with someone is like the greatest thing. And I loved being able to set a good example for that on television.</b>
+> <p><i>Jenna Elfman</i></p>
 
 <br>
