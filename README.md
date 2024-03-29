@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In recent years, I've been writing because I'm fortunate enough to work in the world of food television, to travel and taste and learn about cooking from the best chefs in the business.</b>
-> <p><i>Ted Allen</i></p>
+> <b>Fairest and best adorned is she Whose clothing is humility.</b>
+> <p><i>James Montgomery</i></p>
 
 <br>
