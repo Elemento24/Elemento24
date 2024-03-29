@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fairest and best adorned is she Whose clothing is humility.</b>
-> <p><i>James Montgomery</i></p>
+> <b>I'm just attracted to playing people who are ostensible unlikable. That's not to say that there's something in there that makes you care. It might be that you just find them so awful that you just can't stop watching, like a car crash.</b>
+> <p><i>Steve Coogan</i></p>
 
 <br>
