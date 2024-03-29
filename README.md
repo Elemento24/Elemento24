@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who is fixed to a star does not change his mind.</b>
-> <p><i>Leonardo da Vinci</i></p>
+> <b>Work alone is noble.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
