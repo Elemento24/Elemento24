@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's like, no matter what I do, I always feel like I'm five years old, and I end up in the back of my father's car looking out the window, and nothing has changed in 25 years.</b>
-> <p><i>Dylan McDermott</i></p>
+> <b>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</b>
+> <p><i>Michael Jordan</i></p>
 
 <br>
