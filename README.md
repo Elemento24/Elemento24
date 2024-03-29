@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know what makes me feel old? When I see girls who are 20-something, or the new crop of actresses, and think, Aren't we kind of the same age?</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>In fact, it is amazing how much European films - Italian, French, German and English - have recovered a certain territory of the audience in their countries over the last few years.</b>
+> <p><i>Wim Wenders</i></p>
 
 <br>
