@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>About the time we can make the ends meet, somebody moves the ends.</b>
-> <p><i>Herbert Hoover</i></p>
+> <b>No human being is constituted to know the truth, the whole truth, and nothing but the truth and even the best of men must be content with fragments, with partial glimpses, never the full fruition.</b>
+> <p><i>William Osler</i></p>
 
 <br>
