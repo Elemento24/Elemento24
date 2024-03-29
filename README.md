@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone thinks of changing the world, but no one thinks of changing himself.</b>
-> <p><i>Leo Tolstoy</i></p>
+> <b>What's a man's age? He must hurry more, that's all Cram in a day, what his youth took a year to hold.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
