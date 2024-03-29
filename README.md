@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No human being is constituted to know the truth, the whole truth, and nothing but the truth and even the best of men must be content with fragments, with partial glimpses, never the full fruition.</b>
-> <p><i>William Osler</i></p>
+> <b>Short cycle business are being impacted by credit, and are being impacted by gasoline prices, food, distribution businesses, chemical business.</b>
+> <p><i>Jack Welch</i></p>
 
 <br>
