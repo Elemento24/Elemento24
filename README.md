@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business of art is to reveal the relation between man and his environment.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>I love glamour and artificial beauty. I love the idea of artifice and dressing up and makeup and hair.</b>
+> <p><i>Dita Von Teese</i></p>
 
 <br>
