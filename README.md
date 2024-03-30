@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The American attitude is 'We're the best'. That's why the NBA guys who come from other countries, the Europeans, all sort of stick together away from the game.</b>
-> <p><i>Andrew Bogut</i></p>
+> <b>I basically started playing violin at the age of six. That lasted about three years because my previous teacher died and the second teacher didn't really know how to successfully get me going.</b>
+> <p><i>Miroslav Vitous</i></p>
 
 <br>
