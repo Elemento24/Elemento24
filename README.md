@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not the destination that matters. It's the change of scene.</b>
-> <p><i>Brian Eno</i></p>
+> <b>I want, of course, peace, grace, and beauty. How do you do that? You work for it.</b>
+> <p><i>Studs Terkel</i></p>
 
 <br>
