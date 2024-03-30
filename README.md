@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want, of course, peace, grace, and beauty. How do you do that? You work for it.</b>
-> <p><i>Studs Terkel</i></p>
+> <b>An investment in knowledge pays the best interest.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
