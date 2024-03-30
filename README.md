@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude is your acceptance of the natural laws, or your rejection of the natural laws.</b>
-> <p><i>Stuart Chase</i></p>
+> <b>I'm not busy... a woman with three children under the age of 10 wouldn't think my schedule looked so busy.</b>
+> <p><i>Garrison Keillor</i></p>
 
 <br>
