@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always keep that happy attitude. Pretend that you are holding a beautiful fragrant bouquet.</b>
-> <p><i>Earl Nightingale</i></p>
+> <b>I'm definitely open to change, but at the same time I am quite stubborn.</b>
+> <p><i>Andy Murray</i></p>
 
 <br>
