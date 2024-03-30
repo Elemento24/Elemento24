@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not busy... a woman with three children under the age of 10 wouldn't think my schedule looked so busy.</b>
-> <p><i>Garrison Keillor</i></p>
+> <b>The business of art is to reveal the relation between man and his environment.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
