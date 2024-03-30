@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm definitely open to change, but at the same time I am quite stubborn.</b>
-> <p><i>Andy Murray</i></p>
+> <b>Is it not careless to become too local when there are four hundred billion stars in our galaxy alone.</b>
+> <p><i>A. R. Ammons</i></p>
 
 <br>
