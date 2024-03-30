@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Advertising is the art of convincing people to spend money they don't have for something they don't need.</b>
-> <p><i>Will Rogers</i></p>
+> <b>It's amazing how I can just ramble on for hours, isn't it? And so unentertaining or uninteresting. But I can ramble on for hours. It's a sort of terrible gift, isn't it?</b>
+> <p><i>Graham Norton</i></p>
 
 <br>
