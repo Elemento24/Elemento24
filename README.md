@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I test the car for a year I can be quite competitive the next season.</b>
-> <p><i>Valentino Rossi</i></p>
+> <b>Mental attitude and concentration are the keys to pitching.</b>
+> <p><i>Ferguson Jenkins</i></p>
 
 <br>
