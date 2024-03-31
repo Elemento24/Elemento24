@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage is good for those who are afraid to sleep alone at night.</b>
-> <p><i>St. Jerome</i></p>
+> <b>Surfers have the most attitude.</b>
+> <p><i>Shaun White</i></p>
 
 <br>
