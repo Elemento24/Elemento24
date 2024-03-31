@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Battle is the most magnificent competition in which a human being can indulge. It brings out all that is best it removes all that is base. All men are afraid in battle. The coward is the one who lets his fear overcome his sense of duty. Duty is the essence of manhood.</b>
-> <p><i>George S. Patton</i></p>
+> <b>In modern business it is not the crook who is to be feared most, it is the honest man who doesn't know what he is doing.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
