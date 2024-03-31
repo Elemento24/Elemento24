@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The quickest way to defuse fear or insecurity or anger is usually humor. I think comics figure that out quickly, and, once you figure it out, you think, 'Hey, if I can do this and get paid, that would be kind of cool.'</b>
-> <p><i>Billy Gardell</i></p>
+> <b>Remember, each one of us has the power to change the world. Just start thinking peace, and the message will spread quicker than you think.</b>
+> <p><i>Yoko Ono</i></p>
 
 <br>
