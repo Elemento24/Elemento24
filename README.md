@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps one of the most important accomplishments of my administration has been minding my own business.</b>
-> <p><i>Calvin Coolidge</i></p>
+> <b>Competence, like truth, beauty, and contact lenses, is in the eye of the beholder.</b>
+> <p><i>Laurence J. Peter</i></p>
 
 <br>
