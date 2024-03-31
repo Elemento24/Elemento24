@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I haven't seen Clones, which has been during this period when I haven't seen much of anything, but I did see Phantom Menace, and see my feelings about it - see, first of all, I think that when you make a lot of movies, your attitude about the movies changes.</b>
-> <p><i>Lawrence Kasdan</i></p>
+> <b>Science fiction is an amazing literature: plot elements that you would think would be completely worn out by now keep changing into surprising new forms.</b>
+> <p><i>Connie Willis</i></p>
 
 <br>
