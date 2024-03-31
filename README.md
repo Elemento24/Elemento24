@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I studied architecture in New York. So, really I was very moved, like everyone else, to try to contribute something that has that resonance and profundity of it means to all of us.</b>
-> <p><i>Daniel Libeskind</i></p>
+> <b>I've had some amazing people in my life. Look at my father - he came from a small fishing village of five hundred people and at six foot four with giant ears and a kind of very odd expression, thought he could be a movie star. So go figure, you know?</b>
+> <p><i>Kiefer Sutherland</i></p>
 
 <br>
