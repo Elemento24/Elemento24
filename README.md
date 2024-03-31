@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Raising children is an incredibly hard and risky business in which no cumulative wisdom is gained: each generation repeats the mistakes the previous one made.</b>
-> <p><i>Bill Cosby</i></p>
+> <b>The quickest way to defuse fear or insecurity or anger is usually humor. I think comics figure that out quickly, and, once you figure it out, you think, 'Hey, if I can do this and get paid, that would be kind of cool.'</b>
+> <p><i>Billy Gardell</i></p>
 
 <br>
