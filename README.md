@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Trying to describe something musical is like dancing to architecture, it's really difficult.</b>
-> <p><i>Robert Palmer</i></p>
+> <b>There has been a change in men's attitudes toward their clothes. Men are more aware of fashion they're not afraid of it.</b>
+> <p><i>Calvin Klein</i></p>
 
 <br>
