@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of living does not consist in preserving and clinging to a particular mode of happiness, but in allowing happiness to change its form without being disappointed by the change happiness, like a child, must be allowed to grow up.</b>
-> <p><i>Charles Morgan</i></p>
+> <b>I think of art as the highest level of creativity. To me, it is one of the greatest sources of enjoyment.</b>
+> <p><i>David Rockefeller</i></p>
 
 <br>
