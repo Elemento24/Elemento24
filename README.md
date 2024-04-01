@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth is an amazing thing: I think back on when we did The Lost Boys, and I didn't think I could do anything wrong.</b>
-> <p><i>Kiefer Sutherland</i></p>
+> <b>Don't solicit feedback on your product, idea or your business just for validation purposes. You want to tell the people who can help move your idea forward, but if you're just looking to your friend, co-worker, husband or wife for validation, be careful. It can stop a lot of multimillion-dollar ideas in their tracks in the beginning.</b>
+> <p><i>Sara Blakely</i></p>
 
 <br>
