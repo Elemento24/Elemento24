@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There has been a change in men's attitudes toward their clothes. Men are more aware of fashion they're not afraid of it.</b>
-> <p><i>Calvin Klein</i></p>
+> <b>Auto racing is boring except when a car is going at least 172 miles per hour upside down.</b>
+> <p><i>Dave Barry</i></p>
 
 <br>
