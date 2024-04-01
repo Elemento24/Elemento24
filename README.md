@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am firmly of the opinion that women who make a lot of effort to hang onto their looks in middle age (unless they are beauties, entertainers or prostitutes) are rather sad, as one should surely have something more substantial to recommend one by this time, such as kindness or cleverness.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>The art of living does not consist in preserving and clinging to a particular mode of happiness, but in allowing happiness to change its form without being disappointed by the change happiness, like a child, must be allowed to grow up.</b>
+> <p><i>Charles Morgan</i></p>
 
 <br>
