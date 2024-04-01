@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to work for a management consulting company, so I dressed differently - business casual, probably a lot of things from Banana Republic. My wardrobe now is definitely more expensive, but I always dress for the occasion.</b>
-> <p><i>John Legend</i></p>
+> <b>No illusion is more crucial than the illusion that great success and huge money buy you immunity from the common ills of mankind, such as cars that won't start.</b>
+> <p><i>Larry McMurtry</i></p>
 
 <br>
