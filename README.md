@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In an era ruled by materialism and unstable geopolitics, art must be restored to the center of public education.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>Alone we can do so little together we can do so much.</b>
+> <p><i>Helen Keller</i></p>
 
 <br>
