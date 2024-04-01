@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alone we can do so little together we can do so much.</b>
-> <p><i>Helen Keller</i></p>
+> <b>It's best to have failure happen early in life. It wakes up the Phoenix bird in you so you rise from the ashes.</b>
+> <p><i>Anne Baxter</i></p>
 
 <br>
