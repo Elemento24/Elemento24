@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But an old age serene and bright, and lovely as a Lapland night, shall lead thee to thy grave.</b>
-> <p><i>William Wordsworth</i></p>
+> <b>I can't change overnight into a serious literary author. You can't compare apples to oranges. William Faulkner was a great literary genius. I am not.</b>
+> <p><i>John Grisham</i></p>
 
 <br>
