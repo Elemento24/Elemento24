@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When we seek to discover the best in others, we somehow bring out the best in ourselves.</b>
-> <p><i>William Arthur Ward</i></p>
+> <b>I used to work for a management consulting company, so I dressed differently - business casual, probably a lot of things from Banana Republic. My wardrobe now is definitely more expensive, but I always dress for the occasion.</b>
+> <p><i>John Legend</i></p>
 
 <br>
