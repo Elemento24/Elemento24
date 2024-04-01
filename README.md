@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You hear entertainers all the time, saying, 'If I couldn't get paid for this, I'd do it for free.' When's the last time you ever heard a business person say, 'If I couldn't get paid for being chairman of British Petroleum, I'd do it for free'?</b>
-> <p><i>Dick Gregory</i></p>
+> <b>I am firmly of the opinion that women who make a lot of effort to hang onto their looks in middle age (unless they are beauties, entertainers or prostitutes) are rather sad, as one should surely have something more substantial to recommend one by this time, such as kindness or cleverness.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
