@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of motherhood involves much silent, unobtrusive self-denial, an hourly devotion which finds no detail too minute.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>When we seek to discover the best in others, we somehow bring out the best in ourselves.</b>
+> <p><i>William Arthur Ward</i></p>
 
 <br>
