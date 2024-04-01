@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Writing is truly a creative art - putting word to a blank piece of paper and ending up with a full-fledged story rife with character and plot.</b>
-> <p><i>William Shatner</i></p>
+> <b>But an old age serene and bright, and lovely as a Lapland night, shall lead thee to thy grave.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
