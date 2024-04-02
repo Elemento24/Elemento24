@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That term's definitely got a negative aura to it, because people think a diva is somebody with an attitude who demands things all the time. Of course there is that type of diva, but my idea of a diva has always been a singer - whether male or female - who gets on that stage and captivates you with their presence and their voice.</b>
-> <p><i>Jordin Sparks</i></p>
+> <b>That's an amazing moment, the first time you hear yourself on radio. It's still thrilling.</b>
+> <p><i>Janis Ian</i></p>
 
 <br>
