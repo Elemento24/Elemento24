@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's an amazing moment, the first time you hear yourself on radio. It's still thrilling.</b>
-> <p><i>Janis Ian</i></p>
+> <b>If you believe that feeling bad or worrying long enough will change a past or future event, then you are residing on another planet with a different reality system.</b>
+> <p><i>William James</i></p>
 
 <br>
