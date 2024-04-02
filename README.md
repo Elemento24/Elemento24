@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty ought to look a little surprised: it is the emotion that best suits her face. The beauty who does not look surprised, who accepts her position as her due - she reminds us too much of a prima donna.</b>
-> <p><i>E. M. Forster</i></p>
+> <b>A visit to a cinema is a little outing in itself. It breaks the monotony of an afternoon or evening it gives a change from the surroundings of home, however pleasant.</b>
+> <p><i>Ivor Novello</i></p>
 
 <br>
