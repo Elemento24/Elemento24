@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Us investigators who went out into the field were faced on occasion with a lot of anger, by people saying why has it taken you five or six year to come and see me?</b>
-> <p><i>Tony Greig</i></p>
+> <b>No architect troubled to design houses that suited people who were to live in them, because that would have meant building a whole range of different houses. It was far cheaper and, above all, timesaving to make them identical.</b>
+> <p><i>Michael Ende</i></p>
 
 <br>
