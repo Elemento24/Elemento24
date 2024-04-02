@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the most amazing things about mathematics is the people who do math aren't usually interested in application, because mathematics itself is truly a beautiful art form. It's structures and patterns, and that's what we love, and that's what we get off on.</b>
-> <p><i>Danica McKellar</i></p>
+> <b>The first time I rode a bike I was four or five. I crashed into the back of a car.</b>
+> <p><i>David Millar</i></p>
 
 <br>
