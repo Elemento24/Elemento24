@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I realized that if my thoughts immediately affect my body, I should be careful about what I think. Now if I get angry, I ask myself why I feel that way. If I can find the source of my anger, I can turn that negative energy into something positive.</b>
-> <p><i>Yoko Ono</i></p>
+> <b>I wouldn't change a thing - except my bank balance.</b>
+> <p><i>Johnny Thunders</i></p>
 
 <br>
