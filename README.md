@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Chris Weitz is an amazing director, and his sensibility - I wouldn't even know how to articulate it - it's just, he's a very sensitive, interesting guy.</b>
-> <p><i>Elizabeth Reaser</i></p>
+> <b>Progress however, of the best kind, is comparatively slow. Great results cannot be achieved at once and we must be satisfied to advance in life as we walk, step by step.</b>
+> <p><i>Samuel Smiles</i></p>
 
 <br>
