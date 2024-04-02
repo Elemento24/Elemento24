@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Acquire the habit of speaking to God as if you were alone with Him, familiarly and with confidence and love, as to the dearest and most loving of friends.</b>
-> <p><i>Alphonsus Liguori</i></p>
+> <b>Beauty ought to look a little surprised: it is the emotion that best suits her face. The beauty who does not look surprised, who accepts her position as her due - she reminds us too much of a prima donna.</b>
+> <p><i>E. M. Forster</i></p>
 
 <br>
