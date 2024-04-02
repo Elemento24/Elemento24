@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Progress however, of the best kind, is comparatively slow. Great results cannot be achieved at once and we must be satisfied to advance in life as we walk, step by step.</b>
-> <p><i>Samuel Smiles</i></p>
+> <b>I think when the full horror of being fifty hits you, you should stay home and have a good cry.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
