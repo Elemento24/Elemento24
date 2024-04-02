@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you believe that feeling bad or worrying long enough will change a past or future event, then you are residing on another planet with a different reality system.</b>
-> <p><i>William James</i></p>
+> <b>Us investigators who went out into the field were faced on occasion with a lot of anger, by people saying why has it taken you five or six year to come and see me?</b>
+> <p><i>Tony Greig</i></p>
 
 <br>
