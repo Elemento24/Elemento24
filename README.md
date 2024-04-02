@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God writes the Gospel not in the Bible alone, but also on trees, and in the flowers and clouds and stars.</b>
-> <p><i>Martin Luther</i></p>
+> <b>I tried acupuncture, the patch, and hypnosis, but found that I needed to do it alone - when the time was right for me.</b>
+> <p><i>Christy Turlington</i></p>
 
 <br>
