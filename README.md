@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love doing normal things - movies, shopping, going out with friends, writing, reading, taking hot bubble baths - that's a big one for relaxation. I also love to go to art and history museums.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>I just did a part in 'Sin City 2.' I got to do a scene with Ray Liotta. Amazing man, extraordinary gentleman who was just so kind to me... I'm so excited about that I think it's gonna be very cool.</b>
+> <p><i>Juno Temple</i></p>
 
 <br>
