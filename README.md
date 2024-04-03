@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom can't defend herself to the world. She is such an amazing woman, with such an open heart. It's a real hard line, and I crossed it. I took everyone's life story and assumed it would be a great thing to put on screen. I was being selfish and I feel so horrible about it. I feel so guilty.</b>
-> <p><i>Nikki Reed</i></p>
+> <b>It seems like the chaos of this world is accelerating, but so is the beauty in the consciousness of more and more people.</b>
+> <p><i>Anthony Kiedis</i></p>
 
 <br>
