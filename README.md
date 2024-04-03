@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you walk down the street and smile at someone, that will get passed on to the next person. That has the power to change someone's day.</b>
-> <p><i>Julianna Margulies</i></p>
+> <b>Art is always criticized and always an outsider gets the blame.</b>
+> <p><i>Ville Valo</i></p>
 
 <br>
