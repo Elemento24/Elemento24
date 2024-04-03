@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A singer for me is more like someone who is standing alone with a microphone like Scott Walker, rather than someone who is bashing a plank and is spitting all over a microphone.</b>
-> <p><i>Graham Coxon</i></p>
+> <b>However, democracy cannot be defined as the existence of parliaments and elections alone.</b>
+> <p><i>Recep Tayyip Erdogan</i></p>
 
 <br>
