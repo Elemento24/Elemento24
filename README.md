@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The biggest problem with every art is by the use of appearance to create a loftier reality.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>Christians should be ready for a change because Jesus was the greatest changer in history.</b>
+> <p><i>Ralph Abernathy</i></p>
 
 <br>
