@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As in nature, as in art, so in grace it is rough treatment that gives souls, as well as stones, their luster.</b>
-> <p><i>Thomas Guthrie</i></p>
+> <b>Beauty, whether moral or natural, is felt, more properly than perceived.</b>
+> <p><i>David Hume</i></p>
 
 <br>
