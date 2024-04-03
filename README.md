@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Have regular hours for work and play make each day both useful and pleasant, and prove that you understand the worth of time by employing it well. Then youth will be delightful, old age will bring few regrets, and life will become a beautiful success.</b>
-> <p><i>Louisa May Alcott</i></p>
+> <b>We are very anxious to bring the Jews of Morocco over and we are doing all we can to achieve this. But we cannot count on the Jews of Morocco alone to build the country, because they have not been educated for this.</b>
+> <p><i>Moshe Sharett</i></p>
 
 <br>
