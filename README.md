@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being a child at home alone in the summer is a high-risk occupation. If you call your mother at work thirteen times an hour, she can hurt you.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>Age is a case of mind over matter. If you don't mind, it don't matter.</b>
+> <p><i>Satchel Paige</i></p>
 
 <br>
