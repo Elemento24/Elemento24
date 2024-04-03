@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People drain me, even the closest of friends, and I find loneliness to be the best state in the union to live in.</b>
-> <p><i>Margaret Cho</i></p>
+> <b>I love doing normal things - movies, shopping, going out with friends, writing, reading, taking hot bubble baths - that's a big one for relaxation. I also love to go to art and history museums.</b>
+> <p><i>Christina Aguilera</i></p>
 
 <br>
