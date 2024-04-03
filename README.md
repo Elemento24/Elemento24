@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Tell me thy company, and I'll tell thee what thou art.</b>
-> <p><i>Miguel de Cervantes</i></p>
+> <b>As in nature, as in art, so in grace it is rough treatment that gives souls, as well as stones, their luster.</b>
+> <p><i>Thomas Guthrie</i></p>
 
 <br>
