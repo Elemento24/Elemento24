@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look, if I were alone in the world, I would have the right to choose despair, solitude and self-fulfillment. But I am not alone.</b>
-> <p><i>Elie Wiesel</i></p>
+> <b>If you walk down the street and smile at someone, that will get passed on to the next person. That has the power to change someone's day.</b>
+> <p><i>Julianna Margulies</i></p>
 
 <br>
