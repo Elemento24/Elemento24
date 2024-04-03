@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the great reward of service, to live, far out and on, in the life of others this is the mystery of Christ, - to give life's best for such high sake that it shall be found again unto life eternal.</b>
-> <p><i>Joshua Chamberlain</i></p>
+> <b>None of us will ever accomplish anything excellent or commanding except when he listens to this whisper which is heard by him alone.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
