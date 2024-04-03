@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is always criticized and always an outsider gets the blame.</b>
-> <p><i>Ville Valo</i></p>
+> <b>People drain me, even the closest of friends, and I find loneliness to be the best state in the union to live in.</b>
+> <p><i>Margaret Cho</i></p>
 
 <br>
