@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Stay humble. Always answer your phone - no matter who else is in the car.</b>
-> <p><i>Jack Lemmon</i></p>
+> <b>You can't run a business or anything else on a theory.</b>
+> <p><i>Harold S. Geneen</i></p>
 
 <br>
