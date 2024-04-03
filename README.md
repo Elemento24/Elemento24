@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Imagine it's 1981. You're an artist, in love with art, smitten with art history. You're also a woman, with almost no mentors to look to art history just isn't that into you. Any woman approaching art history in the early eighties was attempting to enter an almost foreign country, a restricted and exclusionary domain that spoke a private language.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>This is the great reward of service, to live, far out and on, in the life of others this is the mystery of Christ, - to give life's best for such high sake that it shall be found again unto life eternal.</b>
+> <p><i>Joshua Chamberlain</i></p>
 
 <br>
