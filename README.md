@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always interested in fashion and beauty. I was fifteen when I was scouted in a flea market. Two years later, I arrived in New York. I was in awe because it was like another planet.</b>
-> <p><i>Candice Swanepoel</i></p>
+> <b>For the mind disturbed, the still beauty of dawn is nature's finest balm.</b>
+> <p><i>Edwin Way Teale</i></p>
 
 <br>
