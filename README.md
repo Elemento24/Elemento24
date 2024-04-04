@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you do not breathe through writing, if you do not cry out in writing, or sing in writing, then don't write, because our culture has no use for it.</b>
-> <p><i>Anais Nin</i></p>
+> <b>Music happens to be an art form that transcends language.</b>
+> <p><i>Herbie Hancock</i></p>
 
 <br>
