@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A group or an artist shouldn't get his money until his boss gets his.</b>
-> <p><i>Bobby Darin</i></p>
+> <b>The first resistance to social change is to say it's not necessary.</b>
+> <p><i>Gloria Steinem</i></p>
 
 <br>
