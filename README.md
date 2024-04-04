@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>None of us will ever accomplish anything excellent or commanding except when he listens to this whisper which is heard by him alone.</b>
-> <p><i>Thomas Carlyle</i></p>
+> <b>I was always interested in fashion and beauty. I was fifteen when I was scouted in a flea market. Two years later, I arrived in New York. I was in awe because it was like another planet.</b>
+> <p><i>Candice Swanepoel</i></p>
 
 <br>
