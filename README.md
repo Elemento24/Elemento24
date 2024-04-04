@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The splinter in your eye is the best magnifying-glass.</b>
-> <p><i>Theodor Adorno</i></p>
+> <b>A lot of good love can happen in ten years.</b>
+> <p><i>Jim Carrey</i></p>
 
 <br>
