@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the shoe doesn't fit, must we change the foot?</b>
-> <p><i>Gloria Steinem</i></p>
+> <b>You can never get to a place of comfort in this business. As soon as you hit that little cushy spot, somebody's gonna kick you out. So I have a constant need to do it better.</b>
+> <p><i>Charlize Theron</i></p>
 
 <br>
