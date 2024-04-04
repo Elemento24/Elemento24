@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can love more than one person in your life, but things will be different. There'll be a different dynamic. Needs and desires change.</b>
-> <p><i>Francesca Annis</i></p>
+> <b>I want the Arabic Granada, that which is art, which is all that seems to me beauty and emotion.</b>
+> <p><i>Isaac Albeniz</i></p>
 
 <br>
