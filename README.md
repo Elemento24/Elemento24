@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music happens to be an art form that transcends language.</b>
-> <p><i>Herbie Hancock</i></p>
+> <b>I believe in incentivizing people. If you can incentivize people in anything, whether it's in politics in life in spirituality in business just take care of folks. Incentivize them and all of a sudden it's amazing the difference that you'll see.</b>
+> <p><i>Zachary Levi</i></p>
 
 <br>
