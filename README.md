@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have my favourite fashion decade, yes, yes, yes: '60s. It was a sort of little revolution the clothes were amazing but not too exaggerated.</b>
-> <p><i>Valentino Garavani</i></p>
+> <b>It's only when you're alone that you realize where you are. You have nothing to fall back on except your own resources.</b>
+> <p><i>Paul Theroux</i></p>
 
 <br>
