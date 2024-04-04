@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first resistance to social change is to say it's not necessary.</b>
-> <p><i>Gloria Steinem</i></p>
+> <b>How young can you die of old age?</b>
+> <p><i>Steven Wright</i></p>
 
 <br>
