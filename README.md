@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the mind disturbed, the still beauty of dawn is nature's finest balm.</b>
-> <p><i>Edwin Way Teale</i></p>
+> <b>But every great scripture, whether Hebrew, Indian, Persian, or Chinese, apart from its religious value will be found to have some rare and special beauty of its own and in this respect the original Bible stands very high as a monument of sublime poetry and of artistic prose.</b>
+> <p><i>Lafcadio Hearn</i></p>
 
 <br>
