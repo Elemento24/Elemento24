@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grant that I may not pray alone with the mouth help me that I may pray from the depths of my heart.</b>
+> <b>Beautiful music is the art of the prophets that can calm the agitations of the soul it is one of the most magnificent and delightful presents God has given us.</b>
 > <p><i>Martin Luther</i></p>
 
 <br>
