@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just wanna give a big shout out to all the fans out there who have followed my work up until now. You guys are amazing!! Hearing from fans is the best feeling in the world.</b>
-> <p><i>Lindsey Shaw</i></p>
+> <b>Heavy hearts, like heavy clouds in the sky, are best relieved by the letting of a little water.</b>
+> <p><i>Christopher Morley</i></p>
 
 <br>
