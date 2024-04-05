@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up where my parents would literally shove me in the car rather than have to say hello to a neighbor.</b>
-> <p><i>Amy Sherman-Palladino</i></p>
+> <b>I just wanna give a big shout out to all the fans out there who have followed my work up until now. You guys are amazing!! Hearing from fans is the best feeling in the world.</b>
+> <p><i>Lindsey Shaw</i></p>
 
 <br>
