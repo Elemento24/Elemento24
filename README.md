@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art has a double face, of expression and illusion, just like science has a double face: the reality of error and the phantom of truth.</b>
-> <p><i>Publilius Syrus</i></p>
+> <b>Grant that I may not pray alone with the mouth help me that I may pray from the depths of my heart.</b>
+> <p><i>Martin Luther</i></p>
 
 <br>
