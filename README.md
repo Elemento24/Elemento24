@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is well for the world that in most of us, by the age of thirty, the character has set like plaster, and will never soften again.</b>
-> <p><i>William James</i></p>
+> <b>The humblest painter is a true scholar and the best of scholars the scholar of nature.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
