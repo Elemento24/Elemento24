@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nancy Lopez has always been a role model of mine... so to have the opportunity to play for her and spend time with her has been amazing.</b>
-> <p><i>Natalie Gulbis</i></p>
+> <b>Writing fiction is for me a fraught business, an occasion of daily dread for at least the first half of the novel, and sometimes all the way through. The work process is totally different from writing nonfiction. You have to sit down every day and make it up.</b>
+> <p><i>Joan Didion</i></p>
 
 <br>
