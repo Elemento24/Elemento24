@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The humblest painter is a true scholar and the best of scholars the scholar of nature.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>I was a little doubtful about the propriety of going to the Mammoth Cave without a gentleman escort, but if two ladies travel alone they must have the courage of men.</b>
+> <p><i>Maria Mitchell</i></p>
 
 <br>
