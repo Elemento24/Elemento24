@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On the dance floor, as much as you say, 'Ladies, you are the car. He is the driver. You can only go where he takes you,' they still try to be in control.</b>
-> <p><i>Len Goodman</i></p>
+> <b>I grew up where my parents would literally shove me in the car rather than have to say hello to a neighbor.</b>
+> <p><i>Amy Sherman-Palladino</i></p>
 
 <br>
