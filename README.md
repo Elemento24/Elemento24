@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our worldly successes cannot be guaranteed, but our ability to achieve spiritual success is entirely up to us, thanks to the grace of God. The best advice I know is to give is to give those worldly things your best but never your all - reserve the ultimate hope for the only one who can grant it.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>On the dance floor, as much as you say, 'Ladies, you are the car. He is the driver. You can only go where he takes you,' they still try to be in control.</b>
+> <p><i>Len Goodman</i></p>
 
 <br>
