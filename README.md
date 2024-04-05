@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have learned that acting is not about beauty.</b>
-> <p><i>Vincent Cassel</i></p>
+> <b>The best way out of a difficulty is through it.</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
