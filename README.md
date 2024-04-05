@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way I see it, you should live everyday like its your birthday.</b>
-> <p><i>Paris Hilton</i></p>
+> <b>Whoever wants to know something about me - as an artist which alone is significant - they should look attentively at my pictures and there seek to recognise what I am and what I want.</b>
+> <p><i>Gustav Klimt</i></p>
 
 <br>
