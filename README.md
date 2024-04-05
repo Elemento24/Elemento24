@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never argue at the dinner table, for the one who is not hungry always gets the best of the argument.</b>
-> <p><i>Voltaire</i></p>
+> <b>Art has a double face, of expression and illusion, just like science has a double face: the reality of error and the phantom of truth.</b>
+> <p><i>Publilius Syrus</i></p>
 
 <br>
