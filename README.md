@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Writing fiction is for me a fraught business, an occasion of daily dread for at least the first half of the novel, and sometimes all the way through. The work process is totally different from writing nonfiction. You have to sit down every day and make it up.</b>
-> <p><i>Joan Didion</i></p>
+> <b>My definition of a redundancy is an air-bag in a politician's car.</b>
+> <p><i>Larry Hagman</i></p>
 
 <br>
