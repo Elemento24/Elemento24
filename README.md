@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always Do Your Best. Your best is going to change from moment to moment it will be different when you are healthy as opposed to sick. Under any circumstance, simply do your best, and you will avoid self-judgment, self-abuse and regret.</b>
-> <p><i>Miguel Angel Ruiz</i></p>
+> <b>To be honest I live among the English and have always found them to be very honest in their business dealings. They are noble, hard-working and anxious to do the right thing. But joy eludes them, they lack the joy that the Irish have.</b>
+> <p><i>Fiona Shaw</i></p>
 
 <br>
