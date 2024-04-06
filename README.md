@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.</b>
-> <p><i>Lou Holtz</i></p>
+> <b>I'm either going to go completely mental, completely bankrupt, or have the best success of my life.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
