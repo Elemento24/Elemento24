@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're all outsiders in a way. We're all alone and can become very lonely.</b>
-> <p><i>Hugo Weaving</i></p>
+> <b>I'd love to do something with Kelly Clarkson because she's been a monumental influence on me. I love how she handles her celebrity. She's not in the tabloids a lot but everyone knows and respects her because she's got an amazing voice. That's something I aim towards.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
