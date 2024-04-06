@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beautiful music is the art of the prophets that can calm the agitations of the soul it is one of the most magnificent and delightful presents God has given us.</b>
-> <p><i>Martin Luther</i></p>
+> <b>It is in this power of saying everything, and yet saying nothing too plainly, that the perfection of art consists.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
