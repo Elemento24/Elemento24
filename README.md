@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd love to do something with Kelly Clarkson because she's been a monumental influence on me. I love how she handles her celebrity. She's not in the tabloids a lot but everyone knows and respects her because she's got an amazing voice. That's something I aim towards.</b>
-> <p><i>Jordin Sparks</i></p>
+> <b>People always think that if you eat anything as a model, it's amazing. I used to tease them and say, you know I'm going to throw up afterwards.</b>
+> <p><i>Christy Turlington</i></p>
 
 <br>
