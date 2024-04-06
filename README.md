@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If only life could be a little more tender and art a little more robust.</b>
-> <p><i>Alan Rickman</i></p>
+> <b>So I think you have to marry for the right reasons, and marry the right person.</b>
+> <p><i>Anne Bancroft</i></p>
 
 <br>
