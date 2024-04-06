@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People always think that if you eat anything as a model, it's amazing. I used to tease them and say, you know I'm going to throw up afterwards.</b>
-> <p><i>Christy Turlington</i></p>
+> <b>It wasn't so long ago that I was a working mom myself. And I know that sometimes, much as we all hate to admit it, it's just easier to park the kids in front of the TV for a few hours, so we can pay the bills or do the laundry or just have some peace and quiet for a change.</b>
+> <p><i>Michelle Obama</i></p>
 
 <br>
