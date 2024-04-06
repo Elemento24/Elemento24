@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So I think you have to marry for the right reasons, and marry the right person.</b>
-> <p><i>Anne Bancroft</i></p>
+> <b>ER was one of my favourites. I played a car accident victim who has leukemia. I got to wear a neck brace and nose tubes for the two days I worked.</b>
+> <p><i>Dakota Fanning</i></p>
 
 <br>
