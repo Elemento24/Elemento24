@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One thing I resent is the slur that I just support political candidates because of the business.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>If only life could be a little more tender and art a little more robust.</b>
+> <p><i>Alan Rickman</i></p>
 
 <br>
