@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be honest I live among the English and have always found them to be very honest in their business dealings. They are noble, hard-working and anxious to do the right thing. But joy eludes them, they lack the joy that the Irish have.</b>
-> <p><i>Fiona Shaw</i></p>
+> <b>After all these years, it's still amazing what Obama is allowed to get away with. He says low gas prices in 2009 were caused by a terrible economy, but then claims that the lower number of illegal aliens crossing the border is because of his border policies, not the same lousy economy.</b>
+> <p><i>Howie Carr</i></p>
 
 <br>
