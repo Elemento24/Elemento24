@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is only skin deep. I think what's really important is finding a balance of mind, body and spirit.</b>
-> <p><i>Jennifer Lopez</i></p>
+> <b>If you get a diagnosis, get on a therapy, keep a good attitude and keep your sense of humor.</b>
+> <p><i>Teri Garr</i></p>
 
 <br>
