@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People criticized me for my photography. They said it's not art.</b>
-> <p><i>David Hockney</i></p>
+> <b>Age does not protect you from love. But love, to some extent, protects you from age.</b>
+> <p><i>Jeanne Moreau</i></p>
 
 <br>
