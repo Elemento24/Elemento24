@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since I'm always working, my best holiday memories are definitely when I can just go home and spend time with my family.</b>
-> <p><i>Chris Brown</i></p>
+> <b>I'd love to do something with Kelly Clarkson because she's been a monumental influence on me. I love how she handles her celebrity. She's not in the tabloids a lot but everyone knows and respects her because she's got an amazing voice. That's something I aim towards.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
