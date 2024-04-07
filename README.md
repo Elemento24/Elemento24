@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As much as I long for a sort of security and consistency sometimes, I do enjoy sort of being busted around. I really don't know what's happening sometimes next week, let alone this year.</b>
-> <p><i>Matthew Macfadyen</i></p>
+> <b>We live in a wonderful world that is full of beauty, charm and adventure. There is no end to the adventures that we can have if only we seek them with our eyes open.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
