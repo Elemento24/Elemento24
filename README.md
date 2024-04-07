@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A gift consists not in what is done or given, but in the intention of the giver or doer.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>In our life there is a single color, as on an artist's palette, which provides the meaning of life and art. It is the color of love.</b>
+> <p><i>Marc Chagall</i></p>
 
 <br>
