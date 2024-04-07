@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will do my best. That is all I can do. I ask for your help - and God's.</b>
-> <p><i>Lyndon B. Johnson</i></p>
+> <b>Since I'm always working, my best holiday memories are definitely when I can just go home and spend time with my family.</b>
+> <p><i>Chris Brown</i></p>
 
 <br>
