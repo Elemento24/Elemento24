@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not look for approval except for the consciousness of doing your best.</b>
-> <p><i>Andrew Carnegie</i></p>
+> <b>All art is but imitation of nature.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
