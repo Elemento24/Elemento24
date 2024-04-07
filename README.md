@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Works of art often last forever, or nearly so. But exhibitions themselves, especially gallery exhibitions, are like flowers they bloom and then they die, then exist only as memories, or pressed in magazines and books.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Growing up in the Midwest, people don't drive Porsches and Ferraris. They drive Fords and Chevys. And so even if you have the opportunity to buy a more expensive car, it doesn't occur to you because it's not what you relate to.</b>
+> <p><i>Luke Perry</i></p>
 
 <br>
