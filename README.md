@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I write for no other purpose than to add to the beauty that now belongs to me. I write a book for no other reason than to add three or four hundred acres to my magnificent estate.</b>
-> <p><i>Jack London</i></p>
+> <b>Works of art often last forever, or nearly so. But exhibitions themselves, especially gallery exhibitions, are like flowers they bloom and then they die, then exist only as memories, or pressed in magazines and books.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
