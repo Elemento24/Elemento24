@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most basic question is not what is best, but who shall decide what is best.</b>
-> <p><i>Thomas Sowell</i></p>
+> <b>It's a huge change for your body. You don't even want to look in the mirror after you've had a baby, because your stomach is just hanging there like a Shar-Pei.</b>
+> <p><i>Cindy Crawford</i></p>
 
 <br>
