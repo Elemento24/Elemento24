@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd love to do something with Kelly Clarkson because she's been a monumental influence on me. I love how she handles her celebrity. She's not in the tabloids a lot but everyone knows and respects her because she's got an amazing voice. That's something I aim towards.</b>
-> <p><i>Jordin Sparks</i></p>
+> <b>Well, I was already so happy being chosen to do the issue itself, that when I got on the cover, it was even more of a surprise and even more amazing to me.</b>
+> <p><i>Heidi Klum</i></p>
 
 <br>
