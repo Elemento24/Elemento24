@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Americans have always had an ambivalent attitude toward intelligence. When they feel threatened, they want a lot of it, and when they don't, they regard the whole thing as somewhat immoral.</b>
-> <p><i>Vernon A. Walters</i></p>
+> <b>Studies show that children best flourish when one mom and one dad are there to raise them.</b>
+> <p><i>John Boehner</i></p>
 
 <br>
