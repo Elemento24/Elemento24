@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I thought, when I have kids, that's the sort of well told, silly, and fun fairy tale that I would want to take them to. But it was an amazing experience. And I think Shrek is a real classic, a fairy tale classic.</b>
-> <p><i>Mike Myers</i></p>
+> <b>So long as you don't feel life's paltry and a miserable business, the rest doesn't matter, happiness or unhappiness.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
