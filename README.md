@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was really cool going to Sea World. We had an amazing time. They were amazing to us. We got to swim with the dolphins, and it was really special.</b>
-> <p><i>Sarah Chalke</i></p>
+> <b>I guess because I had such a horrible life growing up, going from place to place not knowing what I was gonna do and ending up being homeless, there was a lot of pain and a lot of anger that was coming out through my guitar playing.</b>
+> <p><i>Dave Mustaine</i></p>
 
 <br>
