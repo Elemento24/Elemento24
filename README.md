@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All art is but imitation of nature.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>Man should forget his anger before he lies down to sleep.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
