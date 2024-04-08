@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, I think we're put here on earth to make your own destiny, to begin with. I don't think there's anything you can do this way or that way to change anything.</b>
-> <p><i>Waylon Jennings</i></p>
+> <b>To go to the Oscars for 'Moneyball' - that was pretty amazing.</b>
+> <p><i>Chris Pratt</i></p>
 
 <br>
