@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me beauty is valued more than anything - the beauty that is manifest in a curved line or in an act of creativity.</b>
-> <p><i>Oscar Niemeyer</i></p>
+> <b>When I get into bed at night, I hope I don't get into it alone!</b>
+> <p><i>Calvin Klein</i></p>
 
 <br>
