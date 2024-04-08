@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So long as you don't feel life's paltry and a miserable business, the rest doesn't matter, happiness or unhappiness.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>There are many things we do not want about the world. Let us not just mourn them. Let us change them.</b>
+> <p><i>Ferdinand Marcos</i></p>
 
 <br>
