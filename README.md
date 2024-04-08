@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are many things we do not want about the world. Let us not just mourn them. Let us change them.</b>
-> <p><i>Ferdinand Marcos</i></p>
+> <b>United Artists wanted to do records with me. I had no idea, what a rare thing that was... to make an album. And they put a guy with me working on songs, and I got busy with films. I just kind of let it slide. Isn't that amazing?</b>
+> <p><i>John Astin</i></p>
 
 <br>
