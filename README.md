@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I get into bed at night, I hope I don't get into it alone!</b>
-> <p><i>Calvin Klein</i></p>
+> <b>We expect all our businesses to have a positive impact on our top and bottom lines. Profitability is very important to us or we wouldn't be in this business.</b>
+> <p><i>Jeff Bezos</i></p>
 
 <br>
