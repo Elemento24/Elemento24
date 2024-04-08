@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We expect all our businesses to have a positive impact on our top and bottom lines. Profitability is very important to us or we wouldn't be in this business.</b>
-> <p><i>Jeff Bezos</i></p>
+> <b>Buying a car used to be an experience so soul-scorching, so confidence-splattering, so existentially rattling that an entire car company was based on the promise that you wouldn't have to come in contact with it.</b>
+> <p><i>Susan Orlean</i></p>
 
 <br>
