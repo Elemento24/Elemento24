@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To go to the Oscars for 'Moneyball' - that was pretty amazing.</b>
-> <p><i>Chris Pratt</i></p>
+> <b>The best activities for your health are pumping and humping.</b>
+> <p><i>Arnold Schwarzenegger</i></p>
 
 <br>
