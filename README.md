@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best activities for your health are pumping and humping.</b>
-> <p><i>Arnold Schwarzenegger</i></p>
+> <b>The Dolls were an attitude. If nothing else they were a great attitude.</b>
+> <p><i>Johnny Thunders</i></p>
 
 <br>
