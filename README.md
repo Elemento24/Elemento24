@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best luck of all is the luck you make for yourself.</b>
-> <p><i>Douglas MacArthur</i></p>
+> <b>When you're in a race car, you're going through so many different emotions throughout that race.</b>
+> <p><i>Jeff Gordon</i></p>
 
 <br>
