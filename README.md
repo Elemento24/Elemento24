@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>United Artists wanted to do records with me. I had no idea, what a rare thing that was... to make an album. And they put a guy with me working on songs, and I got busy with films. I just kind of let it slide. Isn't that amazing?</b>
-> <p><i>John Astin</i></p>
+> <b>For me beauty is valued more than anything - the beauty that is manifest in a curved line or in an act of creativity.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
