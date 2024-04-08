@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Buying a car used to be an experience so soul-scorching, so confidence-splattering, so existentially rattling that an entire car company was based on the promise that you wouldn't have to come in contact with it.</b>
-> <p><i>Susan Orlean</i></p>
+> <b>Americans have always had an ambivalent attitude toward intelligence. When they feel threatened, they want a lot of it, and when they don't, they regard the whole thing as somewhat immoral.</b>
+> <p><i>Vernon A. Walters</i></p>
 
 <br>
