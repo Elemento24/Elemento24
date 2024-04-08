@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, I'd love to work with Kate Winslet - she's amazing.</b>
-> <p><i>Elizabeth Olsen</i></p>
+> <b>The American attitude towards efficiency and execution should always underlie architecture.</b>
+> <p><i>Helmut Jahn</i></p>
 
 <br>
