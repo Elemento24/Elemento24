@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a body everyone is single, as a soul never.</b>
-> <p><i>Hermann Hesse</i></p>
+> <b>Well, I'd love to work with Kate Winslet - she's amazing.</b>
+> <p><i>Elizabeth Olsen</i></p>
 
 <br>
