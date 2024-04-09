@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is so impermanent that it's not about somebody else or things around me, it's about knowing you are completely alone in this world and being content inside.</b>
-> <p><i>K. D. Lang</i></p>
+> <b>Surround yourself with the best people you can find, delegate authority, and don't interfere as long as the policy you've decided upon is being carried out.</b>
+> <p><i>Ronald Reagan</i></p>
 
 <br>
