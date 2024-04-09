@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God always gives His best to those who leave the choice with him.</b>
-> <p><i>Jim Elliot</i></p>
+> <b>I still have a lot to learn - about the business, about music, and about myself. Its exciting.</b>
+> <p><i>Britney Spears</i></p>
 
 <br>
