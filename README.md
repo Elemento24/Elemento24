@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tend to not watch things that are current. And then if everybody swears it's amazing then I'll like watch the whole series in a weekend.</b>
-> <p><i>Hank Azaria</i></p>
+> <b>I've run the Boston Marathon 6 times before. I think the best aspects of the marathon are the beautiful changes of the scenery along the route and the warmth of the people's support. I feel happier every time I enter this marathon.</b>
+> <p><i>Haruki Murakami</i></p>
 
 <br>
