@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of a woman is not in a facial mode but the true beauty in a woman is reflected in her soul. It is the caring that she lovingly gives the passion that she shows. The beauty of a woman grows with the passing years.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>I am 54 and age is slowly writing itself on my face.</b>
+> <p><i>Arthur Smith</i></p>
 
 <br>
