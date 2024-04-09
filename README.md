@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have found that being honest is the best technique I can use. Right up front, tell people what you're trying to accomplish and what you're willing to sacrifice to accomplish it.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>Bosnia is under my skin. It's the place you cannot leave behind. I was obsessed by the nightmare of it all there was this sense of guilt, and an anger that has become something much deeper over these last years.</b>
+> <p><i>Paddy Ashdown</i></p>
 
 <br>
