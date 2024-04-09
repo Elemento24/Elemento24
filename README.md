@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm over the moon to be involved in the 'Doctor Who' Christmas special. I can't quite believe it as it's a part of the family tradition at the Jenkins household. I heard the news that I got the role on my 30th birthday and it was the best birthday present ever.</b>
-> <p><i>Katherine Jenkins</i></p>
+> <b>A great source of calamity lies in regret and anticipation therefore a person is wise who thinks of the present alone, regardless of the past or future.</b>
+> <p><i>Oliver Goldsmith</i></p>
 
 <br>
