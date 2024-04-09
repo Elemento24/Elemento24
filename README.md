@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is the learned game, correct and magnificent, of forms assembled in the light.</b>
-> <p><i>Le Corbusier</i></p>
+> <b>I'm over the moon to be involved in the 'Doctor Who' Christmas special. I can't quite believe it as it's a part of the family tradition at the Jenkins household. I heard the news that I got the role on my 30th birthday and it was the best birthday present ever.</b>
+> <p><i>Katherine Jenkins</i></p>
 
 <br>
