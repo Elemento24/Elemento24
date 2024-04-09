@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am 54 and age is slowly writing itself on my face.</b>
-> <p><i>Arthur Smith</i></p>
+> <b>I remember when I took Quentin Tarantino with me to a very private screening of the documentary 'Roman Polanski: Wanted and Desired,' which shows some of the legal irregularities of his case. I was involved by the film, and it was an amazing experience to see people weep at the end of it.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
