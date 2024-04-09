@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I still have a lot to learn - about the business, about music, and about myself. Its exciting.</b>
-> <p><i>Britney Spears</i></p>
+> <b>In too many instances, the march to globalization has also meant the marginalization of women and girls. And that must change.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
