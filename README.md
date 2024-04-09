@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We think that democracy can change a lot of things, but we're being fooled, because democracy is not the election. We've been taught that democracy is having elections. And it isn't. Elections are the most horrendous aspect of democracy. It's the most mundane, trivial, disappointing, dirty aspect.</b>
-> <p><i>Gael Garcia Bernal</i></p>
+> <b>The arrogance of age must submit to be taught by youth.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
