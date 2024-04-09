@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember when I took Quentin Tarantino with me to a very private screening of the documentary 'Roman Polanski: Wanted and Desired,' which shows some of the legal irregularities of his case. I was involved by the film, and it was an amazing experience to see people weep at the end of it.</b>
-> <p><i>Harvey Weinstein</i></p>
+> <b>We think that democracy can change a lot of things, but we're being fooled, because democracy is not the election. We've been taught that democracy is having elections. And it isn't. Elections are the most horrendous aspect of democracy. It's the most mundane, trivial, disappointing, dirty aspect.</b>
+> <p><i>Gael Garcia Bernal</i></p>
 
 <br>
