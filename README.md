@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty in art is often nothing but ugliness subdued.</b>
-> <p><i>Jean Rostand</i></p>
+> <b>I am not a perfect servant. I am a public servant doing my best against the odds. As I develop and serve, be patient. God is not finished with me yet.</b>
+> <p><i>Jesse Jackson</i></p>
 
 <br>
