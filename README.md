@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am not a perfect servant. I am a public servant doing my best against the odds. As I develop and serve, be patient. God is not finished with me yet.</b>
-> <p><i>Jesse Jackson</i></p>
+> <b>Our language has wisely sensed the two sides of being alone. It has created the word loneliness to express the pain of being alone. And it has created the word solitude to express the glory of being alone.</b>
+> <p><i>Paul Tillich</i></p>
 
 <br>
