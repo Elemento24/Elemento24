@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think women are amazing and women's friendships are like a sisterhood and we should see more of it in television and film.</b>
-> <p><i>Laurie Holden</i></p>
+> <b>The attitude of physiological psychology to sensations and feelings, considered as psychical elements, is, naturally, the attitude of psychology at large.</b>
+> <p><i>Wilhelm Wundt</i></p>
 
 <br>
