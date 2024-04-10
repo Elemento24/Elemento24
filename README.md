@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men of age object too much, consult too long, adventure too little, repent too soon, and seldom drive business home to the full period, but content themselves with a mediocrity of success.</b>
-> <p><i>Dale Carnegie</i></p>
+> <b>Beauty in art is often nothing but ugliness subdued.</b>
+> <p><i>Jean Rostand</i></p>
 
 <br>
