@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because beauty isn't enough, there must be something more.</b>
-> <p><i>Eva Herzigova</i></p>
+> <b>The first mistake of art is to assume that it's serious.</b>
+> <p><i>Lester Bangs</i></p>
 
 <br>
