@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I must be more sensible and realize that at my age, illusions are hardly permitted and they will always destroy me.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Any fact facing us is not as important as our attitude toward it, for that determines our success or failure. The way you think about a fact may defeat you before you ever do anything about it. You are overcome by the fact because you think you are.</b>
+> <p><i>Norman Vincent Peale</i></p>
 
 <br>
