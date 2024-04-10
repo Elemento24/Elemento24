@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think if you give your best as a parent, then that's all you can do.</b>
-> <p><i>Heidi Klum</i></p>
+> <b>Because beauty isn't enough, there must be something more.</b>
+> <p><i>Eva Herzigova</i></p>
 
 <br>
