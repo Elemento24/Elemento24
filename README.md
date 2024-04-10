@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bosnia is under my skin. It's the place you cannot leave behind. I was obsessed by the nightmare of it all there was this sense of guilt, and an anger that has become something much deeper over these last years.</b>
-> <p><i>Paddy Ashdown</i></p>
+> <b>I must be more sensible and realize that at my age, illusions are hardly permitted and they will always destroy me.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
