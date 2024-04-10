@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any fact facing us is not as important as our attitude toward it, for that determines our success or failure. The way you think about a fact may defeat you before you ever do anything about it. You are overcome by the fact because you think you are.</b>
-> <p><i>Norman Vincent Peale</i></p>
+> <b>For students today, only 10 percent of children from working-class families graduate from college by the age of 24 as compared to 58 percent of upper-middle-class and wealthy families.</b>
+> <p><i>Patrick J. Kennedy</i></p>
 
 <br>
