@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not the business of generals to shoot one another.</b>
-> <p><i>Arthur Wellesley</i></p>
+> <b>The 19th century was the age of Individualism the 20th and 21st are the ages of Socialism.</b>
+> <p><i>Francis Parker Yockey</i></p>
 
 <br>
