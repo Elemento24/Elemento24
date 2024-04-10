@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Sleep we lie all naked and alone, in Sleep we are united at the heart of night and darkness, and we are strange and beautiful asleep for we are dying the darkness and we know no death.</b>
-> <p><i>Thomas Wolfe</i></p>
+> <b>I think women are amazing and women's friendships are like a sisterhood and we should see more of it in television and film.</b>
+> <p><i>Laurie Holden</i></p>
 
 <br>
