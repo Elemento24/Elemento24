@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a mom, I don't have much time for beauty.</b>
-> <p><i>Idina Menzel</i></p>
+> <b>I was never one to patiently pick up broken fragments and glue them together again and tell myself that the mended whole was as good as new. What is broken is broken - and I'd rather remember it as it was at its best than mend it and see the broken places as long as I lived.</b>
+> <p><i>Margaret Mitchell</i></p>
 
 <br>
