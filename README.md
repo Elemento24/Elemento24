@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our language has wisely sensed the two sides of being alone. It has created the word loneliness to express the pain of being alone. And it has created the word solitude to express the glory of being alone.</b>
-> <p><i>Paul Tillich</i></p>
+> <b>In Sleep we lie all naked and alone, in Sleep we are united at the heart of night and darkness, and we are strange and beautiful asleep for we are dying the darkness and we know no death.</b>
+> <p><i>Thomas Wolfe</i></p>
 
 <br>
