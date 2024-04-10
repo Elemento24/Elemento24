@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So I was getting into my car, and this bloke says to me 'Can you give me a lift?' I said 'Sure, you look great, the world's your oyster, go for it.'</b>
-> <p><i>Tommy Cooper</i></p>
+> <b>It is not the business of generals to shoot one another.</b>
+> <p><i>Arthur Wellesley</i></p>
 
 <br>
