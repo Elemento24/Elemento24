@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To give pain is the tyranny to make happy, the true empire of beauty.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>When you are fitted in a racing car and you race to win, second or third place is not enough.</b>
+> <p><i>Ayrton Senna</i></p>
 
 <br>
