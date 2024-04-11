@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is conventional to call 'monster' any blending of dissonant elements. I call 'monster' every original inexhaustible beauty.</b>
-> <p><i>Alfred Jarry</i></p>
+> <b>To be free from evil thoughts is God's best gift.</b>
+> <p><i>Aeschylus</i></p>
 
 <br>
