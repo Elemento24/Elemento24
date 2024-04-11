@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can best help you to prevent war not by repeating your words and following your methods but by finding new words and creating new methods.</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>The other day I was reading a blog and I linked over to Streisand's Web site, and it was amazing politically. She's so insightful and incisive. And she also says whatever she wants.</b>
+> <p><i>Liz Phair</i></p>
 
 <br>
