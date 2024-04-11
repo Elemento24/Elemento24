@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing that for actors mostly, it's a risk to attach yourself to a film that you don't know whether or not it's going to even be made and if you sign on, in doing so, who else is going to be in the movie with you.</b>
-> <p><i>Elisha Cuthbert</i></p>
+> <b>French architecture always manages to combine the most magnificent underlying themes of architecture like Roman design, it looks to the community.</b>
+> <p><i>Stephen Gardiner</i></p>
 
 <br>
