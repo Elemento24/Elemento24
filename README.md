@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, maybe I was just born in the wrong time, but I love all things romantic. Puffy understands that. For my last birthday, he covered my hotel room floor with rose petals and had flowers and candles all over the room.</b>
-> <p><i>Jennifer Lopez</i></p>
+> <b>We can best help you to prevent war not by repeating your words and following your methods but by finding new words and creating new methods.</b>
+> <p><i>Virginia Woolf</i></p>
 
 <br>
