@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let your Discourse with Men of Business be Short and Comprehensive.</b>
-> <p><i>George Washington</i></p>
+> <b>That's the beauty of being a comedian - it's the one job you're allowed to do that. We're lucky. We're really lucky.</b>
+> <p><i>Colin Quinn</i></p>
 
 <br>
