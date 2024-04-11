@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We were alone. Where, I could not say, hardly imagine. All was black, and such a dense black that, after some minutes, my eyes had not been able to discern even the faintest glimmer.</b>
-> <p><i>Jules Verne</i></p>
+> <b>The excitement of learning separates youth from old age. As long as you're learning you're not old.</b>
+> <p><i>Rosalyn S. Yalow</i></p>
 
 <br>
