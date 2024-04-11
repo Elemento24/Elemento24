@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>French architecture always manages to combine the most magnificent underlying themes of architecture like Roman design, it looks to the community.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>At the age of four with paper hats and wooden swords we're all Generals. Only some of us never grow out of it.</b>
+> <p><i>Peter Ustinov</i></p>
 
 <br>
