@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the age of four with paper hats and wooden swords we're all Generals. Only some of us never grow out of it.</b>
-> <p><i>Peter Ustinov</i></p>
+> <b>You know, maybe I was just born in the wrong time, but I love all things romantic. Puffy understands that. For my last birthday, he covered my hotel room floor with rose petals and had flowers and candles all over the room.</b>
+> <p><i>Jennifer Lopez</i></p>
 
 <br>
