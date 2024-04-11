@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd like to have the flying car, I think that'd be really cool.</b>
-> <p><i>Rupert Grint</i></p>
+> <b>There is an abiding beauty which may be appreciated by those who will see things as they are and who will ask for no reward except to see.</b>
+> <p><i>Vera Brittain</i></p>
 
 <br>
