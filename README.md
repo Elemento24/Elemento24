@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Design is the method of putting form and content together. Design, just as art, has multiple definitions there is no single definition. Design can be art. Design can be aesthetics. Design is so simple, that's why it is so complicated.</b>
-> <p><i>Paul Rand</i></p>
+> <b>We come in many different shapes and sizes, and we need to support each other and our differences. Our beauty is in our differences.</b>
+> <p><i>Carre Otis</i></p>
 
 <br>
