@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You get moments all the time that kind of make you pinch yourself, some of them make you quite emotional. Winning a BRIT was a big moment because we were just so excited to be at the awards in the first place. Selling out Madison Square Garden was pretty amazing too. Then we woke to the news that our UK tour was sold out. It was crazy.</b>
-> <p><i>Harry Styles</i></p>
+> <b>Design is the method of putting form and content together. Design, just as art, has multiple definitions there is no single definition. Design can be art. Design can be aesthetics. Design is so simple, that's why it is so complicated.</b>
+> <p><i>Paul Rand</i></p>
 
 <br>
