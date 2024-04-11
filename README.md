@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is an abiding beauty which may be appreciated by those who will see things as they are and who will ask for no reward except to see.</b>
-> <p><i>Vera Brittain</i></p>
+> <b>To give pain is the tyranny to make happy, the true empire of beauty.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
