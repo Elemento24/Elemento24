@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The other day I was reading a blog and I linked over to Streisand's Web site, and it was amazing politically. She's so insightful and incisive. And she also says whatever she wants.</b>
-> <p><i>Liz Phair</i></p>
+> <b>And currently, there are four to five new works in the pipeline for upcoming celebrations such as the Sydney 2000 Olympics, Australian Federation, my 50th Birthday, and Sydney Dance Company's 25th Anniversary.</b>
+> <p><i>Graeme Murphy</i></p>
 
 <br>
