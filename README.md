@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
-> <p><i>Euripides</i></p>
+> <b>What can be more foolish than to think that all this rare fabric of heaven and earth could come by chance, when all the skill of art is not able to make an oyster!</b>
+> <p><i>Anatole France</i></p>
 
 <br>
