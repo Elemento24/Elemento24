@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The strongest man in the world is he who stands most alone.</b>
-> <p><i>Henrik Ibsen</i></p>
+> <b>Abstract Expressionism - the first American movement to have a worldwide influence - was remarkably short-lived: It heated up after World War II and was all but done for by 1960 (although visit any art school today and you'll find a would-be Willem de Kooning).</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
