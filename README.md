@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is art but a way of seeing?</b>
-> <p><i>Saul Bellow</i></p>
+> <b>I am neither frustrated nor planning anything other than being the best Secretary of State I could be.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
