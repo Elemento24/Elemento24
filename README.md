@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am neither frustrated nor planning anything other than being the best Secretary of State I could be.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
+> <p><i>Euripides</i></p>
 
 <br>
