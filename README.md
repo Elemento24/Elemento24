@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The artist is not responsible to any one. His social role is asocial... his only responsibility consists in an attitude to the work he does.</b>
-> <p><i>Georg Baselitz</i></p>
+> <b>We are volcanoes. When we women offer our experience as our truth, as human truth, all the maps change. There are new mountains.</b>
+> <p><i>Ursula K. Le Guin</i></p>
 
 <br>
