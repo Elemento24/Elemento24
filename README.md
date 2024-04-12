@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Abstract Expressionism - the first American movement to have a worldwide influence - was remarkably short-lived: It heated up after World War II and was all but done for by 1960 (although visit any art school today and you'll find a would-be Willem de Kooning).</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>What is art but a way of seeing?</b>
+> <p><i>Saul Bellow</i></p>
 
 <br>
