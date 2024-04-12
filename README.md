@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best lack all conviction, while the worst are full of passionate intensity.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>I don't think there's anybody in America who thinks my personality is best suited to being Number Two.</b>
+> <p><i>Chris Christie</i></p>
 
 <br>
