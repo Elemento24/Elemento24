@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up doing all that stuff because I was obsessed with the '50s. I had sock hops for birthday parties. So I've always done The Twist and stuff. It was pretty natural and, with my parents doing it all the time, I'd just copy them. Not very pretty.</b>
-> <p><i>Brittany Snow</i></p>
+> <b>Events will take their course, it is no good of being angry at them he is happiest who wisely turns them to the best account.</b>
+> <p><i>Euripides</i></p>
 
 <br>
