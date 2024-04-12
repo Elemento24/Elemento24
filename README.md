@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are volcanoes. When we women offer our experience as our truth, as human truth, all the maps change. There are new mountains.</b>
-> <p><i>Ursula K. Le Guin</i></p>
+> <b>I grew up doing all that stuff because I was obsessed with the '50s. I had sock hops for birthday parties. So I've always done The Twist and stuff. It was pretty natural and, with my parents doing it all the time, I'd just copy them. Not very pretty.</b>
+> <p><i>Brittany Snow</i></p>
 
 <br>
