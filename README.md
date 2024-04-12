@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People like Frank Zappa were amazing for us Brits.</b>
-> <p><i>Rick Wakeman</i></p>
+> <b>I think my attitude to human beings has changed since leaving prison.</b>
+> <p><i>Jeffrey Archer</i></p>
 
 <br>
