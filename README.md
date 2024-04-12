@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think there's anybody in America who thinks my personality is best suited to being Number Two.</b>
-> <p><i>Chris Christie</i></p>
+> <b>A State without the means of some change is without the means of its conservation.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
