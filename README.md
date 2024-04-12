@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a free society, government reflects the soul of its people. If people want change at the top, they will have to live in different ways. Our major social problems are not the cause of our decadence. They are a reflection of it.</b>
-> <p><i>Cal Thomas</i></p>
+> <b>The best way to lose weight is to close your mouth - something very difficult for a politician. Or watch your food - just watch it, don't eat it.</b>
+> <p><i>Edward Koch</i></p>
 
 <br>
