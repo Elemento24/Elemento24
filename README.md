@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A State without the means of some change is without the means of its conservation.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>The artist is not responsible to any one. His social role is asocial... his only responsibility consists in an attitude to the work he does.</b>
+> <p><i>Georg Baselitz</i></p>
 
 <br>
