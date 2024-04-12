@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have become aware of the responsibility for our attitude towards the dark pages in our history. We have understood that bad service is done to the nation by those who are impelling to renounce that past.</b>
-> <p><i>Aleksander Kwasniewski</i></p>
+> <b>The best lack all conviction, while the worst are full of passionate intensity.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
