@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Laugh and the world laughs with you, snore and you sleep alone.</b>
-> <p><i>Anthony Burgess</i></p>
+> <b>In politics there are some candidates who use change to promote their careers, and then there are those like John McCain who use their careers to promote change.</b>
+> <p><i>Sarah Palin</i></p>
 
 <br>
