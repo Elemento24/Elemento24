@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the right hand of Nature. The latter has only given us being, the former has made us men.</b>
-> <p><i>Friedrich Schiller</i></p>
+> <b>We have become aware of the responsibility for our attitude towards the dark pages in our history. We have understood that bad service is done to the nation by those who are impelling to renounce that past.</b>
+> <p><i>Aleksander Kwasniewski</i></p>
 
 <br>
