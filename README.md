@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Jazz is a very democratic musical form. It comes out of a communal experience. We take our respective instruments and collectively create a thing of beauty.</b>
-> <p><i>Max Roach</i></p>
+> <b>The best advice I ever got was that knowledge is power and to keep reading.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
