@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Stop living a day at a time and stop worrying about age.</b>
-> <p><i>Helen Reddy</i></p>
+> <b>Art ought never to be considered except in its relations with its ideal beauty.</b>
+> <p><i>Alfred de Vigny</i></p>
 
 <br>
