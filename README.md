@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not possible to live in this age if you don't have a sense of many contradictory forces.</b>
-> <p><i>Rem Koolhaas</i></p>
+> <b>The art of acting consists in keeping people from coughing.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
