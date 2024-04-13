@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel I'd like to share my luck and my life. Being in love is the best thing in the world.</b>
-> <p><i>Susannah York</i></p>
+> <b>Unfortunately, the attitude of many towards the press, humanitarians included and especially government workers, is often one of suspicion, if not outright fear.</b>
+> <p><i>Alvin Adams</i></p>
 
 <br>
