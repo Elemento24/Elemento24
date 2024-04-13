@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't run a car, have never run a car. I could say that this is because I have this extremely tender environmentalist conscience, but the fact is I hate driving.</b>
-> <p><i>David Attenborough</i></p>
+> <b>I love what I do, and when I don't love what I do, I'll make a change.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
