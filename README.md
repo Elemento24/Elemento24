@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who has played the game professionally, you're always taught that the ball is the most important, most precious thing, so when the ball hits the ground, it's always a mad scramble. It's amazing how many times there is a fumble, and the person who recovers it initially doesn't walk away with the ball.</b>
-> <p><i>Barry Sanders</i></p>
+> <b>Jazz is a very democratic musical form. It comes out of a communal experience. We take our respective instruments and collectively create a thing of beauty.</b>
+> <p><i>Max Roach</i></p>
 
 <br>
