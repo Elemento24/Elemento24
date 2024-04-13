@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of acting consists in keeping people from coughing.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>It is quite annoying that we have to change the sound we invented just to avoid sounding like people who simply copy us, but... it is flattering and of course challenging.</b>
+> <p><i>Jonathan Davis</i></p>
 
 <br>
