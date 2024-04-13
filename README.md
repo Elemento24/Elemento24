@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art ought never to be considered except in its relations with its ideal beauty.</b>
-> <p><i>Alfred de Vigny</i></p>
+> <b>The novelist teaches the reader to comprehend the world as a question. There is wisdom and tolerance in that attitude. In a world built on sacrosanct certainties the novel is dead.</b>
+> <p><i>Milan Kundera</i></p>
 
 <br>
