@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody until very recently would have thought that their husband was supposed to be their best friend, confidante, intellectual soul mate, co-parent, inspiration.</b>
-> <p><i>Elizabeth Gilbert</i></p>
+> <b>I feel I'd like to share my luck and my life. Being in love is the best thing in the world.</b>
+> <p><i>Susannah York</i></p>
 
 <br>
