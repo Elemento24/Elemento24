@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best advice I ever got was that knowledge is power and to keep reading.</b>
-> <p><i>David Bailey</i></p>
+> <b>Nobody until very recently would have thought that their husband was supposed to be their best friend, confidante, intellectual soul mate, co-parent, inspiration.</b>
+> <p><i>Elizabeth Gilbert</i></p>
 
 <br>
