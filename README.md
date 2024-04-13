@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love what I do, and when I don't love what I do, I'll make a change.</b>
-> <p><i>Katy Perry</i></p>
+> <b>I do not have much patience with a thing of beauty that must be explained to be understood. If it does need additional interpretation by someone other than the creator, then I question whether it has fulfilled its purpose.</b>
+> <p><i>Charlie Chaplin</i></p>
 
 <br>
