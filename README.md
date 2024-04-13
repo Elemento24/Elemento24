@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In politics there are some candidates who use change to promote their careers, and then there are those like John McCain who use their careers to promote change.</b>
-> <p><i>Sarah Palin</i></p>
+> <b>We are at a crossroads in the music business: with the rise of the internet, the world we live in has changed, and the past is not coming back. But I see the glass as half-full: the internet and social networking are new avenues for the next Bob Dylan to be born on.</b>
+> <p><i>Jon Bon Jovi</i></p>
 
 <br>
