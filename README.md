@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not have much patience with a thing of beauty that must be explained to be understood. If it does need additional interpretation by someone other than the creator, then I question whether it has fulfilled its purpose.</b>
-> <p><i>Charlie Chaplin</i></p>
+> <b>My interest in architecture has always been sculptural. Most of my photography is of architecture.</b>
+> <p><i>Parker Stevenson</i></p>
 
 <br>
