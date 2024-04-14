@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Try, try, try, and keep on trying is the rule that must be followed to become an expert in anything.</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>Love turns, with a little indulgence, to indifference or disgust hatred alone is immortal.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
