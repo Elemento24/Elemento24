@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The question of whether or to what extent human activities are causing global warming is not a matter of ideology, let alone of belief. The issue is simply one of risk management.</b>
-> <p><i>Malcolm Turnbull</i></p>
+> <b>Heat of blood makes young people change their inclinations often, and habit makes old ones keep to theirs a great while.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
