@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love turns, with a little indulgence, to indifference or disgust hatred alone is immortal.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>You can change your world by changing your words... Remember, death and life are in the power of the tongue.</b>
+> <p><i>Joel Osteen</i></p>
 
 <br>
