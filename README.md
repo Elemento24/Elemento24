@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Heat of blood makes young people change their inclinations often, and habit makes old ones keep to theirs a great while.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>Consider what kind of car you get. Buy cars and other products that have the least impact environmentally.</b>
+> <p><i>Al Gore</i></p>
 
 <br>
