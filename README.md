@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can change your world by changing your words... Remember, death and life are in the power of the tongue.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>You're only lonely if you're not there for you.</b>
+> <p><i>Phil McGraw</i></p>
 
 <br>
