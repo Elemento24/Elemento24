@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't think that college math was for me. I didn't think I'd be able to hack it. And that perception of math not being for girls, not being for girls who see themselves as socially well adjusted has got to change.</b>
-> <p><i>Danica McKellar</i></p>
+> <b>Try, try, try, and keep on trying is the rule that must be followed to become an expert in anything.</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
