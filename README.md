@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wishful thinking is not idealism. It is self-indulgence at best and self-exaltation at worst. In either case, it is usually at the expense of others. In other words, it is the opposite of idealism.</b>
-> <p><i>Thomas Sowell</i></p>
+> <b>I hate the outdoors. To me the outdoors is where the car is.</b>
+> <p><i>Will Durst</i></p>
 
 <br>
