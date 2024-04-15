@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is fuel efficiency really what we need most desperately? I say that what we really need is a car that can be shot when it breaks down.</b>
-> <p><i>Russell Baker</i></p>
+> <b>It is not to be expected that human nature will change in a day.</b>
+> <p><i>Frank B. Kellogg</i></p>
 
 <br>
