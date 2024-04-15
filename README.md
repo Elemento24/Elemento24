@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dogs feel very strongly that they should always go with you in the car, in case the need should arise for them to bark violently at nothing right in your ear.</b>
-> <p><i>Dave Barry</i></p>
+> <b>Profit in business comes from repeat customers, customers that boast about your project or service, and that bring friends with them.</b>
+> <p><i>W. Edwards Deming</i></p>
 
 <br>
