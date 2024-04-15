@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first trip I remember taking was on the train from Virginia up to New York City, watching the summertime countryside rolling past the window. They used white linen tablecloths in the dining car in those days, and real silver. I love trains to this day. Maybe that was the beginning of my fixation with leisurely modes of travel.</b>
-> <p><i>Billy Campbell</i></p>
+> <b>Outside museums, in noisy public squares, people look at people. Inside museums, we leave that realm and enter what might be called the group-mind, getting quiet to look at art.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
