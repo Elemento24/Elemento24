@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A strategy is something like, an innovative new product globalization, taking your products around the world be the low-cost producer. A strategy is something you can touch you can motivate people with be number one and number two in every business. You can energize people around the message.</b>
-> <p><i>Jack Welch</i></p>
+> <b>Dogs feel very strongly that they should always go with you in the car, in case the need should arise for them to bark violently at nothing right in your ear.</b>
+> <p><i>Dave Barry</i></p>
 
 <br>
