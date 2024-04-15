@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Profit in business comes from repeat customers, customers that boast about your project or service, and that bring friends with them.</b>
-> <p><i>W. Edwards Deming</i></p>
+> <b>The car is a character in the piece - I've never liked the car, I submitted to it's objectionable popularity.</b>
+> <p><i>Paul M. Glaser</i></p>
 
 <br>
