@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's pretty amazing to me that my first hit record was an Elvis Presley record.</b>
-> <p><i>Mac Davis</i></p>
+> <b>At my age, no one is married, no one has kids, no one has a career.</b>
+> <p><i>Lena Dunham</i></p>
 
 <br>
