@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not to be expected that human nature will change in a day.</b>
-> <p><i>Frank B. Kellogg</i></p>
+> <b>Strength alone knows conflict, weakness is born vanquished.</b>
+> <p><i>Sophie Swetchine</i></p>
 
 <br>
