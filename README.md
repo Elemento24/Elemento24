@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alas! how little does the memory of these human inhabitants enhance the beauty of the landscape!</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>I'm free. I just do what I want, say what I want, say how I feel, and I don't try to hurt nobody. I just try to make sure that I don't compromise my art in any kind of way, and I think people respect that.</b>
+> <p><i>Erykah Badu</i></p>
 
 <br>
