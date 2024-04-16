@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People criticized me for my photography. They said it's not art.</b>
-> <p><i>David Hockney</i></p>
+> <b>I'm fascinated by rap and by hip-hop. I think there's a lot of poetry in it. There's a lot of anger, a lot of social energy in it. And I think you'd better listen to it pretty carefully, 'cause it's important.</b>
+> <p><i>John F. Kerry</i></p>
 
 <br>
