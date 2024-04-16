@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The game in beauty is changing so much, if your product isn't high tech or can't make a unique performance claim - plump your lips, reduce your lines, look glossy, and stay on for 24 hours - you can't go to market today. I'm not just talking about a $20 lipstick, but a $5 lipstick!</b>
-> <p><i>Andrea Jung</i></p>
+> <b>I've got a great team of engineers behind this race car. I've got a great bunch of mechanics that make it reliable. This car is developed to go out there and be better than the Reynard, and I feel that it is.</b>
+> <p><i>Al Unser</i></p>
 
 <br>
