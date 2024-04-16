@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I buy when other people are selling.</b>
-> <p><i>J. Paul Getty</i></p>
+> <b>When the traveler goes alone he gets acquainted with himself.</b>
+> <p><i>Liberty Hyde Bailey</i></p>
 
 <br>
