@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who keeps his cool best wins.</b>
-> <p><i>Norman Cousins</i></p>
+> <b>Half a century ago, the amazing courage of Rosa Parks, the visionary leadership of Martin Luther King, and the inspirational actions of the civil rights movement led politicians to write equality into the law and make real the promise of America for all her citizens.</b>
+> <p><i>David Cameron</i></p>
 
 <br>
