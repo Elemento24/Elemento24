@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got a great team of engineers behind this race car. I've got a great bunch of mechanics that make it reliable. This car is developed to go out there and be better than the Reynard, and I feel that it is.</b>
-> <p><i>Al Unser</i></p>
+> <b>Well, Freddie Mercury is a really huge rock star in my head. I've always thought he was just so tough and such an amazing entertainer, really a contradiction in many ways as well. So he was incredible.</b>
+> <p><i>Karen O</i></p>
 
 <br>
