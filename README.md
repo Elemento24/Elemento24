@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Half a century ago, the amazing courage of Rosa Parks, the visionary leadership of Martin Luther King, and the inspirational actions of the civil rights movement led politicians to write equality into the law and make real the promise of America for all her citizens.</b>
-> <p><i>David Cameron</i></p>
+> <b>Film editing is now something almost everyone can do at a simple level and enjoy it, but to take it to a higher level requires the same dedication and persistence that any art form does.</b>
+> <p><i>Walter Murch</i></p>
 
 <br>
