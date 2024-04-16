@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes, I will bring the understanding of a woman to the Court, but I doubt that alone will affect my decisions.</b>
-> <p><i>Sandra Day O'Connor</i></p>
+> <b>Baseball was, is and always will be to me the best game in the world.</b>
+> <p><i>Babe Ruth</i></p>
 
 <br>
