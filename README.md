@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best of us must sometimes eat our words.</b>
-> <p><i>J. K. Rowling</i></p>
+> <b>I buy when other people are selling.</b>
+> <p><i>J. Paul Getty</i></p>
 
 <br>
