@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody know, I don't do no promoting. I don't ever have to promote nothing, that's the beauty of Lil Wayne.</b>
-> <p><i>Lil Wayne</i></p>
+> <b>People criticized me for my photography. They said it's not art.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
