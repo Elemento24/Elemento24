@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A visit to a cinema is a little outing in itself. It breaks the monotony of an afternoon or evening it gives a change from the surroundings of home, however pleasant.</b>
-> <p><i>Ivor Novello</i></p>
+> <b>Alas! how little does the memory of these human inhabitants enhance the beauty of the landscape!</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
