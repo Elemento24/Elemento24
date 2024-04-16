@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm fascinated by rap and by hip-hop. I think there's a lot of poetry in it. There's a lot of anger, a lot of social energy in it. And I think you'd better listen to it pretty carefully, 'cause it's important.</b>
-> <p><i>John F. Kerry</i></p>
+> <b>A visit to a cinema is a little outing in itself. It breaks the monotony of an afternoon or evening it gives a change from the surroundings of home, however pleasant.</b>
+> <p><i>Ivor Novello</i></p>
 
 <br>
