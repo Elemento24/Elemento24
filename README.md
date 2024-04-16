@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a secular age, an authentic miracle must purport to be a hoax, in order to gain credit in the world.</b>
-> <p><i>Angela Carter</i></p>
+> <b>This is the highest wisdom that I own freedom and life are earned by those alone who conquer them each day anew.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
