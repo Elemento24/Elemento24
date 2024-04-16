@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By the work one knows the workman.</b>
-> <p><i>Jean de La Fontaine</i></p>
+> <b>The amazing fact is that America is founded on a document. It's a work in progress. It can be tested by each generation.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
