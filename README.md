@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When the traveler goes alone he gets acquainted with himself.</b>
-> <p><i>Liberty Hyde Bailey</i></p>
+> <b>Everybody know, I don't do no promoting. I don't ever have to promote nothing, that's the beauty of Lil Wayne.</b>
+> <p><i>Lil Wayne</i></p>
 
 <br>
