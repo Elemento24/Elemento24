@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I wish I could drive a car, but I'm gonna drive a car one day, so I don't worry about that.</b>
-> <p><i>Stevie Wonder</i></p>
+> <b>I was kind of a jock in school. Beauty wasn't something I spent a lot of time on.</b>
+> <p><i>Nina Dobrev</i></p>
 
 <br>
