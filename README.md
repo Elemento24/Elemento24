@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When someone says that I'm angry it's actually a compliment. I have not always been direct with my anger in my relationships, which is part of why I'd write about it in my songs because I had such fear around expressing anger as a woman.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>For the first time we're allowing developers who don't work at Facebook to develop applications just as if they were. That's a big deal because it means that all developers have a new way of doing business if they choose to take advantage of it. There are whole companies that are forming whose only product is a Facebook Platform application.</b>
+> <p><i>Mark Zuckerberg</i></p>
 
 <br>
