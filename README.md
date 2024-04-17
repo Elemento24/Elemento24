@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm free. I just do what I want, say what I want, say how I feel, and I don't try to hurt nobody. I just try to make sure that I don't compromise my art in any kind of way, and I think people respect that.</b>
-> <p><i>Erykah Badu</i></p>
+> <b>Change is the law of life. And those who look only to the past or present are certain to miss the future.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
