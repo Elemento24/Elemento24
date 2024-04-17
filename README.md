@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God bless you if you have one child, but I don't think anybody should have just one child. Everybody needs a sibling. I have siblings, and I have so many amazing, precious memories with my siblings. I don't know what I would do if I had been an only child.</b>
-> <p><i>Sherri Shepherd</i></p>
+> <b>We were making the first step out of the age of chemistry and physics, and into the age of biology.</b>
+> <p><i>Jeremy Rifkin</i></p>
 
 <br>
