@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lila can't be a model until she's at least 21. She is already a mini-me - it is scary. She already has her own beauty kit.</b>
-> <p><i>Kate Moss</i></p>
+> <b>I love glamour and artificial beauty. I love the idea of artifice and dressing up and makeup and hair.</b>
+> <p><i>Dita Von Teese</i></p>
 
 <br>
