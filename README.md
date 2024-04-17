@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude is attitude, whether you're a West Coast gangster or East Coast gangster, you know?</b>
-> <p><i>Paul Walker</i></p>
+> <b>I think we've been dulled by capitalism. We're just blobs now - we're so worried about how we can keep paying the lease on the car, the mortgage, the lease on the toaster and all that. You can't really think about much else. If you lose that, you lose the whole lot.</b>
+> <p><i>Rupert Everett</i></p>
 
 <br>
