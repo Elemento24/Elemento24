@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone discusses my art and pretends to understand, as if it were necessary to understand, when it is simply necessary to love.</b>
-> <p><i>Claude Monet</i></p>
+> <b>I know I'm not the best. I'm not the best singer, I'm not the best songwriter, I'm not the best player.</b>
+> <p><i>Kid Rock</i></p>
 
 <br>
