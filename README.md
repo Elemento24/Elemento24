@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we've been dulled by capitalism. We're just blobs now - we're so worried about how we can keep paying the lease on the car, the mortgage, the lease on the toaster and all that. You can't really think about much else. If you lose that, you lose the whole lot.</b>
-> <p><i>Rupert Everett</i></p>
+> <b>I would make tea for Joni Mitchell or clean her car, anything to be in the studio and watch her work.</b>
+> <p><i>Sheena Easton</i></p>
 
 <br>
