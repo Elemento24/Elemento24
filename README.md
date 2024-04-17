@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We were making the first step out of the age of chemistry and physics, and into the age of biology.</b>
-> <p><i>Jeremy Rifkin</i></p>
+> <b>I guess lyrically they're similar because they're talking about escaping the kind of misery that likes company. 'The Last One Alive,' for me, is very simple. It's just about alienation, really, that causes anger.</b>
+> <p><i>Jon Crosby</i></p>
 
 <br>
