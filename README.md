@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I guess lyrically they're similar because they're talking about escaping the kind of misery that likes company. 'The Last One Alive,' for me, is very simple. It's just about alienation, really, that causes anger.</b>
-> <p><i>Jon Crosby</i></p>
+> <b>The art of the parenthesis is one of the greatest secrets of eloquence in Society.</b>
+> <p><i>Nicolas Chamfort</i></p>
 
 <br>
