@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the First Amendment means anything, it means that a state has no business telling a man, sitting alone in his house, what books he may read or what films he may watch.</b>
-> <p><i>Thurgood Marshall</i></p>
+> <b>Every government degenerates when trusted to the rulers of the people alone. The people themselves are its only safe depositories.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
