@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was kind of a jock in school. Beauty wasn't something I spent a lot of time on.</b>
-> <p><i>Nina Dobrev</i></p>
+> <b>I have those songs as well. It depends on what I'm going through in my life but I'm a huge fan of Bjork. Sometimes I get so emotional because she's so amazing.</b>
+> <p><i>Ashlee Simpson</i></p>
 
 <br>
