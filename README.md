@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men at most differ as Heaven and Earth, but women, worst and best, as Heaven and Hell.</b>
-> <p><i>Alfred Lord Tennyson</i></p>
+> <b>Everyone discusses my art and pretends to understand, as if it were necessary to understand, when it is simply necessary to love.</b>
+> <p><i>Claude Monet</i></p>
 
 <br>
