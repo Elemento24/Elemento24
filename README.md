@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mama always used to tell me: 'If you can't find somethin' to live for, you best find somethin' to die for.'</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>The question remains: which brands will commit to creating a private sector pillar of social change, and which will become casualties of their own outdated thinking?</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
