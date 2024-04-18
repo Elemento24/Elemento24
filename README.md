@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being alone is scarier than any boogey man and the reason why I don't choose to see Horror movies as a rule.</b>
-> <p><i>Tom Sizemore</i></p>
+> <b>A lot of good love can happen in ten years.</b>
+> <p><i>Jim Carrey</i></p>
 
 <br>
