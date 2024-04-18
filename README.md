@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Climate change was a point of division between Obama and Republican rival Mitt Romney. The president declared climate change a global threat, acknowledged that the actions of humanity were deepening the crisis, and pledged to do something about it if elected.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>The red carpet is kind of a surreal experience. There's nothing normal about it, so for me the most important thing is to maintain some normality right until the point you get out of the car.</b>
+> <p><i>Samantha Barks</i></p>
 
 <br>
