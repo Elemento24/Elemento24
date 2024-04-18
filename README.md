@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To improve is to change to be perfect is to change often.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>Experience hath shewn, that even under the best forms of government those entrusted with power have, in time, and by slow operations, perverted it into tyranny.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
