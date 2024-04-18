@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also find it interesting that a lot of people in their 30s are not married and don't have kids. There are a lot of people in this age bracket that are out there dating and trying to find love. And I never thought that at my age I would be.</b>
-> <p><i>John Stamos</i></p>
+> <b>I've made movies that cost less than one car chase.</b>
+> <p><i>Sam Mendes</i></p>
 
 <br>
