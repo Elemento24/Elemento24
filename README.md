@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>President Johnson did not want the Vietnam War to broaden. He wanted the North Vietnamese to leave their brothers in the South alone.</b>
-> <p><i>William Westmoreland</i></p>
+> <b>I'm still that little girl who lisped and sat in the back of the car and threw vegetables at the back of her head when we drove home from the market. That never goes.</b>
+> <p><i>Tracey Ullman</i></p>
 
 <br>
