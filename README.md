@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've made movies that cost less than one car chase.</b>
-> <p><i>Sam Mendes</i></p>
+> <b>What is art? Nature concentrated.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
