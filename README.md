@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did a twenty foot print and John Cage is involved in that because he was the only person I knew in New York who had a car and who would be willing to do this.</b>
-> <p><i>Robert Rauschenberg</i></p>
+> <b>Testing oneself is best when done alone.</b>
+> <p><i>Jimmy Carter</i></p>
 
 <br>
