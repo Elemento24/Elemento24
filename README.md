@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I discovered something amazing, which has caused a lot of controversy - the fountain of youth. I have to keep it a secret!</b>
-> <p><i>David Copperfield</i></p>
+> <b>The best way to pay for a lovely moment is to enjoy it.</b>
+> <p><i>Richard Bach</i></p>
 
 <br>
