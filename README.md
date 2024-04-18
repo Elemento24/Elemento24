@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is art? Nature concentrated.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>Words alone cannot fully convey the realities of the soul or the greatness of the human spirit.</b>
+> <p><i>William Shirley</i></p>
 
 <br>
