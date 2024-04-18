@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Words alone cannot fully convey the realities of the soul or the greatness of the human spirit.</b>
-> <p><i>William Shirley</i></p>
+> <b>It's an amazing luxury to say I'm 31 years old and I'm gonna take a year off. That's pretty amazing.</b>
+> <p><i>Sarah McLachlan</i></p>
 
 <br>
