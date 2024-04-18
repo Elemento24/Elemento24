@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love glamour and artificial beauty. I love the idea of artifice and dressing up and makeup and hair.</b>
-> <p><i>Dita Von Teese</i></p>
+> <b>Climate change was a point of division between Obama and Republican rival Mitt Romney. The president declared climate change a global threat, acknowledged that the actions of humanity were deepening the crisis, and pledged to do something about it if elected.</b>
+> <p><i>Ron Fournier</i></p>
 
 <br>
