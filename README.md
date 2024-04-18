@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The hardest part was when I was in high school not having a job and always being broke. I had to get to auditions without a car. I either took the bus or walked.</b>
-> <p><i>Cuba Gooding, Jr.</i></p>
+> <b>To improve is to change to be perfect is to change often.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
