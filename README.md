@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Words to me were magic. You could say a word and it could conjure up all kinds of images or feelings or a chilly sensation or whatever. It was amazing to me that words had this power.</b>
-> <p><i>Amy Tan</i></p>
+> <b>The hardest part was when I was in high school not having a job and always being broke. I had to get to auditions without a car. I either took the bus or walked.</b>
+> <p><i>Cuba Gooding, Jr.</i></p>
 
 <br>
