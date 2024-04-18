@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not some great work of beauty and love to be a rock-and-roll singer.</b>
-> <p><i>Robert Plant</i></p>
+> <b>About the time I turned 50, I experienced the profound biological change that often accompanies women at that age. Also, I put two kids in college and lost both of my parents, so I'm no longer somebody's daughter.</b>
+> <p><i>Jane Pauley</i></p>
 
 <br>
