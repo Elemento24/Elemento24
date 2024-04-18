@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Experience hath shewn, that even under the best forms of government those entrusted with power have, in time, and by slow operations, perverted it into tyranny.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>I discovered something amazing, which has caused a lot of controversy - the fountain of youth. I have to keep it a secret!</b>
+> <p><i>David Copperfield</i></p>
 
 <br>
