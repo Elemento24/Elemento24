@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm still that little girl who lisped and sat in the back of the car and threw vegetables at the back of her head when we drove home from the market. That never goes.</b>
-> <p><i>Tracey Ullman</i></p>
+> <b>In the history of the world, no one has ever washed a rented car.</b>
+> <p><i>Lawrence Summers</i></p>
 
 <br>
