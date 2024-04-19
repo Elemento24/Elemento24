@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To the press alone, chequered as it is with abuses, the world is indebted for all the triumphs which have been gained by reason and humanity over error and oppression.</b>
-> <p><i>James Madison</i></p>
+> <b>And Seaman, just like a falling oak, manages to change direction.</b>
+> <p><i>John Motson</i></p>
 
 <br>
