@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When a parent shows up with an attitude of entitlement, understand that under it is a boatload of anxiety.</b>
-> <p><i>Robert Evans</i></p>
+> <b>To command is to serve, nothing more and nothing less.</b>
+> <p><i>Andre Malraux</i></p>
 
 <br>
