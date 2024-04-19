@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not always possible to sit down and eat at home in this day and age of fast-paced living, but if you are going to eat out, do so as a family and support all the great local places in your areas. I'll still eat at the same diner I did as a kid with my parents.</b>
-> <p><i>Michael Symon</i></p>
+> <b>Americans different in some maybe thoughts or emphasis still have the same ideas. They want a government that lets them be free, that leaves them alone, that doesn't interrupt and interfere with every aspect of their life, that lets them go to work and keep more of what they've worked hard to have.</b>
+> <p><i>Mike Huckabee</i></p>
 
 <br>
