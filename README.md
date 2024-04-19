@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Artists walk alone.</b>
-> <p><i>Ezra Miller</i></p>
+> <b>I feel so good after a workout. Any time you can be alone with yourself is really important.</b>
+> <p><i>Shay Mitchell</i></p>
 
 <br>
