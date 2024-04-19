@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel so good after a workout. Any time you can be alone with yourself is really important.</b>
-> <p><i>Shay Mitchell</i></p>
+> <b>Fail I alone, in words and deeds? Why, all men strive and who succeeds?</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
