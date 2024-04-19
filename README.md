@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter how good you are, how brave you are or anything, it comes down to that car so many times. Not every time, but so many times.</b>
-> <p><i>Danica Patrick</i></p>
+> <b>In places where this beauty has already disappeared, we will reconstruct it.</b>
+> <p><i>Fritz Todt</i></p>
 
 <br>
