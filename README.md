@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can either invade a country or leave them alone and trade with them. When goods cross borders, armies don't.</b>
-> <p><i>John Stossel</i></p>
+> <b>Old age is not a matter for sorrow. It is matter for thanks if we have left our work done behind us.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
