@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Girls are taught to sing high and pretty, like Antony, not low and from the guts like Nina Simone. But we're slowly trying to change that. There are so many things we're not told growing up, and it's our true feminist responsibility to take the truth to the people who need to hear it.</b>
-> <p><i>Beth Ditto</i></p>
+> <b>Is there some risk every day we walk out our front door? Every time we get in our car? Yeah. Are we materially less safe now than we were 10 years ago? Whatever delta there is, it's very small.</b>
+> <p><i>John Hickenlooper</i></p>
 
 <br>
