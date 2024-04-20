@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My feelings about my mortality are less selfish than they used to be. I used to affect a cavalier attitude to death now I see it from my son's perspective.</b>
-> <p><i>Rufus Sewell</i></p>
+> <b>Gorgeous hair is the best revenge.</b>
+> <p><i>Ivana Trump</i></p>
 
 <br>
