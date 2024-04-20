@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Gorgeous hair is the best revenge.</b>
-> <p><i>Ivana Trump</i></p>
+> <b>I think what's really amazing is that given the scale of the web and getting the compute power we have today, we're starting to see things that appear intelligent but actually aren't semantically intelligent.</b>
+> <p><i>Marissa Mayer</i></p>
 
 <br>
