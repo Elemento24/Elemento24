@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Proving I'm a good mother is the one achievement I'm most proud of. It's brought out the best in me.</b>
-> <p><i>Sheena Easton</i></p>
+> <b>You wouldn't want to be called a sell-out by selling a product. Selling out was frowned on, whereas now you can major in it at business school.</b>
+> <p><i>Alan Alda</i></p>
 
 <br>
