@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are no contests in the Art of Peace. A true warrior is invincible because he or she contests with nothing. Defeat means to defeat the mind of contention that we harbor within.</b>
-> <p><i>Morihei Ueshiba</i></p>
+> <b>In art the best is good enough.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
