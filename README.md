@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always turned my anger inwards towards self-destruction.</b>
-> <p><i>Mackenzie Phillips</i></p>
+> <b>It goes without saying that you should never have more children than you have car windows.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
