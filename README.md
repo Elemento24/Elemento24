@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Aging has a wonderful beauty and we should have respect for that.</b>
-> <p><i>Eartha Kitt</i></p>
+> <b>I challenge you to show me where the saloon has ever helped business, education, church, morals or anything we hold dear.</b>
+> <p><i>Billy Sunday</i></p>
 
 <br>
