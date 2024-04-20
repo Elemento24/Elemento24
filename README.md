@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mental attitude and concentration are the keys to pitching.</b>
-> <p><i>Ferguson Jenkins</i></p>
+> <b>My mother is a beauty.</b>
+> <p><i>Mary-Louise Parker</i></p>
 
 <br>
