@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is not a matter for sorrow. It is matter for thanks if we have left our work done behind us.</b>
-> <p><i>Thomas Carlyle</i></p>
+> <b>In modern business it is not the crook who is to be feared most, it is the honest man who doesn't know what he is doing.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
