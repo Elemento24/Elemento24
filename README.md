@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I saw all those other drivers, I realized that they wanted to win that money just as much as I did. But I didn't have to worry. A tire came off my car and I was lucky I got it off the track.</b>
-> <p><i>Buck Baker</i></p>
+> <b>On the surface, rock and roll changes at an amazing pace. The influence of a figure like the Maharishi can appear and disappear in a matter of months. Talk about old fashioned rock and roll finds itself dead before it begins.</b>
+> <p><i>Jon Landau</i></p>
 
 <br>
