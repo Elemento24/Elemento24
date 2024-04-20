@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You wouldn't want to be called a sell-out by selling a product. Selling out was frowned on, whereas now you can major in it at business school.</b>
-> <p><i>Alan Alda</i></p>
+> <b>You can either invade a country or leave them alone and trade with them. When goods cross borders, armies don't.</b>
+> <p><i>John Stossel</i></p>
 
 <br>
