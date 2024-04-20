@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The excitement of learning separates youth from old age. As long as you're learning you're not old.</b>
-> <p><i>Rosalyn S. Yalow</i></p>
+> <b>I've always turned my anger inwards towards self-destruction.</b>
+> <p><i>Mackenzie Phillips</i></p>
 
 <br>
