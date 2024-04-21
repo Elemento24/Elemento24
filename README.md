@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger's not a good emotion.</b>
-> <p><i>Lincoln Chafee</i></p>
+> <b>Your attitude is like a box of crayons that color your world. Constantly color your picture gray, and your picture will always be bleak. Try adding some bright colors to the picture by including humor, and your picture begins to lighten up.</b>
+> <p><i>Allen Klein</i></p>
 
 <br>
