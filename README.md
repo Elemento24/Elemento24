@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty comes with the balance. Everyone should find his own balance in his personal as well as his professional life. Once you do so, you will feel and look beautiful.</b>
-> <p><i>Karolina Kurkova</i></p>
+> <b>After all, it is the divinity within that makes the divinity without and I have been more fascinated by a woman of talent and intelligence, though deficient in personal charms, than I have been by the most regular beauty.</b>
+> <p><i>Washington Irving</i></p>
 
 <br>
