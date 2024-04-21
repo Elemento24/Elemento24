@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our attitude toward life determines life's attitude towards us.</b>
-> <p><i>John N. Mitchell</i></p>
+> <b>But on second thought, after I decreed the state of emergency, I came to the conclusion that that was impossible to achieve without bloodshed because the street protesters were full of anger and nearly out of control. This is why I thought we needed to find another way out.</b>
+> <p><i>Eduard Shevardnadze</i></p>
 
 <br>
