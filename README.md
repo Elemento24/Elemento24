@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The superior man understands what is right the inferior man understands what will sell.</b>
-> <p><i>Confucius</i></p>
+> <b>The beauty comes with the balance. Everyone should find his own balance in his personal as well as his professional life. Once you do so, you will feel and look beautiful.</b>
+> <p><i>Karolina Kurkova</i></p>
 
 <br>
