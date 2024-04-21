@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You've just got to have a sense of respect for the person you have children with. Anger doesn't help anybody. Ultimately you have to say forgiveness is important, and honoring what you had together is important. But it's easy to say and harder to do.</b>
-> <p><i>Nicole Kidman</i></p>
+> <b>You'll live. Only the best get killed.</b>
+> <p><i>Charles de Gaulle</i></p>
 
 <br>
