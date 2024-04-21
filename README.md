@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But on second thought, after I decreed the state of emergency, I came to the conclusion that that was impossible to achieve without bloodshed because the street protesters were full of anger and nearly out of control. This is why I thought we needed to find another way out.</b>
-> <p><i>Eduard Shevardnadze</i></p>
+> <b>Everyone talks about age, but it's not about age. It's about work ethic. Winning never gets old.</b>
+> <p><i>Lisa Leslie</i></p>
 
 <br>
