@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of the best ideas I get seem to happen when I'm doing mindless manual labor or exercise. I'm not sure how that happens, but it leaves me free for remarkable ideas to occur.</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>Anger's not a good emotion.</b>
+> <p><i>Lincoln Chafee</i></p>
 
 <br>
