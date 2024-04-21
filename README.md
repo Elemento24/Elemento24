@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is a manifestation of a deeper issue... and that, for me, is based on insecurity, self-esteem and loneliness.</b>
-> <p><i>Naomi Campbell</i></p>
+> <b>The superior man understands what is right the inferior man understands what will sell.</b>
+> <p><i>Confucius</i></p>
 
 <br>
