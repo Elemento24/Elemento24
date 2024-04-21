@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You'll live. Only the best get killed.</b>
-> <p><i>Charles de Gaulle</i></p>
+> <b>Spiritual space is lost in gaining convenience. I saw the need to create a mixture of Japanese spiritual culture and modern western architecture.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
