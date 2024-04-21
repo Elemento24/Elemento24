@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Design is about point of view, and there should be some sort of woman or lifestyle or attitude in one's head as a designer.</b>
-> <p><i>Vera Wang</i></p>
+> <b>You've just got to have a sense of respect for the person you have children with. Anger doesn't help anybody. Ultimately you have to say forgiveness is important, and honoring what you had together is important. But it's easy to say and harder to do.</b>
+> <p><i>Nicole Kidman</i></p>
 
 <br>
