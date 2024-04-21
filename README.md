@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Negro banks, as a rule, have failed because the people, taught that their own pioneers in business cannot function in this sphere, withdrew their deposits.</b>
-> <p><i>Carter G. Woodson</i></p>
+> <b>The biggest disease this day and age is that of people feeling unloved.</b>
+> <p><i>Princess Diana</i></p>
 
 <br>
