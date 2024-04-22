@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ethics is in origin the art of recommending to others the sacrifices required for cooperation with oneself.</b>
-> <p><i>Bertrand Russell</i></p>
+> <b>It is rare to find a business partner who is selfless. If you are lucky it happens once in a lifetime.</b>
+> <p><i>Michael Eisner</i></p>
 
 <br>
