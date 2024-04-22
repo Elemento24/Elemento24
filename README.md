@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The amazing thing now is that most of those so-called critics who were telling me to find my own voice seem to have lost theirs.</b>
-> <p><i>Brian Lumley</i></p>
+> <b>In art as in love, instinct is enough.</b>
+> <p><i>Anatole France</i></p>
 
 <br>
