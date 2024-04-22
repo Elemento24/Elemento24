@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In art as in love, instinct is enough.</b>
-> <p><i>Anatole France</i></p>
+> <b>Business, you know, may bring you money, but friendship hardly ever does.</b>
+> <p><i>Jane Austen</i></p>
 
 <br>
