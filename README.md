@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is rare to find a business partner who is selfless. If you are lucky it happens once in a lifetime.</b>
-> <p><i>Michael Eisner</i></p>
+> <b>There's a lot of great movies that have won the Academy Award, and a lot of great movies that haven't. You just do the best you can.</b>
+> <p><i>Clint Eastwood</i></p>
 
 <br>
