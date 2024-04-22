@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been sober for two-and-a-half years, My children are happy. In August, my wife and I will celebrate our fifteenth wedding anniversary. My band is back together with a sold-out tour.</b>
-> <p><i>Trey Anastasio</i></p>
+> <b>All those lessons that I've learned on the court, I have applied them to my life outside of the court in business, my company, called V Starr interiors, an interior design company, and EleVen, which I wear on court.</b>
+> <p><i>Venus Williams</i></p>
 
 <br>
