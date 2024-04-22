@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rashness belongs to youth prudence to old age.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>No person will make a great business who wants to do it all himself or get all the credit.</b>
+> <p><i>Andrew Carnegie</i></p>
 
 <br>
