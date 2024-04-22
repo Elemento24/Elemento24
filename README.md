@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ah, mon cher, for anyone who is alone, without God and without a master, the weight of days is dreadful.</b>
-> <p><i>Albert Camus</i></p>
+> <b>There is something sinister, something quite biographical about what I do - but that part is for me. It's my personal business. I think there is a lot of romance, melancholy. There's a sadness to it, but there's romance in sadness. I suppose I am a very melancholy person.</b>
+> <p><i>Alexander McQueen</i></p>
 
 <br>
