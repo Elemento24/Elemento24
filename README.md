@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a lot of great movies that have won the Academy Award, and a lot of great movies that haven't. You just do the best you can.</b>
-> <p><i>Clint Eastwood</i></p>
+> <b>I've been sober for two-and-a-half years, My children are happy. In August, my wife and I will celebrate our fifteenth wedding anniversary. My band is back together with a sold-out tour.</b>
+> <p><i>Trey Anastasio</i></p>
 
 <br>
