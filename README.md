@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best things in life are silly.</b>
-> <p><i>Scott Adams</i></p>
+> <b>Rashness belongs to youth prudence to old age.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
