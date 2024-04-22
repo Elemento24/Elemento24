@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just want to continue to break barriers and to show the industry and the world that beauty is diverse, and you don't have to be a certain stereotype to be beautiful.</b>
-> <p><i>Joan Smalls</i></p>
+> <b>Ethics is in origin the art of recommending to others the sacrifices required for cooperation with oneself.</b>
+> <p><i>Bertrand Russell</i></p>
 
 <br>
