@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fairness is not an attitude. It's a professional skill that must be developed and exercised.</b>
-> <p><i>Brit Hume</i></p>
+> <b>Ah, mon cher, for anyone who is alone, without God and without a master, the weight of days is dreadful.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
