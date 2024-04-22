@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is something sinister, something quite biographical about what I do - but that part is for me. It's my personal business. I think there is a lot of romance, melancholy. There's a sadness to it, but there's romance in sadness. I suppose I am a very melancholy person.</b>
-> <p><i>Alexander McQueen</i></p>
+> <b>I just want to continue to break barriers and to show the industry and the world that beauty is diverse, and you don't have to be a certain stereotype to be beautiful.</b>
+> <p><i>Joan Smalls</i></p>
 
 <br>
