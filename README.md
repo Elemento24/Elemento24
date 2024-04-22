@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We also listen to PJ Harvey a lot of driving music. You need something a little more relaxing in the car.</b>
-> <p><i>Brody Armstrong</i></p>
+> <b>The amazing thing now is that most of those so-called critics who were telling me to find my own voice seem to have lost theirs.</b>
+> <p><i>Brian Lumley</i></p>
 
 <br>
