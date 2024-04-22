@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business, you know, may bring you money, but friendship hardly ever does.</b>
-> <p><i>Jane Austen</i></p>
+> <b>Fairness is not an attitude. It's a professional skill that must be developed and exercised.</b>
+> <p><i>Brit Hume</i></p>
 
 <br>
