@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's what happens nowadays with people working on computers. They can so easily fix things with their mouse and take out all the, 'Oh, somebody coughed in the background we need to take that out' - or somebody hit a bad note. Those are all the best moments.</b>
-> <p><i>Jack White</i></p>
+> <b>When did it become a problem to be a small businessman and become successful? The small businessman - like my father, or like me?</b>
+> <p><i>Glenn Beck</i></p>
 
 <br>
