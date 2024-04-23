@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men was formed for society, and is neither capable of living alone, nor has the courage to do it.</b>
-> <p><i>William Blackstone</i></p>
+> <b>I just make it my business to get along with people so I can have fun. It's that simple.</b>
+> <p><i>Betty White</i></p>
 
 <br>
