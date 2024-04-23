@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you're in the car, how well you do is down to you and you alone-no band, no management, no marketing.</b>
-> <p><i>Nick Mason</i></p>
+> <b>Men was formed for society, and is neither capable of living alone, nor has the courage to do it.</b>
+> <p><i>William Blackstone</i></p>
 
 <br>
