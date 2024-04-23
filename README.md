@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I find that the best way to do things is to constantly move forward and to never doubt anything and keep moving forward, if you make a mistake say you made a mistake.</b>
-> <p><i>John Frusciante</i></p>
+> <b>I got to work with Jennifer Tilly, she was amazing. Such, such a smart actress.</b>
+> <p><i>April Bowlby</i></p>
 
 <br>
