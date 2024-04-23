@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think having a child can really change you if you're open to it.</b>
-> <p><i>Tori Amos</i></p>
+> <b>The democracy process provides for political and social change without violence.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
