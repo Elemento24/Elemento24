@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I write now I do not invent situation, characters, or actions, but rather structures and discursive forms, textual groupings which are combined according to secret affinities among themselves, as in architecture or the plastic arts.</b>
-> <p><i>Juan Goytisolo</i></p>
+> <b>In any architecture, there is an equity between the pragmatic function and the symbolic function.</b>
+> <p><i>Michael Graves</i></p>
 
 <br>
