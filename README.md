@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do right. Do your best. Treat others as you want to be treated.</b>
-> <p><i>Lou Holtz</i></p>
+> <b>I'm single, footloose and fancy free, I have no responsibilities, no anchors. Work, friendship and self-improvement, that's me.</b>
+> <p><i>Joel Edgerton</i></p>
 
 <br>
