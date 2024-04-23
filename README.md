@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in an age of mediocrity.</b>
-> <p><i>Lauren Bacall</i></p>
+> <b>When you're in the car, how well you do is down to you and you alone-no band, no management, no marketing.</b>
+> <p><i>Nick Mason</i></p>
 
 <br>
