@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To give anything less than your best, is to sacrifice the gift.</b>
-> <p><i>Steve Prefontaine</i></p>
+> <b>Do right. Do your best. Treat others as you want to be treated.</b>
+> <p><i>Lou Holtz</i></p>
 
 <br>
