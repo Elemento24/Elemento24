@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm single, footloose and fancy free, I have no responsibilities, no anchors. Work, friendship and self-improvement, that's me.</b>
-> <p><i>Joel Edgerton</i></p>
+> <b>The biggest challenge is how to affect public attitudes and make people care.</b>
+> <p><i>Jim Fowler</i></p>
 
 <br>
