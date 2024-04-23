@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In any architecture, there is an equity between the pragmatic function and the symbolic function.</b>
-> <p><i>Michael Graves</i></p>
+> <b>I hate vacations. If you can build buildings, why sit on the beach?</b>
+> <p><i>Philip Johnson</i></p>
 
 <br>
