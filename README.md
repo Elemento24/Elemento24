@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't count out other amazing programming like Frontline. You will still find more hours of in-depth news programming, investigative journalism and analysis on PBS than on any other outlet.</b>
-> <p><i>Gwen Ifill</i></p>
+> <b>I find that the best way to do things is to constantly move forward and to never doubt anything and keep moving forward, if you make a mistake say you made a mistake.</b>
+> <p><i>John Frusciante</i></p>
 
 <br>
