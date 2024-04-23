@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do the best you can, and don't take life too serious.</b>
-> <p><i>Will Rogers</i></p>
+> <b>Change before you have to.</b>
+> <p><i>Jack Welch</i></p>
 
 <br>
