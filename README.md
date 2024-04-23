@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fashion fosters cliches of beauty, but I want to tear them apart.</b>
-> <p><i>Miuccia Prada</i></p>
+> <b>Do the best you can, and don't take life too serious.</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
