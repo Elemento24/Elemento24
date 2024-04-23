@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate vacations. If you can build buildings, why sit on the beach?</b>
-> <p><i>Philip Johnson</i></p>
+> <b>It is difficult to make our material condition better by the best law, but it is easy enough to ruin it by bad laws.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
