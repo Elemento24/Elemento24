@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just make it my business to get along with people so I can have fun. It's that simple.</b>
-> <p><i>Betty White</i></p>
+> <b>Marriage is an act of will that signifies and involves a mutual gift, which unites the spouses and binds them to their eventual souls, with whom they make up a sole family - a domestic church.</b>
+> <p><i>Pope John Paul II</i></p>
 
 <br>
