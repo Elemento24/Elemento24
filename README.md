@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In our open society, we are inclined to give to the less fortunate for the pure goodness of giving. We open our home to those who are alone on this holiday to spread some warmth into the life of another.</b>
-> <p><i>Jeff Miller</i></p>
+> <b>To speak of morals in art is to speak of legislature in sex. Art is the sex of the imagination.</b>
+> <p><i>George Jean Nathan</i></p>
 
 <br>
