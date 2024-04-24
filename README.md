@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Walk on a rainbow trail walk on a trail of song, and all about you will be beauty. There is a way out of every dark mist, over a rainbow trail.</b>
-> <p><i>Robert Motherwell</i></p>
+> <b>The great increase of our population throughout the Union will alone produce an important effect, and in no quarter will it be so sensibly felt as in those in contemplation.</b>
+> <p><i>James Monroe</i></p>
 
 <br>
