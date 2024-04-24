@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of the people I know who work out seriously do so because they have such an amazing outlook on life. To be who I want to be, I'm going to work out to be more positive, more active. It's proactive.</b>
-> <p><i>John Krasinski</i></p>
+> <b>My heart has been heavy and I have deliberated within my own conscience, knowing that my decision should not come out of my initial emotion of anger toward the President for such reckless behavior, but should be based on the facts.</b>
+> <p><i>Blanche Lincoln</i></p>
 
 <br>
