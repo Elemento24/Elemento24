@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We hold that the most wonderful and splendid proof of genius is a great poem produced in a civilized age.</b>
-> <p><i>Thomas B. Macaulay</i></p>
+> <b>I really liked the helicopter pilot in 'Dawn of the Dead', when he gets bitten and comes out of the elevator. That guy was amazing. He did this incredible walk that we didn't even know about until we started shooting.</b>
+> <p><i>George A. Romero</i></p>
 
 <br>
