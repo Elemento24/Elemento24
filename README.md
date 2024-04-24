@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Women are smart in business and dumb in love. They won't date outside their zip code, let alone outside the city. They are city snobs.</b>
-> <p><i>Patti Stanger</i></p>
+> <b>Most of the people I know who work out seriously do so because they have such an amazing outlook on life. To be who I want to be, I'm going to work out to be more positive, more active. It's proactive.</b>
+> <p><i>John Krasinski</i></p>
 
 <br>
