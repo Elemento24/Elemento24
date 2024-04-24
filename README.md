@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Almost all of your life is lived by the seat of your pants, one unexpected event crashing into another, with no pattern or reason, and then you finally reach a point, around my age, where you spend more time than ever looking back. Why did this happen? Look where that led? You see the shape of things.</b>
-> <p><i>Ron Perlman</i></p>
+> <b>I don't want to wake up and not truly be enjoying my life and these amazing things around me.</b>
+> <p><i>LeAnn Rimes</i></p>
 
 <br>
