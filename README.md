@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am Jose Mourinho and I don't change. I arrive with all my qualities and my defects.</b>
-> <p><i>Jose Mourinho</i></p>
+> <b>In our open society, we are inclined to give to the less fortunate for the pure goodness of giving. We open our home to those who are alone on this holiday to spread some warmth into the life of another.</b>
+> <p><i>Jeff Miller</i></p>
 
 <br>
