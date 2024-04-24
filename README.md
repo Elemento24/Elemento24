@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In this world nothing can be said to be certain, except death and taxes.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>When you're in the car, how well you do is down to you and you alone-no band, no management, no marketing.</b>
+> <p><i>Nick Mason</i></p>
 
 <br>
