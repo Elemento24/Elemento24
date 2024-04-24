@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I told my father I wanted to play the banjo, and so he saved the money and got ready to give me a banjo for my next birthday, and between that time and my birthday, I lost interest in the banjo and was playing guitar.</b>
-> <p><i>Jackson Browne</i></p>
+> <b>Driving with one foot on the accelerator and the other on the brake is likely to get you nowhere, but certainly will burn out vital parts of your car. Similarly, cutting taxes on the middle class, but increasing them on the 'rich' is likely to result in an economic burnout.</b>
+> <p><i>Terry Savage</i></p>
 
 <br>
