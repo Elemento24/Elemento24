@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The great increase of our population throughout the Union will alone produce an important effect, and in no quarter will it be so sensibly felt as in those in contemplation.</b>
-> <p><i>James Monroe</i></p>
+> <b>Right actions in the future are the best apologies for bad actions in the past.</b>
+> <p><i>Tryon Edwards</i></p>
 
 <br>
