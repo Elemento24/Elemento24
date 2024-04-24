@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you're in the car, how well you do is down to you and you alone-no band, no management, no marketing.</b>
-> <p><i>Nick Mason</i></p>
+> <b>I told my father I wanted to play the banjo, and so he saved the money and got ready to give me a banjo for my next birthday, and between that time and my birthday, I lost interest in the banjo and was playing guitar.</b>
+> <p><i>Jackson Browne</i></p>
 
 <br>
