@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To speak of morals in art is to speak of legislature in sex. Art is the sex of the imagination.</b>
-> <p><i>George Jean Nathan</i></p>
+> <b>Sometimes if you want to see a change for the better, you have to take things into your own hands.</b>
+> <p><i>Clint Eastwood</i></p>
 
 <br>
