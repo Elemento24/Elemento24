@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes if you want to see a change for the better, you have to take things into your own hands.</b>
-> <p><i>Clint Eastwood</i></p>
+> <b>We hold that the most wonderful and splendid proof of genius is a great poem produced in a civilized age.</b>
+> <p><i>Thomas B. Macaulay</i></p>
 
 <br>
