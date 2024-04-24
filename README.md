@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Thank you' is the best prayer that anyone could say. I say that one a lot. Thank you expresses extreme gratitude, humility, understanding.</b>
-> <p><i>Alice Walker</i></p>
+> <b>Dad almost died of a heart attack in the middle of making Apocalypse Now, the biggest movie of his life. It doesn't make you want to jump into that business.</b>
+> <p><i>Charlie Sheen</i></p>
 
 <br>
