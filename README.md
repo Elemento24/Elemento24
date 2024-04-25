@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty ought to look a little surprised: it is the emotion that best suits her face. The beauty who does not look surprised, who accepts her position as her due - she reminds us too much of a prima donna.</b>
-> <p><i>E. M. Forster</i></p>
+> <b>We all like to forgive, and love best not those who offend us least, nor who have done most for us, but those who make it most easy for us to forgive them.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
