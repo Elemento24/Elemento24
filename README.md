@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody's business is nobody's business, and nobody's business is my business.</b>
-> <p><i>Clara Barton</i></p>
+> <b>I went to India and met some people who had been involved in this guerrilla business, middle-class people who were rather vain and foolish. There was no revolutionary grandeur to it. Nothing.</b>
+> <p><i>V. S. Naipaul</i></p>
 
 <br>
