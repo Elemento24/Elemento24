@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beyonce is the most amazing woman in the world.</b>
-> <p><i>Chris O'Dowd</i></p>
+> <b>But the reason I became, why I wanted to be in the business was because there was Midnight Cowboy.</b>
+> <p><i>Jodie Foster</i></p>
 
 <br>
