@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But the reason I became, why I wanted to be in the business was because there was Midnight Cowboy.</b>
-> <p><i>Jodie Foster</i></p>
+> <b>Of all the planets apart from Earth in our solar system, Mars is the most hospitable. Yeah. Right. Better keep my visit short. And yet, despite the discomfort, the danger, I love it here. I love coming back for these imaginary vacations. The sights are amazing.</b>
+> <p><i>Greg Bear</i></p>
 
 <br>
