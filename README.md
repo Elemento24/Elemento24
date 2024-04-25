@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People must feel that the natural world is important and valuable and beautiful and wonderful and an amazement and a pleasure.</b>
-> <p><i>David Attenborough</i></p>
+> <b>But there is a discomfort that surrounds grief. It makes even the most well-intentioned people unsure of what to say. And so many of the freshly bereaved end up feeling even more alone.</b>
+> <p><i>Meghan O'Rourke</i></p>
 
 <br>
