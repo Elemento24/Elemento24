@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But there is a discomfort that surrounds grief. It makes even the most well-intentioned people unsure of what to say. And so many of the freshly bereaved end up feeling even more alone.</b>
-> <p><i>Meghan O'Rourke</i></p>
+> <b>My point is that perceptual bias can affect nut jobs and scientists alike. If we hold too rigidly to what we think we know, we ignore or avoid evidence of anything that might change our mind.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
