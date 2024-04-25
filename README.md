@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of all the planets apart from Earth in our solar system, Mars is the most hospitable. Yeah. Right. Better keep my visit short. And yet, despite the discomfort, the danger, I love it here. I love coming back for these imaginary vacations. The sights are amazing.</b>
-> <p><i>Greg Bear</i></p>
+> <b>She had lost the art of conversation but not, unfortunately, the power of speech.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
