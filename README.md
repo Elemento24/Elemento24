@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a mom, I don't have much time for beauty.</b>
-> <p><i>Idina Menzel</i></p>
+> <b>In giving freedom to the slave, we assure freedom to the free - honorable alike in what we give and what we preserve. We shall nobly save, or meanly lose, the last best hope of earth.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
