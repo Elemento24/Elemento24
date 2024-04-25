@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>She had lost the art of conversation but not, unfortunately, the power of speech.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>People must feel that the natural world is important and valuable and beautiful and wonderful and an amazement and a pleasure.</b>
+> <p><i>David Attenborough</i></p>
 
 <br>
