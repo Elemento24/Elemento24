@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I arrived in California with no job, no car, and no money, but, like millions of other girls, a dream.</b>
-> <p><i>Victoria Principal</i></p>
+> <b>Time plays a role in almost every decision. And some decisions define your attitude about time.</b>
+> <p><i>John Cale</i></p>
 
 <br>
