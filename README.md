@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maria is the best reason to come home.</b>
-> <p><i>Arnold Schwarzenegger</i></p>
+> <b>Beyonce is the most amazing woman in the world.</b>
+> <p><i>Chris O'Dowd</i></p>
 
 <br>
