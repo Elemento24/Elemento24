@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let me be absolutely clear. Israel is a strong friend of Israel's. It will be a strong friend of Israel's under a McCain administration. It will be a strong friend of Israel's under an Obama administration. So that policy is not going to change.</b>
-> <p><i>Barack Obama</i></p>
+> <b>Every year of my life I grow more convinced that it is wisest and best to fix our attention on the beautiful and the good, and dwell as little as possible on the evil and the false.</b>
+> <p><i>Richard Cecil</i></p>
 
 <br>
