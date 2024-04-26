@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is danger in reckless change, but greater danger in blind conservatism.</b>
-> <p><i>Henry George</i></p>
+> <b>Great tragedy has come to us, and we are meeting it with the best that is in our country, with courage and concern for others because this is America. This is who we are.</b>
+> <p><i>George W. Bush</i></p>
 
 <br>
