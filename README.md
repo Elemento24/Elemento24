@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all like to forgive, and love best not those who offend us least, nor who have done most for us, but those who make it most easy for us to forgive them.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>A lot of folks believe their best years are behind them. But I want Americans to recognize that's not true.</b>
+> <p><i>Mehmet Oz</i></p>
 
 <br>
