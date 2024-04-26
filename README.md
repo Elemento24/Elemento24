@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great tragedy has come to us, and we are meeting it with the best that is in our country, with courage and concern for others because this is America. This is who we are.</b>
-> <p><i>George W. Bush</i></p>
+> <b>My habit would have been to veer towards the dark - to prove I was something edgy, or maybe to prove that I was cognisant of the dark side. Now, with age and confidence, I can say, yeah, that's true, but I am cognisant of the fact that people can do things well. And can be more loving than you expect.</b>
+> <p><i>George Saunders</i></p>
 
 <br>
