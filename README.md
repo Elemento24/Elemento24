@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have designed the most buildings of any living American architect.</b>
-> <p><i>Alexander Jackson Davis</i></p>
+> <b>I paint with shapes.</b>
+> <p><i>Alexander Calder</i></p>
 
 <br>
