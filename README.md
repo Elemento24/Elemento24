@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is the learned game, correct and magnificent, of forms assembled in the light.</b>
-> <p><i>Le Corbusier</i></p>
+> <b>Well, I started conducting kind of by accident. I wanted to give myself a special birthday present for my fortieth birthday, and I was living in San Francisco at the time and I started attending some of the concerts and then simply dropping hints.</b>
+> <p><i>Bobby McFerrin</i></p>
 
 <br>
