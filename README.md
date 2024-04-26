@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I paint with shapes.</b>
-> <p><i>Alexander Calder</i></p>
+> <b>Old age is the most unexpected of all things that happen to a man.</b>
+> <p><i>Leon Trotsky</i></p>
 
 <br>
