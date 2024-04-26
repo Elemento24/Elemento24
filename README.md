@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My best friend is the one who brings out the best in me.</b>
-> <p><i>Henry Ford</i></p>
+> <b>There is danger in reckless change, but greater danger in blind conservatism.</b>
+> <p><i>Henry George</i></p>
 
 <br>
