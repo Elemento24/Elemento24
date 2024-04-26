@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of folks believe their best years are behind them. But I want Americans to recognize that's not true.</b>
-> <p><i>Mehmet Oz</i></p>
+> <b>Watching Bernadette Peters perform is like an acting class. She's amazing.</b>
+> <p><i>Jenna Ushkowitz</i></p>
 
 <br>
