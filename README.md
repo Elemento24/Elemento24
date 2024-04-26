@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I work alone, my process is like painting. With Fleetwood Mac, it's more like movie making.</b>
-> <p><i>Lindsey Buckingham</i></p>
+> <b>I know no subject more elevating, more amazing, more ready to the poetical enthusiasm, the philosophical reflection, and the moral sentiment than the works of nature. Where can we meet such variety, such beauty, such magnificence?</b>
+> <p><i>James Thomson</i></p>
 
 <br>
