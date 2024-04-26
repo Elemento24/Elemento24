@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whoever incites anger has a strong insurance against indifference.</b>
-> <p><i>Philip Stanhope</i></p>
+> <b>I have designed the most buildings of any living American architect.</b>
+> <p><i>Alexander Jackson Davis</i></p>
 
 <br>
