@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every year of my life I grow more convinced that it is wisest and best to fix our attention on the beautiful and the good, and dwell as little as possible on the evil and the false.</b>
-> <p><i>Richard Cecil</i></p>
+> <b>Architecture is the learned game, correct and magnificent, of forms assembled in the light.</b>
+> <p><i>Le Corbusier</i></p>
 
 <br>
