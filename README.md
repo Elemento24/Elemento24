@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your anger is a gift.</b>
-> <p><i>Zack de la Rocha</i></p>
+> <b>Whoever incites anger has a strong insurance against indifference.</b>
+> <p><i>Philip Stanhope</i></p>
 
 <br>
