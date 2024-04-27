@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our company is built on people - those who work for us, and those we do business with.</b>
-> <p><i>Harvey S. Firestone</i></p>
+> <b>The days when a car aficionado could repair his or her own car are long past, due primarily to the high software content.</b>
+> <p><i>Marc Andreessen</i></p>
 
 <br>
