@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to read books and be alone I'm not social butterfly person.</b>
-> <p><i>Hope Solo</i></p>
+> <b>Beauty will be convulsive or will not be at all.</b>
+> <p><i>Andre Breton</i></p>
 
 <br>
