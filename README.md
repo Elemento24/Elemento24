@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My grandma's the most careful, safe driver in the world. You put her in a rental car, and she's doing doughnuts in the K-Mart parking lot!</b>
-> <p><i>Jeff Foxworthy</i></p>
+> <b>I have so many different personalities in me and I still feel lonely.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
