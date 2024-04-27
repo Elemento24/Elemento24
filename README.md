@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have experienced some amazing food! Yet when I think about the most luxurious and exquisite meals I have had, visions of simple food made from a few natural ingredients are what most excite me.</b>
-> <p><i>Mark Hyman</i></p>
+> <b>Our company is built on people - those who work for us, and those we do business with.</b>
+> <p><i>Harvey S. Firestone</i></p>
 
 <br>
