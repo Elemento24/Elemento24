@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The days when a car aficionado could repair his or her own car are long past, due primarily to the high software content.</b>
+> <b>One of the advantages of moving quickly is if you do something wrong you can change it. What technologies tend to do is they tend to make a lot of mistakes... but then we go back and aggressively attack those mistakes - and fix them. And you usually recover pretty quickly.</b>
 > <p><i>Marc Andreessen</i></p>
 
 <br>
