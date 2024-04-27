@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For Forms of Government let fools contest whatever is best administered is best.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>I never do any television without chocolate. That's my motto and I live by it. Quite often I write the scripts and I make sure there are chocolate scenes. Actually I'm a bit of a chocolate tart and will eat anything. It's amazing I'm so slim.</b>
+> <p><i>Dawn French</i></p>
 
 <br>
