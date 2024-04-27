@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whosoever desires constant success must change his conduct with the times.</b>
-> <p><i>Niccolo Machiavelli</i></p>
+> <b>I have several writer friends, but I don't involve them in my work process. I'm more likely to talk about the business of publishing with them.</b>
+> <p><i>Jodi Picoult</i></p>
 
 <br>
