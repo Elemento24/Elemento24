@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have several writer friends, but I don't involve them in my work process. I'm more likely to talk about the business of publishing with them.</b>
-> <p><i>Jodi Picoult</i></p>
+> <b>Organisations are now confronted with two sources of change: the traditional type that is initiated and managed and external changes over which no one has control.</b>
+> <p><i>Margaret J. Wheatley</i></p>
 
 <br>
