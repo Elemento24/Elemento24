@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Solitude, though it may be silent as light, is like light, the mightiest of agencies for solitude is essential to man. All men come into this world alone and leave it alone.</b>
-> <p><i>Thomas de Quincey</i></p>
+> <b>People must feel that the natural world is important and valuable and beautiful and wonderful and an amazement and a pleasure.</b>
+> <p><i>David Attenborough</i></p>
 
 <br>
