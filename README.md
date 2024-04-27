@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look at the Afghans, during the time of the Soviet invasion. They were among the poorest Muslims in the world, yet they were sustained by their faith in God, and God alone.</b>
-> <p><i>Abu Bakar Bashir</i></p>
+> <b>I have experienced some amazing food! Yet when I think about the most luxurious and exquisite meals I have had, visions of simple food made from a few natural ingredients are what most excite me.</b>
+> <p><i>Mark Hyman</i></p>
 
 <br>
