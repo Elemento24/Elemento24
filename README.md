@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Memories are like mulligatawny soup in a cheap restaurant. It is best not to stir them.</b>
-> <p><i>P. G. Wodehouse</i></p>
+> <b>We're living in an era of unprecedented change, and I want to be a part of documenting it.</b>
+> <p><i>Ron Fournier</i></p>
 
 <br>
