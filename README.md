@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're living in an era of unprecedented change, and I want to be a part of documenting it.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>I recorded a song called, I Fall to Pieces, and I was in a car wreck. Now I'm worried because I have a brand-new record, and it's called Crazy!</b>
+> <p><i>Patsy Cline</i></p>
 
 <br>
