@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The capacity for not feeling lonely can carry a very real price, that of feeling nothing at all.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>But the reason I became, why I wanted to be in the business was because there was Midnight Cowboy.</b>
+> <p><i>Jodie Foster</i></p>
 
 <br>
