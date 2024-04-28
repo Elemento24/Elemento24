@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to get old gracefully. I want to have good posture, I want to be healthy and be an example to my children.</b>
-> <p><i>Sting</i></p>
+> <b>When I think of art I think of beauty. Beauty is the mystery of life. It is not in the eye it is in the mind. In our minds there is awareness of perfection.</b>
+> <p><i>Agnes Martin</i></p>
 
 <br>
