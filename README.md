@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are all revolutionaries now, addicts of change.</b>
-> <p><i>Christopher Lasch</i></p>
+> <b>Freedom is the sure possession of those alone who have the courage to defend it.</b>
+> <p><i>Pericles</i></p>
 
 <br>
