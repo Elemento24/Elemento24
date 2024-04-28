@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's ironic that at age 32, at probably the greatest moment of my career, with The Godfather having such an enormous success, I wasn't even aware of it, because I was somewhere else under the deadline again.</b>
-> <p><i>Francis Ford Coppola</i></p>
+> <b>We are all revolutionaries now, addicts of change.</b>
+> <p><i>Christopher Lasch</i></p>
 
 <br>
