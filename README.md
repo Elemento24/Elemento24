@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course this is Vegas and it is the melting pot for all over the world, but people from all over the world know Donny and Marie. It is amazing. I have been in the business a long time to realize careers can be fleeting. Five years is a long career nowadays for some people, and here we are still going strong after 40 years.</b>
-> <p><i>Donny Osmond</i></p>
+> <b>The car is a character in the piece - I've never liked the car, I submitted to it's objectionable popularity.</b>
+> <p><i>Paul M. Glaser</i></p>
 
 <br>
