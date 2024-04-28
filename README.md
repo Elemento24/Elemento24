@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I recorded a song called, I Fall to Pieces, and I was in a car wreck. Now I'm worried because I have a brand-new record, and it's called Crazy!</b>
-> <p><i>Patsy Cline</i></p>
+> <b>You need a whole community to raise a child. I have raised two children, alone.</b>
+> <p><i>Toni Morrison</i></p>
 
 <br>
