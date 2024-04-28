@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Isn't life a series of images that change as they repeat themselves?</b>
-> <p><i>Andy Warhol</i></p>
+> <b>The capacity for not feeling lonely can carry a very real price, that of feeling nothing at all.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
