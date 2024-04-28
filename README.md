@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I think of art I think of beauty. Beauty is the mystery of life. It is not in the eye it is in the mind. In our minds there is awareness of perfection.</b>
-> <p><i>Agnes Martin</i></p>
+> <b>Religion is essentially the art and the theory of the remaking of man. Man is not a finished creation.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
