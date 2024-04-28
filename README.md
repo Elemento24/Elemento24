@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But the reason I became, why I wanted to be in the business was because there was Midnight Cowboy.</b>
-> <p><i>Jodie Foster</i></p>
+> <b>I want to get old gracefully. I want to have good posture, I want to be healthy and be an example to my children.</b>
+> <p><i>Sting</i></p>
 
 <br>
