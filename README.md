@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The car is a character in the piece - I've never liked the car, I submitted to it's objectionable popularity.</b>
-> <p><i>Paul M. Glaser</i></p>
+> <b>No enterprise, small or large, public or private, can remain self-governing, let alone successful, so deeply in hock to others as we are about to be.</b>
+> <p><i>Mitch Daniels</i></p>
 
 <br>
