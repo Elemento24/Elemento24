@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After all, the chief business of the American people is business. They are profoundly concerned with producing, buying, selling, investing and prospering in the world.</b>
-> <p><i>Calvin Coolidge</i></p>
+> <b>Either the car is stationary, or it's on the move.</b>
+> <p><i>Murray Walker</i></p>
 
 <br>
