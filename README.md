@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course, the ideal scenario for parenting is obviously two parents of a mature age.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>A lot of people say I'd miss show business if I quit. I'd miss some of it. Now it's the only life I know.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
