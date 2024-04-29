@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought of Paris as a beauty spot on the face of the earth, and of London as a big freckle.</b>
-> <p><i>James Weldon Johnson</i></p>
+> <b>I think that in itself is kind of an amazing achievement to be able to say that your full-time career is in any creative arts, let alone a show that has kept people interested for coming on four seasons and hopefully more.</b>
+> <p><i>Anna Paquin</i></p>
 
 <br>
