@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of people say I'd miss show business if I quit. I'd miss some of it. Now it's the only life I know.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>I do not understand how it is that financial institutions could think that they could take taxpayer money and then turn around and act like it's business as usual. I don't understand how they can't see that the world has changed in a fundamental way, that it is not business as usual when you take taxpayer dollars.</b>
+> <p><i>Elizabeth Warren</i></p>
 
 <br>
