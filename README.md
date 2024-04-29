@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Either the car is stationary, or it's on the move.</b>
-> <p><i>Murray Walker</i></p>
+> <b>Auction houses run a rigged game. They know exactly how many people will be bidding on a work and exactly who they are. In a gallery, works of art need only one person who wants to pay for them.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
