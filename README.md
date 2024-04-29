@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No enterprise, small or large, public or private, can remain self-governing, let alone successful, so deeply in hock to others as we are about to be.</b>
-> <p><i>Mitch Daniels</i></p>
+> <b>Home, nowadays, is a place where part of the family waits till the rest of the family brings the car back.</b>
+> <p><i>Earl Wilson</i></p>
 
 <br>
