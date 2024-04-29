@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that in itself is kind of an amazing achievement to be able to say that your full-time career is in any creative arts, let alone a show that has kept people interested for coming on four seasons and hopefully more.</b>
-> <p><i>Anna Paquin</i></p>
+> <b>I think naturally, if you're an actor, there's a high level of assertiveness that you need to have to survive this business. There's boldness in being assertive, and there's strength and confidence.</b>
+> <p><i>Bryan Cranston</i></p>
 
 <br>
