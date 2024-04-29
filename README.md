@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The history of my life must begin by the earliest circumstance which my memory can evoke it will therefore commence when I had attained the age of eight years and four months.</b>
-> <p><i>Giacomo Casanova</i></p>
+> <b>I was the first spokesperson for the Better Hearing Institute in Washington. And that's the message we tried to send out - there is hearing help out there, and the technology and options are amazing.</b>
+> <p><i>Norm Crosby</i></p>
 
 <br>
