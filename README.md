@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look, everything that you experience as a kid is the foundation of how you are today. I was brought up in a working class family in Leeds and when it comes to money both my parents worked hard and instilled the same attitude into me.</b>
-> <p><i>Melanie Brown</i></p>
+> <b>I'd always thought the Rats were good fun, but one of the very nice things about being of Saga age is that I can actually look back and think, When I was younger I was in a great band. It was always a collective thing.</b>
+> <p><i>Bob Geldof</i></p>
 
 <br>
