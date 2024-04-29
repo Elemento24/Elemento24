@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Auction houses run a rigged game. They know exactly how many people will be bidding on a work and exactly who they are. In a gallery, works of art need only one person who wants to pay for them.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I basically left Texas with no money. I was making $3.50 working in some mall, so I didn't have a lot of cash. I took $1,000 and headed to California. Along the way I stopped in Vegas because I had always wanted to see Caesar's Palace. So I stopped there and won $2,500 on a slot machine! It was amazing.</b>
+> <p><i>Krista Allen</i></p>
 
 <br>
