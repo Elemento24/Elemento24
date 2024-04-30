@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You get to a certain age where you prepare yourself for happiness. Sometimes you never remember to actually get happy.</b>
-> <p><i>John Mayer</i></p>
+> <b>The best subjects are always people, who never fail to amaze me by their unpredictability.</b>
+> <p><i>Ronnie James Dio</i></p>
 
 <br>
