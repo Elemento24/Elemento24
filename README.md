@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is Art. Everything else is everything else.</b>
-> <p><i>Ad Reinhardt</i></p>
+> <b>I want it said of me by those who knew me best, that I always plucked a thistle and planted a flower where I thought a flower would grow.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
