@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never been to a race car race before.</b>
-> <p><i>Christina Ricci</i></p>
+> <b>I mean, I've always been a libertarian. Leave everybody alone. Let everybody else do what they want. Just stay out of everybody else's hair.</b>
+> <p><i>Clint Eastwood</i></p>
 
 <br>
