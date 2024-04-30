@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our task, of course, is to transmute the anger that is affliction into the anger that is determination to bring about change. I think, in fact, that one could give that as a definition of revolution.</b>
-> <p><i>Barbara Deming</i></p>
+> <b>Alas! how little does the memory of these human inhabitants enhance the beauty of the landscape!</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
