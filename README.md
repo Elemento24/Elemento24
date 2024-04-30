@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd always thought the Rats were good fun, but one of the very nice things about being of Saga age is that I can actually look back and think, When I was younger I was in a great band. It was always a collective thing.</b>
-> <p><i>Bob Geldof</i></p>
+> <b>We live in an age where anonymity is growing in magnitude like a bomb going off.</b>
+> <p><i>Jock Sturges</i></p>
 
 <br>
