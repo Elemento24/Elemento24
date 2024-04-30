@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A nation devoid of art and artists cannot have a full existence.</b>
-> <p><i>Kemal Ataturk</i></p>
+> <b>If truth is beauty, how come no one has their hair done in the library?</b>
+> <p><i>Lily Tomlin</i></p>
 
 <br>
