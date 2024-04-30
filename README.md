@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The summer of 2002 at the Wilson birthday party I met Van Dyke again and I made plans to have dinner with him.</b>
-> <p><i>Matthew Sweet</i></p>
+> <b>I've never been to a race car race before.</b>
+> <p><i>Christina Ricci</i></p>
 
 <br>
