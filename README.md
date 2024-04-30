@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best subjects are always people, who never fail to amaze me by their unpredictability.</b>
-> <p><i>Ronnie James Dio</i></p>
+> <b>I was born at the age of twelve on an MGM lot.</b>
+> <p><i>Judy Garland</i></p>
 
 <br>
