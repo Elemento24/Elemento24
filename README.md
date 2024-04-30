@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alas! how little does the memory of these human inhabitants enhance the beauty of the landscape!</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Art is Art. Everything else is everything else.</b>
+> <p><i>Ad Reinhardt</i></p>
 
 <br>
