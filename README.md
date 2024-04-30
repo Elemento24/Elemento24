@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If truth is beauty, how come no one has their hair done in the library?</b>
-> <p><i>Lily Tomlin</i></p>
+> <b>If any man claims the Negro should be content... let him say he would willingly change the color of his skin and go to live in the Negro section of a large city. Then and only then has he a right to such a claim.</b>
+> <p><i>Robert Kennedy</i></p>
 
 <br>
