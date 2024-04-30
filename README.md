@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The American attitude towards efficiency and execution should always underlie architecture.</b>
-> <p><i>Helmut Jahn</i></p>
+> <b>The art of living well and the art of dying well are one.</b>
+> <p><i>Epicurus</i></p>
 
 <br>
