@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not a pastime but a priesthood.</b>
-> <p><i>Jean Cocteau</i></p>
+> <b>I know how bad Albany is. I know it better than most. I understand why people are angry. I'm angry. The question is going to be, how do you change Albany, what is the plan for change, and then how do you actually get it done?</b>
+> <p><i>Andrew Cuomo</i></p>
 
 <br>
