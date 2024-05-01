@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While the river of life glides along smoothly, it remains the same river only the landscape on either bank seems to change.</b>
-> <p><i>Max Muller</i></p>
+> <b>I am a contradictory mess but I see it as my prerogative to change my mood like the weather.</b>
+> <p><i>Shirley Manson</i></p>
 
 <br>
