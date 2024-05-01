@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing like the way people feel after they've seen 'The Intouchables.' They feel amazing. The word of mouth on this film is incredible. It's intelligent-feeling good. You're not insulted by the low-browness or stupidity of some of the humor. It's so smart and terrific.</b>
-> <p><i>Harvey Weinstein</i></p>
+> <b>And often it would be a woman who was in her 70s or 80s who would win the beauty contest, because bound feet never age.</b>
+> <p><i>Lisa See</i></p>
 
 <br>
