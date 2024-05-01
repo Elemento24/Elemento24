@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God always gives His best to those who leave the choice with him.</b>
-> <p><i>Jim Elliot</i></p>
+> <b>Definition of Statistics: The science of producing unreliable facts from reliable figures.</b>
+> <p><i>Evan Esar</i></p>
 
 <br>
