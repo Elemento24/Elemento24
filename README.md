@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's how you look at beauty. Is it only an outward appearance with hair and makeup and a hot body, or is it something deeper than that?</b>
-> <p><i>Hilary Swank</i></p>
+> <b>While the river of life glides along smoothly, it remains the same river only the landscape on either bank seems to change.</b>
+> <p><i>Max Muller</i></p>
 
 <br>
