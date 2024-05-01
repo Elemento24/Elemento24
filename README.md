@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While a large segment of the art world has obsessed over a tiny number of stars and their prices, an aesthetic shift has been occurring. It's not a movement - movements are more sure of themselves. It's a change of mood or expectation, a desire for art to be more than showy effects, big numbers, and gamesmanship.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Mathematics are the result of mysterious powers which no one understands, and which the unconscious recognition of beauty must play an important part. Out of an infinity of designs a mathematician chooses one pattern for beauty's sake and pulls it down to earth.</b>
+> <p><i>Marston Morse</i></p>
 
 <br>
