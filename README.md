@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The highest art is always the most religious, and the greatest artist is always a devout person.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>No, but way before that, I've been doing little dances in movies for years. Yeah, that was an amazing chance. You know, at my age to be able to do a music dance video, very unusual.</b>
+> <p><i>Christopher Walken</i></p>
 
 <br>
