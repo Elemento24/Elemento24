@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a contradictory mess but I see it as my prerogative to change my mood like the weather.</b>
-> <p><i>Shirley Manson</i></p>
+> <b>People criticized me for my photography. They said it's not art.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
