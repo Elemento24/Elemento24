@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mathematics are the result of mysterious powers which no one understands, and which the unconscious recognition of beauty must play an important part. Out of an infinity of designs a mathematician chooses one pattern for beauty's sake and pulls it down to earth.</b>
-> <p><i>Marston Morse</i></p>
+> <b>Americans have so far put up with inequality because they felt they could change their status. They didn't mind others being rich, as long as they had a path to move up as well. The American Dream is all about social mobility in a sense - the idea that anyone can make it.</b>
+> <p><i>Fareed Zakaria</i></p>
 
 <br>
