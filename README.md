@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Americans have so far put up with inequality because they felt they could change their status. They didn't mind others being rich, as long as they had a path to move up as well. The American Dream is all about social mobility in a sense - the idea that anyone can make it.</b>
-> <p><i>Fareed Zakaria</i></p>
+> <b>There is nothing like the way people feel after they've seen 'The Intouchables.' They feel amazing. The word of mouth on this film is incredible. It's intelligent-feeling good. You're not insulted by the low-browness or stupidity of some of the humor. It's so smart and terrific.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
