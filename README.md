@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My imagination completely controls me, and forever feeds the fire that burns with dark red light in my heart by bringing me the best dreams. I've always had a wild imagination, a big heart and a tortured soul so I feel that dark fantasy, love and horror are in my blood.</b>
-> <p><i>Kim Elizabeth</i></p>
+> <b>Writing about music is like dancing about architecture.</b>
+> <p><i>Martin Mull</i></p>
 
 <br>
