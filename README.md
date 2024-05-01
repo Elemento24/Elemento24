@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know how bad Albany is. I know it better than most. I understand why people are angry. I'm angry. The question is going to be, how do you change Albany, what is the plan for change, and then how do you actually get it done?</b>
-> <p><i>Andrew Cuomo</i></p>
+> <b>It is impossible for you to be angry and laugh at the same time. Anger and laughter are mutually exclusive and you have the power to choose either.</b>
+> <p><i>Wayne Dyer</i></p>
 
 <br>
