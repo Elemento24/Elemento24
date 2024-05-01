@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is a gamble. You can get hurt, but people die in plane crashes, lose their arms and legs in car accidents people die every day. Same with fighters: some die, some get hurt, some go on. You just don't let yourself believe it will happen to you.</b>
-> <p><i>Muhammad Ali</i></p>
+> <b>We have mountain of debt that isn't going away and all the problems are here to stay, and anybody who tells you that is a good thing ought to get out of the business of helping the government down the road.</b>
+> <p><i>Rick Santelli</i></p>
 
 <br>
