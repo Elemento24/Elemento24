@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People criticized me for my photography. They said it's not art.</b>
-> <p><i>David Hockney</i></p>
+> <b>Life is a gamble. You can get hurt, but people die in plane crashes, lose their arms and legs in car accidents people die every day. Same with fighters: some die, some get hurt, some go on. You just don't let yourself believe it will happen to you.</b>
+> <p><i>Muhammad Ali</i></p>
 
 <br>
