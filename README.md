@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have mountain of debt that isn't going away and all the problems are here to stay, and anybody who tells you that is a good thing ought to get out of the business of helping the government down the road.</b>
-> <p><i>Rick Santelli</i></p>
+> <b>My imagination completely controls me, and forever feeds the fire that burns with dark red light in my heart by bringing me the best dreams. I've always had a wild imagination, a big heart and a tortured soul so I feel that dark fantasy, love and horror are in my blood.</b>
+> <p><i>Kim Elizabeth</i></p>
 
 <br>
