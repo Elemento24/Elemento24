@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now we're in the midst of not just advocating for change, not just calling for change - we're doing the grinding, sometimes frustrating work of delivering change - inch by inch, day by day.</b>
-> <p><i>Barack Obama</i></p>
+> <b>My sisters and I were fortunate to travel through Asia and Europe at very young ages. We confronted extraordinary beauty in Athens and unspeakable poverty in India.</b>
+> <p><i>Mary Chapin Carpenter</i></p>
 
 <br>
