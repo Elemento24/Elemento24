@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rather than saying, 'My checking account is a wreck,' change it to 'I will learn how to track my spending and balance my checkbook.'</b>
-> <p><i>Suze Orman</i></p>
+> <b>The perfection of art is to conceal art.</b>
+> <p><i>Quintilian</i></p>
 
 <br>
