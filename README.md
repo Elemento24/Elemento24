@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and brains, pleasure and usability - they should go hand in hand.</b>
-> <p><i>Donald Norman</i></p>
+> <b>Blood alone moves the wheels of history.</b>
+> <p><i>Martin Luther</i></p>
 
 <br>
