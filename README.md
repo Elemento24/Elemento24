@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got two old Volvos, two old Subarus, and an old Ford Ranger. If you've got an old car, you've gotta have at least several old cars, 'cause one's always gonna be in the garage.</b>
-> <p><i>Rip Torn</i></p>
+> <b>The day before my 16th birthday I got my guitar.</b>
+> <p><i>Stevie Nicks</i></p>
 
 <br>
