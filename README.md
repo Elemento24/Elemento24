@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One thing that is almost always said to me is, I grew up with you. They are meeting me and feel that they actually grew up with me. I was with them during their play hours and thinking hours. I was a part of their childhoods. That's one of the most amazing things.</b>
-> <p><i>Mark Goddard</i></p>
+> <b>Many museums are drawing audiences with art that is ostensibly more entertaining than stuff that just sits and invites contemplation. Interactivity, gizmos, eating, hanging out, things that make noise - all are now the norm, often edging out much else.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
