@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man sits in his car at the traffic lights, waiting for them to go green.</b>
-> <p><i>Michael Frayn</i></p>
+> <b>Anger is a momentary madness, so control your passion or it will control you.</b>
+> <p><i>G. M. Trevelyan</i></p>
 
 <br>
