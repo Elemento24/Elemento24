@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm in London, Claridge's is a great favourite. I'm a big fan of art deco architecture and the rooms are extraordinary.</b>
-> <p><i>Roman Coppola</i></p>
+> <b>One thing that is almost always said to me is, I grew up with you. They are meeting me and feel that they actually grew up with me. I was with them during their play hours and thinking hours. I was a part of their childhoods. That's one of the most amazing things.</b>
+> <p><i>Mark Goddard</i></p>
 
 <br>
