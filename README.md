@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Solitude is strength to depend on the presence of the crowd is weakness. The man who needs a mob to nerve him is much more alone than he imagines.</b>
-> <p><i>Paul Brunton</i></p>
+> <b>When I'm in London, Claridge's is a great favourite. I'm a big fan of art deco architecture and the rooms are extraordinary.</b>
+> <p><i>Roman Coppola</i></p>
 
 <br>
