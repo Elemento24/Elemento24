@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Definition of Statistics: The science of producing unreliable facts from reliable figures.</b>
-> <p><i>Evan Esar</i></p>
+> <b>The best time I ever had with Joan Crawford was when I pushed her down the stairs in Whatever Happened to Baby Jane?</b>
+> <p><i>Bette Davis</i></p>
 
 <br>
