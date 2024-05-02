@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is a momentary madness, so control your passion or it will control you.</b>
-> <p><i>G. M. Trevelyan</i></p>
+> <b>Now we're in the midst of not just advocating for change, not just calling for change - we're doing the grinding, sometimes frustrating work of delivering change - inch by inch, day by day.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
