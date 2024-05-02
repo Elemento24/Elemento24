@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yet for my part, deeply as I am moved by the religious architecture of the Middle Ages, I cannot honestly say that I ever felt the slightest emotion in any modern Gothic church.</b>
-> <p><i>Goldwin Smith</i></p>
+> <b>I've got two old Volvos, two old Subarus, and an old Ford Ranger. If you've got an old car, you've gotta have at least several old cars, 'cause one's always gonna be in the garage.</b>
+> <p><i>Rip Torn</i></p>
 
 <br>
