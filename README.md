@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You will also allow me to thank the Academy for inviting me to lecture in Stockholm, for its hospitality, and for the opportunity afforded me for admiring the charm of your people and the beauty of your country.</b>
-> <p><i>Guglielmo Marconi</i></p>
+> <b>I cry out for order and find it only in art.</b>
+> <p><i>Helen Hayes</i></p>
 
 <br>
