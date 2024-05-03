@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is inhabited sculpture.</b>
-> <p><i>Constantin Brancusi</i></p>
+> <b>Emotions have no place in business, unless you do business with them.</b>
+> <p><i>Friedrich Durrenmatt</i></p>
 
 <br>
