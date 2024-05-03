@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only thing I do on a computer is play Texas Hold 'Em, really. Obviously my cell phone is a computer. My car is a computer. I'm on computers every day without actively seeking them out.</b>
-> <p><i>John Hawkes</i></p>
+> <b>The Lord had the wonderful advantage of being able to work alone.</b>
+> <p><i>Kofi Annan</i></p>
 
 <br>
