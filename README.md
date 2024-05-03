@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe fundamental honesty is the keystone of business.</b>
-> <p><i>Harvey S. Firestone</i></p>
+> <b>It is not strange... to mistake change for progress.</b>
+> <p><i>Millard Fillmore</i></p>
 
 <br>
