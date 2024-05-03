@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unlike a drop of water which loses its identity when it joins the ocean, man does not lose his being in the society in which he lives. Man's life is independent. He is born not for the development of the society alone, but for the development of his self.</b>
-> <p><i>B. R. Ambedkar</i></p>
+> <b>The future is not Big Government. Self-serving politicians. Powerful bureaucrats. This has been tried, tested throughout history. The result has always been disaster. President Obama, your agenda is not new. It's not change, and it's not hope.</b>
+> <p><i>Rush Limbaugh</i></p>
 
 <br>
