@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I suppose there's an anger in all of us. Some hidden rage that you keep at bay.</b>
-> <p><i>Dominic Cooper</i></p>
+> <b>Words do not change their meanings so drastically in the course of centuries as, in our minds, names do in the course of a year or two.</b>
+> <p><i>Marcel Proust</i></p>
 
 <br>
