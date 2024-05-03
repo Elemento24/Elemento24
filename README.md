@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is not a particularly interesting subject. Anyone can get old. All you have to do is live long enough.</b>
-> <p><i>Don Marquis</i></p>
+> <b>I don't run a car, have never run a car. I could say that this is because I have this extremely tender environmentalist conscience, but the fact is I hate driving.</b>
+> <p><i>David Attenborough</i></p>
 
 <br>
