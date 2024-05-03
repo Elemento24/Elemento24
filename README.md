@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A nation devoid of art and artists cannot have a full existence.</b>
-> <p><i>Kemal Ataturk</i></p>
+> <b>It is not in the nature of politics that the best men should be elected. The best men do not want to govern their fellowmen.</b>
+> <p><i>George MacDonald</i></p>
 
 <br>
