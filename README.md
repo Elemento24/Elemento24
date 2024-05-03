@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My sisters and I were fortunate to travel through Asia and Europe at very young ages. We confronted extraordinary beauty in Athens and unspeakable poverty in India.</b>
-> <p><i>Mary Chapin Carpenter</i></p>
+> <b>I'm not busy... a woman with three children under the age of 10 wouldn't think my schedule looked so busy.</b>
+> <p><i>Garrison Keillor</i></p>
 
 <br>
