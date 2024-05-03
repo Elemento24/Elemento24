@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not busy... a woman with three children under the age of 10 wouldn't think my schedule looked so busy.</b>
-> <p><i>Garrison Keillor</i></p>
+> <b>The only thing I do on a computer is play Texas Hold 'Em, really. Obviously my cell phone is a computer. My car is a computer. I'm on computers every day without actively seeking them out.</b>
+> <p><i>John Hawkes</i></p>
 
 <br>
