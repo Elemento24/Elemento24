@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bad news isn't wine. It doesn't improve with age.</b>
-> <p><i>Colin Powell</i></p>
+> <b>I believe fundamental honesty is the keystone of business.</b>
+> <p><i>Harvey S. Firestone</i></p>
 
 <br>
