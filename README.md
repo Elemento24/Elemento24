@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know if you can change things, but it's a drop in the ocean.</b>
-> <p><i>Julie Walters</i></p>
+> <b>I suppose there's an anger in all of us. Some hidden rage that you keep at bay.</b>
+> <p><i>Dominic Cooper</i></p>
 
 <br>
