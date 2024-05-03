@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hath the spirit of all beauty Kissed you in the path of duty?</b>
-> <p><i>Anna Katharine Green</i></p>
+> <b>I'm not out here to win a beauty contest.</b>
+> <p><i>Kirk Gibson</i></p>
 
 <br>
