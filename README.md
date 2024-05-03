@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once I got out of architecture school I decided not to be an architect, I just started my own little design studio.</b>
-> <p><i>Joseph Kosinski</i></p>
+> <b>An artist must be a reactionary. He has to stand out against the tenor of the age and not go flopping along.</b>
+> <p><i>Andre Maurois</i></p>
 
 <br>
