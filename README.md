@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the great reward of service, to live, far out and on, in the life of others this is the mystery of Christ, - to give life's best for such high sake that it shall be found again unto life eternal.</b>
-> <p><i>Joshua Chamberlain</i></p>
+> <b>Nothing is as real as a dream. The world can change around you, but your dream will not. Responsibilities need not erase it. Duties need not obscure it. Because the dream is within you, no one can take it away.</b>
+> <p><i>Tom Clancy</i></p>
 
 <br>
