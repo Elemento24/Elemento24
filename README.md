@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only on paper has humanity yet achieved glory, beauty, truth, knowledge, virtue, and abiding love.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>All the world is birthday cake, so take a piece, but not too much.</b>
+> <p><i>George Harrison</i></p>
 
 <br>
