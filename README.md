@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great nations write their autobiographies in three manuscripts - the book of their deeds, the book of their words and the book of their art.</b>
-> <p><i>John Ruskin</i></p>
+> <b>There are no rules of architecture for a castle in the clouds.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
