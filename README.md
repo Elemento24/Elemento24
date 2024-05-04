@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems like the chaos of this world is accelerating, but so is the beauty in the consciousness of more and more people.</b>
-> <p><i>Anthony Kiedis</i></p>
+> <b>Faith in oneself is the best and safest course.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
