@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a role model now. I didn't know I was gonna have 13-year-old fans, so I've tried to change a few things here and there. But I also know that the girls don't want me to be Miley Cyrus, either.</b>
-> <p><i>Nicki Minaj</i></p>
+> <b>I don't think any movie or any book or any work of art can solve the stalemate in the Middle East today. But it's certainly worth a try.</b>
+> <p><i>Steven Spielberg</i></p>
 
 <br>
