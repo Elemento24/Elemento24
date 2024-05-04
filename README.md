@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty saves. Beauty heals. Beauty motivates. Beauty unites. Beauty returns us to our origins, and here lies the ultimate act of saving, of healing, of overcoming dualism.</b>
-> <p><i>Matthew Fox</i></p>
+> <b>I love nicknames. It makes me feel loved. It makes me feel less alone in this world.</b>
+> <p><i>Ellen Page</i></p>
 
 <br>
