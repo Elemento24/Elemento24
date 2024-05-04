@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not in life, but in art that self-fulfillment is to be found.</b>
-> <p><i>Wilson Mizner</i></p>
+> <b>Art is the daughter of freedom.</b>
+> <p><i>Friedrich Schiller</i></p>
 
 <br>
