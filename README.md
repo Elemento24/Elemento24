@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing... to enjoy the results of your labor.</b>
-> <p><i>Michael Rady</i></p>
+> <b>I'm a role model now. I didn't know I was gonna have 13-year-old fans, so I've tried to change a few things here and there. But I also know that the girls don't want me to be Miley Cyrus, either.</b>
+> <p><i>Nicki Minaj</i></p>
 
 <br>
