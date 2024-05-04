@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Words do not change their meanings so drastically in the course of centuries as, in our minds, names do in the course of a year or two.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>It is not in life, but in art that self-fulfillment is to be found.</b>
+> <p><i>Wilson Mizner</i></p>
 
 <br>
