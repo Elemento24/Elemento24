@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the world is birthday cake, so take a piece, but not too much.</b>
-> <p><i>George Harrison</i></p>
+> <b>Art begins with resistance - at the point where resistance is overcome. No human masterpiece has ever been created without great labor.</b>
+> <p><i>Andre Gide</i></p>
 
 <br>
