@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A change in the weather is sufficient to recreate the world and ourselves.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>Only on paper has humanity yet achieved glory, beauty, truth, knowledge, virtue, and abiding love.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
