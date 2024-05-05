@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are in an electronic technology age now and it's about time we put away the old stuff.</b>
-> <p><i>Monica Edwards</i></p>
+> <b>The leader who exercises power with honor will work from the inside out, starting with himself.</b>
+> <p><i>Blaine Lee</i></p>
 
 <br>
