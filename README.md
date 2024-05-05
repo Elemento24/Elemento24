@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The idea of the sacred is quite simply one of the most conservative notions in any culture, because it seeks to turn other ideas - uncertainty, progress, change - into crimes.</b>
-> <p><i>Salman Rushdie</i></p>
+> <b>I basically started playing violin at the age of six. That lasted about three years because my previous teacher died and the second teacher didn't really know how to successfully get me going.</b>
+> <p><i>Miroslav Vitous</i></p>
 
 <br>
