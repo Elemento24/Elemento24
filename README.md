@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I need that aggressive attitude to play my music and more men have that attitude than women.</b>
-> <p><i>Lita Ford</i></p>
+> <b>Yes, we're still five little people with a noisy attitude.</b>
+> <p><i>Angus Young</i></p>
 
 <br>
