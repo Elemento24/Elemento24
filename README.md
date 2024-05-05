@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The day before my 16th birthday I got my guitar.</b>
-> <p><i>Stevie Nicks</i></p>
+> <b>Pretend to be dumb, that's the only way to reach old age.</b>
+> <p><i>Friedrich Durrenmatt</i></p>
 
 <br>
