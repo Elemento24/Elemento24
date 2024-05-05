@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Polite and velvety leaders, who take care to avoid bruising others, are generally not as effective at forcing change.</b>
-> <p><i>Walter Isaacson</i></p>
+> <b>The best part about being alone is that you really don't have to answer to anybody. You do what you want.</b>
+> <p><i>Justin Timberlake</i></p>
 
 <br>
