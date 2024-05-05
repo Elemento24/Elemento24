@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A major advantage of age is learning to accept people without passing judgment.</b>
-> <p><i>Liz Carpenter</i></p>
+> <b>All change is bad. But sometimes it has to be done.</b>
+> <p><i>P. J. O'Rourke</i></p>
 
 <br>
