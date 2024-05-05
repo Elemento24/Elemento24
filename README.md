@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think women like Ferraris. A Ferrari is everybody's car.</b>
-> <p><i>Tim Allen</i></p>
+> <b>Polite and velvety leaders, who take care to avoid bruising others, are generally not as effective at forcing change.</b>
+> <p><i>Walter Isaacson</i></p>
 
 <br>
