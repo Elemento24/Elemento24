@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just really think every job I do, I get this gypsy attitude to money.</b>
-> <p><i>Jessica Brown Findlay</i></p>
+> <b>Forgiving does not erase the bitter past. A healed memory is not a deleted memory. Instead, forgiving what we cannot forget creates a new way to remember. We change the memory of our past into a hope for our future.</b>
+> <p><i>Lewis B. Smedes</i></p>
 
 <br>
