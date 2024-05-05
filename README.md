@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part about being alone is that you really don't have to answer to anybody. You do what you want.</b>
-> <p><i>Justin Timberlake</i></p>
+> <b>I need that aggressive attitude to play my music and more men have that attitude than women.</b>
+> <p><i>Lita Ford</i></p>
 
 <br>
