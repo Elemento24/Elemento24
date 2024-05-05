@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anybody who really knows about the TV business knows that it would be impossible to just march in one day and say to your colleagues and bosses, 'Oh yes, I'm hosting my own show.'</b>
-> <p><i>Andy Cohen</i></p>
+> <b>This nation has always struggled with how it was going to deal with poor people and people of color. Every few years you will see some great change in the way that they approach this. We've had the war on poverty that never really got into waging a real war on poverty.</b>
+> <p><i>Maxine Waters</i></p>
 
 <br>
