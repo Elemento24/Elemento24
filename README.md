@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are no rules of architecture for a castle in the clouds.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>People like eccentrics. Therefore they will leave me alone, saying that I am a mad clown.</b>
+> <p><i>Vaslav Nijinsky</i></p>
 
 <br>
