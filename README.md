@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pretend to be dumb, that's the only way to reach old age.</b>
-> <p><i>Friedrich Durrenmatt</i></p>
+> <b>In any moment of decision, the best thing you can do is the right thing, the next best thing is the wrong thing, and the worst thing you can do is nothing.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
