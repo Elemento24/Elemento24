@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Forgiving does not erase the bitter past. A healed memory is not a deleted memory. Instead, forgiving what we cannot forget creates a new way to remember. We change the memory of our past into a hope for our future.</b>
-> <p><i>Lewis B. Smedes</i></p>
+> <b>The day before my 16th birthday I got my guitar.</b>
+> <p><i>Stevie Nicks</i></p>
 
 <br>
