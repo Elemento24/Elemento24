@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In art, all who have done something other than their predecessors have merited the epithet of revolutionary and it is they alone who are masters.</b>
-> <p><i>Paul Gauguin</i></p>
+> <b>I'm crazy about my father, he's an amazing man, a real adventurer. He took us with him to travel all over the world. We were in places that were so remote, that white people hardly ever reach them.</b>
+> <p><i>Peta Wilson</i></p>
 
 <br>
