@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ted Danson is amazing. He's incredible.</b>
-> <p><i>Alison Brie</i></p>
+> <b>Government alone cannot solve the problems we deal with in our correctional facilities, treatment centers, homeless shelters and crisis centers - we need our faith-based and community partners.</b>
+> <p><i>Dirk Kempthorne</i></p>
 
 <br>
