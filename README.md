@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Genius begins great works labor alone finishes them.</b>
-> <p><i>Joseph Joubert</i></p>
+> <b>Learn to say 'no' to the good so you can say 'yes' to the best.</b>
+> <p><i>John C. Maxwell</i></p>
 
 <br>
