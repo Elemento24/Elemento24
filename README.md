@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Stories are amazing and powerful because they can resonate with people depending on their needs and experiences and speak truths we need to hear in that moment in time.</b>
-> <p><i>Sue Monk Kidd</i></p>
+> <b>Ads featuring real women and real beauty are such a necessary component to offset the potentially dangerous programming out there for little girls.</b>
+> <p><i>Rashida Jones</i></p>
 
 <br>
