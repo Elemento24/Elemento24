@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is very frightening to feel alone when you are standing against a rich and powerful person and all his attendant helpers.</b>
-> <p><i>Gloria Allred</i></p>
+> <b>There is nothing so stable as change.</b>
+> <p><i>Bob Dylan</i></p>
 
 <br>
