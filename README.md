@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As long as any adult thinks that he, like the parents and teachers of old, can become introspective, invoking his own youth to understand the youth before him, he is lost.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>The best revenge is to be unlike him who performed the injury.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
