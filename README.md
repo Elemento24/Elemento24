@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Learn to say 'no' to the good so you can say 'yes' to the best.</b>
-> <p><i>John C. Maxwell</i></p>
+> <b>In art, all who have done something other than their predecessors have merited the epithet of revolutionary and it is they alone who are masters.</b>
+> <p><i>Paul Gauguin</i></p>
 
 <br>
