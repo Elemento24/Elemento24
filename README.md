@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no planning. On the night it is really great, it's euphoria and if it is not so great there is always tomorrow night. That was his attitude.</b>
-> <p><i>Ed McMahon</i></p>
+> <b>My heart has been heavy and I have deliberated within my own conscience, knowing that my decision should not come out of my initial emotion of anger toward the President for such reckless behavior, but should be based on the facts.</b>
+> <p><i>Blanche Lincoln</i></p>
 
 <br>
