@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have to get back to the beauty of just being alive in this present moment.</b>
-> <p><i>Mary McDonnell</i></p>
+> <b>As long as any adult thinks that he, like the parents and teachers of old, can become introspective, invoking his own youth to understand the youth before him, he is lost.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
