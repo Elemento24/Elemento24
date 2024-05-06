@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing so stable as change.</b>
-> <p><i>Bob Dylan</i></p>
+> <b>Genius begins great works labor alone finishes them.</b>
+> <p><i>Joseph Joubert</i></p>
 
 <br>
