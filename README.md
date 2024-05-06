@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The stores and the things like that, the business side of things came out at the point when, I'd say probably in the early '70s, it looked like the year of the singer-songwriter was over, 'cause music changed in our time and the spotlight was out.</b>
-> <p><i>Jimmy Buffett</i></p>
+> <b>I don't like to work with assistants. I'm already one too many the camera alone would be enough.</b>
+> <p><i>Alfred Eisenstaedt</i></p>
 
 <br>
