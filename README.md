@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With my daughter, we do arts and crafts, we read a lot, we listen to music, and we cut the strings off balloons and bounce them around after birthday parties.</b>
-> <p><i>Lisa Loeb</i></p>
+> <b>I get a lot of the ideas when I'm resting - either when I'm meditating or getting some kind of work done on my back, like physical therapy or acupuncture. That's where I get my best ideas, maybe because I'm balancing my body.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
