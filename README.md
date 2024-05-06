@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best revenge is to be unlike him who performed the injury.</b>
-> <p><i>Marcus Aurelius</i></p>
+> <b>Stories are amazing and powerful because they can resonate with people depending on their needs and experiences and speak truths we need to hear in that moment in time.</b>
+> <p><i>Sue Monk Kidd</i></p>
 
 <br>
