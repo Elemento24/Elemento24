@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Government alone cannot solve the problems we deal with in our correctional facilities, treatment centers, homeless shelters and crisis centers - we need our faith-based and community partners.</b>
-> <p><i>Dirk Kempthorne</i></p>
+> <b>The stores and the things like that, the business side of things came out at the point when, I'd say probably in the early '70s, it looked like the year of the singer-songwriter was over, 'cause music changed in our time and the spotlight was out.</b>
+> <p><i>Jimmy Buffett</i></p>
 
 <br>
