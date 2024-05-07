@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As I have said for many years throughout this land, we're borrowing money from China to buy oil from the Persian Gulf to burn it in ways that destroy the future of human civilization. Every bit of that has to change.</b>
-> <p><i>Al Gore</i></p>
+> <b>This is what I asked for, and in this day and age that's what actually goes on. But what hurts me the most is that I work just as hard as any other actress around my age, like Scarlett Johansson, but I just don't get the opportunities that they get because people are so distracted by the mess that I created in my life.</b>
+> <p><i>Lindsay Lohan</i></p>
 
 <br>
