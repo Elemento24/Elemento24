@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception, it is a prevailing attitude.</b>
-> <p><i>Colin Powell</i></p>
+> <b>All the world is birthday cake, so take a piece, but not too much.</b>
+> <p><i>George Harrison</i></p>
 
 <br>
