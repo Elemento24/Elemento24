@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman can't be alone. She needs a man. A man and a woman support and strengthen each other. She just can't do it by herself.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>Light, God's eldest daughter, is a principal beauty in a building.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
