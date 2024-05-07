@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is what I asked for, and in this day and age that's what actually goes on. But what hurts me the most is that I work just as hard as any other actress around my age, like Scarlett Johansson, but I just don't get the opportunities that they get because people are so distracted by the mess that I created in my life.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>But, if you observe children learning in their first few years of life, you can see that they can and do learn on their own - we leave them alone to crawl, walk, talk, and gain control over their bodies. It happens without much help from parents.</b>
+> <p><i>Daniel Greenberg</i></p>
 
 <br>
