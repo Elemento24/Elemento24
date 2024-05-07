@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reason for the slow progress of the world seems to lie in a single fact. Every man is born under the yoke, and grows up beneath the oppressions of his age.</b>
-> <p><i>John Jay Chapman</i></p>
+> <b>A woman can't be alone. She needs a man. A man and a woman support and strengthen each other. She just can't do it by herself.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
