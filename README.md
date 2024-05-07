@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Culture is the arts elevated to a set of beliefs.</b>
-> <p><i>Thomas Wolfe</i></p>
+> <b>The beginning is the most important part of the work.</b>
+> <p><i>Plato</i></p>
 
 <br>
