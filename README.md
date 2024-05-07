@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age carries all things away, even the mind.</b>
-> <p><i>Virgil</i></p>
+> <b>If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception, it is a prevailing attitude.</b>
+> <p><i>Colin Powell</i></p>
 
 <br>
