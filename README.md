@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I reject the cynical view that politics is a dirty business.</b>
-> <p><i>Richard M. Nixon</i></p>
+> <b>Justice cannot be for one side alone, but must be for both.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
