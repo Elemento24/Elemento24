@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't stop loving or wanting to love because when its right it's the best thing in the world. When you're in a relationship and its good, even if nothing else in your life is right, you feel like your whole world is complete.</b>
-> <p><i>Keith Sweat</i></p>
+> <b>Art is the unceasing effort to compete with the beauty of flowers - and never succeeding.</b>
+> <p><i>Gian Carlo Menotti</i></p>
 
 <br>
