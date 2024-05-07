@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My quick beauty tip is always have a tinted gloss of some kind to give you some color even if you have no makeup on.</b>
-> <p><i>Rachel Bilson</i></p>
+> <b>The reason for the slow progress of the world seems to lie in a single fact. Every man is born under the yoke, and grows up beneath the oppressions of his age.</b>
+> <p><i>John Jay Chapman</i></p>
 
 <br>
