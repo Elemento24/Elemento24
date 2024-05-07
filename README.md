@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Justice cannot be for one side alone, but must be for both.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>I don't like people who have never fallen or stumbled. Their virtue is lifeless and it isn't of much value. Life hasn't revealed its beauty to them.</b>
+> <p><i>Boris Pasternak</i></p>
 
 <br>
