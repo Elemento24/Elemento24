@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We cannot change anything until we accept it. Condemnation does not liberate, it oppresses.</b>
-> <p><i>Carl Jung</i></p>
+> <b>My quick beauty tip is always have a tinted gloss of some kind to give you some color even if you have no makeup on.</b>
+> <p><i>Rachel Bilson</i></p>
 
 <br>
