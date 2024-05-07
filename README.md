@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Light, God's eldest daughter, is a principal beauty in a building.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>Culture is the arts elevated to a set of beliefs.</b>
+> <p><i>Thomas Wolfe</i></p>
 
 <br>
