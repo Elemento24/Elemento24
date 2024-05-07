@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the unceasing effort to compete with the beauty of flowers - and never succeeding.</b>
-> <p><i>Gian Carlo Menotti</i></p>
+> <b>As I have said for many years throughout this land, we're borrowing money from China to buy oil from the Persian Gulf to burn it in ways that destroy the future of human civilization. Every bit of that has to change.</b>
+> <p><i>Al Gore</i></p>
 
 <br>
