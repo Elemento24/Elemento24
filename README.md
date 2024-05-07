@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm crazy about my father, he's an amazing man, a real adventurer. He took us with him to travel all over the world. We were in places that were so remote, that white people hardly ever reach them.</b>
-> <p><i>Peta Wilson</i></p>
+> <b>Age carries all things away, even the mind.</b>
+> <p><i>Virgil</i></p>
 
 <br>
