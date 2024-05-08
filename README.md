@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are always free to change your mind and choose a different future, or a different past.</b>
-> <p><i>Richard Bach</i></p>
+> <b>The true art of memory is the art of attention.</b>
+> <p><i>Samuel Johnson</i></p>
 
 <br>
