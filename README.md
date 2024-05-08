@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People say I'm extravagant because I want to be surrounded by beauty. But tell me, who wants to be surrounded by garbage?</b>
-> <p><i>Imelda Marcos</i></p>
+> <b>The art of creation is older than the art of killing.</b>
+> <p><i>Edward Koch</i></p>
 
 <br>
