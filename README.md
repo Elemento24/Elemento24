@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also had to work through the violation of my date rape, my unhealthy relationships with men, my anger toward the people involved in the scandal, and those who exploited me afterwards.</b>
-> <p><i>Donna Rice</i></p>
+> <b>I knew that by getting behind the wheel of the car and having had something to drink, the responsibility laid on my shoulders.</b>
+> <p><i>Tracey Gold</i></p>
 
 <br>
