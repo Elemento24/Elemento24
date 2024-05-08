@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm trying to build a strong business. I want to create new stars, new shows and new products for my audience and create a legacy that outlives me. There are so many other ways I want to reach women besides doing a talk show.</b>
-> <p><i>Tyra Banks</i></p>
+> <b>I want to work with kids and help develop them, show them the right way, the right morals and attitude into how to become a better footballer. Australia has many different cultures but I'd like to bring in the indigenous style, bring their competitiveness, athleticism and raw ability into the frame.</b>
+> <p><i>Timothy F. Cahill</i></p>
 
 <br>
