@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The true art of memory is the art of attention.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>The ancient Romans built their greatest masterpieces of architecture, their amphitheaters, for wild beasts to fight in.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
