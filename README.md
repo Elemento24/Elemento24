@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's fascinating about D.C., the exteriors are these elaborate structures, this gorgeous architecture and beautiful stonework, and then you go inside and it's crap-looking - apart from the White House, which is beautiful.</b>
-> <p><i>Tony Hale</i></p>
+> <b>People say I'm extravagant because I want to be surrounded by beauty. But tell me, who wants to be surrounded by garbage?</b>
+> <p><i>Imelda Marcos</i></p>
 
 <br>
