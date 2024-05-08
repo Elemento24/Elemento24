@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mission accomplished. The Museum of Modern Art's wide-open, tall-ceilinged, super-reinforced second floor was for all intents and purposes built to accommodate monumental installations and gigantic sculptures, should the need arise. It has arisen.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Those who excel in virtue have the best right of all to rebel, but then they are of all men the least inclined to do so.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
