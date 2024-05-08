@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no abstract art. You must always start with something. Afterward you can remove all traces of reality.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>I'm trying to build a strong business. I want to create new stars, new shows and new products for my audience and create a legacy that outlives me. There are so many other ways I want to reach women besides doing a talk show.</b>
+> <p><i>Tyra Banks</i></p>
 
 <br>
