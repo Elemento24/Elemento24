@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I knew that by getting behind the wheel of the car and having had something to drink, the responsibility laid on my shoulders.</b>
-> <p><i>Tracey Gold</i></p>
+> <b>Every time you get angry, you poison your own system.</b>
+> <p><i>Alfred A. Montapert</i></p>
 
 <br>
