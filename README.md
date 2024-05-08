@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We Jews have a special attachment to the Book. The study of page after page in tomes yellowing with age was obligatory.</b>
-> <p><i>Theodore Bikel</i></p>
+> <b>Auto racing is boring except when a car is going at least 172 miles per hour upside down.</b>
+> <p><i>Dave Barry</i></p>
 
 <br>
