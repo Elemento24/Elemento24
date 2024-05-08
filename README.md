@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude is that if you push me towards something that you think is a weakness, then I will turn that perceived weakness into a strength.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>People say women shouldn't have long hair over a certain age, but I've never done what everyone says.</b>
+> <p><i>Jane Seymour</i></p>
 
 <br>
