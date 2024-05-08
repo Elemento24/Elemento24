@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ancient Romans built their greatest masterpieces of architecture, their amphitheaters, for wild beasts to fight in.</b>
-> <p><i>Voltaire</i></p>
+> <b>Fame changes a lot of things, but it can't change a lightbulb.</b>
+> <p><i>Gilda Radner</i></p>
 
 <br>
