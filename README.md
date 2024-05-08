@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every time you get angry, you poison your own system.</b>
-> <p><i>Alfred A. Montapert</i></p>
+> <b>I never get the accountants in before I start up a business. It's done on gut feeling, especially if I can see that they are taking the mickey out of the consumer.</b>
+> <p><i>Richard Branson</i></p>
 
 <br>
