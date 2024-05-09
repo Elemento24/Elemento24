@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People say women shouldn't have long hair over a certain age, but I've never done what everyone says.</b>
-> <p><i>Jane Seymour</i></p>
+> <b>Fantastic tyrant of the amorous heart. How hard thy yoke, how cruel thy dart. Those escape your anger who refuse your sway, and those are punished most, who most obey.</b>
+> <p><i>Matthew Prior</i></p>
 
 <br>
