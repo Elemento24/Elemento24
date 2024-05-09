@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is the art of choosing between the disastrous and the unpalatable.</b>
-> <p><i>John Kenneth Galbraith</i></p>
+> <b>The way to get things done is not to mind who gets the credit for doing them.</b>
+> <p><i>Benjamin Jowett</i></p>
 
 <br>
