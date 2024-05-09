@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People think, 'She's a model. She must have such an attitude. She must be so stuck up.' But I'm normal. I cry. I'm not rich. I drive a 1987 Chevrolet Celebrity.</b>
-> <p><i>Summer Altice</i></p>
+> <b>The excellency of every art is its intensity, capable of making all disagreeable evaporate.</b>
+> <p><i>John Keats</i></p>
 
 <br>
