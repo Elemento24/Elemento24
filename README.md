@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is being in harmony with what you are.</b>
-> <p><i>Peter Nivio Zarlenga</i></p>
+> <b>I don't think of all the misery but of the beauty that still remains.</b>
+> <p><i>Anne Frank</i></p>
 
 <br>
