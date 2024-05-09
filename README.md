@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life deprived of beauty is not worthy of being called human.</b>
-> <p><i>Luis Barragan</i></p>
+> <b>Beauty is being in harmony with what you are.</b>
+> <p><i>Peter Nivio Zarlenga</i></p>
 
 <br>
