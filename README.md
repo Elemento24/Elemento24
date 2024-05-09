@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The divine right of husbands, like the divine right of kings, may, it is hoped, in this enlightened age, be contested without danger.</b>
-> <p><i>Mary Wollstonecraft</i></p>
+> <b>Woman's at best a contradiction still.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
