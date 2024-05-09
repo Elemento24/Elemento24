@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Inductive reason, which alone makes man master of his environment, is an achievement and when once born it must be reinforced by inhibiting the growth of other modes of knowledge.</b>
-> <p><i>Muhammad Iqbal</i></p>
+> <b>Surely all art is the result of one's having been in danger, of having gone through an experience all the way to the end, where no one can go any further.</b>
+> <p><i>Rainer Maria Rilke</i></p>
 
 <br>
