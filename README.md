@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You should always be well and bright, for so you do your best work and you have so much beautiful work to do. The world needs it, and you must give it!</b>
-> <p><i>Marie Corelli</i></p>
+> <b>The great fear that hung over the business community in the 1970s was death by regulation, and the great goal of the conservative movement, as it rose to triumph in the 1980s, was to remove that threat - to keep OSHA, the EPA, and the FTC from choking off entrepreneurship with their infernal meddling in the marketplace.</b>
+> <p><i>Thomas Frank</i></p>
 
 <br>
