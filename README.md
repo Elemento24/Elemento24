@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never said, 'I want to be alone.' I only said, 'I want to be left alone.' There is all the difference.</b>
-> <p><i>Greta Garbo</i></p>
+> <b>I've never been out with any of the cast of Coronation Street. We're all very close friends so it's very much a professional attitude.</b>
+> <p><i>Richard Fleeshman</i></p>
 
 <br>
