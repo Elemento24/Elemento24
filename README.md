@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every time I got 'Amazing Spider-Man' or 'Fantastic Four' or another book firmly on the rails, we got pulled into some big event book or crossover and it cost momentum and messed badly with the pacing and structure of the book.</b>
-> <p><i>J. Michael Straczynski</i></p>
+> <b>Inductive reason, which alone makes man master of his environment, is an achievement and when once born it must be reinforced by inhibiting the growth of other modes of knowledge.</b>
+> <p><i>Muhammad Iqbal</i></p>
 
 <br>
