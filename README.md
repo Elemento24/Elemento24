@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman's two cents worth is worth two cents in the music business.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>Life deprived of beauty is not worthy of being called human.</b>
+> <p><i>Luis Barragan</i></p>
 
 <br>
