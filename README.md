@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think of all the misery but of the beauty that still remains.</b>
-> <p><i>Anne Frank</i></p>
+> <b>Politics is the art of choosing between the disastrous and the unpalatable.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
