@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Woman's at best a contradiction still.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>We must have ideals and try to live up to them, even if we never quite succeed. Life would be a sorry business without them. With them it's grand and great.</b>
+> <p><i>Lucy Maud Montgomery</i></p>
 
 <br>
