@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There must be a day or two in a man's life when he is the precise age for something important.</b>
-> <p><i>Franklin P. Adams</i></p>
+> <b>I had a lot of anger because I wasn't happy with the way I had been raised.</b>
+> <p><i>Patrick Swayze</i></p>
 
 <br>
