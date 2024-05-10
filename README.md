@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If Galileo had said in verse that the world moved, the inquisition might have let him alone.</b>
-> <p><i>Thomas Hardy</i></p>
+> <b>This year, as we celebrate the 230th anniversary of America's independence, please remember the symbols that are sacred to this country. Fly Old Glory high and show your respect and admiration for this great nation and the values we hold dear.</b>
+> <p><i>Kenny Marchant</i></p>
 
 <br>
