@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty in distress is much the most affecting beauty.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>Childhood: the period of human life intermediate between the idiocy of infancy and the folly of youth - two removes from the sin of manhood and three from the remorse of age.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
