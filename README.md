@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm definitely open to change, but at the same time I am quite stubborn.</b>
-> <p><i>Andy Murray</i></p>
+> <b>A series of rumors about my attitude, as well as derogatory remarks about myself and my family showed me that the personal resentment of the Detroit general manager toward me would make it impossible for me to continue playing hockey in Detroit.</b>
+> <p><i>Ted Lindsay</i></p>
 
 <br>
