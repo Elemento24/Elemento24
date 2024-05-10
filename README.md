@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Childhood: the period of human life intermediate between the idiocy of infancy and the folly of youth - two removes from the sin of manhood and three from the remorse of age.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>Doctrines provide an architecture for both Republican and Democrat presidents to carry out policies.</b>
+> <p><i>Malcolm Wallop</i></p>
 
 <br>
