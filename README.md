@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We also maintain - again with perfect truth - that mystery is more than half of beauty, the element of strangeness that stirs the senses through the imagination.</b>
-> <p><i>Richard Le Gallienne</i></p>
+> <b>Death is the mother of Beauty hence from her, alone, shall come fulfillment to our dreams and our desires.</b>
+> <p><i>Wallace Stevens</i></p>
 
 <br>
