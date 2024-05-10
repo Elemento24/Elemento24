@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had a lot of anger because I wasn't happy with the way I had been raised.</b>
-> <p><i>Patrick Swayze</i></p>
+> <b>The most boring scenes are the scenes where a character is alone.</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
