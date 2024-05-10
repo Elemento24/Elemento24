@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are patronizing the theatres with renewed enthusiasm - there is an entire picnic-like attitude when families go out to see movies, which is a very good sign. They want to see larger-than-life characters on the big screen and not just watch movies on television or on DVDs.</b>
-> <p><i>Salman Khan</i></p>
+> <b>I will never do another TV series. It couldn't top I Love Lucy, and I'd be foolish to try. In this business, you have to know when to get off.</b>
+> <p><i>Lucille Ball</i></p>
 
 <br>
