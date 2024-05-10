@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Doctrines provide an architecture for both Republican and Democrat presidents to carry out policies.</b>
-> <p><i>Malcolm Wallop</i></p>
+> <b>If Galileo had said in verse that the world moved, the inquisition might have let him alone.</b>
+> <p><i>Thomas Hardy</i></p>
 
 <br>
