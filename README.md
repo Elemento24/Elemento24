@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been such a deep and amazing journey for me, getting close to John Keats, and also I love Shelley and Byron. I mean, the thing about the Romantic poets is that they've got the epitaph of romantic posthumously. They all died really young, and Keats, the youngest of them all.</b>
-> <p><i>Jane Campion</i></p>
+> <b>Your most precious, valued possessions and your greatest powers are invisible and intangible. No one can take them. You, and you alone, can give them. You will receive abundance for your giving.</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
