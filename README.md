@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dream of politics all my life has been that it is the common business, that it is something we owe to each other to understand and discuss with absolute frankness.</b>
-> <p><i>Woodrow Wilson</i></p>
+> <b>This anniversary serves to help remind the American people that, in the wake of one of the greatest political scandals and misuse of power in our history as a nation, scandal produced important reforms that served this nation well for two decades.</b>
+> <p><i>Elliot Richardson</i></p>
 
 <br>
