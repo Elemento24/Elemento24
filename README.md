@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Happy the man, and happy he alone, he who can call today his own he who, secure within, can say, tomorrow do thy worst, for I have lived today.</b>
-> <p><i>John Dryden</i></p>
+> <b>The flowers anew, returning seasons bring but beauty faded has no second spring.</b>
+> <p><i>Ambrose Philips</i></p>
 
 <br>
