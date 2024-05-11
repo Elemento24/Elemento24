@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought about how we need to make children feel that there are times in their lives when they need to be alone and quiet and to be able to accept their aloneness.</b>
-> <p><i>Bell Hooks</i></p>
+> <b>Happy the man, and happy he alone, he who can call today his own he who, secure within, can say, tomorrow do thy worst, for I have lived today.</b>
+> <p><i>John Dryden</i></p>
 
 <br>
