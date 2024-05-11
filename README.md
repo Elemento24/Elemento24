@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What breadth, what beauty and power of human nature and development there must be in a woman to get over all the palisades, all the fences, within which she is held captive!</b>
-> <p><i>Alexander Herzen</i></p>
+> <b>I've purged myself of bitterness and anger and remained open to love.</b>
+> <p><i>Tatum O'Neal</i></p>
 
 <br>
