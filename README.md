@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't have the story and the unfolding of the trajectory of the saga, it's like getting in a car and not having any gas.</b>
-> <p><i>Gus Van Sant</i></p>
+> <b>I remember walking the dog one day, I saw a car full of teenage girls, and one of them rolled down the window and yelled, 'Marc Jacobs!' in a French accent.</b>
+> <p><i>Marc Jacobs</i></p>
 
 <br>
