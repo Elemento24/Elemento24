@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty doesn't matter because in the end, we all lose our looks and all we have is our heart.</b>
-> <p><i>Ann Curry</i></p>
+> <b>But it was great, we sit in the same dressing room where, like, Johnny Cash sat and Willie Nelson and all those guys. That was in itself something amazing - I was on the same space these guys stood on, ya know?</b>
+> <p><i>Alan Vega</i></p>
 
 <br>
