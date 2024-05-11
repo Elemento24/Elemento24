@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to be alone very often. I'd be quite happy if I spent from Saturday night until Monday morning alone in my apartment. That's how I refuel.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>If you don't have the story and the unfolding of the trajectory of the saga, it's like getting in a car and not having any gas.</b>
+> <p><i>Gus Van Sant</i></p>
 
 <br>
