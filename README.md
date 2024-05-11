@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wushu is a move in Chinese, a physical move. An attack. Wushu is like an art.</b>
-> <p><i>Jet Li</i></p>
+> <b>I'm from the Madeleine L'Engle school. The more she delves into science, the more she knows there's a creator who's behind these amazing laws, these amazing events. The symmetry of nature, the structure and order of it.</b>
+> <p><i>Tom Shadyac</i></p>
 
 <br>
