@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm from the Madeleine L'Engle school. The more she delves into science, the more she knows there's a creator who's behind these amazing laws, these amazing events. The symmetry of nature, the structure and order of it.</b>
-> <p><i>Tom Shadyac</i></p>
+> <b>I have to be alone very often. I'd be quite happy if I spent from Saturday night until Monday morning alone in my apartment. That's how I refuel.</b>
+> <p><i>Audrey Hepburn</i></p>
 
 <br>
