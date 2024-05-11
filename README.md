@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This anniversary serves to help remind the American people that, in the wake of one of the greatest political scandals and misuse of power in our history as a nation, scandal produced important reforms that served this nation well for two decades.</b>
-> <p><i>Elliot Richardson</i></p>
+> <b>Beauty doesn't matter because in the end, we all lose our looks and all we have is our heart.</b>
+> <p><i>Ann Curry</i></p>
 
 <br>
