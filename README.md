@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty doesn't matter because in the end, we all lose our looks and all we have is our heart.</b>
-> <p><i>Ann Curry</i></p>
+> <b>Be able to live alone, even if you don't want to and think you will never find it necessary.</b>
+> <p><i>Marilyn vos Savant</i></p>
 
 <br>
