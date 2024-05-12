@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Effort only fully releases its reward after a person refuses to quit.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>Now I know that Wal-Mart's policies do not reflect the best way of doing business and the values that I think are important in America.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
