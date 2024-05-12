@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty opened all the doors it got me things I didn't even know I wanted, and things I certainly didn't deserve.</b>
-> <p><i>Janice Dickinson</i></p>
+> <b>The best executive is one who has sense enough to pick good people to do what he wants done, and self-restraint enough to keep from meddling with them while they do it.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
