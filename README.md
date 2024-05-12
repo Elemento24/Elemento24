@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We don't change what we are, we change what we think what we are.</b>
-> <p><i>Eric Butterworth</i></p>
+> <b>The enemy of art is the absence of limitations.</b>
+> <p><i>Orson Welles</i></p>
 
 <br>
