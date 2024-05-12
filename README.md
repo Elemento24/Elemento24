@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not saying I wasn't flawed or amateurish. But you can never say I did anything to appease the music business.</b>
-> <p><i>Patti Smith</i></p>
+> <b>I have a political attitude, but I'm certainly not a politician.</b>
+> <p><i>Kgalema Motlanthe</i></p>
 
 <br>
