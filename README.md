@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how fast generations lose sight of other generations. One of the first things the young composers who come to work with me say is that they want to write music people will like, instead of gaining their credentials by being rejected by the audience.</b>
-> <p><i>Carlisle Floyd</i></p>
+> <b>Success or failure depends more upon attitude than upon capacity successful men act as though they have accomplished or are enjoying something. Soon it becomes a reality. Act, look, feel successful, conduct yourself accordingly, and you will be amazed at the positive results.</b>
+> <p><i>William James</i></p>
 
 <br>
