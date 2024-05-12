@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got tonnes of aboriginal and Native American art, but I'd like even more.</b>
-> <p><i>Tori Amos</i></p>
+> <b>I'm not saying I wasn't flawed or amateurish. But you can never say I did anything to appease the music business.</b>
+> <p><i>Patti Smith</i></p>
 
 <br>
