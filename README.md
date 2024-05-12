@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hope everyone that is reading this is having a really good day. And if you are not, just know that in every new minute that passes you have an opportunity to change that.</b>
-> <p><i>Gillian Anderson</i></p>
+> <b>I've got tonnes of aboriginal and Native American art, but I'd like even more.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
