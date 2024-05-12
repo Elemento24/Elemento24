@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To create architecture is to put in order. Put what in order? Function and objects.</b>
-> <p><i>Le Corbusier</i></p>
+> <b>When you raise taxes on small business, from 35% to 40%, you will kill jobs.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
