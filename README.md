@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a political attitude, but I'm certainly not a politician.</b>
-> <p><i>Kgalema Motlanthe</i></p>
+> <b>I'm lucky that my real-life Mom has both a great sense of humor about herself and an amazing ability to slip into complete denial if the subject matter gets a little too close to home.</b>
+> <p><i>Cathy Guisewite</i></p>
 
 <br>
