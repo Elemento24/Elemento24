@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm lucky that my real-life Mom has both a great sense of humor about herself and an amazing ability to slip into complete denial if the subject matter gets a little too close to home.</b>
-> <p><i>Cathy Guisewite</i></p>
+> <b>Liberalism is a really old British tradition and it has a completely different attitude towards the individual and the relationship between the individual and the state than the collectivist response of Labour, and particularly Old Labour, does.</b>
+> <p><i>Nick Clegg</i></p>
 
 <br>
