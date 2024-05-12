@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's really interesting with art-movies too, but art especially - to see how your attitude toward artists and works and your level of appreciation of them is always shifting and changing over the years.</b>
-> <p><i>Richard Hell</i></p>
+> <b>The want of logic annoys. Too much logic bores. Life eludes logic, and everything that logic alone constructs remains artificial and forced.</b>
+> <p><i>Andre Gide</i></p>
 
 <br>
