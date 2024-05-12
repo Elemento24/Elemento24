@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To this day, I am the least materialistic person I know, because my father didn't raise me to just go out and buy this or that car. The only reason I wanted to make money as an actor was because I'm passionate about food!</b>
-> <p><i>Hugh Jackman</i></p>
+> <b>Be assured those will be thy worst enemies, not to whom thou hast done evil, but who have done evil to thee. And those will be thy best friends, not to whom thou hast done good, but who have done good to thee.</b>
+> <p><i>Tacitus</i></p>
 
 <br>
