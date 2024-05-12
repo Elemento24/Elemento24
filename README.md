@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All things are artificial, for nature is the art of God.</b>
-> <p><i>Thomas Browne</i></p>
+> <b>To this day, I am the least materialistic person I know, because my father didn't raise me to just go out and buy this or that car. The only reason I wanted to make money as an actor was because I'm passionate about food!</b>
+> <p><i>Hugh Jackman</i></p>
 
 <br>
