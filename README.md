@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because society would rather we always wore a pretty face, women have been trained to cut off anger.</b>
-> <p><i>Nancy Friday</i></p>
+> <b>The thought came to me that all one loves in art becomes beautiful. Beauty is nothing but the expression of the fact that something is being loved. Only thus could she be defined.</b>
+> <p><i>Robert Musil</i></p>
 
 <br>
