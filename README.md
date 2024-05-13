@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success or failure depends more upon attitude than upon capacity successful men act as though they have accomplished or are enjoying something. Soon it becomes a reality. Act, look, feel successful, conduct yourself accordingly, and you will be amazed at the positive results.</b>
-> <p><i>William James</i></p>
+> <b>My father always taught by telling stories about his experiences. His lessons were about morality and art and what insects and birds and human beings had in common. He told me what it meant to be a man and to be a Black man. He taught me about love and responsibility, about beauty, and how to make gumbo.</b>
+> <p><i>Walter Mosley</i></p>
 
 <br>
