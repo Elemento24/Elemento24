@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Though the Jazz Age continued it became less and less an affair of youth. The sequel was like a children's party taken over by the elders.</b>
-> <p><i>F. Scott Fitzgerald</i></p>
+> <b>He's computerized, but I won't let him come on cold. I created KITT. I understand the personality of the car.</b>
+> <p><i>William Daniels</i></p>
 
 <br>
