@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He's computerized, but I won't let him come on cold. I created KITT. I understand the personality of the car.</b>
-> <p><i>William Daniels</i></p>
+> <b>The young people have MTV and rock and roll. Why would they go to read poetry? Poetry belongs to the Stone Age. It awakens in us perceptions that go back to those times.</b>
+> <p><i>Robert Morgan</i></p>
 
 <br>
