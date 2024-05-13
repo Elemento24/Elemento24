@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is art that makes life, makes interest, makes importance and I know of no substitute whatever for the force and beauty of its process.</b>
-> <p><i>Max Eastman</i></p>
+> <b>Solitude gives birth to the original in us, to beauty unfamiliar and perilous - to poetry. But also, it gives birth to the opposite: to the perverse, the illicit, the absurd.</b>
+> <p><i>Thomas Mann</i></p>
 
 <br>
