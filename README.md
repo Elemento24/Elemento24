@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What Englishman will give his mind to politics as long as he can afford to keep a motor car?</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>People with high blood pressure, diabetes - those are conditions brought about by life style. If you change the life style, those conditions will leave.</b>
+> <p><i>Dick Gregory</i></p>
 
 <br>
