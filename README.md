@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Central banks don't have divine wisdom. They try to do the best analysis they can and must be prepared to stand or fall by the quality of that analysis.</b>
-> <p><i>Mary Kay Ash</i></p>
+> <b>Television is like the invention of indoor plumbing. It didn't change people's habits. It just kept them inside the house.</b>
+> <p><i>Alfred Hitchcock</i></p>
 
 <br>
