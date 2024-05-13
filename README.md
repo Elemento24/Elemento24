@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People with high blood pressure, diabetes - those are conditions brought about by life style. If you change the life style, those conditions will leave.</b>
-> <p><i>Dick Gregory</i></p>
+> <b>The only rich person is a person who is rich in spirit. I have no money deposit. I have only beauty deposit.</b>
+> <p><i>Imelda Marcos</i></p>
 
 <br>
