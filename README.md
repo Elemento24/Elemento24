@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics are about preserving relationships at the end of the day, and it has nothing to do with the greater good for humanity. It's just all about business.</b>
-> <p><i>will.i.am</i></p>
+> <b>Central banks don't have divine wisdom. They try to do the best analysis they can and must be prepared to stand or fall by the quality of that analysis.</b>
+> <p><i>Mary Kay Ash</i></p>
 
 <br>
