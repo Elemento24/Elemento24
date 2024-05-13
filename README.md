@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty comes from a life well lived. If you've lived well, your smile lines are in the right places, and your frown lines aren't too bad, what more do you need?</b>
-> <p><i>Jennifer Garner</i></p>
+> <b>The denunciation of the young is a necessary part of the hygiene of older people, and greatly assists the circulation of the blood.</b>
+> <p><i>Logan P. Smith</i></p>
 
 <br>
