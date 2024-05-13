@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Solitude gives birth to the original in us, to beauty unfamiliar and perilous - to poetry. But also, it gives birth to the opposite: to the perverse, the illicit, the absurd.</b>
-> <p><i>Thomas Mann</i></p>
+> <b>Beauty comes from a life well lived. If you've lived well, your smile lines are in the right places, and your frown lines aren't too bad, what more do you need?</b>
+> <p><i>Jennifer Garner</i></p>
 
 <br>
