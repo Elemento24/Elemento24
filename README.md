@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The denunciation of the young is a necessary part of the hygiene of older people, and greatly assists the circulation of the blood.</b>
-> <p><i>Logan P. Smith</i></p>
+> <b>What makes old age so sad is not that our joys but our hopes cease.</b>
+> <p><i>Jean Paul</i></p>
 
 <br>
