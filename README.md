@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything that has ever been called folk art has always reflected domination.</b>
-> <p><i>Theodor Adorno</i></p>
+> <b>I believe that no man who holds a leader's position should ever accept favors from either side. He is then committed to show favors. A leader must stand alone.</b>
+> <p><i>Mother Jones</i></p>
 
 <br>
