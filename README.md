@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only rich person is a person who is rich in spirit. I have no money deposit. I have only beauty deposit.</b>
-> <p><i>Imelda Marcos</i></p>
+> <b>Because society would rather we always wore a pretty face, women have been trained to cut off anger.</b>
+> <p><i>Nancy Friday</i></p>
 
 <br>
