@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My father always taught by telling stories about his experiences. His lessons were about morality and art and what insects and birds and human beings had in common. He told me what it meant to be a man and to be a Black man. He taught me about love and responsibility, about beauty, and how to make gumbo.</b>
-> <p><i>Walter Mosley</i></p>
+> <b>What Englishman will give his mind to politics as long as he can afford to keep a motor car?</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
