@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is quite amazing what I didn't feel after a while. I didn't really want to feel things.</b>
-> <p><i>Kate Moss</i></p>
+> <b>Everything that has ever been called folk art has always reflected domination.</b>
+> <p><i>Theodor Adorno</i></p>
 
 <br>
