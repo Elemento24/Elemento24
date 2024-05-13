@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that no man who holds a leader's position should ever accept favors from either side. He is then committed to show favors. A leader must stand alone.</b>
-> <p><i>Mother Jones</i></p>
+> <b>I'm not going to change the world overnight. It's one person at a time, and hopefully they're people in positions of power who can help people get in those roles and really, truly embrace colorblind casting.</b>
+> <p><i>Gabrielle Union</i></p>
 
 <br>
