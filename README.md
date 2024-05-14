@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every age can be enchanting, provided you live within it.</b>
-> <p><i>Brigitte Bardot</i></p>
+> <b>At a young age winning is not the most important thing... the important thing is to develop creative and skilled players with good confidence.</b>
+> <p><i>Arsene Wenger</i></p>
 
 <br>
