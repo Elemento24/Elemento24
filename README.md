@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had never been able to get a car that said how much I cared about the environment until I drove electric.</b>
-> <p><i>Alexandra Paul</i></p>
+> <b>'Untitled' is a time machine that can transport you to 1992, an edgy moment when the art world was crumbling, money was scarce, and artists like Tiravanija were in the nascent stages of combining Happenings, performance art, John Cage, Joseph Beuys, and the do-it-yourself ethos of punk. Meanwhile, a new art world was coming into being.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
