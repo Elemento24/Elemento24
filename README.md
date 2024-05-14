@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No real social change has ever been brought about without a revolution... revolution is but thought carried into action.</b>
-> <p><i>Emma Goldman</i></p>
+> <b>Our best successes often come after our greatest disappointments.</b>
+> <p><i>Henry Ward Beecher</i></p>
 
 <br>
