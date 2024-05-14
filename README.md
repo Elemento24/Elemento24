@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The same things we've done the past couple of seasons. We've worked on the engine and clutch. We'll try and pick up the performance and consistency of the car and go back out there.</b>
-> <p><i>Larry Dixon</i></p>
+> <b>Los Angeles is a very magical place when you take the entertainment industry out of it. You have beautiful beaches and amazing mountains here. I'm a big rock climber. I head out into the mountains whenever I have free time. It's amazing.</b>
+> <p><i>Alex Pettyfer</i></p>
 
 <br>
