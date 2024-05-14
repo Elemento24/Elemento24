@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At a young age winning is not the most important thing... the important thing is to develop creative and skilled players with good confidence.</b>
-> <p><i>Arsene Wenger</i></p>
+> <b>The beauty of dystopia is that it lets us vicariously experience future worlds - but we still have the power to change our own.</b>
+> <p><i>Ally Condie</i></p>
 
 <br>
