@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our best successes often come after our greatest disappointments.</b>
-> <p><i>Henry Ward Beecher</i></p>
+> <b>I had never been able to get a car that said how much I cared about the environment until I drove electric.</b>
+> <p><i>Alexandra Paul</i></p>
 
 <br>
