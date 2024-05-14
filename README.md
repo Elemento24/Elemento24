@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of dystopia is that it lets us vicariously experience future worlds - but we still have the power to change our own.</b>
-> <p><i>Ally Condie</i></p>
+> <b>No real social change has ever been brought about without a revolution... revolution is but thought carried into action.</b>
+> <p><i>Emma Goldman</i></p>
 
 <br>
