@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A special kind of beauty exists which is born in language, of language, and for language.</b>
-> <p><i>Gaston Bachelard</i></p>
+> <b>A woman is gentle, soft, delicate, and a man's position is to protect her, help her up stairs, make sure she's in the car safely first. Take good care of your woman, and the sky's the limit!</b>
+> <p><i>Taraji P. Henson</i></p>
 
 <br>
