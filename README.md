@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age has its pleasures, which, though different, are not less than the pleasures of youth.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>Many say an art dealer running a museum is a 'conflict of interest.' But maybe the art world has lived an artificial or unintentional lie all of these years when it comes to conflicts of interest.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
