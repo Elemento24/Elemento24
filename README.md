@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The true work of art is but a shadow of the divine perfection.</b>
-> <p><i>Michelangelo</i></p>
+> <b>Art hurts. Art urges voyages - and it is easier to stay at home.</b>
+> <p><i>Gwendolyn Brooks</i></p>
 
 <br>
