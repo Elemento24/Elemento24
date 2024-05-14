@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have been overcome by the beauty and richness of our life together, those early mornings setting out, those evenings gleaming with rivers and lakes below us, still holding the last light.</b>
-> <p><i>Anne Morrow Lindbergh</i></p>
+> <b>A special kind of beauty exists which is born in language, of language, and for language.</b>
+> <p><i>Gaston Bachelard</i></p>
 
 <br>
