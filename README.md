@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All we need, really, is a change from a near frigid to a tropical attitude of mind.</b>
-> <p><i>Marjory Stoneman Douglas</i></p>
+> <b>I don't want to do business with those who don't make a profit, because they can't give the best service.</b>
+> <p><i>Richard Bach</i></p>
 
 <br>
