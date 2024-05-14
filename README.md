@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to do business with those who don't make a profit, because they can't give the best service.</b>
-> <p><i>Richard Bach</i></p>
+> <b>The same things we've done the past couple of seasons. We've worked on the engine and clutch. We'll try and pick up the performance and consistency of the car and go back out there.</b>
+> <p><i>Larry Dixon</i></p>
 
 <br>
