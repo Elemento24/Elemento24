@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Many say an art dealer running a museum is a 'conflict of interest.' But maybe the art world has lived an artificial or unintentional lie all of these years when it comes to conflicts of interest.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I tried for a while to be an agricultural worker and was hopelessly bored. I would stand around in heaps of manure and sing about the beauty of the work I wasn't doing.</b>
+> <p><i>Theodore Bikel</i></p>
 
 <br>
