@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business and growing jobs is about taking risk, sometimes failing, sometimes succeeding, but always striving. It is about dreams. Usually, it doesn't work out exactly as you might have imagined. Steve Jobs was fired at Apple. He came back and changed the world.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>The love of all-inclusiveness is as dangerous in philosophy as in art.</b>
+> <p><i>George Santayana</i></p>
 
 <br>
