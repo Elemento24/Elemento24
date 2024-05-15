@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing. My kids have grown me in ways I never knew possible. The patience I've received and the love I get from them is just amazing.</b>
-> <p><i>Candace Cameron Bure</i></p>
+> <b>Emotions have no place in business, unless you do business with them.</b>
+> <p><i>Friedrich Durrenmatt</i></p>
 
 <br>
