@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well I've written four beauty books as well.</b>
-> <p><i>Joan Collins</i></p>
+> <b>I use the music to vent, and a lot of the stuff that I am writing about or was writing about contained a lot of anger and anxiety, stress and depression, so that's how the album came out so dark.</b>
+> <p><i>Vanilla Ice</i></p>
 
 <br>
