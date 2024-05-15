@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Emotions have no place in business, unless you do business with them.</b>
-> <p><i>Friedrich Durrenmatt</i></p>
+> <b>Profit is the most global aspect of a business, and it is cross-functional.</b>
+> <p><i>Carlos Ghosn</i></p>
 
 <br>
