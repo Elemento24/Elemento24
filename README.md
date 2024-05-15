@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're not arrogant, we just believe we're the best band in the world.</b>
-> <p><i>Noel Gallagher</i></p>
+> <b>Well I've written four beauty books as well.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
