@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Profit is the most global aspect of a business, and it is cross-functional.</b>
-> <p><i>Carlos Ghosn</i></p>
+> <b>Business and growing jobs is about taking risk, sometimes failing, sometimes succeeding, but always striving. It is about dreams. Usually, it doesn't work out exactly as you might have imagined. Steve Jobs was fired at Apple. He came back and changed the world.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
