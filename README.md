@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The love of all-inclusiveness is as dangerous in philosophy as in art.</b>
-> <p><i>George Santayana</i></p>
+> <b>When I'm bored or tired of being blonde, I'll throw on a wig. It's a lot less of a permanent way to change your look, and I have about 10 - all different colors, shapes, bobs, long hair, short, feathered.</b>
+> <p><i>Sara Blakely</i></p>
 
 <br>
