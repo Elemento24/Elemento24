@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rumors sound of galleries asking artists for upsized art and more of it. I've heard of photographers asked to print larger to increase the wall power and salability of their work. Everything winds up set to maximum in order to feed the beast.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It is not classified as a pagan religion. The so-called New Age activities and this are not called religions and therefore don't come under the prohibition of mingling church and state that we have in this country.</b>
+> <p><i>Dixie Lee Ray</i></p>
 
 <br>
