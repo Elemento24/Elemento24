@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not classified as a pagan religion. The so-called New Age activities and this are not called religions and therefore don't come under the prohibition of mingling church and state that we have in this country.</b>
-> <p><i>Dixie Lee Ray</i></p>
+> <b>Government alone cannot solve the problems we deal with in our correctional facilities, treatment centers, homeless shelters and crisis centers - we need our faith-based and community partners.</b>
+> <p><i>Dirk Kempthorne</i></p>
 
 <br>
