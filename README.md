@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I keep guitars that are, you know, the neck's a little bit bent and it's a little bit out of tune. I want to work and battle it and conquer it and make it express whatever attitude I have at that moment. I want it to be a struggle.</b>
-> <p><i>Jack White</i></p>
+> <b>As far as loneliness, I feel Los Angeles and its layout, having to drive everywhere - it is a lonely place. It's an isolated city in that respect because you're driving to places alone listening to the radio.</b>
+> <p><i>Jason Schwartzman</i></p>
 
 <br>
