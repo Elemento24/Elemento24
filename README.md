@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you cannot learn to love real art at least learn to hate sham art.</b>
-> <p><i>William Morris</i></p>
+> <b>Keep cool anger is not an argument.</b>
+> <p><i>Daniel Webster</i></p>
 
 <br>
