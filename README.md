@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I use the music to vent, and a lot of the stuff that I am writing about or was writing about contained a lot of anger and anxiety, stress and depression, so that's how the album came out so dark.</b>
-> <p><i>Vanilla Ice</i></p>
+> <b>I cannot stand the people who get wonderful starts in show business and who abuse it. Lindsay Lohan and Charlie Sheen, for example, although there are plenty of others, too. They are the most blessed people in the world, and they don't appreciate it.</b>
+> <p><i>Betty White</i></p>
 
 <br>
