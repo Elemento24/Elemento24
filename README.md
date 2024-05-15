@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Keep cool anger is not an argument.</b>
-> <p><i>Daniel Webster</i></p>
+> <b>When from our better selves we have too long been parted by the hurrying world, and droop. Sick of its business, of its pleasures tired, how gracious, how benign is solitude.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
