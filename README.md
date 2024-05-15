@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our lives are not determined by what happens to us but how we react to what happens, not by what life brings us but the attitude we bring to life.</b>
-> <p><i>Wade Boggs</i></p>
+> <b>It is amazing that it is my destiny to be the first Aussie to win the Masters.</b>
+> <p><i>Adam Derek Scott</i></p>
 
 <br>
