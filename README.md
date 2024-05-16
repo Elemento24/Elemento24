@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So Harry Potter came in and it is nice that I have kids of the right age. I took them to London and they walked around the set and met Harry Potter and that is thrilling.</b>
-> <p><i>Gary Oldman</i></p>
+> <b>My friends, love is better than anger. Hope is better than fear. Optimism is better than despair. So let us be loving, hopeful and optimistic. And we'll change the world.</b>
+> <p><i>Jack Layton</i></p>
 
 <br>
