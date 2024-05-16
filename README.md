@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are a mother, you are never really alone in your thoughts. A mother always has to think twice, once for herself and once for her child.</b>
-> <p><i>Sophia Loren</i></p>
+> <b>That business we started with 10 people has now grown into a great American success story.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
