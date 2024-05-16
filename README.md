@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm bored or tired of being blonde, I'll throw on a wig. It's a lot less of a permanent way to change your look, and I have about 10 - all different colors, shapes, bobs, long hair, short, feathered.</b>
-> <p><i>Sara Blakely</i></p>
+> <b>Although believers by nature, are far from God, and children of wrath, even as others, yet it is amazing to think how nigh they are brought to him again by the blood of Jesus Christ.</b>
+> <p><i>George Whitefield</i></p>
 
 <br>
