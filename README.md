@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a sense of aliveness that comes from connection, shared experience. And you see it in every place. You see it when ball players jump up and down, gather at home plate, hugging, and it's not just because they're winning, it's that shared moment, that feeling of - we enter the world alone, we leave alone.</b>
-> <p><i>Peter Guber</i></p>
+> <b>With my daughter, we do arts and crafts, we read a lot, we listen to music, and we cut the strings off balloons and bounce them around after birthday parties.</b>
+> <p><i>Lisa Loeb</i></p>
 
 <br>
