@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It usually takes me more than three weeks to prepare a good impromptu speech.</b>
-> <p><i>Mark Twain</i></p>
+> <b>I mean, I think we're put here on earth to make your own destiny, to begin with. I don't think there's anything you can do this way or that way to change anything.</b>
+> <p><i>Waylon Jennings</i></p>
 
 <br>
