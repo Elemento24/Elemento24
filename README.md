@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that history has shape, order, and meaning that exceptional men, as much as economic forces, produce change and that passe abstractions like beauty, nobility, and greatness have a shifting but continuing validity.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>It usually takes me more than three weeks to prepare a good impromptu speech.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
