@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A major advantage of age is learning to accept people without passing judgment.</b>
-> <p><i>Liz Carpenter</i></p>
+> <b>I don't think that a leader can control, to any great extent, his destiny. Very seldom can he step in and change the situation if the forces of history are running in another direction.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
