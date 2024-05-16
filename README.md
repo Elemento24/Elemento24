@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My friends, love is better than anger. Hope is better than fear. Optimism is better than despair. So let us be loving, hopeful and optimistic. And we'll change the world.</b>
-> <p><i>Jack Layton</i></p>
+> <b>You need a whole community to raise a child. I have raised two children, alone.</b>
+> <p><i>Toni Morrison</i></p>
 
 <br>
