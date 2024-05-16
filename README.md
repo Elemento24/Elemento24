@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just because you've made a couple movies, you've done some good movies, you've been nominated for some Academy Awards, whatever, nobody's entitled. It's a business. If they don't see it, I can think they're wrong, but I'm not entitled to a $15 million budget to make a film.</b>
-> <p><i>Edward Norton</i></p>
+> <b>A major advantage of age is learning to accept people without passing judgment.</b>
+> <p><i>Liz Carpenter</i></p>
 
 <br>
