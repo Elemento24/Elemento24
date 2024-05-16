@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never lose an opportunity of seeing anything beautiful, for beauty is God's handwriting.</b>
-> <p><i>Charles Kingsley</i></p>
+> <b>When you are a mother, you are never really alone in your thoughts. A mother always has to think twice, once for herself and once for her child.</b>
+> <p><i>Sophia Loren</i></p>
 
 <br>
