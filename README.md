@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Although believers by nature, are far from God, and children of wrath, even as others, yet it is amazing to think how nigh they are brought to him again by the blood of Jesus Christ.</b>
-> <p><i>George Whitefield</i></p>
+> <b>Just because you've made a couple movies, you've done some good movies, you've been nominated for some Academy Awards, whatever, nobody's entitled. It's a business. If they don't see it, I can think they're wrong, but I'm not entitled to a $15 million budget to make a film.</b>
+> <p><i>Edward Norton</i></p>
 
 <br>
