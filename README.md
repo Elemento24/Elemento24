@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is either plagiarism or revolution.</b>
-> <p><i>Paul Gauguin</i></p>
+> <b>I am fully committed to Hannah Montana. It's what gave me this amazing opportunity to reach out to so many people. I'm really excited about our new season. We are making great new episodes that I can't wait for our fans to see and I'm looking forward to the 'Hannah Montana' movie that will be out in the spring.</b>
+> <p><i>Miley Cyrus</i></p>
 
 <br>
