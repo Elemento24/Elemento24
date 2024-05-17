@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any time I need to get a serious attitude adjustment, I put on one of their records, and there are examples there for all time to keep us honest and keep us reaching they'll never be eclipsed.</b>
-> <p><i>Benny Green</i></p>
+> <b>It's really sad looking at people like Lindsay Lohan. She's an amazing actress, but you see what happens when people know too much about your personal life. They start not being able to look at you the same way professionally. I don't want that to happen to me.</b>
+> <p><i>Dianna Agron</i></p>
 
 <br>
