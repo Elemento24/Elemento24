@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty saves. Beauty heals. Beauty motivates. Beauty unites. Beauty returns us to our origins, and here lies the ultimate act of saving, of healing, of overcoming dualism.</b>
-> <p><i>Matthew Fox</i></p>
+> <b>One of the things you're doing when you make art, apart from entertaining yourself and other people, is trying to see what ways of working feel good, what feels right.</b>
+> <p><i>Brian Eno</i></p>
 
 <br>
