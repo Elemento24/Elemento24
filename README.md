@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude is attitude, whether you're a West Coast gangster or East Coast gangster, you know?</b>
-> <p><i>Paul Walker</i></p>
+> <b>That attitude toward women as objects may have worked for the late Sixties, but it doesn't do so now.</b>
+> <p><i>John Schlesinger</i></p>
 
 <br>
