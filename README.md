@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's an amazing feeling to go into a studio and really be alone.</b>
-> <p><i>Joaquin Phoenix</i></p>
+> <b>Prophesy is a good line of business, but it is full of risks.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
