@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Schizophrenia beats dining alone.</b>
-> <p><i>Oscar Levant</i></p>
+> <b>Old age is fifteen years older than I am.</b>
+> <p><i>Oliver Wendell Holmes</i></p>
 
 <br>
