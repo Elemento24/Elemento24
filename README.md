@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of having short hair is that I actually can wash and style it at home!</b>
-> <p><i>Meagan Good</i></p>
+> <b>Marriage is an alliance entered into by a man who can't sleep with the window shut, and a woman who can't sleep with the window open.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
