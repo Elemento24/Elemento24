@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The hallmark of our age is the tension between aspirations and sluggish institutions.</b>
-> <p><i>John W. Gardner</i></p>
+> <b>I studied architecture in New York. So, really I was very moved, like everyone else, to try to contribute something that has that resonance and profundity of it means to all of us.</b>
+> <p><i>Daniel Libeskind</i></p>
 
 <br>
