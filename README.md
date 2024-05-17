@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing how complete is the delusion that beauty is goodness.</b>
-> <p><i>Leo Tolstoy</i></p>
+> <b>Always think of what is useful and not what is beautiful. Beauty will come of its own accord.</b>
+> <p><i>Nikolai Gogol</i></p>
 
 <br>
