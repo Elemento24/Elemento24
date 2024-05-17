@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Take a course in good water and air and in the eternal youth of Nature you may renew your own. Go quietly, alone no harm will befall you.</b>
-> <p><i>John Muir</i></p>
+> <b>I won't say there aren't any Harvard graduates who have never asserted a superior attitude. But they have done so to our great embarrassment and in no way represent the Harvard I know.</b>
+> <p><i>Derek Bok</i></p>
 
 <br>
