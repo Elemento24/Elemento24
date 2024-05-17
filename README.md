@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That attitude toward women as objects may have worked for the late Sixties, but it doesn't do so now.</b>
-> <p><i>John Schlesinger</i></p>
+> <b>Beauty saves. Beauty heals. Beauty motivates. Beauty unites. Beauty returns us to our origins, and here lies the ultimate act of saving, of healing, of overcoming dualism.</b>
+> <p><i>Matthew Fox</i></p>
 
 <br>
