@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's really sad looking at people like Lindsay Lohan. She's an amazing actress, but you see what happens when people know too much about your personal life. They start not being able to look at you the same way professionally. I don't want that to happen to me.</b>
-> <p><i>Dianna Agron</i></p>
+> <b>Even though I build buildings and I pursue my architecture, I pursue it as an artist. I deliberately keep a tiny studio. I don't want to be an architectural firm. I want to remain an artist.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
