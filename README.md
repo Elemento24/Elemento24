@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Proportions are what makes the old Greek temples classic in their beauty. They are like huge blocks, from which the air has been literally hewn out between the columns.</b>
-> <p><i>Arne Jacobsen</i></p>
+> <b>But my most favourite pursuit, after my daily exertions at the Foundry, was Astronomy. There were frequently clear nights when the glorious objects in the Heavens were seen in most attractive beauty and brilliancy.</b>
+> <p><i>James Nasmyth</i></p>
 
 <br>
