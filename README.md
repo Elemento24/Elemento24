@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is fifteen years older than I am.</b>
-> <p><i>Oliver Wendell Holmes</i></p>
+> <b>Take a course in good water and air and in the eternal youth of Nature you may renew your own. Go quietly, alone no harm will befall you.</b>
+> <p><i>John Muir</i></p>
 
 <br>
