@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage is an alliance entered into by a man who can't sleep with the window shut, and a woman who can't sleep with the window open.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>The hallmark of our age is the tension between aspirations and sluggish institutions.</b>
+> <p><i>John W. Gardner</i></p>
 
 <br>
