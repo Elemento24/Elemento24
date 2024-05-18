@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a rock star. Sure I am, to a certain extent because of the situation, but when kids ask me how it feels to be a rock star, I say leave me alone, I'm not a rock star. I'm not in it for the fame, I'm in it because I like to play.</b>
-> <p><i>Eddie Van Halen</i></p>
+> <b>If you ever have the good fortune to meet Tippi Hedren, she's an amazing woman. You can't quite believe she is the age she is.</b>
+> <p><i>Toby Jones</i></p>
 
 <br>
