@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He best keeps from anger who remembers that God is always looking upon him.</b>
-> <p><i>B. C. Forbes</i></p>
+> <b>Style used to be an interaction between the human soul and tools that were limiting. In the digital era, it will have to come from the soul alone.</b>
+> <p><i>Jaron Lanier</i></p>
 
 <br>
