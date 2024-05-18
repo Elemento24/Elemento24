@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always say beauty is only sin deep.</b>
-> <p><i>Hector Hugh Munro</i></p>
+> <b>I'm proud that today, at 43 years old, I've come to value the aging process and focus on inner rather than outer beauty.</b>
+> <p><i>Carre Otis</i></p>
 
 <br>
