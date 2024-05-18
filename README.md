@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger will never disappear so long as thoughts of resentment are cherished in the mind. Anger will disappear just as soon as thoughts of resentment are forgotten.</b>
-> <p><i>John Dryden</i></p>
+> <b>What we achieve inwardly will change outer reality.</b>
+> <p><i>Plutarch</i></p>
 
 <br>
