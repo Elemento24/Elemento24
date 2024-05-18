@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the principles of heaven and earth are living inside you. Life itself is truth, and this will never change. Everything in heaven and earth breathes. Breath is the thread that ties creation together.</b>
-> <p><i>Morihei Ueshiba</i></p>
+> <b>Mum loves me being famous! She is so excited and proud, as she had me so young and couldn't support me, so I am living her dream, it's sweeter for both of us. It's her 40th birthday soon and I'm going to buy her 40 presents.</b>
+> <p><i>Adele</i></p>
 
 <br>
