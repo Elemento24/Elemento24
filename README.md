@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is ever to the lonely mind a shadow fleeting she is never plain. She is a visitor who leaves behind the gift of grief, the souvenir of pain.</b>
-> <p><i>Christopher Morley</i></p>
+> <b>I cried on my 18th birthday. I thought 17 was such a nice age. You're young enough to get away with things, but you're old enough, too.</b>
+> <p><i>Liv Tyler</i></p>
 
 <br>
