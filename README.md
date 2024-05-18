@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Style used to be an interaction between the human soul and tools that were limiting. In the digital era, it will have to come from the soul alone.</b>
-> <p><i>Jaron Lanier</i></p>
+> <b>Like everyone else who makes the mistake of getting older, I begin each day with coffee and obituaries.</b>
+> <p><i>Bill Cosby</i></p>
 
 <br>
