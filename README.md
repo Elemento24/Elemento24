@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not best that we should all think alike it is a difference of opinion that makes horse races.</b>
-> <p><i>Mark Twain</i></p>
+> <b>Childhood is a tricky business. Usually, something goes wrong.</b>
+> <p><i>Maurice Sendak</i></p>
 
 <br>
