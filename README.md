@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you ever have the good fortune to meet Tippi Hedren, she's an amazing woman. You can't quite believe she is the age she is.</b>
-> <p><i>Toby Jones</i></p>
+> <b>I learned what I really love is making films, not the film business. I want to be on the set, meeting with writers, I want that freedom. I love it now.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
