@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Food is not just what we put in our mouths to fill up it is culture and identity. Reason plays some role in our decisions about food, but it's rarely driving the car.</b>
-> <p><i>Jonathan Safran Foer</i></p>
+> <b>Beauty is ever to the lonely mind a shadow fleeting she is never plain. She is a visitor who leaves behind the gift of grief, the souvenir of pain.</b>
+> <p><i>Christopher Morley</i></p>
 
 <br>
