@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned what I really love is making films, not the film business. I want to be on the set, meeting with writers, I want that freedom. I love it now.</b>
-> <p><i>Harvey Weinstein</i></p>
+> <b>I was about 14, and my friend's stepdad asked me to do a 10K with him because his son - who was more into basketball - didn't want to. It was amazing, and I still remember the time I got: 48:23.</b>
+> <p><i>Sean Astin</i></p>
 
 <br>
