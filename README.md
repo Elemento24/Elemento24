@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success or failure in business is caused more by the mental attitude even than by mental capacities.</b>
-> <p><i>Walter Scott</i></p>
+> <b>I prefer to sing in the shower vs. the car. The shower is just steam, you know, its just you, and nature, and no clothing. You know, there's nothing separating you. It's just you, and the voice - you, and the water.</b>
+> <p><i>Jacob Lusk</i></p>
 
 <br>
