@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I prefer to sing in the shower vs. the car. The shower is just steam, you know, its just you, and nature, and no clothing. You know, there's nothing separating you. It's just you, and the voice - you, and the water.</b>
-> <p><i>Jacob Lusk</i></p>
+> <b>I'm not a rock star. Sure I am, to a certain extent because of the situation, but when kids ask me how it feels to be a rock star, I say leave me alone, I'm not a rock star. I'm not in it for the fame, I'm in it because I like to play.</b>
+> <p><i>Eddie Van Halen</i></p>
 
 <br>
