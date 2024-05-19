@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best films of any kind, narrative or documentary, provoke questions.</b>
-> <p><i>Edward Norton</i></p>
+> <b>I think in politics, in Congress, you often do things that are Republican, or you do things because you're a Democrat. Sometimes that's good, obviously, and sometimes that's obviously bad. But in the news business, there's no such thing as Republican or Democratic news. News is news.</b>
+> <p><i>J. C. Watts</i></p>
 
 <br>
