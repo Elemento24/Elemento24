@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is repetition. It is not change. Change is something beyond what we call politics. Change is the essence politics is supposed to be the means to bring into being.</b>
-> <p><i>Kate Millett</i></p>
+> <b>People tend not to use this word beauty because it's not intellectual - but there has to be an overlap between beauty and intellect.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
