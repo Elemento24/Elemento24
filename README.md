@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics are about preserving relationships at the end of the day, and it has nothing to do with the greater good for humanity. It's just all about business.</b>
-> <p><i>will.i.am</i></p>
+> <b>There is one rule for the industrialist and that is: Make the best quality of goods possible at the lowest cost possible, paying the highest wages possible.</b>
+> <p><i>Henry Ford</i></p>
 
 <br>
