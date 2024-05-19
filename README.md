@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is one rule for the industrialist and that is: Make the best quality of goods possible at the lowest cost possible, paying the highest wages possible.</b>
-> <p><i>Henry Ford</i></p>
+> <b>All I want to do is change the world.</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
