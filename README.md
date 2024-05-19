@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Recessions are hard on people, but they are not hard on art.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>How old would you be if you didn't know how old you are?</b>
+> <p><i>Satchel Paige</i></p>
 
 <br>
