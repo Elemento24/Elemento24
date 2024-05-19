@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are all of us failures, at least, the best of us are.</b>
-> <p><i>James M. Barrie</i></p>
+> <b>Our lives are not determined by what happens to us but how we react to what happens, not by what life brings us but the attitude we bring to life.</b>
+> <p><i>Wade Boggs</i></p>
 
 <br>
