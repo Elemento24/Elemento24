@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like everyone else who makes the mistake of getting older, I begin each day with coffee and obituaries.</b>
-> <p><i>Bill Cosby</i></p>
+> <b>We are learning, too, that the love of beauty is one of Nature's greatest healers.</b>
+> <p><i>Ellsworth Huntington</i></p>
 
 <br>
