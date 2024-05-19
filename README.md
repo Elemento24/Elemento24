@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a Volvo S60R and it's a pretty fast car, the R says it all.</b>
-> <p><i>Josie Maran</i></p>
+> <b>Politics is repetition. It is not change. Change is something beyond what we call politics. Change is the essence politics is supposed to be the means to bring into being.</b>
+> <p><i>Kate Millett</i></p>
 
 <br>
