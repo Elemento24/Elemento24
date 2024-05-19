@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Excellence is an art won by training and habituation. We do not act rightly because we have virtue or excellence, but we rather have those because we have acted rightly. We are what we repeatedly do. Excellence, then, is not an act but a habit.</b>
-> <p><i>Aristotle</i></p>
+> <b>It is a matter of public shame that while we have now commemorated our hundredth anniversary, not one in every ten children attending Public schools throughout the colonies is acquainted with a single historical fact about Australia.</b>
+> <p><i>Henry Lawson</i></p>
 
 <br>
