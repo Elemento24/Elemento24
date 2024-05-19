@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ask yourself: Have you been kind today? Make kindness your daily modus operandi and change your world.</b>
-> <p><i>Annie Lennox</i></p>
+> <b>Recessions are hard on people, but they are not hard on art.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
