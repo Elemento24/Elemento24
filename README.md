@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As with anything creative, change is inevitable.</b>
-> <p><i>Enya</i></p>
+> <b>Politics are about preserving relationships at the end of the day, and it has nothing to do with the greater good for humanity. It's just all about business.</b>
+> <p><i>will.i.am</i></p>
 
 <br>
