@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is a matter of public shame that while we have now commemorated our hundredth anniversary, not one in every ten children attending Public schools throughout the colonies is acquainted with a single historical fact about Australia.</b>
-> <p><i>Henry Lawson</i></p>
+> <b>Ask yourself: Have you been kind today? Make kindness your daily modus operandi and change your world.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
