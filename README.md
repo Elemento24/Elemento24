@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The details are the very source of expression in architecture. But we are caught in a vice between art and the bottom line.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>Health is the greatest gift, contentment the greatest wealth, faithfulness the best relationship.</b>
+> <p><i>Buddha</i></p>
 
 <br>
