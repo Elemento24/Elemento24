@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was born to be alone, and I always shall be but now I want to be.</b>
-> <p><i>Mary MacLane</i></p>
+> <b>If I could set a world record, it would be that I have 150 business partners, all with thriving businesses of their own that started with nothing and I made the difference to make them all billionaires.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
