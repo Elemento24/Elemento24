@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always knew that St. Jude was an amazing organization but meeting the kids and seeing how the hospital works first hand was truly beautiful. It doesn't feel like a regular hospital all dreary and sad. It's a colorful, beautiful, comfortable, fun place to live and the energy is wonderful.</b>
-> <p><i>Ariana Grande</i></p>
+> <b>Wasim and Waqar were amazing bowlers. I would put them right up there with the best in the world.</b>
+> <p><i>Sachin Tendulkar</i></p>
 
 <br>
