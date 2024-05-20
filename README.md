@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We neither laugh alone, nor weep alone, why then should we pray alone?</b>
-> <p><i>Anna Letitia Barbauld</i></p>
+> <b>I think naturally, if you're an actor, there's a high level of assertiveness that you need to have to survive this business. There's boldness in being assertive, and there's strength and confidence.</b>
+> <p><i>Bryan Cranston</i></p>
 
 <br>
