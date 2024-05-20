@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The nice thing about anger is that, as an emotion, it's strong enough to unplug me from the comedian's mind for a minute and just be a frustrated member of the citizenry.</b>
-> <p><i>Seth Meyers</i></p>
+> <b>Middle Age is that perplexing time of life when we hear two voices calling us, one saying, 'Why not?' and the other, 'Why bother?'</b>
+> <p><i>Sydney J. Harris</i></p>
 
 <br>
