@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody's business is nobody's business, and nobody's business is my business.</b>
-> <p><i>Clara Barton</i></p>
+> <b>I get to play golf for a living. What more can you ask for - getting paid for doing what you love.</b>
+> <p><i>Tiger Woods</i></p>
 
 <br>
