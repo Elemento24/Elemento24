@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Often we can help each other most by leaving each other alone at other times we need the hand-grasp and the word of cheer.</b>
-> <p><i>Elbert Hubbard</i></p>
+> <b>If I'm alone too long I think too much, and I'm not interested in doing that. That won't lead anywhere good, I'm sure. If I'm busy I tend to stay out of trouble. An idle mind is the devil's playground.</b>
+> <p><i>Lisa Marie Presley</i></p>
 
 <br>
