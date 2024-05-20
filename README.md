@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I'm alone too long I think too much, and I'm not interested in doing that. That won't lead anywhere good, I'm sure. If I'm busy I tend to stay out of trouble. An idle mind is the devil's playground.</b>
-> <p><i>Lisa Marie Presley</i></p>
+> <b>I always knew that St. Jude was an amazing organization but meeting the kids and seeing how the hospital works first hand was truly beautiful. It doesn't feel like a regular hospital all dreary and sad. It's a colorful, beautiful, comfortable, fun place to live and the energy is wonderful.</b>
+> <p><i>Ariana Grande</i></p>
 
 <br>
