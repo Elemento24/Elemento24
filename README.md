@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man's work is nothing but this slow trek to rediscover, through the detours of art, those two or three great and simple images in whose presence his heart first opened.</b>
-> <p><i>Albert Camus</i></p>
+> <b>Everybody's business is nobody's business, and nobody's business is my business.</b>
+> <p><i>Clara Barton</i></p>
 
 <br>
