@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Relentless, repetitive self talk is what changes our self-image.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>People come to see beauty, and I dance to give it to them.</b>
+> <p><i>Judith Jamison</i></p>
 
 <br>
