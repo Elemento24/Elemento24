@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle Age is that perplexing time of life when we hear two voices calling us, one saying, 'Why not?' and the other, 'Why bother?'</b>
-> <p><i>Sydney J. Harris</i></p>
+> <b>The details are the very source of expression in architecture. But we are caught in a vice between art and the bottom line.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
