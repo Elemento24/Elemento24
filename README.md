@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When we have done our best, we should wait the result in peace.</b>
-> <p><i>John Lubbock</i></p>
+> <b>A man's work is nothing but this slow trek to rediscover, through the detours of art, those two or three great and simple images in whose presence his heart first opened.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
