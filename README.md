@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Health is the greatest gift, contentment the greatest wealth, faithfulness the best relationship.</b>
-> <p><i>Buddha</i></p>
+> <b>Like all soul singers, I grew up singing in church but sometimes I would leave early and sit in the car listening to gospel band, The Blind Boys of Alabama. Hearing their lead singer Clarence made me connect the idea of church and show business and see how I could make a career singing music that stirred the soul.</b>
+> <p><i>Daryl Hall</i></p>
 
 <br>
