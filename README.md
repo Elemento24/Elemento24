@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I could set a world record, it would be that I have 150 business partners, all with thriving businesses of their own that started with nothing and I made the difference to make them all billionaires.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>We neither laugh alone, nor weep alone, why then should we pray alone?</b>
+> <p><i>Anna Letitia Barbauld</i></p>
 
 <br>
