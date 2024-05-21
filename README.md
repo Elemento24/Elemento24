@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Integrate purpose into your for-profit business model through a long term commitment to a cause that is aligned with your core values and those of your community.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>There are a lot of people with a lot of money, and I'm amazed they don't understand what a great pleasure it can be to give.</b>
+> <p><i>Robert Mondavi</i></p>
 
 <br>
