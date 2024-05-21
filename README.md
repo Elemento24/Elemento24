@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There weren't any astronauts until I was about 10. Yuri Gagarin went into space right around my 10th birthday.</b>
-> <p><i>John L. Phillips</i></p>
+> <b>It is time for parents to teach young people early on that in diversity there is beauty and there is strength.</b>
+> <p><i>Maya Angelou</i></p>
 
 <br>
