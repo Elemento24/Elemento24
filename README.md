@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get to play golf for a living. What more can you ask for - getting paid for doing what you love.</b>
-> <p><i>Tiger Woods</i></p>
+> <b>But having said that, there's also a sea change in attitude towards media.</b>
+> <p><i>Robert McChesney</i></p>
 
 <br>
