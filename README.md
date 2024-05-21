@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the beginning there was the word. The word was Jah. The word is in I, Jah is in I. I make what is good, better, and what is better, best. I follow this in every aspect of life.</b>
-> <p><i>Peter Tosh</i></p>
+> <b>It's sad that women characters have lost so much ground in popular movies. Didn't 'Thelma and Louise' prove that women want to see women doing things on film? Thelma and Louise were in a classic car they were being chased by cops they shot up a truck - and women loved it.</b>
+> <p><i>Robin Quivers</i></p>
 
 <br>
