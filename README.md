@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't stop loving or wanting to love because when its right it's the best thing in the world. When you're in a relationship and its good, even if nothing else in your life is right, you feel like your whole world is complete.</b>
-> <p><i>Keith Sweat</i></p>
+> <b>Of course I know very little about architecture, and the older I get the less I know.</b>
+> <p><i>Richard Rogers</i></p>
 
 <br>
