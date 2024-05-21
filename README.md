@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm selfish, impatient, and a little insecure. I make mistakes, I'm out of control, and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>All real education is the architecture of the soul.</b>
+> <p><i>William Bennett</i></p>
 
 <br>
