@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course I know very little about architecture, and the older I get the less I know.</b>
-> <p><i>Richard Rogers</i></p>
+> <b>In its most limited sense, modern, art would seem to concern itself only with the technical innovations of the period.</b>
+> <p><i>Edward Hopper</i></p>
 
 <br>
