@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not by the gray of the hair that one knows the age of the heart.</b>
-> <p><i>Edward G. Bulwer-Lytton</i></p>
+> <b>I think I can change the game.</b>
+> <p><i>Venus Williams</i></p>
 
 <br>
