@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is time for parents to teach young people early on that in diversity there is beauty and there is strength.</b>
-> <p><i>Maya Angelou</i></p>
+> <b>There must be a day or two in a man's life when he is the precise age for something important.</b>
+> <p><i>Franklin P. Adams</i></p>
 
 <br>
