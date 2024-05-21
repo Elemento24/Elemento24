@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Making checklists of things you're looking for in a person is the numero uno thing you can do to guarantee you'll be alone forever.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>I'd date someone younger or older age doesn't matter to me. Or looks, really - it's all about maturity.</b>
+> <p><i>Leona Lewis</i></p>
 
 <br>
