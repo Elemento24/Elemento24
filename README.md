@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in a state with a wonderful climate and plenty of natural beauty, from the shores of Cumberland Island to the Chattahoochee River to the Blue Ridge Mountains.</b>
-> <p><i>Roy Barnes</i></p>
+> <b>I'm selfish, impatient, and a little insecure. I make mistakes, I'm out of control, and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
