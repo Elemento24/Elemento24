@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All real education is the architecture of the soul.</b>
-> <p><i>William Bennett</i></p>
+> <b>Before now, I've always taken my mixes out to the car and listened to them in the parking lot. I still do that, but more so now I'm listening to it on the Beat box, and I think people should give it at least a listen and check it out and see what it is.</b>
+> <p><i>Dr. Dre</i></p>
 
 <br>
