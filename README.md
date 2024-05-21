@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd date someone younger or older age doesn't matter to me. Or looks, really - it's all about maturity.</b>
-> <p><i>Leona Lewis</i></p>
+> <b>It is not by the gray of the hair that one knows the age of the heart.</b>
+> <p><i>Edward G. Bulwer-Lytton</i></p>
 
 <br>
