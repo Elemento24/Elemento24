@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There must be a day or two in a man's life when he is the precise age for something important.</b>
-> <p><i>Franklin P. Adams</i></p>
+> <b>We live in a state with a wonderful climate and plenty of natural beauty, from the shores of Cumberland Island to the Chattahoochee River to the Blue Ridge Mountains.</b>
+> <p><i>Roy Barnes</i></p>
 
 <br>
