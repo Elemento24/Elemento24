@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Finds progress, man's distinctive mark alone, Not God's, and not the beast's God is, they are, Man partly is, and wholly hopes to be.</b>
-> <p><i>Robert Browning</i></p>
+> <b>Integrate purpose into your for-profit business model through a long term commitment to a cause that is aligned with your core values and those of your community.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
