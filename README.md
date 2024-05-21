@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best revenge is massive success.</b>
-> <p><i>Frank Sinatra</i></p>
+> <b>There weren't any astronauts until I was about 10. Yuri Gagarin went into space right around my 10th birthday.</b>
+> <p><i>John L. Phillips</i></p>
 
 <br>
