@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I can change the game.</b>
-> <p><i>Venus Williams</i></p>
+> <b>The best revenge is massive success.</b>
+> <p><i>Frank Sinatra</i></p>
 
 <br>
