@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Investors have few spare tires left. Think of the image of a car on a bumpy road to an uncertain destination that has already used up its spare tire. The cash reserves of people have been eaten up by the recent market volatility.</b>
-> <p><i>Mohamed El-Erian</i></p>
+> <b>I was writing a scene where a guy was choking another guy to death. You can go online and type 'chokeholds' and watch scenes where martial artists choke each other out. You can hear what noises they make when they go unconscious, see how their bodies flop and everything. YouTube is amazing for the more detailed stuff.</b>
+> <p><i>Daniel H. Wilson</i></p>
 
 <br>
