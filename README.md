@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Invention is the talent of youth, as judgment is of age.</b>
-> <p><i>Jonathan Swift</i></p>
+> <b>Cats don't like change without their consent.</b>
+> <p><i>Roger Caras</i></p>
 
 <br>
