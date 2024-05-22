@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In things to be seen at once, much variety makes confusion, another vice of beauty. In things that are not seen at once, and have no respect one to another, great variety is commendable, provided this variety transgress not the rules of optics and geometry.</b>
-> <p><i>Christopher Wren</i></p>
+> <b>Advice in old age is foolish for what can be more absurd than to increase our provisions for the road the nearer we approach to our journey's end.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
