@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought, after the Pulitzer, at least nothing will surprise me quite that much in my life. And another one happened. It was quite amazing.</b>
-> <p><i>Rita Dove</i></p>
+> <b>The arts, quite simply, nourish the soul. They sustain, comfort, inspire. There is nothing like that exquisite moment when you first discover the beauty of connecting with others in celebration of larger ideals and shared wisdom.</b>
+> <p><i>Gordon Gee</i></p>
 
 <br>
