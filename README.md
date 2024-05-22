@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not a study of positive reality, it is the seeking for ideal truth.</b>
-> <p><i>John Ruskin</i></p>
+> <b>In things to be seen at once, much variety makes confusion, another vice of beauty. In things that are not seen at once, and have no respect one to another, great variety is commendable, provided this variety transgress not the rules of optics and geometry.</b>
+> <p><i>Christopher Wren</i></p>
 
 <br>
