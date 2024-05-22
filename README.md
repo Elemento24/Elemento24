@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best things and best people rise out of their separateness I'm against a homogenized society because I want the cream to rise.</b>
-> <p><i>Robert Frost</i></p>
+> <b>I have tried to be a leader. I have tried in my role of being one of the first women at Google, let alone the first woman to have a baby, to really try to set the tone that this is a great place to work for diversity reasons.</b>
+> <p><i>Susan Wojcicki</i></p>
 
 <br>
