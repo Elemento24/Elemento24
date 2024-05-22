@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no sense in going to a tournament if you don't believe that you can win it. And that is the belief I have always had. And that is not going to change.</b>
-> <p><i>Tiger Woods</i></p>
+> <b>James Finch is exactly what I'm looking for, as far as getting back into the race car to have fun.</b>
+> <p><i>Kurt Busch</i></p>
 
 <br>
