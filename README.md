@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Normal social behavior requires that we be able to recognize identities in spite of change. Unless we can do so, there can be no human society as we know it.</b>
-> <p><i>Kenneth L. Pike</i></p>
+> <b>The best things and best people rise out of their separateness I'm against a homogenized society because I want the cream to rise.</b>
+> <p><i>Robert Frost</i></p>
 
 <br>
