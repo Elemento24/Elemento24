@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fact: The new '90210' is cooler than the old '90210.' It's the lithe, streamlined Skipper to the elder series' venerable Barbie. Gone are the traditional parents - they've been replaced by a hipster mom n' pop who get busted necking in the car.</b>
-> <p><i>Diablo Cody</i></p>
+> <b>Invention is the talent of youth, as judgment is of age.</b>
+> <p><i>Jonathan Swift</i></p>
 
 <br>
