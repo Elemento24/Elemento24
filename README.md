@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>James Finch is exactly what I'm looking for, as far as getting back into the race car to have fun.</b>
-> <p><i>Kurt Busch</i></p>
+> <b>Normal social behavior requires that we be able to recognize identities in spite of change. Unless we can do so, there can be no human society as we know it.</b>
+> <p><i>Kenneth L. Pike</i></p>
 
 <br>
