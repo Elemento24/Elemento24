@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The arts, quite simply, nourish the soul. They sustain, comfort, inspire. There is nothing like that exquisite moment when you first discover the beauty of connecting with others in celebration of larger ideals and shared wisdom.</b>
-> <p><i>Gordon Gee</i></p>
+> <b>Here is the amazing thing about Easter the Resurrection Sunday for Christians is this, that Christ in the dying moments on the cross gives us the greatest illustration of forgiveness possible.</b>
+> <p><i>T. D. Jakes</i></p>
 
 <br>
