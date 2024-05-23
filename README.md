@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To see a player dunk in women's college basketball is just amazing. It's great to see that the game has reached that level now.</b>
-> <p><i>Holly Johnson</i></p>
+> <b>Imagine if the pension funds and endowments that own much of the equity in our financial services companies demanded that those companies revisit the way mortgages were marketed to those without adequate skills to understand the products they were being sold. Management would have to change the way things were done.</b>
+> <p><i>Eliot Spitzer</i></p>
 
 <br>
