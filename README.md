@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you talk to geneticists they are constantly finding that your genes are being switched on and off because of the environment. Genes alone do not determine an exact path in your life.</b>
-> <p><i>Jeffrey Eugenides</i></p>
+> <b>Independent film is almost nonexistent right now, because all the distributers that used to love to put out these little art films are all out of business right now, because it costs so much to open a movie.</b>
+> <p><i>Ron Perlman</i></p>
 
 <br>
