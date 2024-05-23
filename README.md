@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fame changes a lot of things, but it can't change a lightbulb.</b>
-> <p><i>Gilda Radner</i></p>
+> <b>Europe is so well gardened that it resembles a work of art, a scientific theory, a neat metaphysical system. Man has re-created Europe in his own image.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
