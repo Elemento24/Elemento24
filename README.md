@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get to do the most amazing things. We call it Host in Peril quite often, because people love to see me risk my life or be in danger.</b>
-> <p><i>Rick Mercer</i></p>
+> <b>The principle of art is to pause, not bypass.</b>
+> <p><i>Jerzy Kosinski</i></p>
 
 <br>
