@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While one finds company in himself and his pursuits, he cannot feel old, no matter what his years may be.</b>
-> <p><i>Amos Bronson Alcott</i></p>
+> <b>The best way to destroy an enemy is to make him a friend.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
