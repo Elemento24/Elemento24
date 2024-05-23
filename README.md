@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Imagine if the pension funds and endowments that own much of the equity in our financial services companies demanded that those companies revisit the way mortgages were marketed to those without adequate skills to understand the products they were being sold. Management would have to change the way things were done.</b>
-> <p><i>Eliot Spitzer</i></p>
+> <b>The business is a very tricky obstacle course, and you should be very clear about work begetting work. If you're not working, you're not interesting.</b>
+> <p><i>Elisabeth Rohm</i></p>
 
 <br>
