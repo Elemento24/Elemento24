@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Paul is Starsky, and I met him before shooting. He was very kind and encouraged us to go with what we wanted to do. It was very sweet to see them back with the car after 25 years.</b>
-> <p><i>Ben Stiller</i></p>
+> <b>Fame changes a lot of things, but it can't change a lightbulb.</b>
+> <p><i>Gilda Radner</i></p>
 
 <br>
