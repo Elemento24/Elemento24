@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business is a very tricky obstacle course, and you should be very clear about work begetting work. If you're not working, you're not interesting.</b>
-> <p><i>Elisabeth Rohm</i></p>
+> <b>If you talk to geneticists they are constantly finding that your genes are being switched on and off because of the environment. Genes alone do not determine an exact path in your life.</b>
+> <p><i>Jeffrey Eugenides</i></p>
 
 <br>
