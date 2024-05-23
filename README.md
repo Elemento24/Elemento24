@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had more clothes than I had closets, more cars than garage space, but no money.</b>
-> <p><i>Sammy Davis, Jr.</i></p>
+> <b>Great art is as irrational as great music. It is mad with its own loveliness.</b>
+> <p><i>George Jean Nathan</i></p>
 
 <br>
