@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to destroy an enemy is to make him a friend.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>But it's amazing how many people think that gay men should slink off into the shadows when it comes to having friendships with children.</b>
+> <p><i>Armistead Maupin</i></p>
 
 <br>
