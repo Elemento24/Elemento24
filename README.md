@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The principle of art is to pause, not bypass.</b>
-> <p><i>Jerzy Kosinski</i></p>
+> <b>With age, you see people fail more. You see yourself fail more. How do you keep that fearlessness of a kid? You keep going. Luckily, I'm not afraid to make a fool of myself.</b>
+> <p><i>Hugh Jackman</i></p>
 
 <br>
