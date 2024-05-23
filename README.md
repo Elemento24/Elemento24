@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But it's amazing how many people think that gay men should slink off into the shadows when it comes to having friendships with children.</b>
-> <p><i>Armistead Maupin</i></p>
+> <b>It's been amazing how this crazy career has been created. I feel that it's been given to me. I wouldn't be anywhere without Victoria's Secret.</b>
+> <p><i>Candice Swanepoel</i></p>
 
 <br>
