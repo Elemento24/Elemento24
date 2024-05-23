@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Europe is so well gardened that it resembles a work of art, a scientific theory, a neat metaphysical system. Man has re-created Europe in his own image.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>And my first film was Carnal Knowledge, another amazing experience, largely because of Mike Nichols, who would tell me you can't do anything wrong because you're doing everything right.</b>
+> <p><i>Carol Kane</i></p>
 
 <br>
