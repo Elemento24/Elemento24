@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And my first film was Carnal Knowledge, another amazing experience, largely because of Mike Nichols, who would tell me you can't do anything wrong because you're doing everything right.</b>
-> <p><i>Carol Kane</i></p>
+> <b>A private railroad car is not an acquired taste. One takes to it immediately.</b>
+> <p><i>Eleanor Robson Belmont</i></p>
 
 <br>
