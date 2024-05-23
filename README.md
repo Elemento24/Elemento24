@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On the average, I don't spend more than 15 minutes in the car - to go to the golf course or the gym. And that's the only time I listen to the radio.</b>
-> <p><i>Dweezil Zappa</i></p>
+> <b>I played with the same band for years and years and there's a beauty to having one solid core that you keep exploring. On the other hand, it's nice to throw yourself in different situations where you find out things about your own resources.</b>
+> <p><i>Grant-Lee Phillips</i></p>
 
 <br>
