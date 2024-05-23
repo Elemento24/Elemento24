@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I loved logic, math, computer programming. I loved systems and logic approaches. And so I just figured architecture is this perfect combination.</b>
-> <p><i>Maya Lin</i></p>
+> <b>I had more clothes than I had closets, more cars than garage space, but no money.</b>
+> <p><i>Sammy Davis, Jr.</i></p>
 
 <br>
