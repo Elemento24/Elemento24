@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I find the business world hard.</b>
-> <p><i>Haile Gebrselassie</i></p>
+> <b>I was taught from a young age that I had to serve, so that turned into me thinking I had to save the planet.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
