@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A car for every purse and purpose.</b>
-> <p><i>Alfred P. Sloan</i></p>
+> <b>I find the business world hard.</b>
+> <p><i>Haile Gebrselassie</i></p>
 
 <br>
