@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If we don't change, we don't grow. If we don't grow, we aren't really living.</b>
-> <p><i>Gail Sheehy</i></p>
+> <b>Everything can change at any moment, suddenly and forever.</b>
+> <p><i>Paul Auster</i></p>
 
 <br>
