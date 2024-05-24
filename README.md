@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In plain terms, a child is a complicated creature who can drive you crazy. There's a cruelty to childhood, there's an anger.</b>
-> <p><i>Maurice Sendak</i></p>
+> <b>I remember at the age of five travelling on a trolley car with my mother past a group of women on a picket line at a textile plant, seeing them being viciously beaten by security people. So that kind of thing stayed with me.</b>
+> <p><i>Noam Chomsky</i></p>
 
 <br>
