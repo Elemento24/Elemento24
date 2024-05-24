@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With age, you see people fail more. You see yourself fail more. How do you keep that fearlessness of a kid? You keep going. Luckily, I'm not afraid to make a fool of myself.</b>
-> <p><i>Hugh Jackman</i></p>
+> <b>Evil is committed without effort, naturally, fatally goodness is always the product of some art.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
