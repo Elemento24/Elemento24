@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything can change at any moment, suddenly and forever.</b>
-> <p><i>Paul Auster</i></p>
+> <b>A car for every purse and purpose.</b>
+> <p><i>Alfred P. Sloan</i></p>
 
 <br>
