@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Spend a lot of time talking to customers face to face. You'd be amazed how many companies don't listen to their customers.</b>
-> <p><i>Ross Perot</i></p>
+> <b>Perhaps people, and kids especially, are spoiled today, because all the kids today have cars, it seems. When I was young you were lucky to have a bike.</b>
+> <p><i>James Cagney</i></p>
 
 <br>
