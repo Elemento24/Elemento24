@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is less important than quality.</b>
-> <p><i>Eugene Ormandy</i></p>
+> <b>I think that Indy is special to me. The greater the distance between the last time I drove an Indy car and the next time, I wouldn't like that to be too big.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
