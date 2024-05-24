@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A witty woman is a treasure a witty beauty is a power.</b>
-> <p><i>George Meredith</i></p>
+> <b>Beauty is less important than quality.</b>
+> <p><i>Eugene Ormandy</i></p>
 
 <br>
