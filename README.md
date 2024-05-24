@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Solitude, though it may be silent as light, is like light, the mightiest of agencies for solitude is essential to man. All men come into this world alone and leave it alone.</b>
-> <p><i>Thomas de Quincey</i></p>
+> <b>Painting is just another way of keeping a diary.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
