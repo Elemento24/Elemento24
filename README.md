@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember at the age of five travelling on a trolley car with my mother past a group of women on a picket line at a textile plant, seeing them being viciously beaten by security people. So that kind of thing stayed with me.</b>
-> <p><i>Noam Chomsky</i></p>
+> <b>I'm trying to change the culture in New York City that's hard enough!</b>
+> <p><i>Michael Bloomberg</i></p>
 
 <br>
