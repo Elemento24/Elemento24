@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want art to make me think. In order to do that, it may piss me off, or make me uncomfortable. That promotes awareness and change, or at least some discussion.</b>
-> <p><i>Pink</i></p>
+> <b>You say a new era in art is preparing you sensed it coming continue your studies without weakening. God will do the rest.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
