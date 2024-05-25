@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today in America, we are trying to prepare students for a high tech world of constant change, but we are doing so by putting them through a school system designed in the early 20th Century that has not seen substantial change in 30 years.</b>
-> <p><i>Janet Napolitano</i></p>
+> <b>At my age the only problem is with remembering names. When I call everyone darling, it has damn all to do with passionately adoring them, but I know I'm safe calling them that. Although, of course, I adore them too.</b>
+> <p><i>Richard Attenborough</i></p>
 
 <br>
