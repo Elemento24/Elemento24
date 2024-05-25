@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A building has integrity just like a man. And just as seldom.</b>
-> <p><i>Ayn Rand</i></p>
+> <b>For his heart was in his work, and the heart giveth grace unto every art.</b>
+> <p><i>Henry Wadsworth Longfellow</i></p>
 
 <br>
