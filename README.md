@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are only two things a child will share willingly communicable diseases and its mother's age.</b>
-> <p><i>Benjamin Spock</i></p>
+> <b>The beauty of a woman is not in the clothes she wears, the figure that she carries or the way she combs her hair.</b>
+> <p><i>Audrey Hepburn</i></p>
 
 <br>
