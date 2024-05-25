@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of the individual poems, some are more lyric and some are more descriptive or narrative. Each poem is fixed in a moment. All those moments written or read together take on the movement and architecture of a narrative.</b>
-> <p><i>Marilyn Hacker</i></p>
+> <b>Personally, I just think rap music is the best thing out there, period. If you look at my deck in my car radio, you're always going to find a hip-hop tape that's all I buy, that's all I live, that's all I listen to, that's all I love.</b>
+> <p><i>Eminem</i></p>
 
 <br>
