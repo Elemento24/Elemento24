@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a philosophy of life. A practice. If you do this, something will change, what will change is that you will change, your life will change, and if you can change you, you can perhaps change the world.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>There are only two things a child will share willingly communicable diseases and its mother's age.</b>
+> <p><i>Benjamin Spock</i></p>
 
 <br>
