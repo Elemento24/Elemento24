@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your premium brand had better be delivering something special, or it's not going to get the business.</b>
-> <p><i>Warren Buffett</i></p>
+> <b>I am as bad as the worst, but, thank God, I am as good as the best.</b>
+> <p><i>Walt Whitman</i></p>
 
 <br>
