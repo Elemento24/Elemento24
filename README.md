@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're saying no changes for Medicare for people above the age of 55. And in order to keep the promise to current seniors who've already retired and organized their lives around this program, you have to reform it for the next generation.</b>
-> <p><i>Paul Ryan</i></p>
+> <b>It is not with architecture that one can disseminate any political ideology.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
