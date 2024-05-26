@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My siblings are my best friends.</b>
-> <p><i>America Ferrera</i></p>
+> <b>Treaties, agreements and organizations to help settle disputes may be necessary, but they often favor the interests of business over citizens.</b>
+> <p><i>David Suzuki</i></p>
 
 <br>
