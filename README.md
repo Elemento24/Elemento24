@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best years of your life are the ones in which you decide your problems are your own. You do not blame them on your mother, the ecology, or the president. You realize that you control your own destiny.</b>
-> <p><i>Albert Ellis</i></p>
+> <b>Progress is a nice word. But change is its motivator. And change has its enemies.</b>
+> <p><i>Robert Kennedy</i></p>
 
 <br>
