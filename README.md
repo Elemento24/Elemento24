@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd rather drive the yellow brick road, you wouldn't happen to know of a rental car place around.</b>
-> <p><i>Ryan Stiles</i></p>
+> <b>I already gave my best. I have no regrets at all.</b>
+> <p><i>William Hung</i></p>
 
 <br>
