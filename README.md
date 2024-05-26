@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Personally, I just think rap music is the best thing out there, period. If you look at my deck in my car radio, you're always going to find a hip-hop tape that's all I buy, that's all I live, that's all I listen to, that's all I love.</b>
-> <p><i>Eminem</i></p>
+> <b>I'd rather drive the yellow brick road, you wouldn't happen to know of a rental car place around.</b>
+> <p><i>Ryan Stiles</i></p>
 
 <br>
