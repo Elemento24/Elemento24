@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know so many amazing actors who don't get work... and then there are a bunch of real duds that work all the time. The industry is just not fair in that way.</b>
-> <p><i>Jenna Fischer</i></p>
+> <b>Your premium brand had better be delivering something special, or it's not going to get the business.</b>
+> <p><i>Warren Buffett</i></p>
 
 <br>
