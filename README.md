@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is time to change our policy of appeasement toward the Palestinians, to strengthen our ties with the nation of Israel.</b>
-> <p><i>Rick Perry</i></p>
+> <b>We're saying no changes for Medicare for people above the age of 55. And in order to keep the promise to current seniors who've already retired and organized their lives around this program, you have to reform it for the next generation.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
