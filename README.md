@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Accept business only at a price permitting thoroughness. Then do a thorough job, regardless of cost to us.</b>
-> <p><i>Arthur C. Nielsen</i></p>
+> <b>It is time to change our policy of appeasement toward the Palestinians, to strengthen our ties with the nation of Israel.</b>
+> <p><i>Rick Perry</i></p>
 
 <br>
