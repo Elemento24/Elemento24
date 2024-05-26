@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I already gave my best. I have no regrets at all.</b>
-> <p><i>William Hung</i></p>
+> <b>Our business in life is not to succeed, but to continue to fail in good spirits.</b>
+> <p><i>Robert Louis Stevenson</i></p>
 
 <br>
