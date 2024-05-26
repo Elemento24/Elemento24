@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Peace is the one condition of survival in this nuclear age.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>Beauty, to me, is about being comfortable in your own skin. That, or a kick-ass red lipstick.</b>
+> <p><i>Gwyneth Paltrow</i></p>
 
 <br>
