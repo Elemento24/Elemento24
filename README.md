@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty, to me, is about being comfortable in your own skin. That, or a kick-ass red lipstick.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>A man who has never made a woman angry is a failure in life.</b>
+> <p><i>Christopher Morley</i></p>
 
 <br>
