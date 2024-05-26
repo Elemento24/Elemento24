@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man who has never made a woman angry is a failure in life.</b>
-> <p><i>Christopher Morley</i></p>
+> <b>The incestuous relationship between government and big business thrives in the dark.</b>
+> <p><i>Jack Anderson</i></p>
 
 <br>
