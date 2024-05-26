@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The incestuous relationship between government and big business thrives in the dark.</b>
-> <p><i>Jack Anderson</i></p>
+> <b>I know so many amazing actors who don't get work... and then there are a bunch of real duds that work all the time. The industry is just not fair in that way.</b>
+> <p><i>Jenna Fischer</i></p>
 
 <br>
