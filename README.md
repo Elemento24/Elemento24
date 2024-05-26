@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me - old age is always ten years older than I am.</b>
-> <p><i>John Burroughs</i></p>
+> <b>Over my lifetime, the car had actually transcended the fact that it is a car. It has become a venue.</b>
+> <p><i>Eric Bana</i></p>
 
 <br>
