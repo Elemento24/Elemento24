@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So, I remember when I was a kid, I was waiting for my mom to come home when she was working late, and, you know, I was like, 'Oh my God, what happened to her? Is she OK? Did something happen to her getting in the car?' I was a little kid. But those are actually early onsets of anxiety.</b>
-> <p><i>Vinny Guadagnino</i></p>
+> <b>The mind that is wise mourns less for what age takes away than what it leaves behind.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
