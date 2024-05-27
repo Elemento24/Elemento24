@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The poor monkey, quietly seated on the ground, seemed to be in sore trouble at this display of anger.</b>
-> <p><i>Henry Walter Bates</i></p>
+> <b>When you have that window of opportunity called a crisis, move as quickly as you can, get as much done as you can. There's a momentum for change that's very compelling.</b>
+> <p><i>Anne M. Mulcahy</i></p>
 
 <br>
