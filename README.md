@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My experience has been that work is almost the best way to pull oneself out of the depths.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>The days when a car aficionado could repair his or her own car are long past, due primarily to the high software content.</b>
+> <p><i>Marc Andreessen</i></p>
 
 <br>
