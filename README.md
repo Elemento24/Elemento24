@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's so hard for women in this business. And I want to be doing this when I'm 50.</b>
-> <p><i>Sienna Miller</i></p>
+> <b>All that we call ideal in Greek or any other art, because to us it is false and visionary, was, to the makers of it, true and existent.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
