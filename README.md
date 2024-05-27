@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>President Obama clearly cannot run on his record. All he's offering is more of the same. That's not good. Look at the economy. It's stagnating. And so, what they're now going to try and do is bring this campaign down to little things, distractions, distortions, smear, fear, anger, frustration.</b>
-> <p><i>Paul Ryan</i></p>
+> <b>My experience has been that work is almost the best way to pull oneself out of the depths.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
