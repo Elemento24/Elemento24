@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All that we call ideal in Greek or any other art, because to us it is false and visionary, was, to the makers of it, true and existent.</b>
-> <p><i>John Ruskin</i></p>
+> <b>I just don't want to die alone, that's all. That's not too much to ask for, is it It would be nice to have someone care about me, for who I am, not about my wallet.</b>
+> <p><i>Richard Pryor</i></p>
 
 <br>
