@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I still have a lot to learn - about the business, about music, and about myself. Its exciting.</b>
-> <p><i>Britney Spears</i></p>
+> <b>That term's definitely got a negative aura to it, because people think a diva is somebody with an attitude who demands things all the time. Of course there is that type of diva, but my idea of a diva has always been a singer - whether male or female - who gets on that stage and captivates you with their presence and their voice.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
