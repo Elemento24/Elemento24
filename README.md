@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Turkey wants a policy of engagement exactly like President Obama's new approach. Policy of engagement, less confrontation, less tense attitude, especially in the region.</b>
-> <p><i>Ahmet Davutoglu</i></p>
+> <b>The poor monkey, quietly seated on the ground, seemed to be in sore trouble at this display of anger.</b>
+> <p><i>Henry Walter Bates</i></p>
 
 <br>
