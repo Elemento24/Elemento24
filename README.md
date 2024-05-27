@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The mind that is wise mourns less for what age takes away than what it leaves behind.</b>
-> <p><i>William Wordsworth</i></p>
+> <b>I believe that Gandhi was correct. Non-violent civil disobedience is the only way to bring about change that allows people to enjoy the change and not get killed in the process.</b>
+> <p><i>Edward James Olmos</i></p>
 
 <br>
