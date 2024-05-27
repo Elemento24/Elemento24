@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am as bad as the worst, but, thank God, I am as good as the best.</b>
-> <p><i>Walt Whitman</i></p>
+> <b>If I want to be alone, some place I can write, I can read, I can pray, I can cry, I can do whatever I want - I go to the bathroom.</b>
+> <p><i>Alicia Keys</i></p>
 
 <br>
