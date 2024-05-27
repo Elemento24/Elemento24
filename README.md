@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had wanted a tape recorder since I was tiny. I thought it was a magic thing. I never got one until just before I went to art school.</b>
-> <p><i>Brian Eno</i></p>
+> <b>It's so hard for women in this business. And I want to be doing this when I'm 50.</b>
+> <p><i>Sienna Miller</i></p>
 
 <br>
