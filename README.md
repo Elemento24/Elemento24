@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The past 6 and a half years have been the most amazing years of my life. It's sad it has come to an end but Avril and I are still family and moving forward in the most positive way possible.</b>
-> <p><i>Deryck Whibley</i></p>
+> <b>The voice of the intelligence is drowned out by the roar of fear. It is ignored by the voice of desire. It is contradicted by the voice of shame. It is biased by hate and extinguished by anger. Most of all it is silenced by ignorance.</b>
+> <p><i>Karl A. Menninger</i></p>
 
 <br>
