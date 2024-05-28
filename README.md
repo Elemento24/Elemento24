@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's an amazing feeling, to walk onstage, and you're not thinking about anything, you're not thinking about your lines or what you're supposed to do - your body, your brain knows, so there's freedom. There's not fear, there's not nerves.</b>
-> <p><i>Eric McCormack</i></p>
+> <b>At 13, I realized that I could fix anything electronic. It was amazing, I could just do it. I started a business repairing radios. It grew to be one of the largest in Philadelphia.</b>
+> <p><i>Amar Bose</i></p>
 
 <br>
