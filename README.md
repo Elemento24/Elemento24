@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So when I go home, sometimes, even when I had an amazing game, I always think about what I missed.</b>
-> <p><i>Thierry Henry</i></p>
+> <b>Some people have such a talent for making the best of a bad situation that they go around creating bad situations so they can make the best of them.</b>
+> <p><i>Jean Kerr</i></p>
 
 <br>
