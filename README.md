@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The waking mind is the least serviceable in the arts.</b>
-> <p><i>Henry Miller</i></p>
+> <b>A leader does not deserve the name unless he is willing occasionally to stand alone.</b>
+> <p><i>Henry A. Kissinger</i></p>
 
 <br>
