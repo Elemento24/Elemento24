@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At 13, I realized that I could fix anything electronic. It was amazing, I could just do it. I started a business repairing radios. It grew to be one of the largest in Philadelphia.</b>
-> <p><i>Amar Bose</i></p>
+> <b>To help yourself, you must be yourself. Be the best that you can be. When you make a mistake, learn from it, pick yourself up and move on.</b>
+> <p><i>Dave Pelzer</i></p>
 
 <br>
