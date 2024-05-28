@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was a wonderful experience to work with Sylvia. She pushed me to be more powerful with my acting, and she told me scores of the most incredible stories I've ever heard. She is amazing.</b>
-> <p><i>Lukas Haas</i></p>
+> <b>Don't go away. I don't want to be alone. I can't stand being alone.</b>
+> <p><i>Arnold Rothstein</i></p>
 
 <br>
