@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The secret of staying young is to live honestly, eat slowly, and lie about your age.</b>
-> <p><i>Lucille Ball</i></p>
+> <b>I'm fascinated by rap and by hip-hop. I think there's a lot of poetry in it. There's a lot of anger, a lot of social energy in it. And I think you'd better listen to it pretty carefully, 'cause it's important.</b>
+> <p><i>John F. Kerry</i></p>
 
 <br>
