@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't go away. I don't want to be alone. I can't stand being alone.</b>
-> <p><i>Arnold Rothstein</i></p>
+> <b>For what is love itself, for the one we love best? An enfolding of immeasurable cares which yet are better than any joys outside our love.</b>
+> <p><i>George Eliot</i></p>
 
 <br>
