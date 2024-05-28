@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter what business you're in, you can't run in place or someone will pass you by. It doesn't matter how many games you've won.</b>
-> <p><i>Jim Valvano</i></p>
+> <b>The past 6 and a half years have been the most amazing years of my life. It's sad it has come to an end but Avril and I are still family and moving forward in the most positive way possible.</b>
+> <p><i>Deryck Whibley</i></p>
 
 <br>
