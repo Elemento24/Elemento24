@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For what is love itself, for the one we love best? An enfolding of immeasurable cares which yet are better than any joys outside our love.</b>
-> <p><i>George Eliot</i></p>
+> <b>It's always easier if you have the support of your family, if you're not alone. I came from a country that has been through a lot of troubles in the last 20 to 30 years, but we have been through them together.</b>
+> <p><i>Novak Djokovic</i></p>
 
 <br>
