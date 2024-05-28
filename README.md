@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is strange to be known so universally and yet to be so lonely.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>I do not believe that sheer suffering teaches. If suffering alone taught, all the world would be wise, since everyone suffers. To suffering must be added mourning, understanding, patience, love, openness and the willingness to remain vulnerable.</b>
+> <p><i>Anne Morrow Lindbergh</i></p>
 
 <br>
