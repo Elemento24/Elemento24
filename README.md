@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not believe that sheer suffering teaches. If suffering alone taught, all the world would be wise, since everyone suffers. To suffering must be added mourning, understanding, patience, love, openness and the willingness to remain vulnerable.</b>
-> <p><i>Anne Morrow Lindbergh</i></p>
+> <b>I spend a good portion of my dinner-party conversation defending America because no matter what the political agenda, it's still a fantastic, amazing place.</b>
+> <p><i>Gwyneth Paltrow</i></p>
 
 <br>
