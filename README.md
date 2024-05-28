@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To help yourself, you must be yourself. Be the best that you can be. When you make a mistake, learn from it, pick yourself up and move on.</b>
-> <p><i>Dave Pelzer</i></p>
+> <b>We are learning, too, that the love of beauty is one of Nature's greatest healers.</b>
+> <p><i>Ellsworth Huntington</i></p>
 
 <br>
