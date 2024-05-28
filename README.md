@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people have such a talent for making the best of a bad situation that they go around creating bad situations so they can make the best of them.</b>
-> <p><i>Jean Kerr</i></p>
+> <b>I can take more punishment than anyone in the business.</b>
+> <p><i>Ric Flair</i></p>
 
 <br>
