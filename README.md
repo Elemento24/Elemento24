@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not a case of 'look at me in my car' it's more, 'look at the car'. I like the idea of other people enjoying them, because everything has become a bit faceless and nobody likes the motor car any more.</b>
-> <p><i>Jay Kay</i></p>
+> <b>I feel like I have as good a shot as anybody out there and I have gotten close in the past, so why not have the attitude that I can come out and play great tennis and maybe even win this tournament.</b>
+> <p><i>Michael Chang</i></p>
 
 <br>
