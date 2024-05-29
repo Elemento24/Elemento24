@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anybody who really knows about the TV business knows that it would be impossible to just march in one day and say to your colleagues and bosses, 'Oh yes, I'm hosting my own show.'</b>
-> <p><i>Andy Cohen</i></p>
+> <b>To stand up on a stage alone with an acoustic guitar requires bravery bordering on heroism. Bordering on insanity.</b>
+> <p><i>Richard Thompson</i></p>
 
 <br>
