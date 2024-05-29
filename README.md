@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work of art assumes the existence of the perfect spectator, and is indifferent to the fact that no such person exists.</b>
-> <p><i>E. M. Forster</i></p>
+> <b>As the age of television progresses the Reagans will be the rule, not the exception. To be perfect for television is all a President has to be these days.</b>
+> <p><i>Gore Vidal</i></p>
 
 <br>
