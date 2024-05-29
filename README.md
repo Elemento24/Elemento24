@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is composed of an eternal, invariable element whose quantity is extremely difficult to determine, and a relative element which might be, either by turns or all at once, period, fashion, moral, passion.</b>
-> <p><i>Jean-Luc Godard</i></p>
+> <b>In 1950, when the Giants signed me, they gave me $15,000. I bought a 1950 Mercury. I couldn't drive, but I had it in the parking lot there, and everybody that could drive would drive the car. So it was like a community thing.</b>
+> <p><i>Willie Mays</i></p>
 
 <br>
