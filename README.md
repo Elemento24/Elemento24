@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm trying to get the record that I made at my birthday party last year, trying to get that out, and the lawyers are diddling around with it and it probably won't be out until next year. I don't know.</b>
-> <p><i>Marian McPartland</i></p>
+> <b>The work of art assumes the existence of the perfect spectator, and is indifferent to the fact that no such person exists.</b>
+> <p><i>E. M. Forster</i></p>
 
 <br>
