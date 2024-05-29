@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A friendship founded on business is better than a business founded on friendship.</b>
-> <p><i>John D. Rockefeller</i></p>
+> <b>Television is like the invention of indoor plumbing. It didn't change people's habits. It just kept them inside the house.</b>
+> <p><i>Alfred Hitchcock</i></p>
 
 <br>
