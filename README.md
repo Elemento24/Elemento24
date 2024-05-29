@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All conservatism is based upon the idea that if you leave things alone you leave them as they are. But you do not. If you leave a thing alone you leave it to a torrent of change.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>It's not a case of 'look at me in my car' it's more, 'look at the car'. I like the idea of other people enjoying them, because everything has become a bit faceless and nobody likes the motor car any more.</b>
+> <p><i>Jay Kay</i></p>
 
 <br>
