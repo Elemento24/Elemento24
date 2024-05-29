@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The desire to get married, which - I regret to say, I believe is basic and primal in women - is followed almost immediately by an equally basic and primal urge - which is to be single again.</b>
-> <p><i>Nora Ephron</i></p>
+> <b>It's art that pushes against psychological and social expectations, that tries to transform decay into something generative, that is replicative in a baroque way, that isn't about progress, and wants to - as Walt Whitman put it - 'contain multitudes.'</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
