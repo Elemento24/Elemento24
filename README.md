@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good acting is good acting, however you learn it. Some people who haven't studied are amazing. Some people like Leonardo DiCaprio are naturally gifted - he's learned technique by working with people early on.</b>
-> <p><i>Sam Rockwell</i></p>
+> <b>The lovely thing about being forty is that you can appreciate twenty-five-year-old men more.</b>
+> <p><i>Colleen McCullough</i></p>
 
 <br>
