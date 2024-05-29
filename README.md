@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As the age of television progresses the Reagans will be the rule, not the exception. To be perfect for television is all a President has to be these days.</b>
-> <p><i>Gore Vidal</i></p>
+> <b>It's not just Bin Laden or just those that are involved in the counterterrorism effort. We've gotta cast the net broader than that. But I think it's a - very special tribute that we all owe to the bravery and courage of the men and women in the intelligence and military business who performed so well to finally get it done.</b>
+> <p><i>Dick Cheney</i></p>
 
 <br>
