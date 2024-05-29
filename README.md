@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An age which is incapable of poetry is incapable of any kind of literature except the cleverness of a decadence.</b>
-> <p><i>Raymond Chandler</i></p>
+> <b>If you spend your life competing with business men, what do you have? A bank account and ulcers!</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
