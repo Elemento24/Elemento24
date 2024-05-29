@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In 1950, when the Giants signed me, they gave me $15,000. I bought a 1950 Mercury. I couldn't drive, but I had it in the parking lot there, and everybody that could drive would drive the car. So it was like a community thing.</b>
-> <p><i>Willie Mays</i></p>
+> <b>The desire to get married, which - I regret to say, I believe is basic and primal in women - is followed almost immediately by an equally basic and primal urge - which is to be single again.</b>
+> <p><i>Nora Ephron</i></p>
 
 <br>
