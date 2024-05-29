@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The principle of art is to pause, not bypass.</b>
-> <p><i>Jerzy Kosinski</i></p>
+> <b>Beauty is composed of an eternal, invariable element whose quantity is extremely difficult to determine, and a relative element which might be, either by turns or all at once, period, fashion, moral, passion.</b>
+> <p><i>Jean-Luc Godard</i></p>
 
 <br>
