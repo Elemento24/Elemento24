@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And it is still true, no matter how old you are, when you go out into the world it is best to hold hands and stick together.</b>
-> <p><i>Robert Fulghum</i></p>
+> <b>I've worked as a labourer, driven taxis and school buses, and been a car mechanic - whatever I could do just to get by. But it does mean that I know a little bit about a lot of things.</b>
+> <p><i>Cory Monteith</i></p>
 
 <br>
