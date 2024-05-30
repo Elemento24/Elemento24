@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I walk into a kids' store, and it's amazing, the types of instruments - little squeaky things, rattling things, spinning tops.</b>
-> <p><i>Evelyn Glennie</i></p>
+> <b>I tend to not watch things that are current. And then if everybody swears it's amazing then I'll like watch the whole series in a weekend.</b>
+> <p><i>Hank Azaria</i></p>
 
 <br>
