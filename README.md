@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is the art of controlling your environment.</b>
-> <p><i>Hunter S. Thompson</i></p>
+> <b>Gratitude bestows reverence, allowing us to encounter everyday epiphanies, those transcendent moments of awe that change forever how we experience life and the world.</b>
+> <p><i>John Milton</i></p>
 
 <br>
