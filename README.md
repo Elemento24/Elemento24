@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We reproach people for talking about themselves but it is the subject they treat best.</b>
-> <p><i>Anatole France</i></p>
+> <b>Politics is the art of controlling your environment.</b>
+> <p><i>Hunter S. Thompson</i></p>
 
 <br>
