@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cats don't like change without their consent.</b>
-> <p><i>Roger Caras</i></p>
+> <b>We reproach people for talking about themselves but it is the subject they treat best.</b>
+> <p><i>Anatole France</i></p>
 
 <br>
