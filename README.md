@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whosoever desires constant success must change his conduct with the times.</b>
-> <p><i>Niccolo Machiavelli</i></p>
+> <b>A thing of beauty is a joy forever: its loveliness increases it will never pass into nothingness.</b>
+> <p><i>John Keats</i></p>
 
 <br>
