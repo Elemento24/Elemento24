@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is better to be alone than in bad company.</b>
-> <p><i>George Washington</i></p>
+> <b>I still work hard to know my business. I'm continuously looking for ways to improve all my companies, and I'm always selling. Always.</b>
+> <p><i>Mark Cuban</i></p>
 
 <br>
