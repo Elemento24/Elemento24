@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry lifts the veil from the hidden beauty of the world, and makes familiar objects be as if they were not familiar.</b>
-> <p><i>Percy Bysshe Shelley</i></p>
+> <b>Auto racing is boring except when a car is going at least 172 miles per hour upside down.</b>
+> <p><i>Dave Barry</i></p>
 
 <br>
