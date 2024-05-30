@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Something my mum taught me years and years and years ago, is life's just too short to carry around a great bucket-load of anger and resentment and bitterness and hatreds and all that sort of stuff.</b>
-> <p><i>Kevin Rudd</i></p>
+> <b>And it is still true, no matter how old you are, when you go out into the world it is best to hold hands and stick together.</b>
+> <p><i>Robert Fulghum</i></p>
 
 <br>
