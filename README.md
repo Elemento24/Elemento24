@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Gratitude bestows reverence, allowing us to encounter everyday epiphanies, those transcendent moments of awe that change forever how we experience life and the world.</b>
-> <p><i>John Milton</i></p>
+> <b>Love is the beauty of the soul.</b>
+> <p><i>Saint Augustine</i></p>
 
 <br>
