@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger becomes limiting, restricting. You can't see through it. While anger is there, look at that, too. But after a while, you have to look at something else.</b>
-> <p><i>Thylias Moss</i></p>
+> <b>In 1977, at least, he wished to have people believe that he shared and was proud of an attitude toward women that is not acceptable in a politician. In 2003, all he has said is that he doesn't remember the interview.</b>
+> <p><i>Michael Kinsley</i></p>
 
 <br>
