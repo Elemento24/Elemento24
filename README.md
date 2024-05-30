@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Auto racing is boring except when a car is going at least 172 miles per hour upside down.</b>
-> <p><i>Dave Barry</i></p>
+> <b>Something my mum taught me years and years and years ago, is life's just too short to carry around a great bucket-load of anger and resentment and bitterness and hatreds and all that sort of stuff.</b>
+> <p><i>Kevin Rudd</i></p>
 
 <br>
