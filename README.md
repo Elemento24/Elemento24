@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing people get so detached from what they eat and what they wear. No one has any contact with how things are made that are put in their body and put in their mouths and I just find it alarming that no one questions it.</b>
-> <p><i>Emma Watson</i></p>
+> <b>I'm an actor, so sometimes there are moments where I think about everything that's happening and I want to cry. I'm doing what I love and I will be doing it for a very, very long time - and it's amazing. A lot of people don't get to do that.</b>
+> <p><i>Ashley Greene</i></p>
 
 <br>
