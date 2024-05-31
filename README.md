@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm an actor, so sometimes there are moments where I think about everything that's happening and I want to cry. I'm doing what I love and I will be doing it for a very, very long time - and it's amazing. A lot of people don't get to do that.</b>
-> <p><i>Ashley Greene</i></p>
+> <b>A work of art which did not begin in emotion is not art.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
