@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My passion and great enjoyment for architecture, and the reason the older I get the more I enjoy it, is because I believe we - architects - can effect the quality of life of the people.</b>
-> <p><i>Richard Rogers</i></p>
+> <b>Politics is not a game. It is an earnest business.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
