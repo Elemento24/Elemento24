@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It usually takes me more than three weeks to prepare a good impromptu speech.</b>
-> <p><i>Mark Twain</i></p>
+> <b>My parents were amazing and wonderful, but there was a lot of pressure to do my best and in every way possible.</b>
+> <p><i>Kate Bosworth</i></p>
 
 <br>
