@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I came to water late. I learned to swim at the age of 20.</b>
-> <p><i>Liam Neeson</i></p>
+> <b>It usually takes me more than three weeks to prepare a good impromptu speech.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
