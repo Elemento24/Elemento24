@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I still work hard to know my business. I'm continuously looking for ways to improve all my companies, and I'm always selling. Always.</b>
-> <p><i>Mark Cuban</i></p>
+> <b>You can only do your best. That's all you can do. And if it isn't good enough, it isn't good enough.</b>
+> <p><i>Imelda Staunton</i></p>
 
 <br>
