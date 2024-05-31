@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wouldn't say I was the best manager in the business. But I was in the top one.</b>
-> <p><i>Brian Clough</i></p>
+> <b>It takes a long time to become young.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
