@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It begins and ends with money. It's absurd in this day and age when we need so much money for education, health, for people, that a $100 million dollars can be spent on a film. It's obscene.</b>
-> <p><i>Kathleen Turner</i></p>
+> <b>I have always maintained that society has no business dictating morality.</b>
+> <p><i>Peter Fonda</i></p>
 
 <br>
