@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It takes a long time to become young.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>I've always been a bit of a car freak.</b>
+> <p><i>Eric Bana</i></p>
 
 <br>
