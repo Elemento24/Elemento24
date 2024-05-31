@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I realize that protest paintings are not exactly in vogue, but I've done many.</b>
-> <p><i>Robert Indiana</i></p>
+> <b>As a precocious teen I dreamed of being Graham Greene. Well, as it turned out, I never wrote a great novel, sadly, and I never converted to Catholicism, happily, but I did do one thing he did. That is, in middle age I moved to a seaside town and got into a right barney with the local powers-that-be.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
