@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Listen, in England people are already writing their memoirs at the age of 23.</b>
-> <p><i>Rupert Everett</i></p>
+> <b>But Socialism, alone, can bring self-determination of their peoples.</b>
+> <p><i>Karl Liebknecht</i></p>
 
 <br>
