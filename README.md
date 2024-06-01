@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We allow our ignorance to prevail upon us and make us think we can survive alone, alone in patches, alone in groups, alone in races, even alone in genders.</b>
-> <p><i>Maya Angelou</i></p>
+> <b>The chief role of the universities is to prolong adolescence into middle age, at which point early retirement ensures that we lack the means or the will to enforce significant change.</b>
+> <p><i>J. G. Ballard</i></p>
 
 <br>
