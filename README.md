@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As human beings, we are vulnerable to confusing the unprecedented with the improbable. In our everyday experience, if something has never happened before, we are generally safe in assuming it is not going to happen in the future, but the exceptions can kill you and climate change is one of those exceptions.</b>
-> <p><i>Al Gore</i></p>
+> <b>If you want to know the taste of a pear, you must change the pear by eating it yourself. If you want to know the theory and methods of revolution, you must take part in revolution. All genuine knowledge originates in direct experience.</b>
+> <p><i>Mao Zedong</i></p>
 
 <br>
