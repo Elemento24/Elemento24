@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people of Hong Kong are criticized for only being interested in business, but it's the only thing they've been allowed to do.</b>
-> <p><i>Paul Theroux</i></p>
+> <b>It is one of my sources of happiness never to desire a knowledge of other people's business.</b>
+> <p><i>Dolley Madison</i></p>
 
 <br>
