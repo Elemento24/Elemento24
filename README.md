@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't have to be the Dalai Lama to tell people that life's about change.</b>
-> <p><i>John Cleese</i></p>
+> <b>The people of Hong Kong are criticized for only being interested in business, but it's the only thing they've been allowed to do.</b>
+> <p><i>Paul Theroux</i></p>
 
 <br>
