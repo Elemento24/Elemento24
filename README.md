@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Such is the state of life, that none are happy but by the anticipation of change: the change itself is nothing when we have made it, the next wish is to change again.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>I think dance is amazing because what people don't realize is like when you dance your spirit and your soul get ignited. You're not only releasing endorphins, but also your spirit is awakening. It makes you feel good and happy.</b>
+> <p><i>Laurieann Gibson</i></p>
 
 <br>
