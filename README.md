@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wasn't very good about juggling family and my career. I was interested in who was coming to the children's birthday party, what my son was writing. I was thinking about Legos.</b>
-> <p><i>Jill Clayburgh</i></p>
+> <b>We allow our ignorance to prevail upon us and make us think we can survive alone, alone in patches, alone in groups, alone in races, even alone in genders.</b>
+> <p><i>Maya Angelou</i></p>
 
 <br>
