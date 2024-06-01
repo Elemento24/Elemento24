@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think dance is amazing because what people don't realize is like when you dance your spirit and your soul get ignited. You're not only releasing endorphins, but also your spirit is awakening. It makes you feel good and happy.</b>
-> <p><i>Laurieann Gibson</i></p>
+> <b>Sureness is something like a neck brace, which we clamp around our lives, hoping to somehow protect ourselves from the frightening, constant whiplash of change. Sadly, the brace doesn't always hold.</b>
+> <p><i>Elizabeth Gilbert</i></p>
 
 <br>
