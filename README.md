@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The chief role of the universities is to prolong adolescence into middle age, at which point early retirement ensures that we lack the means or the will to enforce significant change.</b>
-> <p><i>J. G. Ballard</i></p>
+> <b>When I work alone, my process is like painting. With Fleetwood Mac, it's more like movie making.</b>
+> <p><i>Lindsey Buckingham</i></p>
 
 <br>
