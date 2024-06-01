@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to know the taste of a pear, you must change the pear by eating it yourself. If you want to know the theory and methods of revolution, you must take part in revolution. All genuine knowledge originates in direct experience.</b>
-> <p><i>Mao Zedong</i></p>
+> <b>Listen, in England people are already writing their memoirs at the age of 23.</b>
+> <p><i>Rupert Everett</i></p>
 
 <br>
