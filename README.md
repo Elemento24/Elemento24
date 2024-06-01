@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>TV is sort of the only way to go for an actress my age to make a decent salary with independent films, you just can't.</b>
-> <p><i>Jessica Lange</i></p>
+> <b>I was born not knowing and have had only a little time to change that here and there.</b>
+> <p><i>Richard P. Feynman</i></p>
 
 <br>
