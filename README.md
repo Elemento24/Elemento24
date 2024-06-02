@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sureness is something like a neck brace, which we clamp around our lives, hoping to somehow protect ourselves from the frightening, constant whiplash of change. Sadly, the brace doesn't always hold.</b>
-> <p><i>Elizabeth Gilbert</i></p>
+> <b>I don't get a chance to do many of my own stunts on 'Buffy' - none of us do. We have amazing stunt people who make us all look really believable and really good.</b>
+> <p><i>Emma Caulfield</i></p>
 
 <br>
