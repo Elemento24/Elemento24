@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shockingly, a University of Pennsylvania study says the number of young people addicted to gambling - largely due to increased exposure to the Internet and Internet gambling - grew by an alarming 20 percent between 2004 and 2005 alone.</b>
-> <p><i>Spencer Bachus</i></p>
+> <b>I was passionate. I found something that I loved. I could be all alone in a big old skating rink and nobody could get near me and I didn't have to talk to anybody because of my shyness. It was great. I was in my fantasy world.</b>
+> <p><i>Dorothy Hamill</i></p>
 
 <br>
