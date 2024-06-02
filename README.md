@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So let's not use a stylus. We're going to use the best pointing device in the world. We're going to use a pointing device that we're all born with - born with ten of them. We're going to use our fingers. We're going to touch this with our fingers. And we have invented a new technology called multi-touch, which is phenomenal. It works like magic.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>Change is the law of life. And those who look only to the past or present are certain to miss the future.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
