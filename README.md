@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did this Super-8 film at art school called 'Tissues,' this black comedy about a family whose father has been arrested for child molestation. I was absolutely thrilled by every inch of it, and would throw my projector in the back of my car and show it to anybody who would watch it.</b>
-> <p><i>Jane Campion</i></p>
+> <b>I never called my work an 'art'. It's part of show business, the business of building entertainment.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
