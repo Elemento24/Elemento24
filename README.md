@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It becomes more necessary to see the truth as it is if you realize that the only vehicle for change are these people who have lost their personality.</b>
-> <p><i>Steven Biko</i></p>
+> <b>I did this Super-8 film at art school called 'Tissues,' this black comedy about a family whose father has been arrested for child molestation. I was absolutely thrilled by every inch of it, and would throw my projector in the back of my car and show it to anybody who would watch it.</b>
+> <p><i>Jane Campion</i></p>
 
 <br>
