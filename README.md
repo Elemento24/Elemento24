@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never called my work an 'art'. It's part of show business, the business of building entertainment.</b>
-> <p><i>Walt Disney</i></p>
+> <b>I just think we're living in a time of massive, amazing change, like the Industrial Revolution on acid.</b>
+> <p><i>Kelly Lynch</i></p>
 
 <br>
