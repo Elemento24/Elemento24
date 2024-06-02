@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The U.S. states that allow for citizens' initiatives tend to have fewer laws and lower taxes than the ones that don't. But the beauty of the system is that it encourages the spread of best practice.</b>
-> <p><i>Daniel Hannan</i></p>
+> <b>At a young age, I was interested in comic books, which was really how I learnt to read. The name Cage came from a comic book character called Power Man.</b>
+> <p><i>Nicolas Cage</i></p>
 
 <br>
