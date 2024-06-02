@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of punk rock is not going to be in the mainstream. It's below the radar. The beauty of it is that you're not supposed to always know. It's subterranean.</b>
-> <p><i>Billie Joe Armstrong</i></p>
+> <b>If you're truly in a band and you guys have been together for a long time, there's a family bond that you have. In fact, I've talked about this with therapists, especially if you're talking about a relationship, because when you're with somebody, you're going to your family, and she's alone.</b>
+> <p><i>Gary Allan</i></p>
 
 <br>
