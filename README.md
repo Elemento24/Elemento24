@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that the majority of times the scale tilts toward the good. It's this amazing thing that rolls on and if we get in the flow of it, that's God. And if we fight it, if we swim the other way, we're swimming away from the purest expression of this life.</b>
-> <p><i>Michael J. Fox</i></p>
+> <b>A great attitude does much more than turn on the lights in our worlds it seems to magically connect us to all sorts of serendipitous opportunities that were somehow absent before the change.</b>
+> <p><i>Earl Nightingale</i></p>
 
 <br>
