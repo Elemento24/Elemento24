@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No Congress ever has seen fit to amend the Constitution to address any issue related to marriage. No Constitutional Amendment was needed to ban polygamy or bigamy, nor was a Constitutional Amendment needed to set a uniform age of majority to ban child marriages.</b>
-> <p><i>Judy Biggert</i></p>
+> <b>When you have a tough loss, go through it and agonize. I had one loss that I still want to change, but at the same time I realize it is an important part of who I am.</b>
+> <p><i>Andrew Shue</i></p>
 
 <br>
