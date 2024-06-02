@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm an introvert at heart... And show business - even though I've loved it so much - has always been hard for me.</b>
-> <p><i>Roy Rogers</i></p>
+> <b>In my business, if I get too close to you and you die, it hurts me. And so you develop a natural inclination not to be close to the patient, so that if things don't work out ideally, you can still get up the next day and care for the next patient.</b>
+> <p><i>Mehmet Oz</i></p>
 
 <br>
