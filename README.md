@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't get a chance to do many of my own stunts on 'Buffy' - none of us do. We have amazing stunt people who make us all look really believable and really good.</b>
-> <p><i>Emma Caulfield</i></p>
+> <b>Wealth, beauty, and fame are transient. When those are gone, little is left except the need to be useful.</b>
+> <p><i>Gene Tierney</i></p>
 
 <br>
