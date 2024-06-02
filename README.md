@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A great attitude does much more than turn on the lights in our worlds it seems to magically connect us to all sorts of serendipitous opportunities that were somehow absent before the change.</b>
-> <p><i>Earl Nightingale</i></p>
+> <b>It becomes more necessary to see the truth as it is if you realize that the only vehicle for change are these people who have lost their personality.</b>
+> <p><i>Steven Biko</i></p>
 
 <br>
