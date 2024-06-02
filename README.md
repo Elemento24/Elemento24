@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're truly in a band and you guys have been together for a long time, there's a family bond that you have. In fact, I've talked about this with therapists, especially if you're talking about a relationship, because when you're with somebody, you're going to your family, and she's alone.</b>
-> <p><i>Gary Allan</i></p>
+> <b>Ford used to come to work in a big car with two Admiral's flags, on each side of the car. His assistant would be there with his accordion, playing, Hail to the Chief.</b>
+> <p><i>Richard Widmark</i></p>
 
 <br>
