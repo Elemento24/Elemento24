@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At a young age, I was interested in comic books, which was really how I learnt to read. The name Cage came from a comic book character called Power Man.</b>
-> <p><i>Nicolas Cage</i></p>
+> <b>It is only with burning anger that we can speak of this attack by counter-revolutionary reactionary elements against the capital of our country, against our people's democratic order and the power of the working class.</b>
+> <p><i>Janos Kadar</i></p>
 
 <br>
