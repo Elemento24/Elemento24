@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my business, if I get too close to you and you die, it hurts me. And so you develop a natural inclination not to be close to the patient, so that if things don't work out ideally, you can still get up the next day and care for the next patient.</b>
-> <p><i>Mehmet Oz</i></p>
+> <b>The U.S. states that allow for citizens' initiatives tend to have fewer laws and lower taxes than the ones that don't. But the beauty of the system is that it encourages the spread of best practice.</b>
+> <p><i>Daniel Hannan</i></p>
 
 <br>
