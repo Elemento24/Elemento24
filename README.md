@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is the law of life. And those who look only to the past or present are certain to miss the future.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>A lot of punk rock is not going to be in the mainstream. It's below the radar. The beauty of it is that you're not supposed to always know. It's subterranean.</b>
+> <p><i>Billie Joe Armstrong</i></p>
 
 <br>
