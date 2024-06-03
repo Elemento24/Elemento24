@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is everything.</b>
-> <p><i>Jorja Fox</i></p>
+> <b>Judaism is much more communal, and partly as a consequence of my religious switch, I am increasingly more suspicous of my previous view that what people do in the privacy of their own home is their business alone.</b>
+> <p><i>Luke Ford</i></p>
 
 <br>
