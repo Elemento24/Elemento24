@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whether you come from heaven or hell, what does it matter, O Beauty!</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>The true art of memory is the art of attention.</b>
+> <p><i>Samuel Johnson</i></p>
 
 <br>
