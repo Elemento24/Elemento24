@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are craving this great progress in electronics, going after computers, the Internet, etc. It's a giant progress technologically. But they must have a balance of soul, a balance for human beauty. That means art has an important role.</b>
-> <p><i>Mstislav Rostropovich</i></p>
+> <b>Whether you come from heaven or hell, what does it matter, O Beauty!</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
