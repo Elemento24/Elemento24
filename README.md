@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We were astonished by the beauty and refinement of the art displayed by the objects surpassing all we could have imagined - the impression was overwhelming.</b>
-> <p><i>Howard Carter</i></p>
+> <b>You don't have to carry a designer bag that costs more than a car to look cool.</b>
+> <p><i>Kesha</i></p>
 
 <br>
