@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I conceived in art college at the age of 20, near the end of term.</b>
-> <p><i>Joni Mitchell</i></p>
+> <b>Praise or blame has but a momentary effect on the man whose love of beauty in the abstract makes him a severe critic on his own works.</b>
+> <p><i>John Keats</i></p>
 
 <br>
