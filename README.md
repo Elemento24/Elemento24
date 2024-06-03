@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The true art of memory is the art of attention.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>I was very happy sitting alone at a dining room table, writing a script.</b>
+> <p><i>Conrad Hall</i></p>
 
 <br>
