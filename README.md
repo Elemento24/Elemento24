@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wasn't very good about juggling family and my career. I was interested in who was coming to the children's birthday party, what my son was writing. I was thinking about Legos.</b>
-> <p><i>Jill Clayburgh</i></p>
+> <b>The hope and change the Democrats had in mind was nothing more than a retread of the failed and discredited socialist policies that have been the enemy of freedom for centuries all over the world. I fear America is teetering towards tyranny.</b>
+> <p><i>Jim DeMint</i></p>
 
 <br>
