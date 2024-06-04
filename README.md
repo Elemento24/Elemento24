@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Personality is more important than beauty, but imagination is more important than both of them.</b>
-> <p><i>Laurette Taylor</i></p>
+> <b>In 29 years, I had recorded over 2,200 songs. I was amazed.</b>
+> <p><i>Kate Smith</i></p>
 
 <br>
