@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I spend up to two hours a day on correspondence. Hearing from fans on the Internet and being able to directly respond to the fan base is exciting. You can cut out the middle man like the fan club... before a recent appearance in Tyler, Texas, I had fans reaching out on MySpace offering their lake house, Mavericks tickets. It was amazing.</b>
-> <p><i>Josh Henderson</i></p>
+> <b>The quickest way to defuse fear or insecurity or anger is usually humor. I think comics figure that out quickly, and, once you figure it out, you think, 'Hey, if I can do this and get paid, that would be kind of cool.'</b>
+> <p><i>Billy Gardell</i></p>
 
 <br>
