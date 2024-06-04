@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not confuse beauty with beautiful. Beautiful is a human judgment. Beauty is All. The difference is everything.</b>
-> <p><i>Matthew Fox</i></p>
+> <b>To me, teamwork is the beauty of our sport, where you have five acting as one. You become selfless.</b>
+> <p><i>Mike Krzyzewski</i></p>
 
 <br>
