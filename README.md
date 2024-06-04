@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, teamwork is the beauty of our sport, where you have five acting as one. You become selfless.</b>
-> <p><i>Mike Krzyzewski</i></p>
+> <b>I spend up to two hours a day on correspondence. Hearing from fans on the Internet and being able to directly respond to the fan base is exciting. You can cut out the middle man like the fan club... before a recent appearance in Tyler, Texas, I had fans reaching out on MySpace offering their lake house, Mavericks tickets. It was amazing.</b>
+> <p><i>Josh Henderson</i></p>
 
 <br>
