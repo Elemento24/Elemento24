@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I couldn't even go to the bathroom alone. My mother or a social worker always went with me.</b>
-> <p><i>Natalie Wood</i></p>
+> <b>The flowers anew, returning seasons bring but beauty faded has no second spring.</b>
+> <p><i>Ambrose Philips</i></p>
 
 <br>
