@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is not caused. It is.</b>
-> <p><i>Emily Dickinson</i></p>
+> <b>Do not confuse beauty with beautiful. Beautiful is a human judgment. Beauty is All. The difference is everything.</b>
+> <p><i>Matthew Fox</i></p>
 
 <br>
