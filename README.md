@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What reader wants to be told what attitude to strike?</b>
-> <p><i>Ian Mcewan</i></p>
+> <b>Personality is more important than beauty, but imagination is more important than both of them.</b>
+> <p><i>Laurette Taylor</i></p>
 
 <br>
