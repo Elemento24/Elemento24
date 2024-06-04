@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The quickest way to defuse fear or insecurity or anger is usually humor. I think comics figure that out quickly, and, once you figure it out, you think, 'Hey, if I can do this and get paid, that would be kind of cool.'</b>
-> <p><i>Billy Gardell</i></p>
+> <b>The customs and fashions of men change like leaves on the bough, some of which go and others come.</b>
+> <p><i>Dante Alighieri</i></p>
 
 <br>
