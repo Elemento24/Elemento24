@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best and safest thing is to keep a balance in your life, acknowledge the great powers around us and in us. If you can do that, and live that way, you are really a wise man.</b>
-> <p><i>Euripides</i></p>
+> <b>Hiking is the best workout!... You can hike for three hours and not even realize you're working out. And, hiking alone lets me have some time to myself.</b>
+> <p><i>Jamie Luner</i></p>
 
 <br>
