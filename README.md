@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think art is inherently nonviolent and it actually occupies your mind with creation rather than destruction.</b>
-> <p><i>Anthony Kiedis</i></p>
+> <b>I couldn't even go to the bathroom alone. My mother or a social worker always went with me.</b>
+> <p><i>Natalie Wood</i></p>
 
 <br>
