@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hiking is the best workout!... You can hike for three hours and not even realize you're working out. And, hiking alone lets me have some time to myself.</b>
-> <p><i>Jamie Luner</i></p>
+> <b>Look at all the buses now that want exact change, exact change. I figure if I give them exact change, they should take me exactly where I want to go.</b>
+> <p><i>George C. Wallace</i></p>
 
 <br>
