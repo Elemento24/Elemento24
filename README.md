@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone.</b>
-> <p><i>Orson Welles</i></p>
+> <b>I remember when I took Quentin Tarantino with me to a very private screening of the documentary 'Roman Polanski: Wanted and Desired,' which shows some of the legal irregularities of his case. I was involved by the film, and it was an amazing experience to see people weep at the end of it.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
