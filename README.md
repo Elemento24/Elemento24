@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A movie like House of the Dead with around $7 million budget or Alone in the Dark with around $16 million budget are much easier to make profit than the typical $50 million major motion picture.</b>
-> <p><i>Uwe Boll</i></p>
+> <b>The philosophies of one age have become the absurdities of the next, and the foolishness of yesterday has become the wisdom of tomorrow.</b>
+> <p><i>William Osler</i></p>
 
 <br>
