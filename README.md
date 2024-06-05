@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a man like Malcolm X could change and repudiate racism, if I myself and other former Muslims can change, if young whites can change, then there is hope for America.</b>
-> <p><i>Eldridge Cleaver</i></p>
+> <b>I've actually spent a lot of time researching beauty products, how they are produced and how they are sold.</b>
+> <p><i>Lauren Conrad</i></p>
 
 <br>
