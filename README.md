@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think beauty comes from within, and society paints a ridiculous picture.</b>
-> <p><i>Rachel Bilson</i></p>
+> <b>I still have a lot to learn - about the business, about music, and about myself. Its exciting.</b>
+> <p><i>Britney Spears</i></p>
 
 <br>
