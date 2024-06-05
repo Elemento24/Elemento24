@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I still have a lot to learn - about the business, about music, and about myself. Its exciting.</b>
-> <p><i>Britney Spears</i></p>
+> <b>A movie like House of the Dead with around $7 million budget or Alone in the Dark with around $16 million budget are much easier to make profit than the typical $50 million major motion picture.</b>
+> <p><i>Uwe Boll</i></p>
 
 <br>
