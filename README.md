@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always find beauty in things that are odd and imperfect - they are much more interesting.</b>
-> <p><i>Marc Jacobs</i></p>
+> <b>We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone.</b>
+> <p><i>Orson Welles</i></p>
 
 <br>
