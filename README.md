@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Excuses change nothing, but make everyone feel better.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>Rest assured that whatever station of life we are placed, princely or lowly, it contains the lessons and experiences necessary at the moment for our evolution, and gives us the best advantage for the development of ourselves.</b>
+> <p><i>Edward Bach</i></p>
 
 <br>
