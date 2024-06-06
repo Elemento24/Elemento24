@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Advertising is fundamentally persuasion and persuasion happens to be not a science, but an art.</b>
-> <p><i>William Bernbach</i></p>
+> <b>Business is never so healthy as when, like a chicken, it must do a certain amount of scratching around for what it gets.</b>
+> <p><i>Henry Ford</i></p>
 
 <br>
