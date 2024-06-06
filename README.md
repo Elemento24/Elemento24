@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is just a number. It's totally irrelevant unless, of course, you happen to be a bottle of wine.</b>
-> <p><i>Joan Collins</i></p>
+> <b>American Idol transcends age, gender, ethnicity, everything.</b>
+> <p><i>Carrie Underwood</i></p>
 
 <br>
