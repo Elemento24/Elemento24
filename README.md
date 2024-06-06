@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At best the family teaches the finest things human beings can learn from one another generosity and love. But it is also, all too often, where we learn nasty things like hate, rage and shame.</b>
-> <p><i>Barbara Ehrenreich</i></p>
+> <b>No community values entrepreneurship and small business more than the Hispanic community.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
