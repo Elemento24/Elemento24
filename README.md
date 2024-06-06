@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to be the best, you have to do things that other people aren't willing to do.</b>
-> <p><i>Michael Phelps</i></p>
+> <b>As a young black boy, it made me proud to see black leaders that did something amazing and made the world change.</b>
+> <p><i>John Legend</i></p>
 
 <br>
