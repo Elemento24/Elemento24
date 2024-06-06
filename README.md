@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time does not change us. It just unfolds us.</b>
-> <p><i>Max Frisch</i></p>
+> <b>If you can't get rid of the skeleton in your closet, you'd best teach it to dance.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
