@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business is never so healthy as when, like a chicken, it must do a certain amount of scratching around for what it gets.</b>
-> <p><i>Henry Ford</i></p>
+> <b>At best the family teaches the finest things human beings can learn from one another generosity and love. But it is also, all too often, where we learn nasty things like hate, rage and shame.</b>
+> <p><i>Barbara Ehrenreich</i></p>
 
 <br>
