@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the First Amendment means anything, it means that a state has no business telling a man, sitting alone in his house, what books he may read or what films he may watch.</b>
-> <p><i>Thurgood Marshall</i></p>
+> <b>Those who govern, having much business on their hands, do not generally like to take the trouble of considering and carrying into execution new projects. The best public measures are therefore seldom adopted from previous wisdom, but forced by the occasion.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
