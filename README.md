@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Advertising is a racket, like the movies and the brokerage business. You cannot be honest without admitting that its constructive contribution to humanity is exactly minus zero.</b>
-> <p><i>F. Scott Fitzgerald</i></p>
+> <b>Age is just a number. It's totally irrelevant unless, of course, you happen to be a bottle of wine.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
