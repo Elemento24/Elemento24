@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty of whatever kind, in its supreme development, invariably excites the sensitive soul to tears.</b>
-> <p><i>Edgar Allan Poe</i></p>
+> <b>One must not make oneself cheap here - that is a cardinal point - or else one is done. Whoever is most impertinent has the best chance.</b>
+> <p><i>Wolfgang Amadeus Mozart</i></p>
 
 <br>
