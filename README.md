@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We hire people who want to make the best things in the world.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>Art is not a handicraft, it is the transmission of feeling the artist has experienced.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
