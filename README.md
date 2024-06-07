@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is art that makes life, makes interest, makes importance and I know of no substitute whatever for the force and beauty of its process.</b>
-> <p><i>Max Eastman</i></p>
+> <b>If you have a line of business - I know this as a CEO - or if you have a teenager - I know this as a parent - who have a spending problem, what do you do? You quit giving them money.</b>
+> <p><i>Carly Fiorina</i></p>
 
 <br>
