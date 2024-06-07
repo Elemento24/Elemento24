@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like being alone and I think this movie, as much as it is an investigation of connection and people bonding, I also think it's just as much about loneliness.</b>
-> <p><i>Jason Schwartzman</i></p>
+> <b>Art, as far as it is able, follows nature, as a pupil imitates his master thus your art must be, as it were, God's grandchild.</b>
+> <p><i>Dante Alighieri</i></p>
 
 <br>
