@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a lot of great movies that have won the Academy Award, and a lot of great movies that haven't. You just do the best you can.</b>
-> <p><i>Clint Eastwood</i></p>
+> <b>Change is the only constant. Hanging on is the only sin.</b>
+> <p><i>Denise McCluggage</i></p>
 
 <br>
