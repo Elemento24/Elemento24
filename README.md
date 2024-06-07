@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was really into classifieds for awhile. I'm a big negotiator. My father owned a car dealership when I was younger... it's just in my blood.</b>
-> <p><i>Jake Johnson</i></p>
+> <b>Going to church doesn't make you any more a Christian than going to the garage makes you a car.</b>
+> <p><i>Laurence J. Peter</i></p>
 
 <br>
