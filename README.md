@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't simply retire from something have something to retire to.</b>
-> <p><i>Harry Emerson Fosdick</i></p>
+> <b>I was really into classifieds for awhile. I'm a big negotiator. My father owned a car dealership when I was younger... it's just in my blood.</b>
+> <p><i>Jake Johnson</i></p>
 
 <br>
