@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is the only constant. Hanging on is the only sin.</b>
-> <p><i>Denise McCluggage</i></p>
+> <b>The best director is the one you don't see.</b>
+> <p><i>Billy Wilder</i></p>
 
 <br>
