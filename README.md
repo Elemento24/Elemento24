@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I only go out to get me a fresh appetite for being alone.</b>
-> <p><i>Lord Byron</i></p>
+> <b>We live in an age when to be young and to be indifferent can be no longer synonymous. We must prepare for the coming hour. The claims of the Future are represented by suffering millions and the Youth of a Nation are the trustees of Posterity.</b>
+> <p><i>Benjamin Disraeli</i></p>
 
 <br>
