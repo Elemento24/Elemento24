@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is a mistake for a sculptor or a painter to speak or write very often about his job. It releases tension needed for his work.</b>
-> <p><i>Henry Moore</i></p>
+> <b>It's art that pushes against psychological and social expectations, that tries to transform decay into something generative, that is replicative in a baroque way, that isn't about progress, and wants to - as Walt Whitman put it - 'contain multitudes.'</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
