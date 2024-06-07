@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Half the time men think they are talking business, they are wasting time.</b>
-> <p><i>E. W. Howe</i></p>
+> <b>The first mistake of art is to assume that it's serious.</b>
+> <p><i>Lester Bangs</i></p>
 
 <br>
