@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is through art, and through art only, that we can realise our perfection.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>I'm very much into the costuming of any character that I portray and it's one of the great things about making movies is it's a collaborative art form so you get all these artists who are looking specifically about for this instance your character's costume and what that might tell about your character.</b>
+> <p><i>Jeff Bridges</i></p>
 
 <br>
