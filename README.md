@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of independence, departure, actions that rely on themselves.</b>
-> <p><i>Walt Whitman</i></p>
+> <b>In art the best is good enough.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
