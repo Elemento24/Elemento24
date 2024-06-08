@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Government in the U.S. today is a senior partner in every business in the country.</b>
-> <p><i>Norman Cousins</i></p>
+> <b>The remarkable thing is, we have a choice everyday regarding the attitude we will embrace for that day.</b>
+> <p><i>Charles R. Swindoll</i></p>
 
 <br>
