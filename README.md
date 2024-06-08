@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those men get along best with women who can get along best without them.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>ER was one of my favourites. I played a car accident victim who has leukemia. I got to wear a neck brace and nose tubes for the two days I worked.</b>
+> <p><i>Dakota Fanning</i></p>
 
 <br>
