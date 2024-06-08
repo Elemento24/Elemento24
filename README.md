@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of the world, which is so soon to perish, has two edges, one of laughter, one of anguish, cutting the heart asunder.</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>If you love dance and you have the gift of teaching, teaching is super amazing and important because my teachers planted that seed in me. As a teacher you understand the difference or the definition of a Baryshnikov or a Gregory Hines, so teaching is really important and very necessary.</b>
+> <p><i>Laurieann Gibson</i></p>
 
 <br>
