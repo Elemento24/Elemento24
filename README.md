@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man paints with his brains and not with his hands.</b>
-> <p><i>Michelangelo</i></p>
+> <b>Those men get along best with women who can get along best without them.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
