@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Painting is by nature a luminous language.</b>
-> <p><i>Robert Delaunay</i></p>
+> <b>Happiness is an attitude of mind, born of the simple determination to be happy under all outward circumstances.</b>
+> <p><i>J. Donald Walters</i></p>
 
 <br>
