@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Judaism is much more communal, and partly as a consequence of my religious switch, I am increasingly more suspicous of my previous view that what people do in the privacy of their own home is their business alone.</b>
-> <p><i>Luke Ford</i></p>
+> <b>When I think of art I think of beauty. Beauty is the mystery of life. It is not in the eye it is in the mind. In our minds there is awareness of perfection.</b>
+> <p><i>Agnes Martin</i></p>
 
 <br>
