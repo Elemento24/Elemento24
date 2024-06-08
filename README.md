@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Happiness is an attitude of mind, born of the simple determination to be happy under all outward circumstances.</b>
-> <p><i>J. Donald Walters</i></p>
+> <b>Deals are my art form. Other people paint beautifully on canvas or write wonderful poetry. I like making deals, preferably big deals. That's how I get my kicks.</b>
+> <p><i>Edward Koch</i></p>
 
 <br>
