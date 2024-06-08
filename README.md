@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude is we live and let live. This is actually an amazing change in values in a rather short time and it's an example of freedom from religion.</b>
-> <p><i>Tom Wolfe</i></p>
+> <b>Now that women are jockeys, baseball umpires, atomic scientists, and business executives, maybe someday they can master parallel parking.</b>
+> <p><i>Bill Vaughan</i></p>
 
 <br>
