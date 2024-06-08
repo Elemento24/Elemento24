@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In art the best is good enough.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>Under this window in stormy weather I marry this man and woman together Let none but Him who rules the thunder Put this man and woman asunder.</b>
+> <p><i>Jonathan Swift</i></p>
 
 <br>
