@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing is as dangerous in architecture as dealing with separated problems. If we split life into separated problems we split the possibilities to make good building art.</b>
-> <p><i>Alvar Aalto</i></p>
+> <b>I've had four amazing men in my life, very strong, powerful, wonderful men. I certainly will have a relationship with someone but I don't think I will get married again.</b>
+> <p><i>Cheryl Tiegs</i></p>
 
 <br>
