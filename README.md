@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When it comes to cars, only two varieties of people are possible - cowards and fools.</b>
-> <p><i>Russell Baker</i></p>
+> <b>A man paints with his brains and not with his hands.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
