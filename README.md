@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no pleasure to me without communication: there is not so much as a sprightly thought comes into my mind that it does not grieve me to have produced alone, and that I have no one to tell it to.</b>
-> <p><i>Michel de Montaigne</i></p>
+> <b>Corporations are not in business to be social-welfare organizations they are there to make money.</b>
+> <p><i>Benjamin Carson</i></p>
 
 <br>
