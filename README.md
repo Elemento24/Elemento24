@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another thing that's pathetic is this rule that you have to look ugly to get respect as an actress. Jessica Lange had to make herself look really bad to prove that she had amazing talent.</b>
-> <p><i>Kevyn Aucoin</i></p>
+> <b>When I was in elementary school, I used to write letters to myself. I'd write letters and go 'Dear Kristen-at-16-years-old, happy birthday. I hope you're doing something.'</b>
+> <p><i>Kristin Kreuk</i></p>
 
 <br>
