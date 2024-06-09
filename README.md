@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Learning to dislike children at an early age saves a lot of expense and aggravation later in life.</b>
-> <p><i>Robert Byrne</i></p>
+> <b>Revenge is often like biting a dog because the dog bit you.</b>
+> <p><i>Austin O'Malley</i></p>
 
 <br>
