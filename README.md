@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's so funny looking back, but my so-called overnight success actually took 15 years. I remember when I didn't have any money, and my only car was mom's Hyundai.</b>
-> <p><i>Criss Angel</i></p>
+> <b>I traveled the state of Florida for two years campaigning. I have never met a job creator who told me that they were waiting for the next tax increase before they started growing their business. I've never met a single job creator who's ever said to me I can't wait until government raises taxes again so I can go out and create a job.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
