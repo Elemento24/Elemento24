@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An archaeologist is the best husband a woman can have. The older she gets the more interested he is in her.</b>
-> <p><i>Agatha Christie</i></p>
+> <b>The turning point was when I hit my 30th birthday. I thought, if really want to write, it's time to start. I picked up the book How to Write a Novel in 90 Days. The author said to just write three pages a day, and I figured, I can do this. I never got past Page 3 of that book.</b>
+> <p><i>James Rollins</i></p>
 
 <br>
