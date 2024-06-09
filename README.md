@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why do people talk of the horrors of old age? It's great. I feel like a fine old car with the parts gradually wearing out, but I'm not complaining,... Those who find growing old terrible are people who haven't done what they wanted with their lives.</b>
-> <p><i>Martha Gellhorn</i></p>
+> <b>Poetry is not only dream and vision it is the skeleton architecture of our lives. It lays the foundations for a future of change, a bridge across our fears of what has never been before.</b>
+> <p><i>Audre Lorde</i></p>
 
 <br>
