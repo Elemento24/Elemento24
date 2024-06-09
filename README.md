@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That best portion of a man's life, his little, nameless, unremembered acts of kindness and love.</b>
-> <p><i>William Wordsworth</i></p>
+> <b>It's so funny looking back, but my so-called overnight success actually took 15 years. I remember when I didn't have any money, and my only car was mom's Hyundai.</b>
+> <p><i>Criss Angel</i></p>
 
 <br>
