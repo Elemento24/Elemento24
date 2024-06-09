@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Growing up going to Christian school and the concept that you're born a sinner and you don't really have a choice to change who you are has been hammered into my head and created the entire reason why I made art and made a band and made records called 'Antichrist Superstar.'</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>The excitement of learning separates youth from old age. As long as you're learning you're not old.</b>
+> <p><i>Rosalyn S. Yalow</i></p>
 
 <br>
