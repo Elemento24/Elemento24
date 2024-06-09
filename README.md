@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Writing is truly a creative art - putting word to a blank piece of paper and ending up with a full-fledged story rife with character and plot.</b>
-> <p><i>William Shatner</i></p>
+> <b>I look at Jagger and the like and if I see a good attitude I'll admire it but I wouldn't copy their style.</b>
+> <p><i>Michael Hutchence</i></p>
 
 <br>
