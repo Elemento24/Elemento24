@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The excitement of learning separates youth from old age. As long as you're learning you're not old.</b>
-> <p><i>Rosalyn S. Yalow</i></p>
+> <b>Another thing that's pathetic is this rule that you have to look ugly to get respect as an actress. Jessica Lange had to make herself look really bad to prove that she had amazing talent.</b>
+> <p><i>Kevyn Aucoin</i></p>
 
 <br>
