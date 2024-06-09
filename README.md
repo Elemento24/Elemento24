@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The difference between utility and utility plus beauty is the difference between telephone wires and the spider web.</b>
-> <p><i>Edwin Way Teale</i></p>
+> <b>Growing up going to Christian school and the concept that you're born a sinner and you don't really have a choice to change who you are has been hammered into my head and created the entire reason why I made art and made a band and made records called 'Antichrist Superstar.'</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
