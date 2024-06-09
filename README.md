@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To work in architecture you are so much involved with society, with politics, with bureaucrats. It's a very complicated process to do large projects. You start to see the society, how it functions, how it works. Then you have a lot of criticism about how it works.</b>
-> <p><i>Ai Weiwei</i></p>
+> <b>Learning to dislike children at an early age saves a lot of expense and aggravation later in life.</b>
+> <p><i>Robert Byrne</i></p>
 
 <br>
