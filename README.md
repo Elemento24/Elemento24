@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I look at Jagger and the like and if I see a good attitude I'll admire it but I wouldn't copy their style.</b>
-> <p><i>Michael Hutchence</i></p>
+> <b>That best portion of a man's life, his little, nameless, unremembered acts of kindness and love.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
