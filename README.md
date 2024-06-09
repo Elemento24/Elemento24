@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Revenge is often like biting a dog because the dog bit you.</b>
-> <p><i>Austin O'Malley</i></p>
+> <b>Why do people talk of the horrors of old age? It's great. I feel like a fine old car with the parts gradually wearing out, but I'm not complaining,... Those who find growing old terrible are people who haven't done what they wanted with their lives.</b>
+> <p><i>Martha Gellhorn</i></p>
 
 <br>
