@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I traveled the state of Florida for two years campaigning. I have never met a job creator who told me that they were waiting for the next tax increase before they started growing their business. I've never met a single job creator who's ever said to me I can't wait until government raises taxes again so I can go out and create a job.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>There is no pleasure to me without communication: there is not so much as a sprightly thought comes into my mind that it does not grieve me to have produced alone, and that I have no one to tell it to.</b>
+> <p><i>Michel de Montaigne</i></p>
 
 <br>
