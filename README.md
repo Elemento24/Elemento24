@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With the never-ending stream of new social technologies, apps and platforms rolling out every day, its easy to get lost in the minutiae of social media. Yet for there to be effective change, especially within large, top-down, hierarchical institutions, a company must have an over-arching understanding of the new role it has to play.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>I don't want to argue with my wife about her car - or my driving.</b>
+> <p><i>Dale Earnhardt</i></p>
 
 <br>
