@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>None are so old as those who have outlived enthusiasm.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>I don't have the feeling of being motivated by anger, revenge or frustration.</b>
+> <p><i>Agnes Obel</i></p>
 
 <br>
