@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But to personally satisfy my own adrenalin needs, I've been racing cars a little bit, which has been fun.</b>
-> <p><i>Picabo Street</i></p>
+> <b>With the never-ending stream of new social technologies, apps and platforms rolling out every day, its easy to get lost in the minutiae of social media. Yet for there to be effective change, especially within large, top-down, hierarchical institutions, a company must have an over-arching understanding of the new role it has to play.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
