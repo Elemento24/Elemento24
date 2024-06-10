@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to argue with my wife about her car - or my driving.</b>
-> <p><i>Dale Earnhardt</i></p>
+> <b>Buying a car used to be an experience so soul-scorching, so confidence-splattering, so existentially rattling that an entire car company was based on the promise that you wouldn't have to come in contact with it.</b>
+> <p><i>Susan Orlean</i></p>
 
 <br>
