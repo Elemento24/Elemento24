@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You must be worthy of the best, but not more worthy than the rest.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>The bonds of matrimony are like any other bonds - they mature slowly.</b>
+> <p><i>Peter De Vries</i></p>
 
 <br>
