@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that making love is the best form of exercise.</b>
-> <p><i>Cary Grant</i></p>
+> <b>Politics is the art of choosing between the disastrous and the unpalatable.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
