@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Space isn't remote at all. It's only an hour's drive away if your car could go straight upwards.</b>
-> <p><i>Fred Hoyle</i></p>
+> <b>I miss Saturday morning, rolling out of bed, not shaving, getting into my car with my girls, driving to the supermarket, squeezing the fruit, getting my car washed, taking walks.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
