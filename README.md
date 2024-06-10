@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By the work one knows the workman.</b>
-> <p><i>Jean de La Fontaine</i></p>
+> <b>None are so old as those who have outlived enthusiasm.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
