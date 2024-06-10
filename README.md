@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would say, 'I'm alone, but I'm not lonely.' But I was just kidding myself.</b>
-> <p><i>Bruce Willis</i></p>
+> <b>You must be worthy of the best, but not more worthy than the rest.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
