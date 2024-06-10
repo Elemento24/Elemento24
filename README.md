@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I basically started playing violin at the age of six. That lasted about three years because my previous teacher died and the second teacher didn't really know how to successfully get me going.</b>
-> <p><i>Miroslav Vitous</i></p>
+> <b>A healthful hunger for a great idea is the beauty and blessedness of life.</b>
+> <p><i>Jean Ingelow</i></p>
 
 <br>
