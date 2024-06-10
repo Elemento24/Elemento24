@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is important, then, is not that the critic should possess a correct abstract definition of beauty for the intellect, but a certain kind of temperament, the power of being deeply moved by the presence of beautiful objects.</b>
-> <p><i>Walter Pater</i></p>
+> <b>I basically started playing violin at the age of six. That lasted about three years because my previous teacher died and the second teacher didn't really know how to successfully get me going.</b>
+> <p><i>Miroslav Vitous</i></p>
 
 <br>
