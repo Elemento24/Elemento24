@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is the art of choosing between the disastrous and the unpalatable.</b>
-> <p><i>John Kenneth Galbraith</i></p>
+> <b>Space isn't remote at all. It's only an hour's drive away if your car could go straight upwards.</b>
+> <p><i>Fred Hoyle</i></p>
 
 <br>
