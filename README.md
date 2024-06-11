@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Buying a car used to be an experience so soul-scorching, so confidence-splattering, so existentially rattling that an entire car company was based on the promise that you wouldn't have to come in contact with it.</b>
-> <p><i>Susan Orlean</i></p>
+> <b>Smiling is definitely one of the best beauty remedies. If you have a good sense of humor and a good approach to life, that's beautiful.</b>
+> <p><i>Rashida Jones</i></p>
 
 <br>
