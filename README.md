@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had a lot of anger inside me and that came out at times that were not particularly advantageous to me career-wise.</b>
-> <p><i>Mickey Rourke</i></p>
+> <b>Being in an area of the planet where scientists believe mankind started is quite amazing.</b>
+> <p><i>Jan de Bont</i></p>
 
 <br>
