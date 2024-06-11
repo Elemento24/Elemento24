@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Smiling is definitely one of the best beauty remedies. If you have a good sense of humor and a good approach to life, that's beautiful.</b>
-> <p><i>Rashida Jones</i></p>
+> <b>When anger rushes unrestrained to action, like a hot steed, it stumbles on its way. The man of thought strikes deepest and strikes safely.</b>
+> <p><i>Richard Savage</i></p>
 
 <br>
