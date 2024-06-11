@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is only a means to life, to the life more abundant. It is not in itself the life more abundant. It merely points the way, something which is overlooked not only by the public, but very often by the artist himself. In becoming an end it defeats itself.</b>
-> <p><i>Henry Miller</i></p>
+> <b>The excess of our youth are checks written against our age and they are payable with interest thirty years later.</b>
+> <p><i>Charles Caleb Colton</i></p>
 
 <br>
