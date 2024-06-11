@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There was just this amazing individuality. It's just a whole different world of optimism and fearlessness, women taking off their bras and dancing around naked, and a political hopefulness and involvement.</b>
-> <p><i>Jill Clayburgh</i></p>
+> <b>Liberalism is a really old British tradition and it has a completely different attitude towards the individual and the relationship between the individual and the state than the collectivist response of Labour, and particularly Old Labour, does.</b>
+> <p><i>Nick Clegg</i></p>
 
 <br>
