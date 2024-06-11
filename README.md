@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Keep cool anger is not an argument.</b>
-> <p><i>Daniel Webster</i></p>
+> <b>Every day, people settle for less than they deserve. They are only partially living or at best living a partial life. Every human being has the potential for greatness.</b>
+> <p><i>Bo Bennett</i></p>
 
 <br>
