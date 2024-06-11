@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother was a professional sick person she took a lot of pain pills. There are many people like that. It's just how they are used to getting attention. I always remember she's the daughter of alcoholics who'd leave her alone at Christmas time.</b>
-> <p><i>Jim Carrey</i></p>
+> <b>You could say, in a vulgar Freudian way, that I am the unhappy child who escapes into books. Even as a child, I was most happy being alone. This has not changed.</b>
+> <p><i>Slavoj Zizek</i></p>
 
 <br>
