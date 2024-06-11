@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a culture I see us as presently deprived of subtleties. The music is loud, the anger is elevated, sex seems lacking in sweetness and privacy.</b>
-> <p><i>Shelley Berman</i></p>
+> <b>When two men in business always agree, one of them is unnecessary.</b>
+> <p><i>Ezra Pound</i></p>
 
 <br>
