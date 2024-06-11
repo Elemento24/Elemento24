@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody has a gun in their car in Detroit.</b>
-> <p><i>Jim Harrison</i></p>
+> <b>My mother was a professional sick person she took a lot of pain pills. There are many people like that. It's just how they are used to getting attention. I always remember she's the daughter of alcoholics who'd leave her alone at Christmas time.</b>
+> <p><i>Jim Carrey</i></p>
 
 <br>
