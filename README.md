@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When anger rushes unrestrained to action, like a hot steed, it stumbles on its way. The man of thought strikes deepest and strikes safely.</b>
-> <p><i>Richard Savage</i></p>
+> <b>There was just this amazing individuality. It's just a whole different world of optimism and fearlessness, women taking off their bras and dancing around naked, and a political hopefulness and involvement.</b>
+> <p><i>Jill Clayburgh</i></p>
 
 <br>
