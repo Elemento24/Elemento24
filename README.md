@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business is always interfering with pleasure - but it makes other pleasures possible.</b>
-> <p><i>William Feather</i></p>
+> <b>I don't actually own a car.</b>
+> <p><i>Chris Martin</i></p>
 
 <br>
