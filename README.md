@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Canada has a passive-aggressive culture, with a lot of sarcasm and righteousness. That went with my weird messianic complex. The ego is a fascinating monster. I was taught from a young age that I had to serve, so that turned into me thinking I had to save the planet.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>We have the best government that money can buy.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
