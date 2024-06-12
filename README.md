@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Desperation is the raw material of drastic change. Only those who can leave behind everything they have ever believed in can hope to escape.</b>
-> <p><i>William S. Burroughs</i></p>
+> <b>Between 1910 and 1950 approximately 350 lives of Jesus were published in the English language alone.</b>
+> <p><i>John Clayton</i></p>
 
 <br>
