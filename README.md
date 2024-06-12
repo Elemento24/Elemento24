@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe we should encourage children to sing and play instruments from an early age.</b>
-> <p><i>Mick Jagger</i></p>
+> <b>I think women should start to embrace their age. What's the alternative to getting older? You die. I can't change the day I was born. But I can take care of my skin, my body, my mind, and try to live my life and be happy.</b>
+> <p><i>Olivia Munn</i></p>
 
 <br>
