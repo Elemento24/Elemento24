@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is only a long and bitter suicide, and faith alone can transform this suicide into a sacrifice.</b>
-> <p><i>Franz Liszt</i></p>
+> <b>Desperation is the raw material of drastic change. Only those who can leave behind everything they have ever believed in can hope to escape.</b>
+> <p><i>William S. Burroughs</i></p>
 
 <br>
