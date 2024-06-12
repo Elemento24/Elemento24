@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Happiness is an attitude of mind, born of the simple determination to be happy under all outward circumstances.</b>
-> <p><i>J. Donald Walters</i></p>
+> <b>Sweat equity is the most valuable equity there is. Know your business and industry better than anyone else in the world. Love what you do or don't do it.</b>
+> <p><i>Mark Cuban</i></p>
 
 <br>
