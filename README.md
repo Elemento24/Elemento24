@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let's talk of a system that transforms all the social organisms into a work of art, in which the entire process of work is included... something in which the principle of production and consumption takes on a form of quality. It's a Gigantic project.</b>
-> <p><i>Joseph Beuys</i></p>
+> <b>Canada has a passive-aggressive culture, with a lot of sarcasm and righteousness. That went with my weird messianic complex. The ego is a fascinating monster. I was taught from a young age that I had to serve, so that turned into me thinking I had to save the planet.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
