@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are at the bottom, you find beauty in such little things, and goodness in such little gestures. When I compare any struggle today to ones that I may have had in my childhood, there is nothing that can bring me down.</b>
-> <p><i>Natalia Vodianova</i></p>
+> <b>Happiness is an attitude of mind, born of the simple determination to be happy under all outward circumstances.</b>
+> <p><i>J. Donald Walters</i></p>
 
 <br>
