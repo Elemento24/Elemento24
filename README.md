@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't actually own a car.</b>
-> <p><i>Chris Martin</i></p>
+> <b>Any film I do is not going to change the way black women have been portrayed, or black people have been portrayed, in cinema since the days of D.W. Griffith.</b>
+> <p><i>Spike Lee</i></p>
 
 <br>
