@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Between 1910 and 1950 approximately 350 lives of Jesus were published in the English language alone.</b>
-> <p><i>John Clayton</i></p>
+> <b>I tried for a while to be an agricultural worker and was hopelessly bored. To me it was meaningless. I would stand around in heaps of manure and sings about the beauty of the work I wasn't doing.</b>
+> <p><i>Theodore Bikel</i></p>
 
 <br>
