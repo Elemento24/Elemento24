@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When two men in business always agree, one of them is unnecessary.</b>
-> <p><i>Ezra Pound</i></p>
+> <b>Business is always interfering with pleasure - but it makes other pleasures possible.</b>
+> <p><i>William Feather</i></p>
 
 <br>
