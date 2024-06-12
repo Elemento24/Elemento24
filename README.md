@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the best place to work in football is England.</b>
-> <p><i>Jose Mourinho</i></p>
+> <b>When you are at the bottom, you find beauty in such little things, and goodness in such little gestures. When I compare any struggle today to ones that I may have had in my childhood, there is nothing that can bring me down.</b>
+> <p><i>Natalia Vodianova</i></p>
 
 <br>
