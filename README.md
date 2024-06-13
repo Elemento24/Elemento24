@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politically, Obama's amazing streak of self-destructing opponents who have lain beneath his feet during his unlikely political career appears to be holding.</b>
-> <p><i>Eric Alterman</i></p>
+> <b>Better pass boldly into that other world, in the full glory of some passion, than fade and wither dismally with age.</b>
+> <p><i>James Joyce</i></p>
 
 <br>
