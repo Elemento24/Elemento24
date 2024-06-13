@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do wish I could tell you my age but it's impossible. It keeps changing all the time.</b>
-> <p><i>Greer Garson</i></p>
+> <b>An Army is a collection of armed men obliged to obey one man. Every change in the rules which impairs the principle weakens the army.</b>
+> <p><i>William Tecumseh Sherman</i></p>
 
 <br>
