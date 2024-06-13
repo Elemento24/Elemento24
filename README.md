@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude toward men who mess around is simple: If you find 'em, kill 'em.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>Offspring, the due performance on religious rites, faithful service, highest conjugal happiness and heavenly bliss for the ancestors and oneself, depend on one's wife alone.</b>
+> <p><i>Guru Nanak</i></p>
 
 <br>
