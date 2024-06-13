@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am prepared for the worst, but hope for the best.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>In our so-called democracy we are accustomed to give the majority what they want rather than educate them to understand what is best for them.</b>
+> <p><i>Carter G. Woodson</i></p>
 
 <br>
