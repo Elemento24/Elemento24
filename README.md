@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Does art have a future? Performance genres like opera, theater, music and dance are thriving all over the world, but the visual arts have been in slow decline for nearly 40 years. No major figure of profound influence has emerged in painting or sculpture since the waning of Pop Art and the birth of Minimalism in the early 1970s.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>This is the artist, then, life's hungry man, the glutton of eternity, beauty's miser, glory's slave.</b>
+> <p><i>Tom Wolfe</i></p>
 
 <br>
