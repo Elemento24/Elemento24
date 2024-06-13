@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An Army is a collection of armed men obliged to obey one man. Every change in the rules which impairs the principle weakens the army.</b>
-> <p><i>William Tecumseh Sherman</i></p>
+> <b>Only through art can we emerge from ourselves and know what another person sees.</b>
+> <p><i>Marcel Proust</i></p>
 
 <br>
