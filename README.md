@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Offspring, the due performance on religious rites, faithful service, highest conjugal happiness and heavenly bliss for the ancestors and oneself, depend on one's wife alone.</b>
-> <p><i>Guru Nanak</i></p>
+> <b>When the bright angel dominates, out comes a great work of art, a Michelangelo David or a Beethoven symphony.</b>
+> <p><i>Madeleine L'Engle</i></p>
 
 <br>
