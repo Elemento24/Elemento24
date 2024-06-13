@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not going to change the world overnight. It's one person at a time, and hopefully they're people in positions of power who can help people get in those roles and really, truly embrace colorblind casting.</b>
-> <p><i>Gabrielle Union</i></p>
+> <b>There is an abiding beauty which may be appreciated by those who will see things as they are and who will ask for no reward except to see.</b>
+> <p><i>Vera Brittain</i></p>
 
 <br>
