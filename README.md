@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the artist, then, life's hungry man, the glutton of eternity, beauty's miser, glory's slave.</b>
-> <p><i>Tom Wolfe</i></p>
+> <b>There is nothing worse than a sharp image of a fuzzy concept.</b>
+> <p><i>Ansel Adams</i></p>
 
 <br>
