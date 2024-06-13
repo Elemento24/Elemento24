@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Beauty' is a currency system like the gold standard. Like any economy, it is determined by politics, and in the modern age in the West is is the last, best belief system that keeps male dominance intact.</b>
-> <p><i>Naomi Wolf</i></p>
+> <b>Does art have a future? Performance genres like opera, theater, music and dance are thriving all over the world, but the visual arts have been in slow decline for nearly 40 years. No major figure of profound influence has emerged in painting or sculpture since the waning of Pop Art and the birth of Minimalism in the early 1970s.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
