@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was young my Father used to tell me that the two most worthwhile pursuits in life were the pursuit of truth and of beauty and I believe that Alfred Nobel must have felt much the same when he gave these prizes for literature and the sciences.</b>
-> <p><i>Frederick Sanger</i></p>
+> <b>What an artist is trying to do for people is bring them closer to something, because of course art is about sharing. You wouldn't be an artist unless you wanted to share an experience, a thought.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
