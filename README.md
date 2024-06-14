@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>United Artists wanted to do records with me. I had no idea, what a rare thing that was... to make an album. And they put a guy with me working on songs, and I got busy with films. I just kind of let it slide. Isn't that amazing?</b>
-> <p><i>John Astin</i></p>
+> <b>I feel most empires fell when they started to act human, but then look at Russia. They kept a pretty strong hand, and they fell from Afghanistan alone because Afghanistan is the graveyard of empires. I guess you just can't sustain it.</b>
+> <p><i>Colin Quinn</i></p>
 
 <br>
