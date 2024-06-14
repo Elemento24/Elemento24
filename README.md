@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My success just evolved from working hard at the business at hand each day.</b>
-> <p><i>Johnny Carson</i></p>
+> <b>Prescription: A physician's guess at what will best prolong the situation with least harm to the patient.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
