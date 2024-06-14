@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Jealousy is bred in doubts. When those doubts change into certainties, then the passion either ceases or turns absolute madness.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>My inspiration was my mom. She's a great cook, and she still cooks, and we still banter back and forth about cooking. Growing up in a mostly Portuguese community, food was important and the family table was extremely important. At a very young age I understood that.</b>
+> <p><i>Emeril Lagasse</i></p>
 
 <br>
