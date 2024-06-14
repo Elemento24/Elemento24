@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would warn you that I do not attribute to nature either beauty or deformity, order or confusion. Only in relation to our imagination can things be called beautiful or ugly, well-ordered or confused.</b>
-> <p><i>Baruch Spinoza</i></p>
+> <b>Art is always criticized and always an outsider gets the blame.</b>
+> <p><i>Ville Valo</i></p>
 
 <br>
