@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is always criticized and always an outsider gets the blame.</b>
-> <p><i>Ville Valo</i></p>
+> <b>Jealousy is bred in doubts. When those doubts change into certainties, then the passion either ceases or turns absolute madness.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
