@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been ambitious since I was nine years old and that was never going to change.</b>
-> <p><i>Katy Perry</i></p>
+> <b>My success just evolved from working hard at the business at hand each day.</b>
+> <p><i>Johnny Carson</i></p>
 
 <br>
