@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am an artist. The track is my canvas, and the car is my brush.</b>
-> <p><i>Graham Hill</i></p>
+> <b>Every performance is different. That's the beauty of it.</b>
+> <p><i>Van Morrison</i></p>
 
 <br>
