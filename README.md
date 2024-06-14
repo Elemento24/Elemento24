@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel most empires fell when they started to act human, but then look at Russia. They kept a pretty strong hand, and they fell from Afghanistan alone because Afghanistan is the graveyard of empires. I guess you just can't sustain it.</b>
-> <p><i>Colin Quinn</i></p>
+> <b>I'm very concerned for the future of the earth and its amazing creatures. We've got to be careful and make sure we don't foul our own nest.</b>
+> <p><i>John Lithgow</i></p>
 
 <br>
