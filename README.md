@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How do you nurture a positive attitude when all the statistics say you're a dead man? You go to work.</b>
-> <p><i>Patrick Swayze</i></p>
+> <b>United Artists wanted to do records with me. I had no idea, what a rare thing that was... to make an album. And they put a guy with me working on songs, and I got busy with films. I just kind of let it slide. Isn't that amazing?</b>
+> <p><i>John Astin</i></p>
 
 <br>
