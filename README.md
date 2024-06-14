@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age: when you begin to exchange your emotions for symptoms.</b>
-> <p><i>Irvin S. Cobb</i></p>
+> <b>Patience is the best remedy for every trouble.</b>
+> <p><i>Plautus</i></p>
 
 <br>
