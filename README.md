@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reality of split government puts a premium on creativity within the administration. President Obama needs to put the right people in charge of the agencies and then have them push the bounds of administrative power to change policy through those agencies. President Obama has a pretty good track record of this.</b>
-> <p><i>Eliot Spitzer</i></p>
+> <b>Bosnia is under my skin. It's the place you cannot leave behind. I was obsessed by the nightmare of it all there was this sense of guilt, and an anger that has become something much deeper over these last years.</b>
+> <p><i>Paddy Ashdown</i></p>
 
 <br>
