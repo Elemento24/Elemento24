@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that parents need to make nutrition education a priority in their home environment. It's crucial for good health and longevity to instill in your children sound eating habits from an early age.</b>
-> <p><i>Cat Cora</i></p>
+> <b>Beauty attracts us men but if, like an armed magnet it is pointed, beside, with gold and silver, it attracts with tenfold power.</b>
+> <p><i>Jean Paul</i></p>
 
 <br>
