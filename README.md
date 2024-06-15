@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grief can't be shared. Everyone carries it alone. His own burden in his own way.</b>
-> <p><i>Anne Morrow Lindbergh</i></p>
+> <b>Anger is never without an argument, but seldom with a good one.</b>
+> <p><i>Indira Gandhi</i></p>
 
 <br>
