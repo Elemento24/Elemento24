@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For every moment of triumph, for every instance of beauty, many souls must be trampled.</b>
-> <p><i>Hunter S. Thompson</i></p>
+> <b>I have been in Formula One for 12 years, and out of that I had one year with the perfect car.</b>
+> <p><i>Michael Schumacher</i></p>
 
 <br>
