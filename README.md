@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty attracts us men but if, like an armed magnet it is pointed, beside, with gold and silver, it attracts with tenfold power.</b>
-> <p><i>Jean Paul</i></p>
+> <b>It's so amazing to hear a crowd of people singing one of your songs. It's the best feeling.</b>
+> <p><i>Liam Payne</i></p>
 
 <br>
