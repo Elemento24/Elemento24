@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whoever thinks that he alone has speech, or possesses speech or mind above others, when unfolded such men are seen to be empty.</b>
-> <p><i>Sophocles</i></p>
+> <b>I've been through the process qualifying for the World Cup, which is an amazing, two-year process. It was an honor to represent the U.S. and to represent the city of Los Angeles and California.</b>
+> <p><i>Cobi Jones</i></p>
 
 <br>
