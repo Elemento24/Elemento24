@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is never without an argument, but seldom with a good one.</b>
-> <p><i>Indira Gandhi</i></p>
+> <b>Beauty, sweet love, is like the morning dew, Whose short refresh upon tender green, Cheers for a time, but till the sun doth show And straight is gone, as it had never been.</b>
+> <p><i>Samuel Daniel</i></p>
 
 <br>
