@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Visual surprise is natural in the Caribbean it comes with the landscape, and faced with its beauty, the sigh of History dissolves.</b>
-> <p><i>Derek Walcott</i></p>
+> <b>When I turned 60, it didn't bother me at all.</b>
+> <p><i>Yoko Ono</i></p>
 
 <br>
