@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Should you shield the canyons from the windstorms you would never see the true beauty of their carvings.</b>
-> <p><i>Elisabeth Kubler-Ross</i></p>
+> <b>I don't care what other people think as long as I am happy. The day I die or retire, I have blown all my chances because I don't have the chance any more to change my image as an F1 driver.</b>
+> <p><i>Sebastian Vettel</i></p>
 
 <br>
