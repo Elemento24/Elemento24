@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The English Bible - a book which, if everything else in our language should perish, would alone suffice to show the whole extent of its beauty and power.</b>
-> <p><i>Thomas B. Macaulay</i></p>
+> <b>Well... I had braces and I had to wear headgear! I loved my braces, actually. For me, they were like a piece of jewelry! Instead of the silver or pewter I had gold braces. It was so much fun, I loved them. I got to change the colors and stuff and I had the rubber bands.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
