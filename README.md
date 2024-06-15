@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To own the dominant, or only, newspaper in a mid-sized American city was, for many decades, a kind of license to print money. In the Internet age, however, no one has figured out how to rescue the newspaper in the United States or abroad.</b>
-> <p><i>Eric Alterman</i></p>
+> <b>The English Bible - a book which, if everything else in our language should perish, would alone suffice to show the whole extent of its beauty and power.</b>
+> <p><i>Thomas B. Macaulay</i></p>
 
 <br>
