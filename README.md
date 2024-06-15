@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't care what other people think as long as I am happy. The day I die or retire, I have blown all my chances because I don't have the chance any more to change my image as an F1 driver.</b>
-> <p><i>Sebastian Vettel</i></p>
+> <b>Visual surprise is natural in the Caribbean it comes with the landscape, and faced with its beauty, the sigh of History dissolves.</b>
+> <p><i>Derek Walcott</i></p>
 
 <br>
