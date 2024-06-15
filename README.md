@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have some anger issues.</b>
-> <p><i>Bryan Cranston</i></p>
+> <b>The attitude of independence toward a constructed language which all national speakers must adopt is really a great advantage, because it tends to make man see himself as the master of language instead of its obedient servant.</b>
+> <p><i>Edward Sapir</i></p>
 
 <br>
