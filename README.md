@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have been in Formula One for 12 years, and out of that I had one year with the perfect car.</b>
-> <p><i>Michael Schumacher</i></p>
+> <b>Whoever thinks that he alone has speech, or possesses speech or mind above others, when unfolded such men are seen to be empty.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
