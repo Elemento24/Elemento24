@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would absolutely, definitely never sell my wedding pictures to a magazine. I'd like it to be a special day, not a photo shoot. And once you've done that, your marriage becomes everybody else's business.</b>
-> <p><i>Katherine Jenkins</i></p>
+> <b>He who knows no hardships will know no hardihood. He who faces no calamity will need no courage. Mysterious though it is, the characteristics in human nature which we love best grow in a soil with a strong mixture of troubles.</b>
+> <p><i>Harry Emerson Fosdick</i></p>
 
 <br>
