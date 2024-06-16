@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that you control your destiny, that you can be what you want to be. You can also stop and say, 'No, I won't do it, I won't behave his way anymore. I'm lonely and I need people around me, maybe I have to change my methods of behaving,' and then you do it.</b>
-> <p><i>Leo Buscaglia</i></p>
+> <b>I wanted to change the world. But I have found that the only thing one can be sure of changing is oneself.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
