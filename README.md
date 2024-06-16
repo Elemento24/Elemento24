@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wanted to change the world. But I have found that the only thing one can be sure of changing is oneself.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>It is far better to be alone, than to be in bad company.</b>
+> <p><i>George Washington</i></p>
 
 <br>
