@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Very few people are original. There's very little original anything out there. Because to be original means you have to stand alone.</b>
-> <p><i>Susan Powter</i></p>
+> <b>This is the precept by which I have lived: Prepare for the worst expect the best and take what comes.</b>
+> <p><i>Hannah Arendt</i></p>
 
 <br>
