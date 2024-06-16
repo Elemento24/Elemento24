@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the precept by which I have lived: Prepare for the worst expect the best and take what comes.</b>
-> <p><i>Hannah Arendt</i></p>
+> <b>There is no end to the violations committed by children on children, quietly talking alone.</b>
+> <p><i>Elizabeth Bowen</i></p>
 
 <br>
