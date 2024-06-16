@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If either player abandon the game by quitting the table in anger, or in an otherwise offensive manner or by momentarily resigning the game or refuses to abide by the decision of the Umpire, the game must be scored against him.</b>
-> <p><i>Howard Staunton</i></p>
+> <b>What has made America amazing has been the fact that throughout our history, throughout the more than 200 years of our history, there have been men and women of courage who stood up and decided it was more important to look out for the future of their children and their grandchildren than their own political futures.</b>
+> <p><i>Scott Walker</i></p>
 
 <br>
