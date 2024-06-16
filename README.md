@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is far better to be alone, than to be in bad company.</b>
-> <p><i>George Washington</i></p>
+> <b>If either player abandon the game by quitting the table in anger, or in an otherwise offensive manner or by momentarily resigning the game or refuses to abide by the decision of the Umpire, the game must be scored against him.</b>
+> <p><i>Howard Staunton</i></p>
 
 <br>
