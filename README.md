@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My interest in architecture has always been sculptural. Most of my photography is of architecture.</b>
-> <p><i>Parker Stevenson</i></p>
+> <b>Every Body has so good an Opinion of their own Understanding as to think their own way the best.</b>
+> <p><i>Mary Astell</i></p>
 
 <br>
