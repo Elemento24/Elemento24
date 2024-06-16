@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When the best leader's work is done the people say, 'We did it ourselves.'</b>
-> <p><i>Lao Tzu</i></p>
+> <b>I believe that you control your destiny, that you can be what you want to be. You can also stop and say, 'No, I won't do it, I won't behave his way anymore. I'm lonely and I need people around me, maybe I have to change my methods of behaving,' and then you do it.</b>
+> <p><i>Leo Buscaglia</i></p>
 
 <br>
