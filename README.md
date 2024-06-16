@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dishonesty in government is the business of every citizen. It is not enough to do your own job. There's no particular virtue in that. Democracy isn't a gift. It's a responsibility.</b>
-> <p><i>Dalton Trumbo</i></p>
+> <b>My interest in architecture has always been sculptural. Most of my photography is of architecture.</b>
+> <p><i>Parker Stevenson</i></p>
 
 <br>
