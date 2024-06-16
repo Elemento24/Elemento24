@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been through the process qualifying for the World Cup, which is an amazing, two-year process. It was an honor to represent the U.S. and to represent the city of Los Angeles and California.</b>
-> <p><i>Cobi Jones</i></p>
+> <b>Procrastination is the art of keeping up with yesterday.</b>
+> <p><i>Don Marquis</i></p>
 
 <br>
