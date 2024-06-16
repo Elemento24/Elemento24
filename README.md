@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As you watch the world crumble, try taking your Armageddon with this sprinkling of irony: Over the last three decades, business has got virtually everything it wanted, and its doomsday scenario from the 1970s has come true because of it.</b>
-> <p><i>Thomas Frank</i></p>
+> <b>Now we're in the midst of not just advocating for change, not just calling for change - we're doing the grinding, sometimes frustrating work of delivering change - inch by inch, day by day.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
