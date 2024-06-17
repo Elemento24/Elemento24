@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the adversity I've had in my life, all my troubles and obstacles, have strengthened me... You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you.</b>
-> <p><i>Walt Disney</i></p>
+> <b>My beauty icon is Angelina Jolie.</b>
+> <p><i>Ashley Benson</i></p>
 
 <br>
