@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents have a strong work ethic, but their attitude to life, their philosophy, is: 'whatever makes you happy.'</b>
-> <p><i>Sally Hawkins</i></p>
+> <b>Love alone could waken love.</b>
+> <p><i>Pearl S. Buck</i></p>
 
 <br>
