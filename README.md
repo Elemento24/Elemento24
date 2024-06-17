@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After all, the best part of a holiday is perhaps not so much to be resting yourself, as to see all the other fellows busy working.</b>
-> <p><i>Kenneth Grahame</i></p>
+> <b>Whether it's 18 years old or 40 years old, we think we know what's going on. But if you're lucky enough to continue the journey, its amazing how we keep learning how much we didn't know.</b>
+> <p><i>Joe Namath</i></p>
 
 <br>
