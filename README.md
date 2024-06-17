@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't have to carry a designer bag that costs more than a car to look cool.</b>
-> <p><i>Kesha</i></p>
+> <b>Change is the law of life. And those who look only to the past or present are certain to miss the future.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
