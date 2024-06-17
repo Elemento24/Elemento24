@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whether it's 18 years old or 40 years old, we think we know what's going on. But if you're lucky enough to continue the journey, its amazing how we keep learning how much we didn't know.</b>
-> <p><i>Joe Namath</i></p>
+> <b>I think Damien Hirst is hilarious. And I think he's a true artist. He's not hilarious first I think he is a real artist, and I also think he's got an amazing sense of humor.</b>
+> <p><i>Jemima Kirke</i></p>
 
 <br>
