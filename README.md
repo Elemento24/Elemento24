@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hollywood is the place to be for actors - and there's just a big rush when an Australian comes over just because there's less of them. I guess that's just how it is. Like if you pick a pink jellybean out of a jar of green ones it'd be amazing, but if you pick a green one, no one will care.</b>
-> <p><i>Callan McAuliffe</i></p>
+> <b>Music's always been really cathartic. It's the best drug for me to get away from the everyday pressures just for a second via a good song.</b>
+> <p><i>Ville Valo</i></p>
 
 <br>
