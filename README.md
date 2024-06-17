@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a person with a bullet in Dallas can change the world, imagine a person with an idea could do.</b>
-> <p><i>J. Michael Straczynski</i></p>
+> <b>Organic architecture seeks superior sense of use and a finer sense of comfort, expressed in organic simplicity.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
