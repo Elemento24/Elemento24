@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love alone could waken love.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>After all, the best part of a holiday is perhaps not so much to be resting yourself, as to see all the other fellows busy working.</b>
+> <p><i>Kenneth Grahame</i></p>
 
 <br>
