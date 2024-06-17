@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is only a means to life, to the life more abundant. It is not in itself the life more abundant. It merely points the way, something which is overlooked not only by the public, but very often by the artist himself. In becoming an end it defeats itself.</b>
-> <p><i>Henry Miller</i></p>
+> <b>A lot of people fear death because they think that so overwhelming an experience has to be painful, but I've seen quite a few deaths, and, with one exception, I've never known anyone to undergo anything like agony. That's amazing when you think about it. I mean, how complicated the mechanism is that's being taken apart.</b>
+> <p><i>Lewis Thomas</i></p>
 
 <br>
