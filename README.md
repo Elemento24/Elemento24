@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Many people and governments share the mistaken belief that science, with new, ingenious devices and techniques, can rescue us from the troubles we face without our having to mend our ways and change our patterns of activity. This is not so.</b>
-> <p><i>Henry W. Kendall</i></p>
+> <b>We first fought... in the name of religion, then Communism, and now in the name of drugs and terrorism. Our excuses for global domination always change.</b>
+> <p><i>Serj Tankian</i></p>
 
 <br>
