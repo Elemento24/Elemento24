@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've crashed my car three times.</b>
-> <p><i>Billy Joel</i></p>
+> <b>I always wanted to be a zookeeper when I was growing up, and I've wound up a zookeeper! I've been working with the Los Angeles Zoo for 45 years! I'm the luckiest old broad on two feet because my life is divided absolutely in half - half animals and half show business. You can't ask for better than two things you love the most.</b>
+> <p><i>Betty White</i></p>
 
 <br>
