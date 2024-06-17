@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm afraid for all those who'll have the bread snatched from their mouths by these machines. What business has science and capitalism got, bringing all these new inventions into the works, before society has produced a generation educated up to using them!</b>
-> <p><i>Henrik Ibsen</i></p>
+> <b>If a site is done with pleasure and a fun attitude, it's a great way to communicate with your fans.</b>
+> <p><i>Christopher Lambert</i></p>
 
 <br>
