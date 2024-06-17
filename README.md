@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But one of the things I learned is that when you fight for something you believe in and you tell the truth and you do your best, you can always hold your head up high and no one can take that away from you.</b>
-> <p><i>Vanessa Kerry</i></p>
+> <b>My attitude to writing is like when you do wallpapering, you remember where all the little bits are that don't meet. And then your friends say: It's terrific!</b>
+> <p><i>Harrison Birtwistle</i></p>
 
 <br>
