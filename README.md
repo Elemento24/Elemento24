@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a site is done with pleasure and a fun attitude, it's a great way to communicate with your fans.</b>
-> <p><i>Christopher Lambert</i></p>
+> <b>But one of the things I learned is that when you fight for something you believe in and you tell the truth and you do your best, you can always hold your head up high and no one can take that away from you.</b>
+> <p><i>Vanessa Kerry</i></p>
 
 <br>
