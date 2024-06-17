@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of people fear death because they think that so overwhelming an experience has to be painful, but I've seen quite a few deaths, and, with one exception, I've never known anyone to undergo anything like agony. That's amazing when you think about it. I mean, how complicated the mechanism is that's being taken apart.</b>
-> <p><i>Lewis Thomas</i></p>
+> <b>If a person with a bullet in Dallas can change the world, imagine a person with an idea could do.</b>
+> <p><i>J. Michael Straczynski</i></p>
 
 <br>
