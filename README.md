@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always wanted to be a zookeeper when I was growing up, and I've wound up a zookeeper! I've been working with the Los Angeles Zoo for 45 years! I'm the luckiest old broad on two feet because my life is divided absolutely in half - half animals and half show business. You can't ask for better than two things you love the most.</b>
-> <p><i>Betty White</i></p>
+> <b>All the adversity I've had in my life, all my troubles and obstacles, have strengthened me... You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
