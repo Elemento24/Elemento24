@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We first fought... in the name of religion, then Communism, and now in the name of drugs and terrorism. Our excuses for global domination always change.</b>
-> <p><i>Serj Tankian</i></p>
+> <b>Art is only a means to life, to the life more abundant. It is not in itself the life more abundant. It merely points the way, something which is overlooked not only by the public, but very often by the artist himself. In becoming an end it defeats itself.</b>
+> <p><i>Henry Miller</i></p>
 
 <br>
