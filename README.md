@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As we look forward to freedom, the shining city on the hill and the best days of America lying ahead, it is the men and women in uniform who protect, defend and make us proud to whom we should look and give thanks every night.</b>
-> <p><i>Robin Hayes</i></p>
+> <b>Let me tell you, Barack Obama is the most down dude in the world, but he's so smart so articulate, such an amazing speaker such a passionate man. He's humble.</b>
+> <p><i>Marlon Wayans</i></p>
 
 <br>
