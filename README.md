@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>James Franco has this interesting and relaxed look. It's pretty 'I don't care,' but it still looks good. Ryan Gosling also has amazing style. I take a lot of my fashion tips from those two. In my opinion, they're the ones getting it right.</b>
-> <p><i>Josh Henderson</i></p>
+> <b>As we look forward to freedom, the shining city on the hill and the best days of America lying ahead, it is the men and women in uniform who protect, defend and make us proud to whom we should look and give thanks every night.</b>
+> <p><i>Robin Hayes</i></p>
 
 <br>
