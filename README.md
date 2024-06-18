@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let me tell you, Barack Obama is the most down dude in the world, but he's so smart so articulate, such an amazing speaker such a passionate man. He's humble.</b>
-> <p><i>Marlon Wayans</i></p>
+> <b>But I think bands that rolled in with a big attitude, like they were some big deal, I just found that very strange.</b>
+> <p><i>Rob Zombie</i></p>
 
 <br>
