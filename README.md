@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can calculate the worth of a man by the number of his enemies, and the importance of a work of art by the harm that is spoken of it.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>James Franco has this interesting and relaxed look. It's pretty 'I don't care,' but it still looks good. Ryan Gosling also has amazing style. I take a lot of my fashion tips from those two. In my opinion, they're the ones getting it right.</b>
+> <p><i>Josh Henderson</i></p>
 
 <br>
