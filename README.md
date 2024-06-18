@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diplomacy: the art of restraining power.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>Knowing who the actors were as you were designing them helped, with Catherine's beauty and Renee's frailty, they directed me visually just by who they were.</b>
+> <p><i>Colleen Atwood</i></p>
 
 <br>
