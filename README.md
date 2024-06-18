@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I think bands that rolled in with a big attitude, like they were some big deal, I just found that very strange.</b>
-> <p><i>Rob Zombie</i></p>
+> <b>If Martin Scorsese calls, I am available. And then there the ones, well, you can just run down the list - any of those Oscar-nominated films, they have amazing directors across the board.</b>
+> <p><i>Timothy Olyphant</i></p>
 
 <br>
