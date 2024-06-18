@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger may repast with thee for an hour, but not repose for a night the continuance of anger is hatred, the continuance of hatred turns malice.</b>
-> <p><i>Francis Quarles</i></p>
+> <b>I would rather be a beggar and single than a queen and married.</b>
+> <p><i>Elizabeth I</i></p>
 
 <br>
