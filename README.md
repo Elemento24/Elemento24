@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music's always been really cathartic. It's the best drug for me to get away from the everyday pressures just for a second via a good song.</b>
-> <p><i>Ville Valo</i></p>
+> <b>Whatever I do, it's my business. It's not my job to parent America.</b>
+> <p><i>Christina Aguilera</i></p>
 
 <br>
