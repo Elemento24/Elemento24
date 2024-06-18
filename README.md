@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whatever I do, it's my business. It's not my job to parent America.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>O love, if I regret the age when one savors you, it is not for the hour of pleasure, but for the one that follows it.</b>
+> <p><i>Jean-Jacques Rousseau</i></p>
 
 <br>
