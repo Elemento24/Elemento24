@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would rather be a beggar and single than a queen and married.</b>
-> <p><i>Elizabeth I</i></p>
+> <b>Mission accomplished. The Museum of Modern Art's wide-open, tall-ceilinged, super-reinforced second floor was for all intents and purposes built to accommodate monumental installations and gigantic sculptures, should the need arise. It has arisen.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
