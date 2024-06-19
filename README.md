@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thought came to me that all one loves in art becomes beautiful. Beauty is nothing but the expression of the fact that something is being loved. Only thus could she be defined.</b>
-> <p><i>Robert Musil</i></p>
+> <b>I enjoyed being a teammate of Deion Sanders. He brings different elements to the game that many people would not even realize, and to watch and witness a superior talent like him and watch him prepare and train, and study the game is truly amazing.</b>
+> <p><i>Emmitt Smith</i></p>
 
 <br>
