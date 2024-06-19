@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing I've learned is, if you're going out, never go out alone - you leave yourself vulnerable. If you've got someone else there you trust, they can say, be wary of that person. I probably used to be too trusting of people.</b>
-> <p><i>Daniel Radcliffe</i></p>
+> <b>After World War II great strides were made in modern Japanese architecture, not only in advanced technology, allowing earthquake resistant tall buildings, but expressing and infusing characteristics of traditional Japanese architecture in modern buildings.</b>
+> <p><i>Harry Seidler</i></p>
 
 <br>
