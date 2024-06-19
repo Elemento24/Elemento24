@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm gonna be the best dad that ever lived. I'll have a ranch with a race car track and a golf course.</b>
-> <p><i>Jeremy London</i></p>
+> <b>The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
