@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is the art of drawing sufficient conclusions from insufficient premises.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>I auditioned for 'Girls' the fall after I graduated from Yale. The show has been amazing - as close to perfect as it gets!</b>
+> <p><i>Allison Williams</i></p>
 
 <br>
