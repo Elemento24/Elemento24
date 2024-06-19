@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Film as dream, film as music. No art passes our conscience in the way film does, and goes directly to our feelings, deep down into the dark rooms of our souls.</b>
-> <p><i>Ingmar Bergman</i></p>
+> <b>There is no end to the violations committed by children on children, quietly talking alone.</b>
+> <p><i>Elizabeth Bowen</i></p>
 
 <br>
