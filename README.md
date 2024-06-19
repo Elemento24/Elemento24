@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no end to the violations committed by children on children, quietly talking alone.</b>
-> <p><i>Elizabeth Bowen</i></p>
+> <b>After about the first Millennium, Italy was the cradle of Romanesque architecture, which spread throughout Europe, much of it extending the structural daring with minimal visual elaboration.</b>
+> <p><i>Harry Seidler</i></p>
 
 <br>
