@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is wise to direct your anger towards problems - not people to focus your energies on answers - not excuses.</b>
-> <p><i>William Arthur Ward</i></p>
+> <b>It looks good when you see someone kicking at the age of 51 with no double. It's kinda cool for people to know that past 50 we can keep flexible.</b>
+> <p><i>Jean Claude Van Damme</i></p>
 
 <br>
