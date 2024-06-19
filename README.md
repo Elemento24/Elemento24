@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of acceptance is the art of making someone who has just done you a small favor wish that he might have done you a greater one.</b>
-> <p><i>Martin Luther King, Jr.</i></p>
+> <b>Film as dream, film as music. No art passes our conscience in the way film does, and goes directly to our feelings, deep down into the dark rooms of our souls.</b>
+> <p><i>Ingmar Bergman</i></p>
 
 <br>
