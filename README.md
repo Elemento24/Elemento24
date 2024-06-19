@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I auditioned for 'Girls' the fall after I graduated from Yale. The show has been amazing - as close to perfect as it gets!</b>
-> <p><i>Allison Williams</i></p>
+> <b>I'm gonna be the best dad that ever lived. I'll have a ranch with a race car track and a golf course.</b>
+> <p><i>Jeremy London</i></p>
 
 <br>
