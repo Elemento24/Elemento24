@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After World War II great strides were made in modern Japanese architecture, not only in advanced technology, allowing earthquake resistant tall buildings, but expressing and infusing characteristics of traditional Japanese architecture in modern buildings.</b>
-> <p><i>Harry Seidler</i></p>
+> <b>The nature of the global business environment guarantees that no matter how hard we work to create a stable and healthy organisation, our organisation will continue to experience dramatic changes far beyond our control.</b>
+> <p><i>Margaret J. Wheatley</i></p>
 
 <br>
