@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A good government may, indeed, redress the grievances of an injured people but a strong people can alone build up a great nation.</b>
-> <p><i>Thomas Francis Meagher</i></p>
+> <b>Time heals griefs and quarrels, for we change and are no longer the same persons. Neither the offender nor the offended are any more themselves.</b>
+> <p><i>Blaise Pascal</i></p>
 
 <br>
