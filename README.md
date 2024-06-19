@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love the giver more than the gift.</b>
-> <p><i>Brigham Young</i></p>
+> <b>It is wise to direct your anger towards problems - not people to focus your energies on answers - not excuses.</b>
+> <p><i>William Arthur Ward</i></p>
 
 <br>
