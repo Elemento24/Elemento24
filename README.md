@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Down to Gehenna, or up to the Throne, He travels the fastest who travels alone.</b>
-> <p><i>Rudyard Kipling</i></p>
+> <b>An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage.</b>
+> <p><i>Jack Welch</i></p>
 
 <br>
