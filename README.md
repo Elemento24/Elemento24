@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can just drift unhappily towards this vision of heaven on earth, and ultimately that is what architecture is a vision of: Heaven on earth, at it's best.</b>
-> <p><i>Ben Nicholson</i></p>
+> <b>I'm at peace with myself and where I am. In the past, I was always looking to see how everybody else was doing. I wasn't competitive, I was comparative. I just wanted to be where everybody else was. Now I've gotten to an age when I am not comparing anymore.</b>
+> <p><i>Courteney Cox</i></p>
 
 <br>
