@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Passion is universal humanity. Without it religion, history, romance and art would be useless.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>Raising a small child as a woman while travelling 10 months out of the year would, I believe, be something I would not be able or even want to do, although with the amazing example of Leila, I am no longer so sure.</b>
+> <p><i>Lara St. John</i></p>
 
 <br>
