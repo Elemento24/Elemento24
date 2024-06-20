@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the things that people don't realize is that that natural beauty, those recreational forests, they have an economic development impact for the state as well.</b>
-> <p><i>Ed Rendell</i></p>
+> <b>I quit after a bad car accident. The thing about boxing is that you can be a star for five or six years, but when you go back to the old life, it's tough.</b>
+> <p><i>Olivier Martinez</i></p>
 
 <br>
