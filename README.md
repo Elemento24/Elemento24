@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You go through at least the first two years of Star Trek and you find some amazing stuff. Everything that was going on Gene put into the series. He just put strange costumes on the actors and painted them funny colours and left the same situation in.</b>
-> <p><i>Majel Barrett</i></p>
+> <b>You can just drift unhappily towards this vision of heaven on earth, and ultimately that is what architecture is a vision of: Heaven on earth, at it's best.</b>
+> <p><i>Ben Nicholson</i></p>
 
 <br>
