@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't knock the weather nine-tenths of the people couldn't start a conversation if it didn't change once in a while.</b>
-> <p><i>Kin Hubbard</i></p>
+> <b>One of the things that people don't realize is that that natural beauty, those recreational forests, they have an economic development impact for the state as well.</b>
+> <p><i>Ed Rendell</i></p>
 
 <br>
