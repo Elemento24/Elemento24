@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger begins with folly, and ends with repentance.</b>
-> <p><i>Beverly Sills</i></p>
+> <b>Ever consider what pets must think of us? I mean, here we come back from a grocery store with the most amazing haul - chicken, pork, half a cow. They must think we're the greatest hunters on earth!</b>
+> <p><i>Anne Tyler</i></p>
 
 <br>
