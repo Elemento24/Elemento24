@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A State without the means of some change is without the means of its conservation.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>One does not need buildings, money, power, or status to practice the Art of Peace. Heaven is right where you are standing, and that is the place to train.</b>
+> <p><i>Morihei Ueshiba</i></p>
 
 <br>
