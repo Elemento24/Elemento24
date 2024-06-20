@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm at peace with myself and where I am. In the past, I was always looking to see how everybody else was doing. I wasn't competitive, I was comparative. I just wanted to be where everybody else was. Now I've gotten to an age when I am not comparing anymore.</b>
-> <p><i>Courteney Cox</i></p>
+> <b>Down to Gehenna, or up to the Throne, He travels the fastest who travels alone.</b>
+> <p><i>Rudyard Kipling</i></p>
 
 <br>
