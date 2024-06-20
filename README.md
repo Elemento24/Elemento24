@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Raising a small child as a woman while travelling 10 months out of the year would, I believe, be something I would not be able or even want to do, although with the amazing example of Leila, I am no longer so sure.</b>
-> <p><i>Lara St. John</i></p>
+> <b>Most women's pictures are as boring and as formulaic as men's pictures. In place of a car chase or a battle scene, what you get is an extreme closeup of a woman breaking down.</b>
+> <p><i>Frances McDormand</i></p>
 
 <br>
