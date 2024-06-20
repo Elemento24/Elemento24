@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Bombing Afghanistan back into the Stone Age' was quite a favourite headline for some wobbly liberals. The slogan does all the work. But an instant's thought shows that Afghanistan is being, if anything, bombed out of the Stone Age.</b>
-> <p><i>Christopher Hitchens</i></p>
+> <b>Switching over to a hybrid car is one of those right things, but, unfairly or not, it still has a reputation among car enthusiasts as something you have to pedal really fast when you're on the ramp merging into traffic on the 401.</b>
+> <p><i>Linwood Barclay</i></p>
 
 <br>
