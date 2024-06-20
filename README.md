@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have several writer friends, but I don't involve them in my work process. I'm more likely to talk about the business of publishing with them.</b>
-> <p><i>Jodi Picoult</i></p>
+> <b>You go through at least the first two years of Star Trek and you find some amazing stuff. Everything that was going on Gene put into the series. He just put strange costumes on the actors and painted them funny colours and left the same situation in.</b>
+> <p><i>Majel Barrett</i></p>
 
 <br>
