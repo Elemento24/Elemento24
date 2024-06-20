@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most women's pictures are as boring and as formulaic as men's pictures. In place of a car chase or a battle scene, what you get is an extreme closeup of a woman breaking down.</b>
-> <p><i>Frances McDormand</i></p>
+> <b>'Bombing Afghanistan back into the Stone Age' was quite a favourite headline for some wobbly liberals. The slogan does all the work. But an instant's thought shows that Afghanistan is being, if anything, bombed out of the Stone Age.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
