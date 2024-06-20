@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One does not need buildings, money, power, or status to practice the Art of Peace. Heaven is right where you are standing, and that is the place to train.</b>
-> <p><i>Morihei Ueshiba</i></p>
+> <b>Marriage is good for those who are afraid to sleep alone at night.</b>
+> <p><i>St. Jerome</i></p>
 
 <br>
