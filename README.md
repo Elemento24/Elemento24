@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage is good for those who are afraid to sleep alone at night.</b>
-> <p><i>St. Jerome</i></p>
+> <b>The beauty of 'The Walking Dead' and the beauty of being on a television show for a while, is that, it's your backstory, it's part of what you are, it's what you carry with you every day.</b>
+> <p><i>Laurie Holden</i></p>
 
 <br>
