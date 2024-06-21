@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vampires are so old that they don't need to impress anyone anymore. They're comfortable in their own skin. It's this enigmatic strength that's very romantic and old-fashioned. I think it goes back to something of a Victorian attitude of finding a strong man who's going to look after his woman.</b>
-> <p><i>Stephen Moyer</i></p>
+> <b>The seven marvels that best represent man's achievements over the last 2,000 years will be determined by Internet vote... so look for Howard Stern's Private Parts to come in No. 1.</b>
+> <p><i>Jon Stewart</i></p>
 
 <br>
