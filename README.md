@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beginning of a friendship, the fact that two people out of the thousands around them can meet and connect and become friends, seems like a kind of magic to me. But maintaining a friendship requires work. I don't mean that as a bad thing. Good art requires work as well.</b>
-> <p><i>Charles de Lint</i></p>
+> <b>He who rejects change is the architect of decay. The only human institution which rejects progress is the cemetery.</b>
+> <p><i>Harold Wilson</i></p>
 
 <br>
