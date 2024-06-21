@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who rejects change is the architect of decay. The only human institution which rejects progress is the cemetery.</b>
-> <p><i>Harold Wilson</i></p>
+> <b>I am invariably late for appointments - sometimes as much as two hours. I've tried to change my ways but the things that make me late are too strong, and too pleasing.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
