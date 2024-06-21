@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing we can do if we want the Russians to let us be Americans is to let the Russians be Russian.</b>
-> <p><i>George F. Kennan</i></p>
+> <b>Vampires are so old that they don't need to impress anyone anymore. They're comfortable in their own skin. It's this enigmatic strength that's very romantic and old-fashioned. I think it goes back to something of a Victorian attitude of finding a strong man who's going to look after his woman.</b>
+> <p><i>Stephen Moyer</i></p>
 
 <br>
