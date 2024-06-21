@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The career stuff is for business people.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>One science only will one genius fit so vast is art, so narrow human wit.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
