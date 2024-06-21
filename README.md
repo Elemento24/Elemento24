@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But once you have satisfied your material needs, which I think every wealth creator should - the house, the car, the plane, the boat - what comes next?</b>
-> <p><i>Tom Hunter</i></p>
+> <b>Mankind's true moral test, its fundamental test (which lies deeply buried from view), consists of its attitude towards those who are at its mercy: animals. And in this respect mankind has suffered a fundamental debacle, a debacle so fundamental that all others stem from it.</b>
+> <p><i>Milan Kundera</i></p>
 
 <br>
