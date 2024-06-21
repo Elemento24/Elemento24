@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any time women come together with a collective intention, it's a powerful thing. Whether it's sitting down making a quilt, in a kitchen preparing a meal, in a club reading the same book, or around the table playing cards, or planning a birthday party, when women come together with a collective intention, magic happens.</b>
-> <p><i>Phylicia Rashad</i></p>
+> <b>The 1990s, after the reign of terror of academic vandalism, will be a decade of restoration: restoration of meaning, value, beauty, pleasure, and emotion to art and restoration of art to its audience.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
