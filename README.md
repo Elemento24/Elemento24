@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have long since come to believe that people never mean half of what they say, and that it is best to disregard their talk and judge only their actions.</b>
-> <p><i>Dorothy Day</i></p>
+> <b>America won the Cold War by protecting our strategic resources from the threat of foreign control. We must bring the same attitude to our trade relationship with China.</b>
+> <p><i>Jo Ann Emerson</i></p>
 
 <br>
