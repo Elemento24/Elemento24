@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you felt that excitement when you voted for Barack Obama, shouldn't you feel that way now that he's President Obama? You know there's something wrong with the kind of job he's done as president when the best feeling you had was the day you voted for him.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>I have long since come to believe that people never mean half of what they say, and that it is best to disregard their talk and judge only their actions.</b>
+> <p><i>Dorothy Day</i></p>
 
 <br>
