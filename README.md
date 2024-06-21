@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Painting, sculpture and architecture are finished, but the art habit continues.</b>
-> <p><i>Robert Smithson</i></p>
+> <b>It's amazing where the paranoid mind can take you.</b>
+> <p><i>Bill Ayers</i></p>
 
 <br>
