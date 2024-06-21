@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The seven marvels that best represent man's achievements over the last 2,000 years will be determined by Internet vote... so look for Howard Stern's Private Parts to come in No. 1.</b>
-> <p><i>Jon Stewart</i></p>
+> <b>The career stuff is for business people.</b>
+> <p><i>Joseph Gordon-Levitt</i></p>
 
 <br>
