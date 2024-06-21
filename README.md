@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The 1990s, after the reign of terror of academic vandalism, will be a decade of restoration: restoration of meaning, value, beauty, pleasure, and emotion to art and restoration of art to its audience.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>The best thing we can do if we want the Russians to let us be Americans is to let the Russians be Russian.</b>
+> <p><i>George F. Kennan</i></p>
 
 <br>
