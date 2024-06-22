@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are two way of establishing a reputation, one to be praised by honest people and the other to be accused by rogues. It is best, however, to secure the first one, because it will always be accompanied by the latter.</b>
-> <p><i>Charles Caleb Colton</i></p>
+> <b>If you examine this, I think that you will find that it's the mechanics of Japanese architecture that have been thought of as the direct influence upon our architecture.</b>
+> <p><i>Minoru Yamasaki</i></p>
 
 <br>
