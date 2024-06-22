@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is something that doesn't matter, unless you are a cheese.</b>
-> <p><i>Luis Bunuel</i></p>
+> <b>I'm still figuring out why people would want to look at me. Maybe it's generic beauty, but it's weird to be valued for something I was born with.</b>
+> <p><i>Josie Maran</i></p>
 
 <br>
