@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People who have tried it, tell me that a clear conscience makes you very happy and contented but a full stomach does the business quite as well, and is cheaper, and more easily obtained.</b>
-> <p><i>Jerome K. Jerome</i></p>
+> <b>Still and all, why bother? Here's my answer. Many people need desperately to receive this message: I feel and think much as you do, care about many of the things you care about, although most people do not care about them. You are not alone.</b>
+> <p><i>Kurt Vonnegut</i></p>
 
 <br>
