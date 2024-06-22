@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am invariably late for appointments - sometimes as much as two hours. I've tried to change my ways but the things that make me late are too strong, and too pleasing.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>We are very anxious to bring the Jews of Morocco over and we are doing all we can to achieve this. But we cannot count on the Jews of Morocco alone to build the country, because they have not been educated for this.</b>
+> <p><i>Moshe Sharett</i></p>
 
 <br>
