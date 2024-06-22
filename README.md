@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I want to knock a story off the front page, I just change my hairstyle.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>I get a friend to travel with me... I need somebody to bring me back to who I am. It's hard to be alone.</b>
+> <p><i>Leonardo DiCaprio</i></p>
 
 <br>
