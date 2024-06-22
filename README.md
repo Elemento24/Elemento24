@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But my most favourite pursuit, after my daily exertions at the Foundry, was Astronomy. There were frequently clear nights when the glorious objects in the Heavens were seen in most attractive beauty and brilliancy.</b>
-> <p><i>James Nasmyth</i></p>
+> <b>Detainee policy in this war is hard, it's complicated, but we must get it right. We would be better off as a nation if we could close Gitmo safely and start a new prison that he could use that the world would see as a better way to doing business.</b>
+> <p><i>Lindsey Graham</i></p>
 
 <br>
