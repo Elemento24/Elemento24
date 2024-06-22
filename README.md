@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get a friend to travel with me... I need somebody to bring me back to who I am. It's hard to be alone.</b>
-> <p><i>Leonardo DiCaprio</i></p>
+> <b>But my most favourite pursuit, after my daily exertions at the Foundry, was Astronomy. There were frequently clear nights when the glorious objects in the Heavens were seen in most attractive beauty and brilliancy.</b>
+> <p><i>James Nasmyth</i></p>
 
 <br>
