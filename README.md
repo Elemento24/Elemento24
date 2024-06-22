@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The mother art is architecture. Without an architecture of our own we have no soul of our own civilization.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>When you are facing the wilderness on your own, you have a totally different attitude to someone who works in government or who has a monthly cheque.</b>
+> <p><i>Rick Santelli</i></p>
 
 <br>
