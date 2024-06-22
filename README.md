@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Magic becomes art when it has nothing to hide.</b>
-> <p><i>Ben Okri</i></p>
+> <b>The optimist thinks this is the best of all possible worlds. The pessimist fears it is true.</b>
+> <p><i>J. Robert Oppenheimer</i></p>
 
 <br>
