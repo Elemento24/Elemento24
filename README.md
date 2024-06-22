@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you spend your life competing with business men, what do you have? A bank account and ulcers!</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>In the final analysis, the incident is seen as originating from an emotional expression of the frustration and anger of the proud people of China who had been subject to ever increasing oppression from without and decadent corruption from within.</b>
+> <p><i>Chen Ning Yang</i></p>
 
 <br>
