@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I look OK. I look better in person than I do on film, which is bad because it's how I make my living, but I am not a beauty and on balance I am glad.</b>
-> <p><i>Felicity Huffman</i></p>
+> <b>People who have tried it, tell me that a clear conscience makes you very happy and contented but a full stomach does the business quite as well, and is cheaper, and more easily obtained.</b>
+> <p><i>Jerome K. Jerome</i></p>
 
 <br>
