@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Excellence is not a skill. It is an attitude.</b>
-> <p><i>Ralph Marston</i></p>
+> <b>If there's specific resistance to women making movies, I just choose to ignore that as an obstacle for two reasons: I can't change my gender, and I refuse to stop making movies.</b>
+> <p><i>Kathryn Bigelow</i></p>
 
 <br>
