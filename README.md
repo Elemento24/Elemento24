@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If there's specific resistance to women making movies, I just choose to ignore that as an obstacle for two reasons: I can't change my gender, and I refuse to stop making movies.</b>
-> <p><i>Kathryn Bigelow</i></p>
+> <b>For having lived long, I have experienced many instances of being obliged, by better information or fuller consideration, to change opinions, even on important subjects, which I once thought right but found to be otherwise.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
