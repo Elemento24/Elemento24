@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of economics consists in looking not merely at the immediate but at the longer effects of any act or policy it consists in tracing the consequences of that policy not merely for one group but for all groups.</b>
-> <p><i>Henry Hazlitt</i></p>
+> <b>If you look closely at a tree you'll notice it's knots and dead branches, just like our bodies. What we learn is that beauty and imperfection go together wonderfully.</b>
+> <p><i>Matthew Fox</i></p>
 
 <br>
