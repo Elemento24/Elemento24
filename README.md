@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People like eccentrics. Therefore they will leave me alone, saying that I am a mad clown.</b>
-> <p><i>Vaslav Nijinsky</i></p>
+> <b>The art of economics consists in looking not merely at the immediate but at the longer effects of any act or policy it consists in tracing the consequences of that policy not merely for one group but for all groups.</b>
+> <p><i>Henry Hazlitt</i></p>
 
 <br>
