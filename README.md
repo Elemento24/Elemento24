@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I enjoy trying to develop a car and Mercedes are one of the biggest car manufacturers in the world.</b>
-> <p><i>Lewis Hamilton</i></p>
+> <b>I always believe that to be the best, you have to smell like the best, dress like the best, act like the best. When you throw your trash in the garbage can, it has to be better than anybody else who ever threw trash in the garbage can.</b>
+> <p><i>Lil Wayne</i></p>
 
 <br>
