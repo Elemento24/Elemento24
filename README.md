@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you look closely at a tree you'll notice it's knots and dead branches, just like our bodies. What we learn is that beauty and imperfection go together wonderfully.</b>
-> <p><i>Matthew Fox</i></p>
+> <b>I enjoy trying to develop a car and Mercedes are one of the biggest car manufacturers in the world.</b>
+> <p><i>Lewis Hamilton</i></p>
 
 <br>
