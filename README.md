@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will always be the way I was a couple years ago before anything happened. And that's to my parents' credit, my amazing parents who have been around me my whole life and raised me right. I'm very happy with what has happened so far.</b>
-> <p><i>Kaley Cuoco</i></p>
+> <b>I have laid aside business, and gone a'fishing.</b>
+> <p><i>Izaak Walton</i></p>
 
 <br>
