@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love of beauty is taste. The creation of beauty is art.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>Change is vital to any actor. If you keep playing lead after lead, you're really gonna dry up. Because all those vehicles wean you away from the truths of human behaviour.</b>
+> <p><i>Gary Oldman</i></p>
 
 <br>
