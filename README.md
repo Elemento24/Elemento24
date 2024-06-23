@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have laid aside business, and gone a'fishing.</b>
-> <p><i>Izaak Walton</i></p>
+> <b>I do like to shock and surprise people. When it's all in good fun, of course.</b>
+> <p><i>Ruth Warrick</i></p>
 
 <br>
