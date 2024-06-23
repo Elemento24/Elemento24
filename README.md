@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do like to shock and surprise people. When it's all in good fun, of course.</b>
-> <p><i>Ruth Warrick</i></p>
+> <b>People like eccentrics. Therefore they will leave me alone, saying that I am a mad clown.</b>
+> <p><i>Vaslav Nijinsky</i></p>
 
 <br>
