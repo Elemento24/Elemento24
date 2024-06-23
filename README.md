@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hesitation increases in relation to risk in equal proportion to age.</b>
-> <p><i>Ernest Hemingway</i></p>
+> <b>Character isn't something you were born with and can't change, like your fingerprints. It's something you weren't born with and must take responsibility for forming.</b>
+> <p><i>Jim Rohn</i></p>
 
 <br>
