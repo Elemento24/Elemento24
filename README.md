@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is vital to any actor. If you keep playing lead after lead, you're really gonna dry up. Because all those vehicles wean you away from the truths of human behaviour.</b>
-> <p><i>Gary Oldman</i></p>
+> <b>Every little kid has always wanted to be a race car driver. This gets some of that out.</b>
+> <p><i>David Alan Grier</i></p>
 
 <br>
