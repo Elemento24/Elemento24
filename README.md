@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every little kid has always wanted to be a race car driver. This gets some of that out.</b>
-> <p><i>David Alan Grier</i></p>
+> <b>On my birthday, I was in Milan for the collections.</b>
+> <p><i>Eva Herzigova</i></p>
 
 <br>
