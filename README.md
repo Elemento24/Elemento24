@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By all but the pathologically romantic, it is now recognized that this is not the age of the small man.</b>
-> <p><i>John Kenneth Galbraith</i></p>
+> <b>He alone loves the Creator perfectly who manifests a pure love for his neighbor.</b>
+> <p><i>Venerable Bede</i></p>
 
 <br>
