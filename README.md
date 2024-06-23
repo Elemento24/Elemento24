@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do like to write nasty songs. It's a useful weapon to have, and it's cathartic as well, because I create art out of anger, something positive out of something negative.</b>
-> <p><i>Lisa Marie Presley</i></p>
+> <b>By all but the pathologically romantic, it is now recognized that this is not the age of the small man.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
