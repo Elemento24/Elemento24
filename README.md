@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing to hear, as a voice matures and then starts to decline, what kind of emotion is still conveyed by a really good vocalist.</b>
-> <p><i>Tom Wopat</i></p>
+> <b>In my cranky old age, I actually prefer recording alone now, on 'The Simpsons,' for example, because I find that the director can just focus on what I'm doing and I can do a lot of variations. A lot of times, when I record with a group, I'll stay after class for another hour or two.</b>
+> <p><i>Hank Azaria</i></p>
 
 <br>
