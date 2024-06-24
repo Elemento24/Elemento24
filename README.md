@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way to make sense out of change is to plunge into it, move with it, and join the dance.</b>
-> <p><i>Alan Watts</i></p>
+> <b>Education alone can conduct us to that enjoyment which is, at once, best in quality and infinite in quantity.</b>
+> <p><i>Horace Mann</i></p>
 
 <br>
