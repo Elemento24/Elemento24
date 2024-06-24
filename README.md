@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I could create one job in the private sector by helping to grow a business, that would be one more than Congress has created in the last six months.</b>
-> <p><i>Evan Bayh</i></p>
+> <b>When I was 15, my parents left town for a month. They hid the keys to the car, but I found them. That month, I drove my stepdad's Thunderbird Super Coupe into Manhattan every day, and I would crank Cypress Hill as I flew around the city, racing the taxis.</b>
+> <p><i>Danny Masterson</i></p>
 
 <br>
