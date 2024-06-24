@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Elvis Costello had a brand new bag. He was a musician, but he knew all about the attitude part of it.</b>
-> <p><i>Nick Lowe</i></p>
+> <b>I've always had an inquisitive mind about everything from flowers to television sets to motor cars. Always pulled them apart - couldn't put 'em back, but always extremely interested in how things work.</b>
+> <p><i>Craig Johnston</i></p>
 
 <br>
