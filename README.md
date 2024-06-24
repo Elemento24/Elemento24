@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By all these lovely tokens September days are here, With summer's best of weather And autumn's best of cheer.</b>
-> <p><i>Helen Hunt Jackson</i></p>
+> <b>To make a couple putts to win the Masters is just an amazing feeling.</b>
+> <p><i>Adam Derek Scott</i></p>
 
 <br>
