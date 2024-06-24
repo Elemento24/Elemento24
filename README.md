@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dressing up is a bore. At a certain age, you decorate yourself to attract the opposite sex, and at a certain age, I did that. But I'm past that age.</b>
-> <p><i>Katharine Hepburn</i></p>
+> <b>Both the Obama and Romney campaigns said they pulled all their political ads today in observance of the September 11th anniversary. But politics wasn't very far offstage. The Obama campaign sees foreign policy as an advantage this year.</b>
+> <p><i>Mara Liasson</i></p>
 
 <br>
