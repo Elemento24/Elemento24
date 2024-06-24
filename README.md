@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We especially need imagination in science. It is not all mathematics, nor all logic, but it is somewhat beauty and poetry.</b>
-> <p><i>Maria Montessori</i></p>
+> <b>I slept and dreamt that life was beauty I woke and found that life was duty.</b>
+> <p><i>George Byron</i></p>
 
 <br>
