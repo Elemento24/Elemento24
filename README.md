@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All still lifes are actually paintings of the world on the sixth day of creation, when God and the world were alone together, without man!</b>
-> <p><i>Robert Musil</i></p>
+> <b>We especially need imagination in science. It is not all mathematics, nor all logic, but it is somewhat beauty and poetry.</b>
+> <p><i>Maria Montessori</i></p>
 
 <br>
