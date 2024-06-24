@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best liar is he who makes the smallest amount of lying go the longest way.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>The only way to make sense out of change is to plunge into it, move with it, and join the dance.</b>
+> <p><i>Alan Watts</i></p>
 
 <br>
