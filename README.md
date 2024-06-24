@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Both the Obama and Romney campaigns said they pulled all their political ads today in observance of the September 11th anniversary. But politics wasn't very far offstage. The Obama campaign sees foreign policy as an advantage this year.</b>
-> <p><i>Mara Liasson</i></p>
+> <b>It's amazing to hear, as a voice matures and then starts to decline, what kind of emotion is still conveyed by a really good vocalist.</b>
+> <p><i>Tom Wopat</i></p>
 
 <br>
