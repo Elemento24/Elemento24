@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To make a couple putts to win the Masters is just an amazing feeling.</b>
-> <p><i>Adam Derek Scott</i></p>
+> <b>Dressing up is a bore. At a certain age, you decorate yourself to attract the opposite sex, and at a certain age, I did that. But I'm past that age.</b>
+> <p><i>Katharine Hepburn</i></p>
 
 <br>
