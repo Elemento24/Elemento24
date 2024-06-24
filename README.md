@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always had an inquisitive mind about everything from flowers to television sets to motor cars. Always pulled them apart - couldn't put 'em back, but always extremely interested in how things work.</b>
-> <p><i>Craig Johnston</i></p>
+> <b>It is dangerous for mortal beauty, or terrestrial virtue, to be examined by too strong a light. The torch of Truth shows much that we cannot, and all that we would not, see.</b>
+> <p><i>Samuel Johnson</i></p>
 
 <br>
