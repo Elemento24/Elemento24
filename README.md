@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes you get the best light from a burning bridge.</b>
-> <p><i>Don Henley</i></p>
+> <b>I've managed to keep a clear head and remain sane in this business because I remain a kid off-camera.</b>
+> <p><i>Leonardo DiCaprio</i></p>
 
 <br>
