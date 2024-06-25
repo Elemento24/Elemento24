@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fairest and dearest, your wrath and anger are more heavy than I can bear but learn that I cannot tell what you wish me to say without sinning against my honour too grievously.</b>
-> <p><i>Marie de France</i></p>
+> <b>Theatre, when it is at its best, takes a lot of beating - the live experience and the shared collective experience of live storytelling is really special when it is good. Particularly here in New York because the audiences are amazing, very vocal and very engaged, and that makes theatre very exciting.</b>
+> <p><i>Dan Stevens</i></p>
 
 <br>
