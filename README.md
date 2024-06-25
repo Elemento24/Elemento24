@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best interpreter of the law is custom.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>The preparation, commitment and desire to win will be no less than the last time I drove a grand prix car in anger.</b>
+> <p><i>Nigel Mansell</i></p>
 
 <br>
