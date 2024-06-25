@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Theatre, when it is at its best, takes a lot of beating - the live experience and the shared collective experience of live storytelling is really special when it is good. Particularly here in New York because the audiences are amazing, very vocal and very engaged, and that makes theatre very exciting.</b>
-> <p><i>Dan Stevens</i></p>
+> <b>I am obsessed with beauty. I want everything to be perfect, and of course it isn't. And that's a tough place to be because you're never satisfied.</b>
+> <p><i>Robert Mapplethorpe</i></p>
 
 <br>
