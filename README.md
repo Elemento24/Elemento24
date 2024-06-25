@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've managed to keep a clear head and remain sane in this business because I remain a kid off-camera.</b>
-> <p><i>Leonardo DiCaprio</i></p>
+> <b>Obscenity, which is ever blasphemy against the divine beauty in life, is a monster for which the corruption of society forever brings forth new food, which it devours in secret.</b>
+> <p><i>Percy Bysshe Shelley</i></p>
 
 <br>
