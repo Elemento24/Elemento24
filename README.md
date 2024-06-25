@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that the rights of women and girls is the unfinished business of the 21st century.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>Discourage litigation. Persuade your neighbors to compromise whenever you can. As a peacemaker the lawyer has superior opportunity of being a good man. There will still be business enough.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
