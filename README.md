@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I slept and dreamt that life was beauty I woke and found that life was duty.</b>
-> <p><i>George Byron</i></p>
+> <b>That's the conundrum of cartoon stripping, as opposed to political cartoons. When your anger is the driving force of your drawing hand, failure follows. The anger is OK, but it has to serve the interests of the heart, frankly.</b>
+> <p><i>Berkeley Breathed</i></p>
 
 <br>
