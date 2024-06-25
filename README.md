@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The preparation, commitment and desire to win will be no less than the last time I drove a grand prix car in anger.</b>
-> <p><i>Nigel Mansell</i></p>
+> <b>Fairest and dearest, your wrath and anger are more heavy than I can bear but learn that I cannot tell what you wish me to say without sinning against my honour too grievously.</b>
+> <p><i>Marie de France</i></p>
 
 <br>
