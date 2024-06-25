@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who has done his best for his own time has lived for all times.</b>
-> <p><i>Friedrich Schiller</i></p>
+> <b>The music business is motivated by money. Music is motivated by energy and feelings.</b>
+> <p><i>Erykah Badu</i></p>
 
 <br>
