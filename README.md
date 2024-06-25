@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am free because I know that I alone am morally responsible for everything I do. I am free, no matter what rules surround me. If I find them tolerable, I tolerate them if I find them too obnoxious, I break them. I am free because I know that I alone am morally responsible for everything I do.</b>
-> <p><i>Robert A. Heinlein</i></p>
+> <b>All species capable of grasping this fact manage better in the struggle for existence than those which rely upon their own strength alone: the wolf, which hunts in a pack, has a greater chance of survival than the lion, which hunts alone.</b>
+> <p><i>Christian Lous Lange</i></p>
 
 <br>
