@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is the art of preventing people from busying themselves with what is their own business.</b>
-> <p><i>Paul Valery</i></p>
+> <b>There is nothing, Sir, too little for so little a creature as man. It is by studying little things that we attain the great art of having as little misery and as much happiness as possible.</b>
+> <p><i>Samuel Johnson</i></p>
 
 <br>
