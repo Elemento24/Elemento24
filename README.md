@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am obsessed with beauty. I want everything to be perfect, and of course it isn't. And that's a tough place to be because you're never satisfied.</b>
-> <p><i>Robert Mapplethorpe</i></p>
+> <b>Sometimes you get the best light from a burning bridge.</b>
+> <p><i>Don Henley</i></p>
 
 <br>
