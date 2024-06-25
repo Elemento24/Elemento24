@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obscenity, which is ever blasphemy against the divine beauty in life, is a monster for which the corruption of society forever brings forth new food, which it devours in secret.</b>
-> <p><i>Percy Bysshe Shelley</i></p>
+> <b>I believe that the rights of women and girls is the unfinished business of the 21st century.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
