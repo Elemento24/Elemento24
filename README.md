@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The music business is motivated by money. Music is motivated by energy and feelings.</b>
-> <p><i>Erykah Badu</i></p>
+> <b>Anger is one of the sinews of the soul.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
