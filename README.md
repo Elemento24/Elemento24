@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't believe in morality in architecture.</b>
-> <p><i>Michael Graves</i></p>
+> <b>He who has done his best for his own time has lived for all times.</b>
+> <p><i>Friedrich Schiller</i></p>
 
 <br>
