@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Discourage litigation. Persuade your neighbors to compromise whenever you can. As a peacemaker the lawyer has superior opportunity of being a good man. There will still be business enough.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>I never played much golf as a kid. I caddied quite a bit but never got serious into golf until about age 15.</b>
+> <p><i>Lee Trevino</i></p>
 
 <br>
