@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was quite a shy child. I would get terribly nervous and throw up before my birthday party. And then I would be fine. I feel the same now. I get nervous, then it's fine.</b>
-> <p><i>Matthew Macfadyen</i></p>
+> <b>I think women should start to embrace their age. What's the alternative to getting older? You die. I can't change the day I was born. But I can take care of my skin, my body, my mind, and try to live my life and be happy.</b>
+> <p><i>Olivia Munn</i></p>
 
 <br>
