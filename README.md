@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter what you study, the thing that you know best is what you grew up with.</b>
-> <p><i>Maria Sharapova</i></p>
+> <b>The body can do amazing things in a situation when it is really called for.</b>
+> <p><i>Suzanne Farrell</i></p>
 
 <br>
