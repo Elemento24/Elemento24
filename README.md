@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know much about auctions. I sometimes go to previews and see art sardined into ugly rooms. I've gawked at the gaudy prices, and gaped at well-clad crowds of happy white people conspicuously spending hundreds of millions of dollars.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Switzerland is a small, steep country, much more up and down than sideways, and is all stuck over with large brown hotels built on the cuckoo clock style of architecture.</b>
+> <p><i>Ernest Hemingway</i></p>
 
 <br>
