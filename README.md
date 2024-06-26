@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Out with stereotypes, feminism proclaims. But stereotypes are the west's stunning sexual personae, the vehicles of art's assault against nature. The moment there is imagination, there is myth.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>When I grew up there wasn't air-conditioning or anything of that nature, and this old car had a wall thickness of about ten inches. So we had a little warmer house in the winter and a little cooler in the summer.</b>
+> <p><i>Merle Haggard</i></p>
 
 <br>
