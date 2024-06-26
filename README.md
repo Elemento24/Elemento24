@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been intrigued by color and by interesting hair. I was one of those weird little girls doing my own hair at the age of 9. I was, like, getting weird gels and new brushes and cornrow holders. I would tweak and perm at the age of 13.</b>
-> <p><i>Nicki Minaj</i></p>
+> <b>Good, better, best. Never let it rest. 'Til your good is better and your better is best.</b>
+> <p><i>St. Jerome</i></p>
 
 <br>
