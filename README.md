@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not interested in pop art.</b>
-> <p><i>Billy Corgan</i></p>
+> <b>Art does not reproduce what we see rather, it makes us see.</b>
+> <p><i>Paul Klee</i></p>
 
 <br>
