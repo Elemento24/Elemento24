@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was raised to believe that excellence is the best deterrent to racism or sexism. And that's how I operate my life.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>I was quite a shy child. I would get terribly nervous and throw up before my birthday party. And then I would be fine. I feel the same now. I get nervous, then it's fine.</b>
+> <p><i>Matthew Macfadyen</i></p>
 
 <br>
