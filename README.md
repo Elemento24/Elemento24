@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art does not reproduce what we see rather, it makes us see.</b>
-> <p><i>Paul Klee</i></p>
+> <b>True life is lived when tiny changes occur.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
