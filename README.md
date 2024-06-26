@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good, better, best. Never let it rest. 'Til your good is better and your better is best.</b>
-> <p><i>St. Jerome</i></p>
+> <b>Such discussions help us very little to enjoy what has been well done in art or poetry, to discriminate between what is more and what is less excellent in them, or to use words like beauty, excellence, art, poetry, with a more precise meaning than they would otherwise have.</b>
+> <p><i>Walter Pater</i></p>
 
 <br>
