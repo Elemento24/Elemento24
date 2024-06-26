@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best weapon against an enemy is another enemy.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>I'm not interested in pop art.</b>
+> <p><i>Billy Corgan</i></p>
 
 <br>
