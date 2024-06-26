@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>QUOTE</b>
-> <p><i>AUTHOR</i></p>
+> <b>I was raised to believe that excellence is the best deterrent to racism or sexism. And that's how I operate my life.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
