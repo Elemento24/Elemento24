@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Switzerland is a small, steep country, much more up and down than sideways, and is all stuck over with large brown hotels built on the cuckoo clock style of architecture.</b>
-> <p><i>Ernest Hemingway</i></p>
+> <b>QUOTE</b>
+> <p><i>AUTHOR</i></p>
 
 <br>
