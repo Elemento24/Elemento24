@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I grew up there wasn't air-conditioning or anything of that nature, and this old car had a wall thickness of about ten inches. So we had a little warmer house in the winter and a little cooler in the summer.</b>
-> <p><i>Merle Haggard</i></p>
+> <b>When we have done our best, we should wait the result in peace.</b>
+> <p><i>John Lubbock</i></p>
 
 <br>
