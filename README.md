@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Tell me thy company, and I'll tell thee what thou art.</b>
-> <p><i>Miguel de Cervantes</i></p>
+> <b>Out with stereotypes, feminism proclaims. But stereotypes are the west's stunning sexual personae, the vehicles of art's assault against nature. The moment there is imagination, there is myth.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
