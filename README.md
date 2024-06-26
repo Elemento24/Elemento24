@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm happily single.</b>
-> <p><i>Paula Abdul</i></p>
+> <b>Some women feel the best cure for a broken heart is a new beau.</b>
+> <p><i>Gene Tierney</i></p>
 
 <br>
