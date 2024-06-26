@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Silence is true wisdom's best reply.</b>
-> <p><i>Euripides</i></p>
+> <b>Tell me thy company, and I'll tell thee what thou art.</b>
+> <p><i>Miguel de Cervantes</i></p>
 
 <br>
