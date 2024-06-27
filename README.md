@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was very hard for all of us. It's still very hard. The anniversary of his death just passed, and every single one of his friends, still, after all these years... it's unbelievable.</b>
-> <p><i>Eydie Gorme</i></p>
+> <b>I've always wanted to be the best in the world as a baseball player, so when I started to think about opening a business, it was with that mindset.</b>
+> <p><i>Curt Schilling</i></p>
 
 <br>
