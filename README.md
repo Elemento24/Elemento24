@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age realizes the dreams of youth: look at Dean Swift in his youth he built an asylum for the insane, in his old age he was himself an inmate.</b>
-> <p><i>Soren Kierkegaard</i></p>
+> <b>Happiness is spiritual, born of truth and love. It is unselfish therefore it cannot exist alone, but requires all mankind to share it.</b>
+> <p><i>Mary Baker Eddy</i></p>
 
 <br>
