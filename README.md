@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry is not only dream and vision it is the skeleton architecture of our lives. It lays the foundations for a future of change, a bridge across our fears of what has never been before.</b>
-> <p><i>Audre Lorde</i></p>
+> <b>All the adversity I've had in my life, all my troubles and obstacles, have strengthened me... You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
