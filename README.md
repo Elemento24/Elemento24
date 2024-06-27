@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the adversity I've had in my life, all my troubles and obstacles, have strengthened me... You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you.</b>
-> <p><i>Walt Disney</i></p>
+> <b>It may, however, be said that the level of experience to which concepts are inapplicable cannot yield any knowledge of a universal character, for concepts alone are capable of being socialized.</b>
+> <p><i>Muhammad Iqbal</i></p>
 
 <br>
