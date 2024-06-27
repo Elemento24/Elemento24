@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Coercion may prevent many transgressions but it robs even actions which are legal of a part of their beauty. Freedom may lead to many transgressions, but it lends even to vices a less ignoble form.</b>
-> <p><i>Wilhelm von Humboldt</i></p>
+> <b>Beauty is variable, ugliness is constant.</b>
+> <p><i>Douglas Horton</i></p>
 
 <br>
