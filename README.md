@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each of us have things and thoughts and descriptions of an amazing universe in our possession that kings in the 17th Century would have gone to war to possess.</b>
-> <p><i>Kary Mullis</i></p>
+> <b>Dying is an art, like everything else. I do it exceptionally well. I do it so it feels like hell. I do it so it feels real. I guess you could say I've a call.</b>
+> <p><i>Sylvia Plath</i></p>
 
 <br>
