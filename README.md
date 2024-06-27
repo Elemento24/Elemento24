@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Happiness is spiritual, born of truth and love. It is unselfish therefore it cannot exist alone, but requires all mankind to share it.</b>
-> <p><i>Mary Baker Eddy</i></p>
+> <b>It was Julie Burchill who decreed that, beyond a certain age, a man should not be seen in a leather jacket.</b>
+> <p><i>Arthur Smith</i></p>
 
 <br>
