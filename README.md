@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dying is an art, like everything else. I do it exceptionally well. I do it so it feels like hell. I do it so it feels real. I guess you could say I've a call.</b>
-> <p><i>Sylvia Plath</i></p>
+> <b>The customs and fashions of men change like leaves on the bough, some of which go and others come.</b>
+> <p><i>Dante Alighieri</i></p>
 
 <br>
