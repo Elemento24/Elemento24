@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't drive your business, you will be driven out of business.</b>
-> <p><i>B. C. Forbes</i></p>
+> <b>Chaotic people often have chaotic lives, and I think they create that. But if you try and have an inner peace and a positive attitude, I think you attract that.</b>
+> <p><i>Imelda Staunton</i></p>
 
 <br>
