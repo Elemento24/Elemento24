@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm starting to think about things that I want to do, things that are fun. One of them is driving a car like a Porsche. I've driven a lot of cars - sedans, trucks and big family vehicles all year long. But there's nothing like a four-wheel-drive Porsche.</b>
-> <p><i>Kevin O'Leary</i></p>
+> <b>Old age realizes the dreams of youth: look at Dean Swift in his youth he built an asylum for the insane, in his old age he was himself an inmate.</b>
+> <p><i>Soren Kierkegaard</i></p>
 
 <br>
