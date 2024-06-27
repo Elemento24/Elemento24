@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always wanted to be the best in the world as a baseball player, so when I started to think about opening a business, it was with that mindset.</b>
-> <p><i>Curt Schilling</i></p>
+> <b>Not since the digital revolution in the early '90s has technology placed such a comprehensive burden on business, employees and individuals to reinvent their business plans, services and products, and themselves to keep pace with the changing marketplace.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
