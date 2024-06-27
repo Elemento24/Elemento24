@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art seduces, but does not exploit.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>Each of us have things and thoughts and descriptions of an amazing universe in our possession that kings in the 17th Century would have gone to war to possess.</b>
+> <p><i>Kary Mullis</i></p>
 
 <br>
