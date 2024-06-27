@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It may, however, be said that the level of experience to which concepts are inapplicable cannot yield any knowledge of a universal character, for concepts alone are capable of being socialized.</b>
-> <p><i>Muhammad Iqbal</i></p>
+> <b>Coercion may prevent many transgressions but it robs even actions which are legal of a part of their beauty. Freedom may lead to many transgressions, but it lends even to vices a less ignoble form.</b>
+> <p><i>Wilhelm von Humboldt</i></p>
 
 <br>
