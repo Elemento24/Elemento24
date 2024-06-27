@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Chaotic people often have chaotic lives, and I think they create that. But if you try and have an inner peace and a positive attitude, I think you attract that.</b>
-> <p><i>Imelda Staunton</i></p>
+> <b>Poetry is not only dream and vision it is the skeleton architecture of our lives. It lays the foundations for a future of change, a bridge across our fears of what has never been before.</b>
+> <p><i>Audre Lorde</i></p>
 
 <br>
