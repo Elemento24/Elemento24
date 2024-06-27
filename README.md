@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is variable, ugliness is constant.</b>
-> <p><i>Douglas Horton</i></p>
+> <b>It was very hard for all of us. It's still very hard. The anniversary of his death just passed, and every single one of his friends, still, after all these years... it's unbelievable.</b>
+> <p><i>Eydie Gorme</i></p>
 
 <br>
