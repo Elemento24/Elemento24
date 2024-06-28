@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every one who has a heart, however ignorant of architecture he may be, feels the transcendent beauty and poetry of the mediaeval churches.</b>
-> <p><i>Goldwin Smith</i></p>
+> <b>The golden age is before us, not behind us.</b>
+> <p><i>William Shakespeare</i></p>
 
 <br>
