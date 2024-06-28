@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned why 'out riding alone' is an oxymoron: An equestrian is never alone, is always sensing the other being, the mysterious but also understandable living being that is the horse.</b>
-> <p><i>Jane Smiley</i></p>
+> <b>I smoke ten to fifteen cigars a day. At my age I have to hold on to something.</b>
+> <p><i>George Burns</i></p>
 
 <br>
