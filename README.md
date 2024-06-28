@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never ask a man what his business is, for it never interests me. What I ask him about are his thoughts and dreams.</b>
-> <p><i>H. P. Lovecraft</i></p>
+> <b>If thou art a man, admire those who attempt great things, even though they fail.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
