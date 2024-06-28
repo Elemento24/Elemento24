@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If thou art a man, admire those who attempt great things, even though they fail.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>I don't have any beauty shop memories. I remember the barber shop.</b>
+> <p><i>Jenifer Lewis</i></p>
 
 <br>
