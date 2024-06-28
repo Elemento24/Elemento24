@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our prayers should be for blessings in general, for God knows best what is good for us.</b>
-> <p><i>Socrates</i></p>
+> <b>I live alone, with cats, books, pictures, fresh vegetables to cook, the garden, the hens to feed.</b>
+> <p><i>Jeanette Winterson</i></p>
 
 <br>
