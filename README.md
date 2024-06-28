@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best morale exist when you never hear the word mentioned. When you hear a lot of talk about it, it's usually lousy.</b>
-> <p><i>Dwight D. Eisenhower</i></p>
+> <b>I learned why 'out riding alone' is an oxymoron: An equestrian is never alone, is always sensing the other being, the mysterious but also understandable living being that is the horse.</b>
+> <p><i>Jane Smiley</i></p>
 
 <br>
