@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prophesy is a good line of business, but it is full of risks.</b>
-> <p><i>Mark Twain</i></p>
+> <b>The best morale exist when you never hear the word mentioned. When you hear a lot of talk about it, it's usually lousy.</b>
+> <p><i>Dwight D. Eisenhower</i></p>
 
 <br>
