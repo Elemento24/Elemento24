@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For what the horse does under compulsion, as Simon also observes, is done without understanding and there is no beauty in it either, any more than if one should whip and spur a dancer.</b>
-> <p><i>Xenophon</i></p>
+> <b>After about the first Millennium, Italy was the cradle of Romanesque architecture, which spread throughout Europe, much of it extending the structural daring with minimal visual elaboration.</b>
+> <p><i>Harry Seidler</i></p>
 
 <br>
