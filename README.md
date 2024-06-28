@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I tour, it's like, well, like a food tour as much as a comedy tour. I try to eat at all the weird places, the obscure barbecue joints, burger places. There are a few spots in L.A. that I'm obsessed with - one of them is the Taco Zone taco truck on Alvarado. There are secret off-menu items that are amazing.</b>
-> <p><i>Aziz Ansari</i></p>
+> <b>For what the horse does under compulsion, as Simon also observes, is done without understanding and there is no beauty in it either, any more than if one should whip and spur a dancer.</b>
+> <p><i>Xenophon</i></p>
 
 <br>
