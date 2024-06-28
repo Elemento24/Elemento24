@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In this business, if you don't pay your debts you're finished.</b>
-> <p><i>Roger Stone</i></p>
+> <b>All I owe the world is my art.</b>
+> <p><i>Sherman Alexie</i></p>
 
 <br>
