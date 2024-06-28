@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The golden age is before us, not behind us.</b>
-> <p><i>William Shakespeare</i></p>
+> <b>Always do your best. What you plant now, you will harvest later.</b>
+> <p><i>Og Mandino</i></p>
 
 <br>
