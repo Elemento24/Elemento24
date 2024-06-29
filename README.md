@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This band has never had an argument. It's just amazing.</b>
-> <p><i>Dave Edmunds</i></p>
+> <b>Imagination disposes of everything it creates beauty, justice, and happiness, which are everything in this world.</b>
+> <p><i>Blaise Pascal</i></p>
 
 <br>
