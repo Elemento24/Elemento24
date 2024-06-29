@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Freedom. Freedom of religion. Freedom to speak their mind. Freedom to build a life. And yes, freedom to build a business. With their own hands. This is the essence of the American experience.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>Diplomacy: the art of restraining power.</b>
+> <p><i>Henry A. Kissinger</i></p>
 
 <br>
