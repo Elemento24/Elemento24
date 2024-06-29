@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Emotions have no place in business, unless you do business with them.</b>
-> <p><i>Friedrich Durrenmatt</i></p>
+> <b>A male gynecologist is like an auto mechanic who has never owned a car.</b>
+> <p><i>Carrie P. Snow</i></p>
 
 <br>
