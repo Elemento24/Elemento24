@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, the shoe - there is a music to it, there is attitude, there is sound, it's a movement. Clothes - it's a different story. There are a million things I'd rather do before designing clothes: directing, landscaping.</b>
-> <p><i>Christian Louboutin</i></p>
+> <b>A small house must depend on its grouping with other houses for its beauty, and for the preservation of light air and the maximum of surrounding open space.</b>
+> <p><i>Clarence Stein</i></p>
 
 <br>
