@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The idea of regretting not doing this seemed insane to me. Sitting in the corner at a bar at age 60, saying: 'I could've been Bond. Buy me a drink.' That's the saddest place I could be. At least now at 60 I can say: 'I was Bond. Now buy me a drink.'</b>
-> <p><i>Daniel Craig</i></p>
+> <b>He that would be angry and sin not, must not be angry with anything but sin.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
