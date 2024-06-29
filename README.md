@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A small house must depend on its grouping with other houses for its beauty, and for the preservation of light air and the maximum of surrounding open space.</b>
-> <p><i>Clarence Stein</i></p>
+> <b>Emotions have no place in business, unless you do business with them.</b>
+> <p><i>Friedrich Durrenmatt</i></p>
 
 <br>
