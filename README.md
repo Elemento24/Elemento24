@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While the resurrection promises us a new and perfect life in the future, God loves us too much to leave us alone to contend with the pain, guilt and loneliness of our present life.</b>
-> <p><i>Josh McDowell</i></p>
+> <b>I mean, the shoe - there is a music to it, there is attitude, there is sound, it's a movement. Clothes - it's a different story. There are a million things I'd rather do before designing clothes: directing, landscaping.</b>
+> <p><i>Christian Louboutin</i></p>
 
 <br>
