@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way of architecture is the quiet voice that underlies it and has guided it from the beginning.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>Latin life is rich with warmth, family values and history. I want to bring that beauty into American homes.</b>
+> <p><i>Cristina Saralegui</i></p>
 
 <br>
