@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A male gynecologist is like an auto mechanic who has never owned a car.</b>
-> <p><i>Carrie P. Snow</i></p>
+> <b>On the stage, you alone hold the key, and on the night you have to trust that the director has inspired you enough to take the material and run with it.</b>
+> <p><i>Greta Scacchi</i></p>
 
 <br>
