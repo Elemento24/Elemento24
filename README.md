@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Latin life is rich with warmth, family values and history. I want to bring that beauty into American homes.</b>
-> <p><i>Cristina Saralegui</i></p>
+> <b>A dream without ambition is like a car without gas... you're not going anywhere.</b>
+> <p><i>Sean Hampton</i></p>
 
 <br>
