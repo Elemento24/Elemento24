@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A dream without ambition is like a car without gas... you're not going anywhere.</b>
-> <p><i>Sean Hampton</i></p>
+> <b>Man has no Body distinct from his Soul for that called Body is a portion of Soul discerned by the five Senses, the chief inlets of Soul in this age.</b>
+> <p><i>William Blake</i></p>
 
 <br>
