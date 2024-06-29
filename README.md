@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a sense of aliveness that comes from connection, shared experience. And you see it in every place. You see it when ball players jump up and down, gather at home plate, hugging, and it's not just because they're winning, it's that shared moment, that feeling of - we enter the world alone, we leave alone.</b>
-> <p><i>Peter Guber</i></p>
+> <b>I love getting dressed up. Being a pop star is the most brilliant job for that. A lot of girls love shopping, but they might see the most amazing outfit and think, 'When am I going to wear that?', so it's my duty to exploit the fact I do have events I can wear these things to.</b>
+> <p><i>Sophie Ellis-Bextor</i></p>
 
 <br>
