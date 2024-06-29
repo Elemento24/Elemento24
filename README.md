@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People can try to reinvent themselves. I don't think you can really change who you are, though, because who you are is pretty much where you came from and what you've done up to now.</b>
-> <p><i>Eminem</i></p>
+> <b>The way of architecture is the quiet voice that underlies it and has guided it from the beginning.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
