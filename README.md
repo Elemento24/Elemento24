@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What has happened to architecture since the second world war that the only passers-by who can contemplate it without pain are those equipped with a white stick and a dog?</b>
-> <p><i>Bernard Levin</i></p>
+> <b>This band has never had an argument. It's just amazing.</b>
+> <p><i>Dave Edmunds</i></p>
 
 <br>
