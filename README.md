@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On the stage, you alone hold the key, and on the night you have to trust that the director has inspired you enough to take the material and run with it.</b>
-> <p><i>Greta Scacchi</i></p>
+> <b>Freedom. Freedom of religion. Freedom to speak their mind. Freedom to build a life. And yes, freedom to build a business. With their own hands. This is the essence of the American experience.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
