@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The intoxication of anger, like that of the grape, shows us to others, but hides us from ourselves.</b>
-> <p><i>John Dryden</i></p>
+> <b>Do you remember when you were 10 or 11 years old and you really thought your folks were the best? They were completely omniscient and you took their word for everything. And then you got older and you went through this hideous age when suddenly they were the devil, they were bullies, and they didn't know anything.</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
