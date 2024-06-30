@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men make angry music and it's called rock-and-roll women include anger in their vocabulary and suddenly they're angry and militant.</b>
-> <p><i>Ani DiFranco</i></p>
+> <b>He who is incapable of feeling strong passions, of being shaken by anger, of living in every sense of the word, will never be a good actor.</b>
+> <p><i>Sarah Bernhardt</i></p>
 
 <br>
