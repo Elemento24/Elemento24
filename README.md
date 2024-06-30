@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In terms of the technology I use the most, it's probably a tie between my Blackberry and my MacBook Pro laptop. That's how I communicate with the rest of the world and how I handle all the business I have to handle.</b>
-> <p><i>John Legend</i></p>
+> <b>The writing is really hard. You're alone. It really pulls it out of you. You pull it out of your head. But when you're a director, you're shopping - you're picking this actor, you're picking this scene. It's like the most intense kinetic high-speed shopping of all time. You sit in a chair and it will all come rushing at you like a wind tunnel.</b>
+> <p><i>Tony Gilroy</i></p>
 
 <br>
