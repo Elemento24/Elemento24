@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Imagine it's 1981. You're an artist, in love with art, smitten with art history. You're also a woman, with almost no mentors to look to art history just isn't that into you. Any woman approaching art history in the early eighties was attempting to enter an almost foreign country, a restricted and exclusionary domain that spoke a private language.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It's awesome to see something like 'Inception', which is just mind-blowing and amazing, and it actually resonates with the audiences. I feel like that's rare.</b>
+> <p><i>Danny McBride</i></p>
 
 <br>
