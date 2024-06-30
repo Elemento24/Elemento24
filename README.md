@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Food is not just what we put in our mouths to fill up it is culture and identity. Reason plays some role in our decisions about food, but it's rarely driving the car.</b>
-> <p><i>Jonathan Safran Foer</i></p>
+> <b>To me, photography is an art of observation. It's about finding something interesting in an ordinary place... I've found it has little to do with the things you see and everything to do with the way you see them.</b>
+> <p><i>Elliott Erwitt</i></p>
 
 <br>
