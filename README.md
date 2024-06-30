@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And while the law of competition may be sometimes hard for the individual, it is best for the race, because it ensures the survival of the fittest in every department.</b>
-> <p><i>Andrew Carnegie</i></p>
+> <b>I do not believe a man can ever leave his business. He ought to think of it by day and dream of it by night.</b>
+> <p><i>Henry Ford</i></p>
 
 <br>
