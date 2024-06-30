@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The writing is really hard. You're alone. It really pulls it out of you. You pull it out of your head. But when you're a director, you're shopping - you're picking this actor, you're picking this scene. It's like the most intense kinetic high-speed shopping of all time. You sit in a chair and it will all come rushing at you like a wind tunnel.</b>
-> <p><i>Tony Gilroy</i></p>
+> <b>Being gay and being a woman has one big thing in common, which is that we both become invisible after the age of 42. Who wants a gay 50-year-old? No one, let me tell you.</b>
+> <p><i>Rupert Everett</i></p>
 
 <br>
