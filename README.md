@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who is incapable of feeling strong passions, of being shaken by anger, of living in every sense of the word, will never be a good actor.</b>
-> <p><i>Sarah Bernhardt</i></p>
+> <b>Buildings should serve people, not the other way around.</b>
+> <p><i>John Portman</i></p>
 
 <br>
