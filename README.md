@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not believe a man can ever leave his business. He ought to think of it by day and dream of it by night.</b>
-> <p><i>Henry Ford</i></p>
+> <b>I'm not a screamer. I'm confrontational, but I don't think that translates into anger.</b>
+> <p><i>Rachel Maddow</i></p>
 
 <br>
