@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Buildings should serve people, not the other way around.</b>
-> <p><i>John Portman</i></p>
+> <b>Art allows people a way to dream their way out of their struggle.</b>
+> <p><i>Russell Simmons</i></p>
 
 <br>
