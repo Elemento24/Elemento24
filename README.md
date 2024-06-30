@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being gay and being a woman has one big thing in common, which is that we both become invisible after the age of 42. Who wants a gay 50-year-old? No one, let me tell you.</b>
-> <p><i>Rupert Everett</i></p>
+> <b>Food is not just what we put in our mouths to fill up it is culture and identity. Reason plays some role in our decisions about food, but it's rarely driving the car.</b>
+> <p><i>Jonathan Safran Foer</i></p>
 
 <br>
