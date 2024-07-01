@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I may climb perhaps to no great heights, but I will climb alone.</b>
-> <p><i>Cyrano de Bergerac</i></p>
+> <b>The problem with beauty is that it's like being born rich and getting poorer.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
