@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no end to the violations committed by children on children, quietly talking alone.</b>
-> <p><i>Elizabeth Bowen</i></p>
+> <b>If beauty isn't genius it usually signals at least a high level of animal cunning.</b>
+> <p><i>Peter York</i></p>
 
 <br>
