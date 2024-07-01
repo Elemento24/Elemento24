@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Dancer believes that his art has something to say which cannot be expressed in words or in any other way than by dancing.</b>
-> <p><i>Doris Humphrey</i></p>
+> <b>A lot of my humor does come from anger. It's like, you're not gonna pull one over on me - which is pretty much my motto anyways.</b>
+> <p><i>Courteney Cox</i></p>
 
 <br>
