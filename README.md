@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Morality comes with the sad wisdom of age, when the sense of curiosity has withered.</b>
-> <p><i>Graham Greene</i></p>
+> <b>The ancient Romans built their greatest masterpieces of architecture, their amphitheaters, for wild beasts to fight in.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
