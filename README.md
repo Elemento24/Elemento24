@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people who are competing business-wise out there want what other successful labels and artists have. I don't want what they have I want my own path, my own sound, my own identity. Record labels care nothing about identity or artistic freedom, they want good business.</b>
-> <p><i>Joe Nichols</i></p>
+> <b>When grace is joined with wrinkles, it is adorable. There is an unspeakable dawn in happy old age.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
