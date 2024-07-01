@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's awesome to see something like 'Inception', which is just mind-blowing and amazing, and it actually resonates with the audiences. I feel like that's rare.</b>
-> <p><i>Danny McBride</i></p>
+> <b>We can't change anything until we get some fresh ideas, until we begin to see things differently.</b>
+> <p><i>James Hillman</i></p>
 
 <br>
