@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Deals are my art form. Other people paint beautifully on canvas or write wonderful poetry. I like making deals, preferably big deals. That's how I get my kicks.</b>
-> <p><i>Edward Koch</i></p>
+> <b>A Boss in Heaven is the best excuse for a boss on earth, therefore If God did exist, he would have to be abolished.</b>
+> <p><i>Mikhail Bakunin</i></p>
 
 <br>
