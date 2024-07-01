@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This Halloween, the most popular mask is the Arnold Schwarzenegger mask. And the best part? With a mouth full of candy you will sound just like him.</b>
-> <p><i>Conan O'Brien</i></p>
+> <b>Associate with men of good quality if you esteem your own reputation for it is better to be alone than in bad company.</b>
+> <p><i>George Washington</i></p>
 
 <br>
