@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A Boss in Heaven is the best excuse for a boss on earth, therefore If God did exist, he would have to be abolished.</b>
-> <p><i>Mikhail Bakunin</i></p>
+> <b>This Halloween, the most popular mask is the Arnold Schwarzenegger mask. And the best part? With a mouth full of candy you will sound just like him.</b>
+> <p><i>Conan O'Brien</i></p>
 
 <br>
