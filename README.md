@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If beauty isn't genius it usually signals at least a high level of animal cunning.</b>
-> <p><i>Peter York</i></p>
+> <b>When superstition is allowed to perform the task of old age in dulling the human temperament, we can say goodbye to all excellence in poetry, in painting, and in music.</b>
+> <p><i>Denis Diderot</i></p>
 
 <br>
