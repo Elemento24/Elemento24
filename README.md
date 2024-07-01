@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of my humor does come from anger. It's like, you're not gonna pull one over on me - which is pretty much my motto anyways.</b>
-> <p><i>Courteney Cox</i></p>
+> <b>Morality comes with the sad wisdom of age, when the sense of curiosity has withered.</b>
+> <p><i>Graham Greene</i></p>
 
 <br>
