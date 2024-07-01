@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can't change anything until we get some fresh ideas, until we begin to see things differently.</b>
-> <p><i>James Hillman</i></p>
+> <b>There is no end to the violations committed by children on children, quietly talking alone.</b>
+> <p><i>Elizabeth Bowen</i></p>
 
 <br>
