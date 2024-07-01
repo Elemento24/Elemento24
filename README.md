@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To an engineer, good enough means perfect. With an artist, there's no such thing as perfect.</b>
-> <p><i>Alexander Calder</i></p>
+> <b>The Dancer believes that his art has something to say which cannot be expressed in words or in any other way than by dancing.</b>
+> <p><i>Doris Humphrey</i></p>
 
 <br>
