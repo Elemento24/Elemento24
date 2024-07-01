@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When grace is joined with wrinkles, it is adorable. There is an unspeakable dawn in happy old age.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>I may climb perhaps to no great heights, but I will climb alone.</b>
+> <p><i>Cyrano de Bergerac</i></p>
 
 <br>
