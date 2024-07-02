@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't return anybody's calls unless it's going to mean extra money for me. And I've completely cut off all relationships with any friends that I had before the show. And I've copped an attitude.</b>
-> <p><i>Mike Judge</i></p>
+> <b>My parents were amazing and wonderful, but there was a lot of pressure to do my best and in every way possible.</b>
+> <p><i>Kate Bosworth</i></p>
 
 <br>
