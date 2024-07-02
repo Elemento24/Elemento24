@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While I had often said that I wanted to die in bed, what I really meant was that in my old age I wanted to be stepped on by an elephant while making love.</b>
-> <p><i>Roger Zelazny</i></p>
+> <b>That's one of the nice things. I mean, part of the beauty of me is that I'm very rich. So if I need $600 million, I can put $600 million myself. That's a huge advantage. I must tell you, that's a huge advantage over the other candidates.</b>
+> <p><i>Donald Trump</i></p>
 
 <br>
