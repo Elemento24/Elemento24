@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each year over 2,500 commercial vessels enter the Port of Hampton Roads alone, so adequate funding for port security is a significant issue for those of us who live in Richmond and Hampton Roads.</b>
-> <p><i>Bobby Scott</i></p>
+> <b>I am a type-2 diabetic, and they took me off medication simply because I ate right and exercised. Diabetes is not like a cancer, where you go in for chemo and radiation. You can change a lot through a basic changing of habits.</b>
+> <p><i>Sherri Shepherd</i></p>
 
 <br>
