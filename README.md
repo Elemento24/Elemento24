@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We've put more effort into helping folks reach old age than into helping them enjoy it.</b>
-> <p><i>Frank A. Clark</i></p>
+> <b>Less is more.</b>
+> <p><i>Ludwig Mies van der Rohe</i></p>
 
 <br>
