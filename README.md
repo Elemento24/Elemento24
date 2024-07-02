@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first feeling about the paper and the attitude is that it is absurd.</b>
-> <p><i>Arthur Holly Compton</i></p>
+> <b>Money is always there but the pockets change it is not in the same pockets after a change, and that is all there is to say about money.</b>
+> <p><i>Gertrude Stein</i></p>
 
 <br>
