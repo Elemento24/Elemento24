@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Keep your temper. A decision made in anger is never sound.</b>
-> <p><i>Ford Frick</i></p>
+> <b>The price of a work of art has nothing to do with what the work of art is, can do, or is worth on an existential, alchemical level.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
