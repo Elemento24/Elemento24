@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we love bacon because it has all the qualities of an amazing sensory experience. When we cook it, the sizzling sound is so appetizing, the aroma is maddening, the crunch of the texture is so gratifying and the taste delivers every time.</b>
-> <p><i>Alexandra Guarnaschelli</i></p>
+> <b>I don't return anybody's calls unless it's going to mean extra money for me. And I've completely cut off all relationships with any friends that I had before the show. And I've copped an attitude.</b>
+> <p><i>Mike Judge</i></p>
 
 <br>
