@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is best to live however one can be.</b>
-> <p><i>Sophocles</i></p>
+> <b>Wit is more necessary than beauty and I think no young woman ugly that has it, and no handsome woman agreeable without it.</b>
+> <p><i>William Wycherley</i></p>
 
 <br>
