@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We'll try to include Iraqi officers in our staffs. We will do everything we can to empower Iraqi security forces to stand up on their own and operate where they can alone.</b>
-> <p><i>John Abizaid</i></p>
+> <b>So there is going to be that balance of understanding how to get the best out of the car that day, whether it's 15th or even if I have a shot at a top 10, protecting that car so we can bring it back when we have to.</b>
+> <p><i>Kurt Busch</i></p>
 
 <br>
