@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you would have your son to walk honourably through the world, you must not attempt to clear the stones from his path, but teach him to walk firmly over them - not insist upon leading him by the hand, but let him learn to go alone.</b>
-> <p><i>Anne Bronte</i></p>
+> <b>While I had often said that I wanted to die in bed, what I really meant was that in my old age I wanted to be stepped on by an elephant while making love.</b>
+> <p><i>Roger Zelazny</i></p>
 
 <br>
