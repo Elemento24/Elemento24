@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems that when you get to a certain age you almost give yourself permission to misbehave and say what you think. People allow it, with very old people.</b>
-> <p><i>Julie Walters</i></p>
+> <b>If you would have your son to walk honourably through the world, you must not attempt to clear the stones from his path, but teach him to walk firmly over them - not insist upon leading him by the hand, but let him learn to go alone.</b>
+> <p><i>Anne Bronte</i></p>
 
 <br>
