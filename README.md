@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a type-2 diabetic, and they took me off medication simply because I ate right and exercised. Diabetes is not like a cancer, where you go in for chemo and radiation. You can change a lot through a basic changing of habits.</b>
-> <p><i>Sherri Shepherd</i></p>
+> <b>Everybody knows about Pearl Harbor. The thing that really fascinated me is that through this tragedy there was this amazing American heroism.</b>
+> <p><i>Michael Bay</i></p>
 
 <br>
