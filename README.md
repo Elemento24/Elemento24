@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Money is always there but the pockets change it is not in the same pockets after a change, and that is all there is to say about money.</b>
-> <p><i>Gertrude Stein</i></p>
+> <b>Should we find a second form of life right here on our doorstep, we could be confident that life is a truly cosmic phenomenon. If so, there may well be sentient beings somewhere in the galaxy wondering, as do we, if they are not alone in the universe.</b>
+> <p><i>Paul Davies</i></p>
 
 <br>
