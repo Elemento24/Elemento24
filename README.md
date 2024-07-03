@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rationalism is the enemy of art, though necessary as a basis for architecture.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>We didn't have a beauty shop as I grew up.</b>
+> <p><i>Jenifer Lewis</i></p>
 
 <br>
