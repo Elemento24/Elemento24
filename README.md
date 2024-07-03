@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I can change the game.</b>
-> <p><i>Venus Williams</i></p>
+> <b>In all my career, in my ups and downs, I've never had a beauty campaign. This was meaningful that at almost 41 years old, I could be getting my first beauty campaign. It made me feel really great.</b>
+> <p><i>Teri Hatcher</i></p>
 
 <br>
