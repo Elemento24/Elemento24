@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the beautiful way of doing things. Science is the effective way of doing things. Business is the economic way of doing things.</b>
-> <p><i>Elbert Hubbard</i></p>
+> <b>I'd love to own a bakery at some point. My grandmother could help me run it - she is an amazing baker! I'd also love to do a cookbook.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
