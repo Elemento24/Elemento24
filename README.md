@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm human, I'm not perfect. I make mistakes all the time, but I guess my job is to keep those mistakes to myself, which I'm already fine doing and just try to be the best I can be for those kids.</b>
-> <p><i>Selena Gomez</i></p>
+> <b>Anger is never without a reason, but seldom with a good one.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
