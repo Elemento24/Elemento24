@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The longer one is alone, the easier it is to hear the song of the earth.</b>
-> <p><i>Robert Anton Wilson</i></p>
+> <b>To Follow by faith alone is to follow blindly.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
