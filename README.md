@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The bungalow had more to do with how Americans live today than any other building that has gone remotely by the name of architecture in our history.</b>
-> <p><i>Russell Lynes</i></p>
+> <b>The human foot is a masterpiece of engineering and a work of art.</b>
+> <p><i>Leonardo da Vinci</i></p>
 
 <br>
