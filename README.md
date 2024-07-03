@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To Follow by faith alone is to follow blindly.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>I'm not into watching stuff I did last week, let alone three or four years ago.</b>
+> <p><i>Chris Hemsworth</i></p>
 
 <br>
