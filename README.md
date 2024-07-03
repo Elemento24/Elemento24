@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is never without a reason, but seldom with a good one.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>Those youngsters go out there and set a record and clinch the pole position. But what do you do if you wreck your car. That record doesn't spend too well.</b>
+> <p><i>Buck Baker</i></p>
 
 <br>
