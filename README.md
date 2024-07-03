@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In all my career, in my ups and downs, I've never had a beauty campaign. This was meaningful that at almost 41 years old, I could be getting my first beauty campaign. It made me feel really great.</b>
-> <p><i>Teri Hatcher</i></p>
+> <b>If philosophy is practice, a demand to know the manner in which its history is to be studied is entailed: a theoretical attitude toward it becomes real only in the living appropriation of its contents from the texts.</b>
+> <p><i>Karl Jaspers</i></p>
 
 <br>
