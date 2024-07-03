@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If philosophy is practice, a demand to know the manner in which its history is to be studied is entailed: a theoretical attitude toward it becomes real only in the living appropriation of its contents from the texts.</b>
-> <p><i>Karl Jaspers</i></p>
+> <b>Rationalism is the enemy of art, though necessary as a basis for architecture.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
