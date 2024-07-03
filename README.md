@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Should we find a second form of life right here on our doorstep, we could be confident that life is a truly cosmic phenomenon. If so, there may well be sentient beings somewhere in the galaxy wondering, as do we, if they are not alone in the universe.</b>
-> <p><i>Paul Davies</i></p>
+> <b>Perhaps nature is our best assurance of immortality.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
