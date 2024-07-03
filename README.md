@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>First of all, plain and simple, you have no real idea of what it means to be famous until you become famous. It's a double-edged sword. Obviously there are a lot of amazing things about fame, but there are also a lot of challenging things about it.</b>
-> <p><i>Michelle Pfeiffer</i></p>
+> <b>Writing is truly a creative art - putting word to a blank piece of paper and ending up with a full-fledged story rife with character and plot.</b>
+> <p><i>William Shatner</i></p>
 
 <br>
