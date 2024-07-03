@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One accusation you can't throw at me is that I've always done my best.</b>
-> <p><i>Alan Shearer</i></p>
+> <b>The bungalow had more to do with how Americans live today than any other building that has gone remotely by the name of architecture in our history.</b>
+> <p><i>Russell Lynes</i></p>
 
 <br>
