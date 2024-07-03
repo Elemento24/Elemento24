@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The human foot is a masterpiece of engineering and a work of art.</b>
-> <p><i>Leonardo da Vinci</i></p>
+> <b>We tried not to age, but time had its rage.</b>
+> <p><i>Patti Smith</i></p>
 
 <br>
