@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps nature is our best assurance of immortality.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>Look, demanding somebody do anything in this day and age is not going to fly.</b>
+> <p><i>John Mayer</i></p>
 
 <br>
