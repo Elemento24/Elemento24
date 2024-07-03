@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We tried not to age, but time had its rage.</b>
-> <p><i>Patti Smith</i></p>
+> <b>Art is the beautiful way of doing things. Science is the effective way of doing things. Business is the economic way of doing things.</b>
+> <p><i>Elbert Hubbard</i></p>
 
 <br>
