@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When a noble life has prepared old age, it is not decline that it reveals, but the first days of immortality.</b>
-> <p><i>Muriel Spark</i></p>
+> <b>To live alone is the fate of all great souls.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
