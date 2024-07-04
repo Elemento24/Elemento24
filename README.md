@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mayors could never get away with the kind of nonsense that goes on in Washington. In our world, you either picked up the trash or you didn't. You either moved an abandoned car or you didn't. You either filled a pothole or you didn't. That's what we do every day. And we know how to get this stuff done.</b>
-> <p><i>Michael Nutter</i></p>
+> <b>Great artists are people who find the way to be themselves in their art. Any sort of pretension induces mediocrity in art and life alike.</b>
+> <p><i>Margot Fonteyn</i></p>
 
 <br>
