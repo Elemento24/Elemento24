@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think failure is nothing more than life's way of nudging you that you are off course. My attitude to failure is not attached to outcome, but in not trying. It is liberating. Most people attach failure to something not working out or how people perceive you. This way, it is about answering to yourself.</b>
-> <p><i>Sara Blakely</i></p>
+> <b>I believe that history has shape, order, and meaning that exceptional men, as much as economic forces, produce change and that passe abstractions like beauty, nobility, and greatness have a shifting but continuing validity.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
