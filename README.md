@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You'd think I'd have been happiest in my life playing music in front of 50,000 people at Gillette Stadium. But let me tell you, it's an odd feeling to feel alone in the spotlight.</b>
-> <p><i>Kenny Chesney</i></p>
+> <b>When a noble life has prepared old age, it is not decline that it reveals, but the first days of immortality.</b>
+> <p><i>Muriel Spark</i></p>
 
 <br>
