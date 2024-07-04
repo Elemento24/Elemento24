@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I finally faced the fact that it isn't a crime not having friends. Being alone means you have fewer problems.</b>
-> <p><i>Whitney Houston</i></p>
+> <b>Life is about not knowing, having to change, taking the moment and making the best of it, without knowing what's going to happen next.</b>
+> <p><i>Gilda Radner</i></p>
 
 <br>
