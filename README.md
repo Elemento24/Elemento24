@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A technical solution may be defined as one that requires a change only in the techniques of the natural sciences, demanding little or nothing in the way of change in human values or ideas of morality.</b>
-> <p><i>Garrett Hardin</i></p>
+> <b>When I was producing on my own, I was doing it in order to - in a very patriarchal entertainment industry, let alone planet - very much hell-bent on trying to prove to myself, if nothing else, that I could do it as a woman.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
