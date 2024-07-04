@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is about not knowing, having to change, taking the moment and making the best of it, without knowing what's going to happen next.</b>
-> <p><i>Gilda Radner</i></p>
+> <b>I did a twenty foot print and John Cage is involved in that because he was the only person I knew in New York who had a car and who would be willing to do this.</b>
+> <p><i>Robert Rauschenberg</i></p>
 
 <br>
