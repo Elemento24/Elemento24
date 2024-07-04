@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unlike a drop of water which loses its identity when it joins the ocean, man does not lose his being in the society in which he lives. Man's life is independent. He is born not for the development of the society alone, but for the development of his self.</b>
-> <p><i>B. R. Ambedkar</i></p>
+> <b>My unusual beauty tip is that I often use Vaseline to take my make up off. It works great and is good for sensitive skin.</b>
+> <p><i>Rachel Bilson</i></p>
 
 <br>
