@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that there is nothing, not even crime, more opposed to poetry, to philosophy, ay, to life itself than this incessant business.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>It took the Metropolitan Museum of Art nearly 50 years to wake up to Pablo Picasso. It didn't own one of his paintings until 1946, when Gertrude Stein bequeathed that indomitable quasi-Cubistic picture of herself - a portrait of the writer as a sumo Buddha - to the Met, principally because she disliked the Museum of Modern Art.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
