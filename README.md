@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hope and change? We're not doing that anymore. They're doing attack and blame. And so, I just think people are going to see through this. They want real leadership. They want us to get this country on the right track.</b>
-> <p><i>Paul Ryan</i></p>
+> <b>Mayors could never get away with the kind of nonsense that goes on in Washington. In our world, you either picked up the trash or you didn't. You either moved an abandoned car or you didn't. You either filled a pothole or you didn't. That's what we do every day. And we know how to get this stuff done.</b>
+> <p><i>Michael Nutter</i></p>
 
 <br>
