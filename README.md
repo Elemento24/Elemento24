@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are 27 or 28 right? It is very tough to live at that age. When nothing is sure. I have sympathy with you.</b>
-> <p><i>Haruki Murakami</i></p>
+> <b>You'd think I'd have been happiest in my life playing music in front of 50,000 people at Gillette Stadium. But let me tell you, it's an odd feeling to feel alone in the spotlight.</b>
+> <p><i>Kenny Chesney</i></p>
 
 <br>
