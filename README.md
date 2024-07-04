@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was producing on my own, I was doing it in order to - in a very patriarchal entertainment industry, let alone planet - very much hell-bent on trying to prove to myself, if nothing else, that I could do it as a woman.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Unlike a drop of water which loses its identity when it joins the ocean, man does not lose his being in the society in which he lives. Man's life is independent. He is born not for the development of the society alone, but for the development of his self.</b>
+> <p><i>B. R. Ambedkar</i></p>
 
 <br>
