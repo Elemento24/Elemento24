@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I needed most was to love and to be loved, eager to be caught. Happily I wrapped those painful bonds around me and sure enough, I would be lashed with the red-hot pokers or jealousy, by suspicions and fear, by burst of anger and quarrels.</b>
-> <p><i>Saint Augustine</i></p>
+> <b>A technical solution may be defined as one that requires a change only in the techniques of the natural sciences, demanding little or nothing in the way of change in human values or ideas of morality.</b>
+> <p><i>Garrett Hardin</i></p>
 
 <br>
