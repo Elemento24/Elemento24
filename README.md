@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just call me a family man and an actor who digs his whole scene, side interests and all. Just say I feel mighty good at the ripe old age of 27.</b>
-> <p><i>Bobby Darin</i></p>
+> <b>Yet for my part, deeply as I am moved by the religious architecture of the Middle Ages, I cannot honestly say that I ever felt the slightest emotion in any modern Gothic church.</b>
+> <p><i>Goldwin Smith</i></p>
 
 <br>
