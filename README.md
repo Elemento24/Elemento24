@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perfection is immutable. But for things imperfect, change is the way to perfect them.</b>
-> <p><i>Owen Feltham</i></p>
+> <b>Make big plans aim high in hope and work, remembering that a noble, logical diagram once recorded will not die.</b>
+> <p><i>Daniel Burnham</i></p>
 
 <br>
