@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Acting is fantastic, but to be able to create a whole world on celluloid is amazing. It's like taking your dreams straight from your head and projecting them onto a screen.</b>
-> <p><i>Amber Benson</i></p>
+> <b>Trying to describe something musical is like dancing to architecture, it's really difficult.</b>
+> <p><i>Robert Palmer</i></p>
 
 <br>
