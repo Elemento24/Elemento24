@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very accepting with my age. It's like notches on your belt: experience, wisdom, and a different kind of beauty. There comes a day when you've become comfortable in your skin.</b>
-> <p><i>Zoe Saldana</i></p>
+> <b>It really was hand-to-mouth and you can say, 'Poor little me, how dreadful, what a deprived childhood', but I didn't feel that way at all. It's all about the attitude at home.</b>
+> <p><i>Carol Vorderman</i></p>
 
 <br>
