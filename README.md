@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The newly decorated theatres produced things like car parks and restaurants, so you could have a good night out, quite cheaply without all that bother of having to go somewhere else.</b>
-> <p><i>Timothy West</i></p>
+> <b>Art is the most beautiful deception of all. And although people try to incorporate the everyday events of life in it, we must hope that it will remain a deception lest it become a utilitarian thing, sad as a factory.</b>
+> <p><i>Claude Debussy</i></p>
 
 <br>
