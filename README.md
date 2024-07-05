@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Trying to describe something musical is like dancing to architecture, it's really difficult.</b>
-> <p><i>Robert Palmer</i></p>
+> <b>Film in the 20th century, it's the American art form, like jazz.</b>
+> <p><i>Martin Scorsese</i></p>
 
 <br>
