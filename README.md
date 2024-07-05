@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Film in the 20th century, it's the American art form, like jazz.</b>
-> <p><i>Martin Scorsese</i></p>
+> <b>Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.</b>
+> <p><i>Dale Carnegie</i></p>
 
 <br>
