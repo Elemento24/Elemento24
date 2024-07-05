@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Imagine a thousand more such daily intrusions in your life, every hour and minute of every day, and you can grasp the source of this paranoia, this anger that could consume me at any moment if I lost control.</b>
-> <p><i>Jack Henry Abbott</i></p>
+> <b>The newly decorated theatres produced things like car parks and restaurants, so you could have a good night out, quite cheaply without all that bother of having to go somewhere else.</b>
+> <p><i>Timothy West</i></p>
 
 <br>
