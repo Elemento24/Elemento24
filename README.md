@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Develop an attitude of gratitude, and give thanks for everything that happens to you, knowing that every step forward is a step toward achieving something bigger and better than your current situation.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>Imagine a thousand more such daily intrusions in your life, every hour and minute of every day, and you can grasp the source of this paranoia, this anger that could consume me at any moment if I lost control.</b>
+> <p><i>Jack Henry Abbott</i></p>
 
 <br>
