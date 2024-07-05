@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People tend not to use this word beauty because it's not intellectual - but there has to be an overlap between beauty and intellect.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>After you have exhausted what there is in business, politics, conviviality, and so on - have found that none of these finally satisfy, or permanently wear - what remains? Nature remains.</b>
+> <p><i>Walt Whitman</i></p>
 
 <br>
