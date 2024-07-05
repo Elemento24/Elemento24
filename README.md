@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.</b>
-> <p><i>Dale Carnegie</i></p>
+> <b>For my birthday I got a humidifier and a de-humidifier... I put them in the same room and let them fight it out.</b>
+> <p><i>Steven Wright</i></p>
 
 <br>
