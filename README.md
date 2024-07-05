@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also had a mistaken attitude towards certain comrades.</b>
-> <p><i>Bela Kun</i></p>
+> <b>The things that people do now in sports, you can't even believe. These are complete total athletes. To see what human beings can do in the highest level is amazing.</b>
+> <p><i>Billie Joe Armstrong</i></p>
 
 <br>
