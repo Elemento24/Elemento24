@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For my birthday I got a humidifier and a de-humidifier... I put them in the same room and let them fight it out.</b>
-> <p><i>Steven Wright</i></p>
+> <b>I'm very accepting with my age. It's like notches on your belt: experience, wisdom, and a different kind of beauty. There comes a day when you've become comfortable in your skin.</b>
+> <p><i>Zoe Saldana</i></p>
 
 <br>
