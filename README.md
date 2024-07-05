@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We need to stop apologizing for celebrating life. We need to stop apologizing for wanting to protect an individual's right to build a business.</b>
-> <p><i>Rick Perry</i></p>
+> <b>Age becomes reality when you hear someone refer to that attractive young woman standing next to the woman in the green dress, and you find that you're the one in the green dress.</b>
+> <p><i>Lois Wyse</i></p>
 
 <br>
