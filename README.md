@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did a twenty foot print and John Cage is involved in that because he was the only person I knew in New York who had a car and who would be willing to do this.</b>
-> <p><i>Robert Rauschenberg</i></p>
+> <b>Acting is fantastic, but to be able to create a whole world on celluloid is amazing. It's like taking your dreams straight from your head and projecting them onto a screen.</b>
+> <p><i>Amber Benson</i></p>
 
 <br>
