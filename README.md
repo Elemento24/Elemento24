@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age becomes reality when you hear someone refer to that attractive young woman standing next to the woman in the green dress, and you find that you're the one in the green dress.</b>
-> <p><i>Lois Wyse</i></p>
+> <b>Perfection is immutable. But for things imperfect, change is the way to perfect them.</b>
+> <p><i>Owen Feltham</i></p>
 
 <br>
