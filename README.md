@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children, dear and loving children, can alone console a woman for the loss of her beauty.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>Organic architecture seeks superior sense of use and a finer sense of comfort, expressed in organic simplicity.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
