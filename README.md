@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents were amazing and wonderful, but there was a lot of pressure to do my best and in every way possible.</b>
-> <p><i>Kate Bosworth</i></p>
+> <b>If you are a writer you locate yourself behind a wall of silence and no matter what you are doing, driving a car or walking or doing housework you can still be writing, because you have that space.</b>
+> <p><i>Joyce Carol Oates</i></p>
 
 <br>
