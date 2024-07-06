@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ideal beauty is a fugitive which is never found.</b>
-> <p><i>Joan Rivers</i></p>
+> <b>My parents were amazing and wonderful, but there was a lot of pressure to do my best and in every way possible.</b>
+> <p><i>Kate Bosworth</i></p>
 
 <br>
