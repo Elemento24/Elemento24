@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody know, I don't do no promoting. I don't ever have to promote nothing, that's the beauty of Lil Wayne.</b>
-> <p><i>Lil Wayne</i></p>
+> <b>There is a certain age at which a child looks at you in all earnestness and delivers a long, pleased speech in all the true inflections of spoken English, but with not one recognizable syllable.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
