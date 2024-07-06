@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was planning to go into architecture. But when I arrived, architecture was filled up. Acting was right next to it, so I signed up for acting instead.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>Children, dear and loving children, can alone console a woman for the loss of her beauty.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
