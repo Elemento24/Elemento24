@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think most art comes out of poverty and hard times.</b>
-> <p><i>Willie Nelson</i></p>
+> <b>I was planning to go into architecture. But when I arrived, architecture was filled up. Acting was right next to it, so I signed up for acting instead.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
