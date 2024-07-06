@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The things that people do now in sports, you can't even believe. These are complete total athletes. To see what human beings can do in the highest level is amazing.</b>
-> <p><i>Billie Joe Armstrong</i></p>
+> <b>I hate birthdays. I hate birthday parties. I hate them. I don't know what it is, anybody's only got to come wafting near me with a piece of cake with a candle on and I break out in hives.</b>
+> <p><i>Cat Deeley</i></p>
 
 <br>
