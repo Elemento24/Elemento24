@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love watching amazing actors and actresses that you can't take your eyes off of because everything they are doing - even if it is just twiddling their thumbs or scratching their eye - it's just interesting.</b>
-> <p><i>Sara Paxton</i></p>
+> <b>One of my favorite activities as a teen-ager was to watch television over the phone with my best friend.</b>
+> <p><i>Susan Orlean</i></p>
 
 <br>
