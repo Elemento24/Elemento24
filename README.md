@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Luck, like a Russian car, generally only works if you push it.</b>
-> <p><i>Tom Holt</i></p>
+> <b>Beauty and folly are old companions.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
