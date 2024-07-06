@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that a man should not live beyond the age when he begins to deteriorate, when the flame that lighted the brightest moment of his life has weakened.</b>
-> <p><i>Fidel Castro</i></p>
+> <b>I love watching amazing actors and actresses that you can't take your eyes off of because everything they are doing - even if it is just twiddling their thumbs or scratching their eye - it's just interesting.</b>
+> <p><i>Sara Paxton</i></p>
 
 <br>
