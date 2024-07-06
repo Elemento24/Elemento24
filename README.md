@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A great attitude does much more than turn on the lights in our worlds it seems to magically connect us to all sorts of serendipitous opportunities that were somehow absent before the change.</b>
-> <p><i>Earl Nightingale</i></p>
+> <b>Despite what anti-aging ads say, growing older can be better. I feel better in my skin, 100 percent. You have greater effects of gravity, but the better sense of yourself you have is something I wouldn't trade. Women who lie about their age - 'why?'</b>
+> <p><i>Demi Moore</i></p>
 
 <br>
