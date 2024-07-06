@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The concept of two people living together for 25 years without a serious dispute suggests a lack of spirit only to be admired in sheep.</b>
-> <p><i>A. P. Herbert</i></p>
+> <b>Men's magazines often feature pictures of naked ladies. Women's magazines also often feature pictures of naked ladies. This is because the female body is a beautiful work of art, while the male body is hairy and lumpy and should not be seen by the light of day.</b>
+> <p><i>Richard Roeper</i></p>
 
 <br>
