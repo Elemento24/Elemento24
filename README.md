@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Organic architecture seeks superior sense of use and a finer sense of comfort, expressed in organic simplicity.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>The ideal beauty is a fugitive which is never found.</b>
+> <p><i>Joan Rivers</i></p>
 
 <br>
