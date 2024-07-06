@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The compensation of a very early success is a conviction that life is a romantic matter. In the best sense one stays young.</b>
-> <p><i>F. Scott Fitzgerald</i></p>
+> <b>Everybody know, I don't do no promoting. I don't ever have to promote nothing, that's the beauty of Lil Wayne.</b>
+> <p><i>Lil Wayne</i></p>
 
 <br>
