@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The capacity for not feeling lonely can carry a very real price, that of feeling nothing at all.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>No matter what a woman's appearance may be, it will be used to undermine what she is saying and taken to individualize - as her personal problem - observations she makes about the beauty myth in society.</b>
+> <p><i>Naomi Wolf</i></p>
 
 <br>
