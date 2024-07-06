@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love having my birthday at Australia Zoo.</b>
-> <p><i>Bindi Irwin</i></p>
+> <b>The capacity for not feeling lonely can carry a very real price, that of feeling nothing at all.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
