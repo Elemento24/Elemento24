@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Almost all institutions own a lot more art than they can ever show, much of it revealing for its timeliness, genius, or sheer weirdness.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I'm not at the point where I'd feel safe in a house alone. I would be really scared. I'm the kind of person that when I get up to go use the bathroom I have this big long hallway, and I just know someone's going to jump out and get me.</b>
+> <p><i>Britney Spears</i></p>
 
 <br>
