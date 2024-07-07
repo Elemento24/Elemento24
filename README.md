@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My theory of characterization is basically this: Put some dirt on a hero, and put some sunshine on the villain, one brush stroke of beauty on the villain.</b>
-> <p><i>Justin Cronin</i></p>
+> <b>And beauty immortal awakes from the tomb.</b>
+> <p><i>James Beattie</i></p>
 
 <br>
