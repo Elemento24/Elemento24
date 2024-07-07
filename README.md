@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you are a writer you locate yourself behind a wall of silence and no matter what you are doing, driving a car or walking or doing housework you can still be writing, because you have that space.</b>
-> <p><i>Joyce Carol Oates</i></p>
+> <b>Almost all institutions own a lot more art than they can ever show, much of it revealing for its timeliness, genius, or sheer weirdness.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
