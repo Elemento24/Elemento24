@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the unceasing effort to compete with the beauty of flowers - and never succeeding.</b>
-> <p><i>Gian Carlo Menotti</i></p>
+> <b>Today's youth are told to get rich or die trying and they really shouldn't take that attitude forward with them.</b>
+> <p><i>Kareem Abdul-Jabbar</i></p>
 
 <br>
