@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no way in the world that just because women turn the number 40, they're anything less than amazing. That's crazy. If anything, you're even more amazing!</b>
-> <p><i>Jennifer Lopez</i></p>
+> <b>The terror of the atom age is not the violence of the new power but the speed of man's adjustment to it, the speed of his acceptance.</b>
+> <p><i>E. B. White</i></p>
 
 <br>
