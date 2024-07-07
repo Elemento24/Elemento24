@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I may have been the only candidate in America who failed to ride the wave of anti-establishment anger to victory.</b>
-> <p><i>Mickey Kaus</i></p>
+> <b>Be sure what you want and be sure about yourself. Fashion is not just beauty, it's about good attitude. You have to believe in yourself and be strong.</b>
+> <p><i>Adriana Lima</i></p>
 
 <br>
