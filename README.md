@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not at the point where I'd feel safe in a house alone. I would be really scared. I'm the kind of person that when I get up to go use the bathroom I have this big long hallway, and I just know someone's going to jump out and get me.</b>
-> <p><i>Britney Spears</i></p>
+> <b>It seems that when you have cancer you are a brave battler against the disease, but when you have Alzheimer's you are an old fart. That's how people see you. It makes you feel quite alone.</b>
+> <p><i>Terry Pratchett</i></p>
 
 <br>
