@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is dangerous for mortal beauty, or terrestrial virtue, to be examined by too strong a light. The torch of Truth shows much that we cannot, and all that we would not, see.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>In Genesis, it says that it is not good for a man to be alone but sometimes it is a great relief.</b>
+> <p><i>John Barrymore</i></p>
 
 <br>
