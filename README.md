@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems that when you have cancer you are a brave battler against the disease, but when you have Alzheimer's you are an old fart. That's how people see you. It makes you feel quite alone.</b>
-> <p><i>Terry Pratchett</i></p>
+> <b>There's no way in the world that just because women turn the number 40, they're anything less than amazing. That's crazy. If anything, you're even more amazing!</b>
+> <p><i>Jennifer Lopez</i></p>
 
 <br>
