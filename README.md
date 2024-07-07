@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like the desert for short periods of time, from inside a car, with the windows rolled up, and the doors locked. I prefer beach resorts with room service.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>Oh, I don't think Tom Sowell would tell anybody to join the administration. That's not his style. But I think his attitude has always been if it had to be done he'd prefer me to do it than somebody else.</b>
+> <p><i>Clarence Thomas</i></p>
 
 <br>
