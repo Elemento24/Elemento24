@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We try, we fail, we posture, we aspire, we pontificate - and then we age, shrink, die, and vanish.</b>
-> <p><i>George Saunders</i></p>
+> <b>I like the desert for short periods of time, from inside a car, with the windows rolled up, and the doors locked. I prefer beach resorts with room service.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
