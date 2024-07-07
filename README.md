@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art which we may call generally art of the wayside, as opposed to that which is the business of men's lives, is, in the best sense of the word, Grotesque.</b>
-> <p><i>John Ruskin</i></p>
+> <b>A good painting to me has always been like a friend. It keeps me company, comforts and inspires.</b>
+> <p><i>Hedy Lamarr</i></p>
 
 <br>
