@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the unceasing effort to compete with the beauty of flowers - and never succeeding.</b>
-> <p><i>Gian Carlo Menotti</i></p>
+> <b>I have been overcome by the beauty and richness of our life together, those early mornings setting out, those evenings gleaming with rivers and lakes below us, still holding the last light.</b>
+> <p><i>Anne Morrow Lindbergh</i></p>
 
 <br>
