@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman knows by intuition, or instinct, what is best for herself.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>When you learn that a truth is a lie, anger follows.</b>
+> <p><i>Grace Slick</i></p>
 
 <br>
