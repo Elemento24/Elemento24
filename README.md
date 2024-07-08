@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The problem is that once the rules of art are debunked, and once the unpleasant realities the irony diagnoses are revealed and diagnosed, 'then' what do we do?</b>
-> <p><i>David Foster Wallace</i></p>
+> <b>Maybe we all change over time.</b>
+> <p><i>Elizabeth Edwards</i></p>
 
 <br>
