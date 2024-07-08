@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A conception not reducible to the small change of daily experience is like a currency not exchangeable for articles of consumption it is not a symbol, but a fraud.</b>
-> <p><i>George Santayana</i></p>
+> <b>On 'Van Halen,' I was a young punk, and everything revolved around the fastest kid in town, gunslinger attitude. But I'd say that at the time of 'Fair Warning,' I started concentrating more on songwriting. But I guess in most people's minds I'm just a gunslinger.</b>
+> <p><i>Eddie Van Halen</i></p>
 
 <br>
