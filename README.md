@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On 'Van Halen,' I was a young punk, and everything revolved around the fastest kid in town, gunslinger attitude. But I'd say that at the time of 'Fair Warning,' I started concentrating more on songwriting. But I guess in most people's minds I'm just a gunslinger.</b>
-> <p><i>Eddie Van Halen</i></p>
+> <b>Customs and convictions change respectable people are the last to know, or to admit, the change, and the ones most offended by fresh reflections of the facts in the mirror of art.</b>
+> <p><i>John Updike</i></p>
 
 <br>
