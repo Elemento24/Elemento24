@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All that really matters is I have two beautiful kids, and I'm trying to be the best dad I can possibly be, and that's the most important thing of all.</b>
-> <p><i>Tiger Woods</i></p>
+> <b>One I built when I was a kid, and it was a real miniature of Disneyland. I fell in love with the park when I went there with my parents on my 12th birthday.</b>
+> <p><i>Bobby Sherman</i></p>
 
 <br>
