@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One I built when I was a kid, and it was a real miniature of Disneyland. I fell in love with the park when I went there with my parents on my 12th birthday.</b>
-> <p><i>Bobby Sherman</i></p>
+> <b>I did my best, and God did the rest.</b>
+> <p><i>Hattie McDaniel</i></p>
 
 <br>
