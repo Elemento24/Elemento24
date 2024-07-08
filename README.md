@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Liberal that I am, I support health-care reform on its merits alone. My liberal blood boils, for example, when I read that half of the personal bankruptcies in this country are brought on, in part, by medical expenses.</b>
-> <p><i>Thomas Frank</i></p>
+> <b>The balance of private good and general welfare is at the bottom of civilized morals but the morals of the Heroic Age are founded on individuality, and on nothing else.</b>
+> <p><i>Lascelles Abercrombie</i></p>
 
 <br>
