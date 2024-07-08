@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wore my first pair of Louboutins during this press tour. It was absolutely amazing, they weren't heels, they were little shoes, but they were velvet and they were blue.</b>
-> <p><i>Chloe Moretz</i></p>
+> <b>I've been trying to learn how to not be so conflicted about things like my own anger. I've always had a place in my music for my anger as a way of compensating for not having a mechanism to express it in my everyday life. So I've been trying to be more true to myself, and that helps me to chill out a little bit. But politically, uh-uh. No.</b>
+> <p><i>Ani DiFranco</i></p>
 
 <br>
