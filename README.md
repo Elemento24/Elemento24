@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Making money is not gonna change anything about what I am, except I won't answer the door.</b>
-> <p><i>Abel Ferrara</i></p>
+> <b>What troubles me is the Internet and the electronic technology revolution. Shyness is fueled in part by so many people spending huge amounts of time alone, isolated on e-mail, in chat rooms, which reduces their face-to-face contact with other people.</b>
+> <p><i>Philip Zimbardo</i></p>
 
 <br>
