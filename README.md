@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maybe we all change over time.</b>
-> <p><i>Elizabeth Edwards</i></p>
+> <b>Art is the unceasing effort to compete with the beauty of flowers - and never succeeding.</b>
+> <p><i>Gian Carlo Menotti</i></p>
 
 <br>
