@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been trying to learn how to not be so conflicted about things like my own anger. I've always had a place in my music for my anger as a way of compensating for not having a mechanism to express it in my everyday life. So I've been trying to be more true to myself, and that helps me to chill out a little bit. But politically, uh-uh. No.</b>
-> <p><i>Ani DiFranco</i></p>
+> <b>A conception not reducible to the small change of daily experience is like a currency not exchangeable for articles of consumption it is not a symbol, but a fraud.</b>
+> <p><i>George Santayana</i></p>
 
 <br>
