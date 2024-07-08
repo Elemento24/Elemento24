@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So as I look at transitioning to the communication platforms of the future, I see that the beauty of Internet protocols is you get the separation of the layers between service and technology.</b>
-> <p><i>Michael K. Powell</i></p>
+> <b>All that really matters is I have two beautiful kids, and I'm trying to be the best dad I can possibly be, and that's the most important thing of all.</b>
+> <p><i>Tiger Woods</i></p>
 
 <br>
