@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have designed the most buildings of any living American architect.</b>
-> <p><i>Alexander Jackson Davis</i></p>
+> <b>Making money is not gonna change anything about what I am, except I won't answer the door.</b>
+> <p><i>Abel Ferrara</i></p>
 
 <br>
