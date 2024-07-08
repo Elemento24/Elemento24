@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My buildings will be my legacy... they will speak for me long after I'm gone.</b>
-> <p><i>Julia Morgan</i></p>
+> <b>So as I look at transitioning to the communication platforms of the future, I see that the beauty of Internet protocols is you get the separation of the layers between service and technology.</b>
+> <p><i>Michael K. Powell</i></p>
 
 <br>
