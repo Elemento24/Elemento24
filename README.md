@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The balance of private good and general welfare is at the bottom of civilized morals but the morals of the Heroic Age are founded on individuality, and on nothing else.</b>
-> <p><i>Lascelles Abercrombie</i></p>
+> <b>I'm still that little girl who lisped and sat in the back of the car and threw vegetables at the back of her head when we drove home from the market. That never goes.</b>
+> <p><i>Tracey Ullman</i></p>
 
 <br>
