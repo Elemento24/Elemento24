@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd love to own a bakery at some point. My grandmother could help me run it - she is an amazing baker! I'd also love to do a cookbook.</b>
-> <p><i>Jordin Sparks</i></p>
+> <b>At a young age winning is not the most important thing... the important thing is to develop creative and skilled players with good confidence.</b>
+> <p><i>Arsene Wenger</i></p>
 
 <br>
