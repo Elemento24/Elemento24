@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old.</b>
-> <p><i>Franz Kafka</i></p>
+> <b>I'd love to own a bakery at some point. My grandmother could help me run it - she is an amazing baker! I'd also love to do a cookbook.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
