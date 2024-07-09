@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Living in an age of advertisement, we are perpetually disillusioned. The perfect life is spread before us every day, but it changes and withers at a touch.</b>
-> <p><i>J. B. Priestley</i></p>
+> <b>The attitude of independence toward a constructed language which all national speakers must adopt is really a great advantage, because it tends to make man see himself as the master of language instead of its obedient servant.</b>
+> <p><i>Edward Sapir</i></p>
 
 <br>
