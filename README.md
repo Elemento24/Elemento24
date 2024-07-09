@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hold fast to youth and beauty.</b>
-> <p><i>Elizabeth Arden</i></p>
+> <b>Anger is a manifestation of a deeper issue... and that, for me, is based on insecurity, self-esteem and loneliness.</b>
+> <p><i>Naomi Campbell</i></p>
 
 <br>
