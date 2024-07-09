@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no excellent beauty that hath not some strangeness in the proportion.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>Wrinkles should merely indicate where smiles have been.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
