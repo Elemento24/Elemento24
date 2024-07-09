@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the result of having been through an experience all the way through to the end - therefore it has a poignancy. Beauty that is singular always comes from following an experience to the point where you can go no further.</b>
-> <p><i>Joan Chen</i></p>
+> <b>Music is God's gift to man, the only art of Heaven given to earth, the only art of earth we take to Heaven.</b>
+> <p><i>Walter Savage Landor</i></p>
 
 <br>
