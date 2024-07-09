@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If truth is beauty, how come no one has their hair done in the library?</b>
-> <p><i>Lily Tomlin</i></p>
+> <b>In the long term we can hope that religion will change the nature of man and reduce conflict. But history is not encouraging in this respect. The bloodiest wars in history have been religious wars.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
