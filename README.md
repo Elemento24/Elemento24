@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some say that I should settle down, go slower and not push so hard, so quickly for such transformational change. To them, I say that you misunderstand the size of the problems we face, the strength of the status quo and the urgency of the people's desire for change.</b>
-> <p><i>Eliot Spitzer</i></p>
+> <b>Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old.</b>
+> <p><i>Franz Kafka</i></p>
 
 <br>
