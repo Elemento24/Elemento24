@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is God's gift to man, the only art of Heaven given to earth, the only art of earth we take to Heaven.</b>
-> <p><i>Walter Savage Landor</i></p>
+> <b>There is no excellent beauty that hath not some strangeness in the proportion.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
