@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At a young age winning is not the most important thing... the important thing is to develop creative and skilled players with good confidence.</b>
-> <p><i>Arsene Wenger</i></p>
+> <b>Living in an age of advertisement, we are perpetually disillusioned. The perfect life is spread before us every day, but it changes and withers at a touch.</b>
+> <p><i>J. B. Priestley</i></p>
 
 <br>
