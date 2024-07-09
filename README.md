@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm still that little girl who lisped and sat in the back of the car and threw vegetables at the back of her head when we drove home from the market. That never goes.</b>
-> <p><i>Tracey Ullman</i></p>
+> <b>We've just got to be careful - with all sports, let alone cricket - I think there's so much emphasis on doing the right thing all the time, but I think the public want to be entertained when they come to watch sport.</b>
+> <p><i>Shane Warne</i></p>
 
 <br>
