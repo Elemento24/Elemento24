@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For many years, I have lived uncomfortably with the belief that most planning and architectural design suffers for lack of real and basic purpose. The ultimate purpose, it seems to me, must be the improvement of mankind.</b>
-> <p><i>James Rouse</i></p>
+> <b>Some say that I should settle down, go slower and not push so hard, so quickly for such transformational change. To them, I say that you misunderstand the size of the problems we face, the strength of the status quo and the urgency of the people's desire for change.</b>
+> <p><i>Eliot Spitzer</i></p>
 
 <br>
