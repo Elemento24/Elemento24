@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Corporation: An ingenious device for obtaining profit without individual responsibility.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>Your best is going to change from moment to moment it will be different when you are healthy as opposed to sick.</b>
+> <p><i>Miguel Angel Ruiz</i></p>
 
 <br>
