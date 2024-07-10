@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The low points I had all helped make up my character, so I probably wouldn't want to do away with them because I like being flawed and I like having them help me grow and change and become better and stronger.</b>
-> <p><i>Drew Barrymore</i></p>
+> <b>Our combination of great research universities, a pro-risk business culture, deep pools of innovation-seeking equity capital and reliable business and contract law is unprecedented and unparalleled in the world.</b>
+> <p><i>Marc Andreessen</i></p>
 
 <br>
