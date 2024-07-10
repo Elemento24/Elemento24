@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me - old age is always ten years older than I am.</b>
-> <p><i>John Burroughs</i></p>
+> <b>Dad almost died of a heart attack in the middle of making Apocalypse Now, the biggest movie of his life. It doesn't make you want to jump into that business.</b>
+> <p><i>Charlie Sheen</i></p>
 
 <br>
