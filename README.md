@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No, no, I was only funny on stage, really. I, I, think I was funny as a person toward my classmates when I was very young. You know, when I was a child, up to about the age of 12.</b>
-> <p><i>Rowan Atkinson</i></p>
+> <b>Youth is the gift of nature, but age is a work of art.</b>
+> <p><i>Stanislaw Lec</i></p>
 
 <br>
