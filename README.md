@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your best is going to change from moment to moment it will be different when you are healthy as opposed to sick.</b>
-> <p><i>Miguel Angel Ruiz</i></p>
+> <b>It is evident that skepticism, while it makes no actual change in man, always makes him feel better.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
