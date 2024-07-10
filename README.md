@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unconditional war can no longer lead to unconditional victory. It can no longer serve to settle disputes... can no longer be of concern to great powers alone.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>I never rode in an automobile until I was 12.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
