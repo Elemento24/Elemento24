@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel more mature than most people my age.</b>
-> <p><i>Leighton Meester</i></p>
+> <b>The only time I commit to conspiracy theories is when something way retarded happens. Like Lee Harvey Oswald acting alone.</b>
+> <p><i>Joe Rogan</i></p>
 
 <br>
