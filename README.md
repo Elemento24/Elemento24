@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the practical art of war, the best thing of all is to take the enemy's country whole and intact to shatter and destroy it is not so good.</b>
-> <p><i>Sun Tzu</i></p>
+> <b>I don't like to produce albums. I hate producing albums, as a matter of fact, because I'm an obsessed mixer and I can't leave it alone.</b>
+> <p><i>David Friedman</i></p>
 
 <br>
