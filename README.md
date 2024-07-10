@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know people think we drive around in these nice cars and we do whatever we want and our parents will pay our credit cards, but that's not the case. Sure, my parents were generous I got a nice car at 16, but at 18 I was cut off. I've worked really hard. I opened the store myself.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>I feel more mature than most people my age.</b>
+> <p><i>Leighton Meester</i></p>
 
 <br>
