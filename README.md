@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel fine, I don't care who the director is. All you have to do is know what your doing - all of us - everybody in the business - that's all you ask anyone - you know your job, I know mine, let's go do it.</b>
-> <p><i>Morgan Freeman</i></p>
+> <b>All business proceeds on beliefs, or judgements of probabilities, and not on certainties.</b>
+> <p><i>Charles W. Eliot</i></p>
 
 <br>
