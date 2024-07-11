@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also believe that government has no business telling us how we should live our lives. I think our lifestyle choices should be left up to us. What we do in our private lives is none of the government's business. That position rules out the Republican Party for me.</b>
-> <p><i>Jesse Ventura</i></p>
+> <b>Had the United States and the United Kingdom gone on alone to capture Baghdad, under the provisions of the Geneva and Hague conventions we would have been considered occupying powers and therefore would have been responsible for all the costs of maintaining or restoring government, education and other services for the people of Iraq.</b>
+> <p><i>Norman Schwarzkopf</i></p>
 
 <br>
