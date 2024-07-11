@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If bad things are going to be said about me, I have to bear that. If I don't understand that it's part of being in show business, then I'd better go work in a bank.</b>
-> <p><i>Antonio Banderas</i></p>
+> <b>I'm so excited for my first fragrance! I chose to partner with Dots because I love what they do for their customers, bringing them the hottest trends in fashion, accessories and fragrance at unbelievably low prices. It's amazing!</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
