@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me the greatest beauty always lies in the greatest clarity.</b>
-> <p><i>Gotthold Ephraim Lessing</i></p>
+> <b>When you are fitted in a racing car and you race to win, second or third place is not enough.</b>
+> <p><i>Ayrton Senna</i></p>
 
 <br>
