@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>American youth attributes much more importance to arriving at driver's license age than at voting age.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>In science the important thing is to modify and change one's ideas as science advances.</b>
+> <p><i>Herbert Spencer</i></p>
 
 <br>
