@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are always the same age inside.</b>
-> <p><i>Gertrude Stein</i></p>
+> <b>A building has integrity just like a man. And just as seldom.</b>
+> <p><i>Ayn Rand</i></p>
 
 <br>
