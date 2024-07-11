@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Knowing who the actors were as you were designing them helped, with Catherine's beauty and Renee's frailty, they directed me visually just by who they were.</b>
-> <p><i>Colleen Atwood</i></p>
+> <b>I think of my peace paintings as one long poem, with each painting being a single stanza.</b>
+> <p><i>Robert Indiana</i></p>
 
 <br>
