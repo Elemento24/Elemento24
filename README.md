@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are fitted in a racing car and you race to win, second or third place is not enough.</b>
-> <p><i>Ayrton Senna</i></p>
+> <b>To write a story about New York that only deals with people in your age and socioeconomic bracket, that feels dishonest to me. So much of New York comes from everyone bumping into each other.</b>
+> <p><i>Josh Radnor</i></p>
 
 <br>
