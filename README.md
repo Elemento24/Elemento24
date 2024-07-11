@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To write a story about New York that only deals with people in your age and socioeconomic bracket, that feels dishonest to me. So much of New York comes from everyone bumping into each other.</b>
-> <p><i>Josh Radnor</i></p>
+> <b>If bad things are going to be said about me, I have to bear that. If I don't understand that it's part of being in show business, then I'd better go work in a bank.</b>
+> <p><i>Antonio Banderas</i></p>
 
 <br>
