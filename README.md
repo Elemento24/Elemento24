@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A building has integrity just like a man. And just as seldom.</b>
-> <p><i>Ayn Rand</i></p>
+> <b>The biggest opportunity in 2013 is in Africa. It has seven out of the ten fastest-growing economies in the world. In Nigeria alone there are 100 million people with mobile phones. In total, 300 million Africans - five times the population of Britain - are in the middle class.</b>
+> <p><i>David Miliband</i></p>
 
 <br>
