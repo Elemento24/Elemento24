@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think of my peace paintings as one long poem, with each painting being a single stanza.</b>
-> <p><i>Robert Indiana</i></p>
+> <b>For me the greatest beauty always lies in the greatest clarity.</b>
+> <p><i>Gotthold Ephraim Lessing</i></p>
 
 <br>
