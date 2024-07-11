@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Surely these women won't lose any more of their beauty and charm by putting a ballot in a ballot box once a year than they are likely to lose standing in foundries or laundries all year round. There is no harder contest than the contest for bread, let me tell you that.</b>
-> <p><i>Rose Schneiderman</i></p>
+> <b>When you create art, the world has to wait.</b>
+> <p><i>Will Smith</i></p>
 
 <br>
