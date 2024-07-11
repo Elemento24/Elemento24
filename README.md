@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm so excited for my first fragrance! I chose to partner with Dots because I love what they do for their customers, bringing them the hottest trends in fashion, accessories and fragrance at unbelievably low prices. It's amazing!</b>
-> <p><i>Jordin Sparks</i></p>
+> <b>Most of my arguments with musicians through the years have had more to do with their attitude about music, or their attitude about their own lives, or their personal responsibility. Music has never really been the big centerpiece of the fight.</b>
+> <p><i>Billy Corgan</i></p>
 
 <br>
