@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change will never happen when people lack the ability and courage to see themselves for who they are.</b>
-> <p><i>Bryant H. McGill</i></p>
+> <b>At my age, no one is married, no one has kids, no one has a career.</b>
+> <p><i>Lena Dunham</i></p>
 
 <br>
