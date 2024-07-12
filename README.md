@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life.</b>
-> <p><i>Herman Hesse</i></p>
+> <b>When I was seventeen, I worked as a counsellor at a co-ed sleep-away camp for eight weeks. I loved it but it could be harrowing - it was far too much responsibility for someone my age.</b>
+> <p><i>Harlan Coben</i></p>
 
 <br>
