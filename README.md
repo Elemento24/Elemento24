@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The artist one day falls through a hole in the brambles, and from that moment he is following the dark rapids of an underground river which may sometimes flow so near to the surface that the laughing picnic parties are heard above.</b>
-> <p><i>Cyril Connolly</i></p>
+> <b>I'm not saying that there's anything better than mated bliss at its best, but I'm saying that living alone is as good in its own way. But we haven't quite given ourselves permission to recognize that.</b>
+> <p><i>Barbara Feldon</i></p>
 
 <br>
