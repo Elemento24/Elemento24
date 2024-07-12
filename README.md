@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At my age, no one is married, no one has kids, no one has a career.</b>
-> <p><i>Lena Dunham</i></p>
+> <b>Some years ago there was a study to discover the most stressful occupation. It turned out not to be the head of a large business, football manager or prime minister, but rather: bus driver.</b>
+> <p><i>Jonathan Sacks</i></p>
 
 <br>
