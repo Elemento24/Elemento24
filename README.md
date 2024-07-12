@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did not want to put myself on the line, as an Australian playing Britain's greatest comic actor. The fans of Sellers are obsessive, possessive - and aggressive. I did not want to risk their anger - or my own reputation.</b>
-> <p><i>Geoffrey Rush</i></p>
+> <b>I will give you the best I have.</b>
+> <p><i>George C. Marshall</i></p>
 
 <br>
