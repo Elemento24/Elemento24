@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Speak when you are angry and you will make the best speech you will ever regret.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>What has happened is that to some degree they have taken an attitude where they don't listen to demos of diverse subject matters. They're looking for demos like the record the guy on the left just did.</b>
+> <p><i>Grandmaster Flash</i></p>
 
 <br>
