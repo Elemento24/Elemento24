@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In science the important thing is to modify and change one's ideas as science advances.</b>
-> <p><i>Herbert Spencer</i></p>
+> <b>It's a very difficult thing for people to accept, seeing women act out anger on the screen. We're more accustomed to seeing men expressing rage and women crying.</b>
+> <p><i>Rebecca De Mornay</i></p>
 
 <br>
