@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My agent says that I'm a 'repeat business guy.' If you hire me to come do a movie, I'll be on time, know all my material, be ready to go, have a good attitude. I'm here to work, so I get hired over and over again by the same producers. If you just be a team player on set you can work so much more often.</b>
-> <p><i>Dean Cain</i></p>
+> <b>Nobody has it all, but for me to even come close is amazing.</b>
+> <p><i>Adam Levine</i></p>
 
 <br>
