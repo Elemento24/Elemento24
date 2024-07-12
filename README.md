@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Winning a competition in architecture is a ticket to oblivion. It's just an idea. Ninety-nine per cent never get built.</b>
-> <p><i>Daniel Libeskind</i></p>
+> <b>Speak when you are angry and you will make the best speech you will ever regret.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
