@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you cannot learn to love real art at least learn to hate sham art.</b>
-> <p><i>William Morris</i></p>
+> <b>It is through art, and through art only, that we can realise our perfection.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
