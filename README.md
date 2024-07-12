@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a very difficult thing for people to accept, seeing women act out anger on the screen. We're more accustomed to seeing men expressing rage and women crying.</b>
-> <p><i>Rebecca De Mornay</i></p>
+> <b>I would have probably stolen cars - it would have given me the same adrenaline rush as racing.</b>
+> <p><i>Valentino Rossi</i></p>
 
 <br>
