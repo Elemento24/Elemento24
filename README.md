@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Then as everything, like I say, things started to come together, when things started to go our way, that's when you results started to come. I was no different driver. I was certainly learning every time I went in the car.</b>
-> <p><i>Dan Wheldon</i></p>
+> <b>Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life.</b>
+> <p><i>Herman Hesse</i></p>
 
 <br>
