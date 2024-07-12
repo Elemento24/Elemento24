@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never doubt that you can change history. You already have.</b>
-> <p><i>Marge Piercy</i></p>
+> <b>Swift speedy time, feathered with flying hours, Dissolves the beauty of the fairest brow.</b>
+> <p><i>Lord Chesterfield</i></p>
 
 <br>
