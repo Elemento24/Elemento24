@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When it's over, I want to say: all my life I was a bride married to amazement. I was the bridegroom, taking the world into my arms.</b>
-> <p><i>Mary Oliver</i></p>
+> <b>L.A. Woman is amazing, but when I was growing up I was into the Who.</b>
+> <p><i>Bruce McCulloch</i></p>
 
 <br>
