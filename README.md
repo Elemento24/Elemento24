@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean Buckingham Palace has never hired a professional public relations outfit let alone a Madison Avenue type and they would throw up their hands in horror at the very idea.</b>
-> <p><i>Anthony Holden</i></p>
+> <b>If you haven't turned rebel by twenty you've got no heart if you haven't turned establishment by thirty you've got no brains!</b>
+> <p><i>Kevin Spacey</i></p>
 
 <br>
