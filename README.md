@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To know yet to think that one does not know is best Not to know yet to think that one knows will lead to difficulty.</b>
-> <p><i>Lao Tzu</i></p>
+> <b>Being alone is scarier than any boogey man and the reason why I don't choose to see Horror movies as a rule.</b>
+> <p><i>Tom Sizemore</i></p>
 
 <br>
