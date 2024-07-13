@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being alone is scarier than any boogey man and the reason why I don't choose to see Horror movies as a rule.</b>
-> <p><i>Tom Sizemore</i></p>
+> <b>I can't really change my life to accommodate people who are jealous. I don't see why I should.</b>
+> <p><i>Sting</i></p>
 
 <br>
