@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To drive an F1 car you have to be a little mad. On the morning of a race there's a mix of excitement and fear. If it's a wet track, then it's worse as you're not in control most of the time, which is the thing all drivers fear the most.</b>
-> <p><i>Jenson Button</i></p>
+> <b>Paris is one of the most beautiful places in all the world. Unfortunately, I was so homesick I couldn't appreciate its beauty.</b>
+> <p><i>Tyra Banks</i></p>
 
 <br>
