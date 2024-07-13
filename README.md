@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have to get back to the beauty of just being alive in this present moment.</b>
-> <p><i>Mary McDonnell</i></p>
+> <b>He took over anger to intimidate subordinates, and in time anger took over him.</b>
+> <p><i>Milan Kundera</i></p>
 
 <br>
