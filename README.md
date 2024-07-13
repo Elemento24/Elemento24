@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've also long since realized that the way to really engage children is to give out prizes it's amazing how it concentrates their minds.</b>
-> <p><i>Alexander McCall Smith</i></p>
+> <b>I mean Buckingham Palace has never hired a professional public relations outfit let alone a Madison Avenue type and they would throw up their hands in horror at the very idea.</b>
+> <p><i>Anthony Holden</i></p>
 
 <br>
