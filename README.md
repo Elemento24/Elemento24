@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Paris is one of the most beautiful places in all the world. Unfortunately, I was so homesick I couldn't appreciate its beauty.</b>
-> <p><i>Tyra Banks</i></p>
+> <b>The great leaders are like the best conductors - they reach beyond the notes to reach the magic in the players.</b>
+> <p><i>Blaine Lee</i></p>
 
 <br>
