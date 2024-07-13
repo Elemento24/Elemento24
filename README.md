@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He took over anger to intimidate subordinates, and in time anger took over him.</b>
-> <p><i>Milan Kundera</i></p>
+> <b>Music, art, theater. I'm just a big fan of beauty.</b>
+> <p><i>Jerry Hall</i></p>
 
 <br>
