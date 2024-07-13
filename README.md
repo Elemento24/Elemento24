@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I believe that the best buy in public health today must be a combination of regular physical exercise and a healthy diet.</b>
-> <p><i>Julie Bishop</i></p>
+> <b>Writers may be disreputable, incorrigible, early to decay or late to bloom but they dare to go it alone.</b>
+> <p><i>John Updike</i></p>
 
 <br>
