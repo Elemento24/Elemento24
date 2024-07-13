@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Writers may be disreputable, incorrigible, early to decay or late to bloom but they dare to go it alone.</b>
-> <p><i>John Updike</i></p>
+> <b>We tell them that we believe it will be beautiful because that is our specialty, we only create joy and beauty. We have never done a sad work. Through the drawings, we hope a majority will be able to visualize it.</b>
+> <p><i>Christo</i></p>
 
 <br>
