@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't really change my life to accommodate people who are jealous. I don't see why I should.</b>
-> <p><i>Sting</i></p>
+> <b>I've also long since realized that the way to really engage children is to give out prizes it's amazing how it concentrates their minds.</b>
+> <p><i>Alexander McCall Smith</i></p>
 
 <br>
