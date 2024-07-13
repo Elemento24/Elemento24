@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We tell them that we believe it will be beautiful because that is our specialty, we only create joy and beauty. We have never done a sad work. Through the drawings, we hope a majority will be able to visualize it.</b>
-> <p><i>Christo</i></p>
+> <b>You've just got to have a sense of respect for the person you have children with. Anger doesn't help anybody. Ultimately you have to say forgiveness is important, and honoring what you had together is important. But it's easy to say and harder to do.</b>
+> <p><i>Nicole Kidman</i></p>
 
 <br>
