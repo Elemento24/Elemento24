@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As I approve of a youth that has something of the old man in him, so I am no less pleased with an old man that has something of the youth. He that follows this rule may be old in body, but can never be so in mind.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>Beauty and folly are old companions.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
