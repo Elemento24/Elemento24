@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the tests of leadership is the ability to recognize a problem before it becomes an emergency.</b>
-> <p><i>Arnold H. Glasow</i></p>
+> <b>I think beauty comes from within. If you're happy and look at life in the best way you can, even when there are problems, it can make you beautiful on the outside.</b>
+> <p><i>Faith Hill</i></p>
 
 <br>
