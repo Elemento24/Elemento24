@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I only go out to get me a fresh appetite for being alone.</b>
-> <p><i>Lord Byron</i></p>
+> <b>There is only one failure in life possible, and that is not to be true to the best one knows.</b>
+> <p><i>George Eliot</i></p>
 
 <br>
