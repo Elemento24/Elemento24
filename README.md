@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having a positive mental attitude is asking how something can be done rather than saying it can't be done.</b>
-> <p><i>Bo Bennett</i></p>
+> <b>Here is a new car, a new iPhone. We buy. We discard. We buy again. In recent years, we've been doing it faster.</b>
+> <p><i>Arlie Russell Hochschild</i></p>
 
 <br>
