@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Here is a new car, a new iPhone. We buy. We discard. We buy again. In recent years, we've been doing it faster.</b>
-> <p><i>Arlie Russell Hochschild</i></p>
+> <b>Every song has a composer, every book has an author, every car has a maker, every painting has a painter, and every building has a builder. So it isn't irrational to take this simple logic a little further and say that nature must have had a Maker. It would be irrational to believe that it made itself.</b>
+> <p><i>Ray Comfort</i></p>
 
 <br>
