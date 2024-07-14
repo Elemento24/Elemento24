@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That sort of half sigh, which, accompanied by two or three slight nods of the head, is pity's small change in general society.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>I'm a typical middle child. I'm the mediator. The one that makes everything OK, puts their own needs aside to make sure everybody's happy. It's hard to change your nature, even with years and years of therapy.</b>
+> <p><i>Jennifer Jason Leigh</i></p>
 
 <br>
