@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of living is the art of knowing how to believe lies.</b>
-> <p><i>Cesare Pavese</i></p>
+> <b>Yes, I am seeking a husband. As soon as the right man asks me, I shall say, It is not good for a woman to live alone.</b>
+> <p><i>Anna Held</i></p>
 
 <br>
