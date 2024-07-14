@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think beauty comes from within. If you're happy and look at life in the best way you can, even when there are problems, it can make you beautiful on the outside.</b>
-> <p><i>Faith Hill</i></p>
+> <b>Having a positive mental attitude is asking how something can be done rather than saying it can't be done.</b>
+> <p><i>Bo Bennett</i></p>
 
 <br>
