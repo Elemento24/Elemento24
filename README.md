@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All art comes from other art, and all immigrants come from other places.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Of course, I'm older now. I'm in a different place in my life than when I wrote the songs for 'Car Wheels' or 'Essence' or whatever. Different things were going on.</b>
+> <p><i>Lucinda Williams</i></p>
 
 <br>
