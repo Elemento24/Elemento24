@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do like to write nasty songs. It's a useful weapon to have, and it's cathartic as well, because I create art out of anger, something positive out of something negative.</b>
-> <p><i>Lisa Marie Presley</i></p>
+> <b>The Academy Awards was an amazing night. I know I kind of lost my mind a little bit. I apologize for that. That night went so fast I can't remember what I said or what happened.</b>
+> <p><i>Cuba Gooding, Jr.</i></p>
 
 <br>
