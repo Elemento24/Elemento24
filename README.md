@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and folly are old companions.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>It is not the business of generals to shoot one another.</b>
+> <p><i>Arthur Wellesley</i></p>
 
 <br>
