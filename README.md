@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's quite nice to see that I didn't have to change who I was to reach two very different types of people.</b>
-> <p><i>Marc Jacobs</i></p>
+> <b>I am a grandmother now, and that means age is creeping on, creeping on.</b>
+> <p><i>Lillie Langtry</i></p>
 
 <br>
