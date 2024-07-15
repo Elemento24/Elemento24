@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every age yearns for a more beautiful world. The deeper the desperation and the depression about the confusing present, the more intense that yearning.</b>
-> <p><i>Johan Huizinga</i></p>
+> <b>Man does not live by soap alone and hygiene, or even health, is not much good unless you can take a healthy view of it or, better still, feel a healthy indifference to it.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
