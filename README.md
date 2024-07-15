@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Profits in business always depend on the rate of interest: the higher the interest, the higher the rate of profit required.</b>
-> <p><i>James Buchan</i></p>
+> <b>I'm generally quite an angry person, and I like to channel my anger toward something creative.</b>
+> <p><i>Sharmeen Obaid-Chinoy</i></p>
 
 <br>
