@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm generally quite an angry person, and I like to channel my anger toward something creative.</b>
-> <p><i>Sharmeen Obaid-Chinoy</i></p>
+> <b>It's amazing how much trouble you can get in when you don't have anything else to do.</b>
+> <p><i>Quincy Jones</i></p>
 
 <br>
