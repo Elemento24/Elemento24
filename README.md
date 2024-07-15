@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A revised schedule is to business what a new season is to an athlete or a new canvas to an artist.</b>
-> <p><i>Norman Ralph Augustine</i></p>
+> <b>Beauty is only skin deep. I think what's really important is finding a balance of mind, body and spirit.</b>
+> <p><i>Jennifer Lopez</i></p>
 
 <br>
