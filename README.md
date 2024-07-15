@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never dreamt of being a musician for my livelihood. I certainly never would have wanted to be in the business that I'm in, meaning the fame and the glory, the glitter, the rock star, the famous part.</b>
-> <p><i>Eddie Van Halen</i></p>
+> <b>Worse there cannot be a better, I believe, there may be, by giving energy to the capital and skill of the country to produce exports, by increasing which, alone, can we flatter ourselves with the prospect of finding employment for that part of our population now unemployed.</b>
+> <p><i>Joseph Hume</i></p>
 
 <br>
