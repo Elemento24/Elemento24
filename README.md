@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You'll live. Only the best get killed.</b>
-> <p><i>Charles de Gaulle</i></p>
+> <b>Every age yearns for a more beautiful world. The deeper the desperation and the depression about the confusing present, the more intense that yearning.</b>
+> <p><i>Johan Huizinga</i></p>
 
 <br>
