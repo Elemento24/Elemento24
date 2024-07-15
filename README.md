@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't have more money. I won't have more money than any of the candidates, even the Republican candidates. We know that already. But we are building this campaign team like I would build a business. And that is, we are building it so far with no debt.</b>
-> <p><i>Herman Cain</i></p>
+> <b>It's so amazing to hear a crowd of people singing one of your songs. It's the best feeling.</b>
+> <p><i>Liam Payne</i></p>
 
 <br>
