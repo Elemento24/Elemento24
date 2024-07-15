@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how much trouble you can get in when you don't have anything else to do.</b>
-> <p><i>Quincy Jones</i></p>
+> <b>It was the best of times, it was the worst of times.</b>
+> <p><i>Charles Dickens</i></p>
 
 <br>
