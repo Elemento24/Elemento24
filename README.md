@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Woman is fine for her own satisfaction alone. No man will admire her the more, no woman will like her the better for it. Neatness and fashion are enough for the former, and a something of shabbiness or impropriety will be most endearing to the latter.</b>
-> <p><i>Jane Austen</i></p>
+> <b>I never dreamt of being a musician for my livelihood. I certainly never would have wanted to be in the business that I'm in, meaning the fame and the glory, the glitter, the rock star, the famous part.</b>
+> <p><i>Eddie Van Halen</i></p>
 
 <br>
