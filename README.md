@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Worse there cannot be a better, I believe, there may be, by giving energy to the capital and skill of the country to produce exports, by increasing which, alone, can we flatter ourselves with the prospect of finding employment for that part of our population now unemployed.</b>
-> <p><i>Joseph Hume</i></p>
+> <b>The struggle alone pleases us, not the victory.</b>
+> <p><i>Blaise Pascal</i></p>
 
 <br>
