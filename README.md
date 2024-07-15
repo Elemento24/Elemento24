@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman is gentle, soft, delicate, and a man's position is to protect her, help her up stairs, make sure she's in the car safely first. Take good care of your woman, and the sky's the limit!</b>
-> <p><i>Taraji P. Henson</i></p>
+> <b>I think women should start to embrace their age. What's the alternative to getting older? You die. I can't change the day I was born. But I can take care of my skin, my body, my mind, and try to live my life and be happy.</b>
+> <p><i>Olivia Munn</i></p>
 
 <br>
