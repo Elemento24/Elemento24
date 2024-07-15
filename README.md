@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The real sadness of fifty is not that you change so much but that you change so little.</b>
-> <p><i>Max Lerner</i></p>
+> <b>I don't have more money. I won't have more money than any of the candidates, even the Republican candidates. We know that already. But we are building this campaign team like I would build a business. And that is, we are building it so far with no debt.</b>
+> <p><i>Herman Cain</i></p>
 
 <br>
