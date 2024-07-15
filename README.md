@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man does not live by soap alone and hygiene, or even health, is not much good unless you can take a healthy view of it or, better still, feel a healthy indifference to it.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>A woman is gentle, soft, delicate, and a man's position is to protect her, help her up stairs, make sure she's in the car safely first. Take good care of your woman, and the sky's the limit!</b>
+> <p><i>Taraji P. Henson</i></p>
 
 <br>
