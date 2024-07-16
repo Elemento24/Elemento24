@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love isn't an emotion or an instinct - it's an art.</b>
-> <p><i>Mae West</i></p>
+> <b>I never called my work an 'art'. It's part of show business, the business of building entertainment.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
