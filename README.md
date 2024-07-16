@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What the mass media offers is not popular art, but entertainment which is intended to be consumed like food, forgotten, and replaced by a new dish.</b>
-> <p><i>W. H. Auden</i></p>
+> <b>Seeing yourself in print is such an amazing concept: you can get so much attention without having to actually show up somewhere... You don't have to dress up, for instance, and you can't hear them boo you right away.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
