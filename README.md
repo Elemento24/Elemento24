@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We watch a lot of Discovery Channel, shows like 'The Biggest Loser' and even 'Amazing Race.' You learn a lot about the world, it's fun and nobody's interested in beating anybody down. And then the opposite: I'm a huge fan of 'Survivor.'</b>
-> <p><i>Alison Sweeney</i></p>
+> <b>I believe that parents need to make nutrition education a priority in their home environment. It's crucial for good health and longevity to instill in your children sound eating habits from an early age.</b>
+> <p><i>Cat Cora</i></p>
 
 <br>
