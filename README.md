@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Drawing is the honesty of the art. There is no possibility of cheating. It is either good or bad.</b>
-> <p><i>Salvador Dali</i></p>
+> <b>We watch a lot of Discovery Channel, shows like 'The Biggest Loser' and even 'Amazing Race.' You learn a lot about the world, it's fun and nobody's interested in beating anybody down. And then the opposite: I'm a huge fan of 'Survivor.'</b>
+> <p><i>Alison Sweeney</i></p>
 
 <br>
