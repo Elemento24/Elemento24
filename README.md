@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being good in business is the most fascinating kind of art. Making money is art and working is art and good business is the best art.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>I think Angelina Jolie has done amazing, amazing things, and the international adoption rate just since her has skyrocketed. It's unbelievable.</b>
+> <p><i>Jessica Simpson</i></p>
 
 <br>
