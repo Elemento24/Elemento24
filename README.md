@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A car for every purse and purpose.</b>
-> <p><i>Alfred P. Sloan</i></p>
+> <b>I want to own an NFL franchise. I understand the business of football.</b>
+> <p><i>Jon Bon Jovi</i></p>
 
 <br>
