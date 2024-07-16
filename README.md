@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I enjoy looking at words on paper and visualizing how to make them come to life. As a director, the creative process is really amazing.</b>
-> <p><i>Alfonso Ribeiro</i></p>
+> <b>Strong characters are brought out by change of situation, and gentle ones by permanence.</b>
+> <p><i>Jean Paul</i></p>
 
 <br>
