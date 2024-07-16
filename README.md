@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really wanted there to be something in my life that I enjoy just for the beauty of it.</b>
-> <p><i>Robert Caro</i></p>
+> <b>I have nothing to hide in art. The initial force alone can bring anyone to the end he must attain.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
