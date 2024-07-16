@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After adding trillions to the debt on big-government policies most Americans didn't ask for and which we couldn't afford, Democratic leaders say they need more money, which they intend to take from small business, even though small businesses create the majority of new jobs.</b>
-> <p><i>Mitch McConnell</i></p>
+> <b>I really wanted there to be something in my life that I enjoy just for the beauty of it.</b>
+> <p><i>Robert Caro</i></p>
 
 <br>
