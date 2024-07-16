@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always loved music. You know, my parents said I started singing when I was 4, in the car.</b>
-> <p><i>Bob Seger</i></p>
+> <b>But if nothing but soul, or in soul mind, is qualified to count, it is impossible for there to be time unless there is soul, but only that of which time is an attribute, i.e. if change can exist without soul.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
