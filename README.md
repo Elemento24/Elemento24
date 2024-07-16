@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What has made America amazing has been the fact that throughout our history, throughout the more than 200 years of our history, there have been men and women of courage who stood up and decided it was more important to look out for the future of their children and their grandchildren than their own political futures.</b>
-> <p><i>Scott Walker</i></p>
+> <b>Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.</b>
+> <p><i>Theodore Isaac Rubin</i></p>
 
 <br>
