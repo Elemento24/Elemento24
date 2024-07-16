@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But if nothing but soul, or in soul mind, is qualified to count, it is impossible for there to be time unless there is soul, but only that of which time is an attribute, i.e. if change can exist without soul.</b>
-> <p><i>Aristotle</i></p>
+> <b>What the mass media offers is not popular art, but entertainment which is intended to be consumed like food, forgotten, and replaced by a new dish.</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
