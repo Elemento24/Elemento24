@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Choose your companions from the best Who draws a bucket with the rest soon topples down the hill.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>Our combination of great research universities, a pro-risk business culture, deep pools of innovation-seeking equity capital and reliable business and contract law is unprecedented and unparalleled in the world.</b>
+> <p><i>Marc Andreessen</i></p>
 
 <br>
