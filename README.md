@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is just like show business. You have a hell of an opening, coast for a while, and then have a hell of a close.</b>
-> <p><i>Ronald Reagan</i></p>
+> <b>No, no, I was only funny on stage, really. I, I, think I was funny as a person toward my classmates when I was very young. You know, when I was a child, up to about the age of 12.</b>
+> <p><i>Rowan Atkinson</i></p>
 
 <br>
