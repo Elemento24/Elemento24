@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would rather be adorned by beauty of character than jewels. Jewels are the gift of fortune, while character comes from within.</b>
-> <p><i>Plautus</i></p>
+> <b>The minute you try to talk business with him he takes the attitude that he is a gentleman and a scholar, and the moment you try to approach him on the level of his moral integrity he starts to talk business.</b>
+> <p><i>Raymond Chandler</i></p>
 
 <br>
