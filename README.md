@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The lonely become either thoughtful or empty.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>I began to understand my sensations, to know what I wanted, at around the age of forty - but only vaguely.</b>
+> <p><i>Camille Pissarro</i></p>
 
 <br>
