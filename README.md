@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're going to put yourself above everybody else, you might end up alone.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>I suppose it's amazing when you think how many things people get involved in that don't work.</b>
+> <p><i>Tim Berners Lee</i></p>
 
 <br>
