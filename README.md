@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Show business has been really, really good to me because I can work and take a lot of time off, and I'm extremely undisciplined person.</b>
-> <p><i>Meryl Streep</i></p>
+> <b>If you're going to put yourself above everybody else, you might end up alone.</b>
+> <p><i>Joseph Gordon-Levitt</i></p>
 
 <br>
