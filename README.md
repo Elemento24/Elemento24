@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After a while of getting jerked around, you realize what the business is really made up of.</b>
-> <p><i>Tori Amos</i></p>
+> <b>The English Bible - a book which, if everything else in our language should perish, would alone suffice to show the whole extent of its beauty and power.</b>
+> <p><i>Thomas B. Macaulay</i></p>
 
 <br>
