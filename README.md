@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The English Bible - a book which, if everything else in our language should perish, would alone suffice to show the whole extent of its beauty and power.</b>
-> <p><i>Thomas B. Macaulay</i></p>
+> <b>Politics is just like show business. You have a hell of an opening, coast for a while, and then have a hell of a close.</b>
+> <p><i>Ronald Reagan</i></p>
 
 <br>
