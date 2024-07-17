@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was my 16th birthday - my mom and dad gave me my Goya classical guitar that day. I sat down, wrote this song, and I just knew that that was the only thing I could ever really do - write songs and sing them to people.</b>
-> <p><i>Stevie Nicks</i></p>
+> <b>After a while of getting jerked around, you realize what the business is really made up of.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
