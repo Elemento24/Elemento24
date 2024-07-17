@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There has been a change in men's attitudes toward their clothes. Men are more aware of fashion they're not afraid of it.</b>
-> <p><i>Calvin Klein</i></p>
+> <b>My trade and art is to live.</b>
+> <p><i>Michel de Montaigne</i></p>
 
 <br>
