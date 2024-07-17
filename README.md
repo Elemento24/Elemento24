@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Soap and water and common sense are the best disinfectants.</b>
-> <p><i>William Osler</i></p>
+> <b>Brevity is the best recommendation of speech, whether in a senator or an orator.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
