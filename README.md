@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Suddenly life has new meaning to me, there's beauty up above and things we never take notice of, you wake up suddenly you're in love.</b>
-> <p><i>Billy Ocean</i></p>
+> <b>Brevity is the best recommendation of speech, whether in a senator or an orator.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
