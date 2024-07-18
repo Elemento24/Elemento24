@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What an artist is trying to do for people is bring them closer to something, because of course art is about sharing. You wouldn't be an artist unless you wanted to share an experience, a thought.</b>
-> <p><i>David Hockney</i></p>
+> <b>It's always easier if you have the support of your family, if you're not alone. I came from a country that has been through a lot of troubles in the last 20 to 30 years, but we have been through them together.</b>
+> <p><i>Novak Djokovic</i></p>
 
 <br>
