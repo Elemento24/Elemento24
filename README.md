@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a pretty big dork. It's crazy. I'm one of those people who grew up with all kinds of musicals, but I was right at that age where 'Rent' was a big deal for me and for my friends.</b>
-> <p><i>Anna Kendrick</i></p>
+> <b>Inside myself is a place where I live all alone and that is where I renew my springs that never dry up.</b>
+> <p><i>Pearl S. Buck</i></p>
 
 <br>
