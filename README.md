@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best and safest thing is to keep a balance in your life, acknowledge the great powers around us and in us. If you can do that, and live that way, you are really a wise man.</b>
-> <p><i>Euripides</i></p>
+> <b>Information is the oxygen of the modern age. It seeps through the walls topped by barbed wire, it wafts across the electrified borders.</b>
+> <p><i>Ronald Reagan</i></p>
 
 <br>
