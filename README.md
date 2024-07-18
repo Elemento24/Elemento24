@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Imagination disposes of everything it creates beauty, justice, and happiness, which are everything in this world.</b>
-> <p><i>Blaise Pascal</i></p>
+> <b>We should often blush for our very best actions, if the world did but see all the motives upon which they were done.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
