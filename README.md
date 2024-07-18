@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a terrible thing to be alone - yes it is - it is - but don't lower your mask until you have another mask prepared beneath - as terrible as you like - but a mask.</b>
-> <p><i>Katherine Mansfield</i></p>
+> <b>Art, in itself, is an attempt to bring order out of chaos.</b>
+> <p><i>Stephen Sondheim</i></p>
 
 <br>
