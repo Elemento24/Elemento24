@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art, in itself, is an attempt to bring order out of chaos.</b>
-> <p><i>Stephen Sondheim</i></p>
+> <b>A moment comes, which comes but rarely in history, when we step out from the old to the new when an age ends and when the soul of a nation long suppressed finds utterance.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
