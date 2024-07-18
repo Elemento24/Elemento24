@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Inside myself is a place where I live all alone and that is where I renew my springs that never dry up.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>The best and safest thing is to keep a balance in your life, acknowledge the great powers around us and in us. If you can do that, and live that way, you are really a wise man.</b>
+> <p><i>Euripides</i></p>
 
 <br>
