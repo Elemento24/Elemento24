@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not since the digital revolution in the early '90s has technology placed such a comprehensive burden on business, employees and individuals to reinvent their business plans, services and products, and themselves to keep pace with the changing marketplace.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>I need to do things on my own, need to be left alone.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
