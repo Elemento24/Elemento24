@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I am a legend, then why am I so lonely?</b>
-> <p><i>Judy Garland</i></p>
+> <b>What an artist is trying to do for people is bring them closer to something, because of course art is about sharing. You wouldn't be an artist unless you wanted to share an experience, a thought.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
