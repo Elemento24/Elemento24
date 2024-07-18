@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We should often blush for our very best actions, if the world did but see all the motives upon which they were done.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>People spend so much time in their cars, and it's a legal way to have fun by speeding a little bit or testing yourself a little bit, and you get to invest in your car. For some people, it becomes their baby.</b>
+> <p><i>Jordana Brewster</i></p>
 
 <br>
