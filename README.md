@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rich men's houses are seldom beautiful, rarely comfortable, and never original. It is a constant source of surprise to people of moderate means to observe how little a big fortune contributes to Beauty.</b>
-> <p><i>Margot Asquith</i></p>
+> <b>I think it's a terrible shame that politics has become show business.</b>
+> <p><i>Sydney Pollack</i></p>
 
 <br>
