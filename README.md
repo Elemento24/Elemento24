@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I judge art, I take my painting and put it next to a God made object like a tree or flower. If it clashes, it is not art.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Fashion is architecture: it is a matter of proportions.</b>
+> <p><i>Coco Chanel</i></p>
 
 <br>
