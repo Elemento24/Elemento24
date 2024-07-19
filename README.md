@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't change overnight into a serious literary author. You can't compare apples to oranges. William Faulkner was a great literary genius. I am not.</b>
-> <p><i>John Grisham</i></p>
+> <b>It's tough because a lot of my friends in normal life, a lot of my friends in the entertainment business, and a lot of my friends in the wrestling business are gay. Just to say something spiteful and hurtful, I don't get it... if it was true and I was gay, I'd embrace it, and I'd tell you guys about it and I'd celebrate it.</b>
+> <p><i>Hulk Hogan</i></p>
 
 <br>
