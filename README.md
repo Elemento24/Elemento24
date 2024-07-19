@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let us take things as we find them: let us not attempt to distort them into what they are not... We cannot make facts. All our wishing cannot change them. We must use them.</b>
-> <p><i>John Henry Newman</i></p>
+> <b>I can't change overnight into a serious literary author. You can't compare apples to oranges. William Faulkner was a great literary genius. I am not.</b>
+> <p><i>John Grisham</i></p>
 
 <br>
