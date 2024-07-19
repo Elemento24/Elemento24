@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was friends with all different people and all different groups. And that led me to being friends with a few people who didn't even go to my school. Now I have the most amazing collection of friends of all ethnic backgrounds and upbringing and financial backgrounds.</b>
-> <p><i>James Maslow</i></p>
+> <b>Let us take things as we find them: let us not attempt to distort them into what they are not... We cannot make facts. All our wishing cannot change them. We must use them.</b>
+> <p><i>John Henry Newman</i></p>
 
 <br>
