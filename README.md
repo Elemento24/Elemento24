@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me, my business is my business and my house is my house. I don't want the public in my house.</b>
-> <p><i>Heidi Klum</i></p>
+> <b>I look away at car crashes, and I know people who look away at car crashes, because it makes us uncomfortable to watch other people in pain.</b>
+> <p><i>John Mayer</i></p>
 
 <br>
