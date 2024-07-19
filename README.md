@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I paint self-portraits because I am so often alone, because I am the person I know best.</b>
-> <p><i>Frida Kahlo</i></p>
+> <b>I was friends with all different people and all different groups. And that led me to being friends with a few people who didn't even go to my school. Now I have the most amazing collection of friends of all ethnic backgrounds and upbringing and financial backgrounds.</b>
+> <p><i>James Maslow</i></p>
 
 <br>
