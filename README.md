@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is everything.</b>
-> <p><i>Jorja Fox</i></p>
+> <b>If you pay attention to the world, it's an amazing place. If you don't, it's whatever you think it is.</b>
+> <p><i>Reggie Watts</i></p>
 
 <br>
