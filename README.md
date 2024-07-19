@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There were times when I thought I would never own a car.</b>
-> <p><i>Victor Cruz</i></p>
+> <b>Beauty is everything.</b>
+> <p><i>Jorja Fox</i></p>
 
 <br>
