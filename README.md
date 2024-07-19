@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I look away at car crashes, and I know people who look away at car crashes, because it makes us uncomfortable to watch other people in pain.</b>
-> <p><i>John Mayer</i></p>
+> <b>To drive an F1 car you have to be a little mad. On the morning of a race there's a mix of excitement and fear. If it's a wet track, then it's worse as you're not in control most of the time, which is the thing all drivers fear the most.</b>
+> <p><i>Jenson Button</i></p>
 
 <br>
