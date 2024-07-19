@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you pay attention to the world, it's an amazing place. If you don't, it's whatever you think it is.</b>
-> <p><i>Reggie Watts</i></p>
+> <b>We have the character of an island nation: independent, forthright, passionate in defence of our sovereignty. We can no more change this British sensibility than we can drain the English Channel. And because of this sensibility, we come to the European Union with a frame of mind that is more practical than emotional.</b>
+> <p><i>David Cameron</i></p>
 
 <br>
