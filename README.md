@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're taught at such a young age that you can always be better and that you're never perfect and that you're never good enough.</b>
-> <p><i>Shawn Johnson</i></p>
+> <b>Beauty is produced by the pleasing appearance and good taste of the whole, and by the dimensions of all the parts being duly proportioned to each other.</b>
+> <p><i>Marcus V. Pollio</i></p>
 
 <br>
