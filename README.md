@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel there should have been some recognition of the Spice Girls at this year's 25th anniversary. We flew the flag for Britain around the globe in the 1990s and we achieved a hell of a lot.</b>
-> <p><i>Melanie Chisholm</i></p>
+> <b>Failure is not fatal, but failure to change might be.</b>
+> <p><i>John Wooden</i></p>
 
 <br>
