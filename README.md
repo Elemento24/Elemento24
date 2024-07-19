@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is produced by the pleasing appearance and good taste of the whole, and by the dimensions of all the parts being duly proportioned to each other.</b>
-> <p><i>Marcus V. Pollio</i></p>
+> <b>I think in politics, in Congress, you often do things that are Republican, or you do things because you're a Democrat. Sometimes that's good, obviously, and sometimes that's obviously bad. But in the news business, there's no such thing as Republican or Democratic news. News is news.</b>
+> <p><i>J. C. Watts</i></p>
 
 <br>
