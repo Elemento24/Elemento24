@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Failure is not fatal, but failure to change might be.</b>
-> <p><i>John Wooden</i></p>
+> <b>I think of art, at its most significant, as a DEW line, a Distant Early Warning system that can always be relied on to tell the old culture what is beginning to happen to it.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
