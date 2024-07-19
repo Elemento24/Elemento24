@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can work on the saxophone alone, but ultimately you must perform with others.</b>
-> <p><i>Steve Lacy</i></p>
+> <b>For me, my business is my business and my house is my house. I don't want the public in my house.</b>
+> <p><i>Heidi Klum</i></p>
 
 <br>
