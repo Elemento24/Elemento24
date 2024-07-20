@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thank you God for this most amazing day, for the leaping greenly spirits of trees, and for the blue dream of sky and for everything which is natural, which is infinite, which is yes.</b>
-> <p><i>e. e. cummings</i></p>
+> <b>You have a dramatic portion of your television program and you treat it dramatically, and then you have a comedic portion of your program, and you treat it differently. Why do you change who are between the two pieces? You're the same person. Just go.</b>
+> <p><i>Nathan Fillion</i></p>
 
 <br>
