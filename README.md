@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is not all decay it is the ripening, the swelling, of the fresh life within, that withers and bursts the husk.</b>
-> <p><i>George MacDonald</i></p>
+> <b>I think Chris Weitz is an amazing director, and his sensibility - I wouldn't even know how to articulate it - it's just, he's a very sensitive, interesting guy.</b>
+> <p><i>Elizabeth Reaser</i></p>
 
 <br>
