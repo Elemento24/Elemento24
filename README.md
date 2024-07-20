@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have an amazing fan base all around the world that love 40FT.</b>
-> <p><i>Steve Brown</i></p>
+> <b>When I go outside of L.A., no matter where it is, really anywhere I go, people will be stopping me or taking pictures or whatever it is. And it's great. It's amazing. I'm just lucky.</b>
+> <p><i>Michael Welch</i></p>
 
 <br>
