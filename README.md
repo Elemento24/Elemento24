@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man that studieth revenge keeps his own wounds green.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>I thank you God for this most amazing day, for the leaping greenly spirits of trees, and for the blue dream of sky and for everything which is natural, which is infinite, which is yes.</b>
+> <p><i>e. e. cummings</i></p>
 
 <br>
