@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unhappy, let alone angry, religious people provide more persuasive arguments for atheism and secularism than do all the arguments of atheists.</b>
-> <p><i>Dennis Prager</i></p>
+> <b>When I was younger, my whole sense of self-worth was based on whether or not I was working, which was awful. And I had a baby at 20 years old, so it wasn't just about me. At around the age of 30 there was a stretch where I wasn't working - certainly not on anything I liked, anyway - and I started to do other things.</b>
+> <p><i>Kiefer Sutherland</i></p>
 
 <br>
