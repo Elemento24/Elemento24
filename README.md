@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was younger, my whole sense of self-worth was based on whether or not I was working, which was awful. And I had a baby at 20 years old, so it wasn't just about me. At around the age of 30 there was a stretch where I wasn't working - certainly not on anything I liked, anyway - and I started to do other things.</b>
-> <p><i>Kiefer Sutherland</i></p>
+> <b>Age is not all decay it is the ripening, the swelling, of the fresh life within, that withers and bursts the husk.</b>
+> <p><i>George MacDonald</i></p>
 
 <br>
