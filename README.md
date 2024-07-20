@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have a dramatic portion of your television program and you treat it dramatically, and then you have a comedic portion of your program, and you treat it differently. Why do you change who are between the two pieces? You're the same person. Just go.</b>
-> <p><i>Nathan Fillion</i></p>
+> <b>Galleries began growing in both number and size in the late seventies, when artists who worked in lofts wanted to exhibit their work in spaces similar to the ones the art was made in.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
