@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think in politics, in Congress, you often do things that are Republican, or you do things because you're a Democrat. Sometimes that's good, obviously, and sometimes that's obviously bad. But in the news business, there's no such thing as Republican or Democratic news. News is news.</b>
-> <p><i>J. C. Watts</i></p>
+> <b>Unhappy, let alone angry, religious people provide more persuasive arguments for atheism and secularism than do all the arguments of atheists.</b>
+> <p><i>Dennis Prager</i></p>
 
 <br>
