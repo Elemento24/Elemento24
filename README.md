@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not meddle in the affairs of wizards, for they are subtle and quick to anger.</b>
-> <p><i>J. R. R. Tolkien</i></p>
+> <b>Art is born of humiliation.</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
