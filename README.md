@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When everything is lonely I can be my best friend.</b>
-> <p><i>Conor Oberst</i></p>
+> <b>A man that studieth revenge keeps his own wounds green.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
