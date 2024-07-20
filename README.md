@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The real amazing thing about all of this is I think I've maintained the mentality of a musician throughout it all, which I'm proudest of. And I'm still playing on people's records and singing on people's records.</b>
-> <p><i>Vince Gill</i></p>
+> <b>I may be kindly, I am ordinarily gentle, but in my line of business I am obliged to will terribly what I will at all.</b>
+> <p><i>Catherine the Great</i></p>
 
 <br>
