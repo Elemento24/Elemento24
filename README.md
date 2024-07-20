@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps I know best why it is man alone who laughs he alone suffers so deeply that he had to invent laughter.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>I believe that I often bring out the best in somebody's talents.</b>
+> <p><i>David Bowie</i></p>
 
 <br>
