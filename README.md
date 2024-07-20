@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is born of humiliation.</b>
-> <p><i>W. H. Auden</i></p>
+> <b>The bare recollection of anger kindles anger.</b>
+> <p><i>Publilius Syrus</i></p>
 
 <br>
