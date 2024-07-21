@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ladder of success is best climbed by stepping on the rungs of opportunity.</b>
-> <p><i>Ayn Rand</i></p>
+> <b>If you or me go to the gas station to fill up our car and it costs us much more than we expected, it will zap our discretionary income. We won't have the extra money to buy that washing machine or new winter coat-all big ticket items that are important to economic growth.</b>
+> <p><i>Maria Bartiromo</i></p>
 
 <br>
