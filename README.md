@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The days when a car aficionado could repair his or her own car are long past, due primarily to the high software content.</b>
-> <p><i>Marc Andreessen</i></p>
+> <b>All change is not growth, as all movement is not forward.</b>
+> <p><i>Ellen Glasgow</i></p>
 
 <br>
