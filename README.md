@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I needed to be in the bush. There I find solitude and beauty and purity and focus. That's where my heart lies.</b>
-> <p><i>Mark Burnett</i></p>
+> <b>Treat a work of art like a prince. Let it speak to you first.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
