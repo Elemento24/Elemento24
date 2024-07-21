@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is a myth that art has to be sold. It is not like stocking a grocery store where people fill a pushcart. Art is a product that has no apparent need. The salesperson builds the need in the mind of the buyer.</b>
-> <p><i>Jack White</i></p>
+> <b>Really, I have to laugh because there was a whole set of stories that made me sound like the Dragon Lady, you know, 'tough this and tough that.' Then there is this business about 'gooey.' The bottom line is I am a pragmatic idealist.</b>
+> <p><i>Madeleine Albright</i></p>
 
 <br>
