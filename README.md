@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For years, I never knowingly went on a holiday. When I travelled, it was for work. Now I am a huge advocate, particularly to places which have amazing wildlife, such as Antarctica, India and Patagonia.</b>
-> <p><i>Miranda Richardson</i></p>
+> <b>Memory in youth is active and easily impressible in old age it is comparatively callous to new impressions, but still retains vividly those of earlier years.</b>
+> <p><i>Charlotte Bronte</i></p>
 
 <br>
