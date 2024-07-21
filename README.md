@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The racing driver's mind has to have the ability to have amazing anticipation, coordination, and reflex. Because of the speed the car goes.</b>
-> <p><i>Emerson Fittipaldi</i></p>
+> <b>God, give us grace to accept with serenity the things that cannot be changed, courage to change the things which should be changed and the wisdom to distinguish the one from the other.</b>
+> <p><i>Reinhold Niebuhr</i></p>
 
 <br>
