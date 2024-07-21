@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In writing and politicking, it's best not to think about it, just do it.</b>
-> <p><i>Gore Vidal</i></p>
+> <b>It's human nature to gripe, but I'm going ahead and doing the best I can.</b>
+> <p><i>Elvis Presley</i></p>
 
 <br>
