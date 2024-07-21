@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.</b>
-> <p><i>Wayne Dyer</i></p>
+> <b>It is a myth that art has to be sold. It is not like stocking a grocery store where people fill a pushcart. Art is a product that has no apparent need. The salesperson builds the need in the mind of the buyer.</b>
+> <p><i>Jack White</i></p>
 
 <br>
