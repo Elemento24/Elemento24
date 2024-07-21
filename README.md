@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A sculptor wields The chisel, and the stricken marble grows To beauty.</b>
-> <p><i>William C. Bryant</i></p>
+> <b>In writing and politicking, it's best not to think about it, just do it.</b>
+> <p><i>Gore Vidal</i></p>
 
 <br>
