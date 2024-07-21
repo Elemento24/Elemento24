@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you play it straight it's funny - the best comedy is always played straight down the middle. The adjustment is understanding from the screenplay that a moment is hilarious.</b>
-> <p><i>Tom Hiddleston</i></p>
+> <b>The surest sign of age is loneliness.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
