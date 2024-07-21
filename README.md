@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother was a professional sick person she took a lot of pain pills. There are many people like that. It's just how they are used to getting attention. I always remember she's the daughter of alcoholics who'd leave her alone at Christmas time.</b>
-> <p><i>Jim Carrey</i></p>
+> <b>To my surprise, my 70s are nicer than my 60s and my 60s than my 50s, and I wouldn't wish my teens and 20s on my enemies.</b>
+> <p><i>Lionel Blue</i></p>
 
 <br>
