@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's human nature to gripe, but I'm going ahead and doing the best I can.</b>
-> <p><i>Elvis Presley</i></p>
+> <b>The ladder of success is best climbed by stepping on the rungs of opportunity.</b>
+> <p><i>Ayn Rand</i></p>
 
 <br>
