@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Really, I have to laugh because there was a whole set of stories that made me sound like the Dragon Lady, you know, 'tough this and tough that.' Then there is this business about 'gooey.' The bottom line is I am a pragmatic idealist.</b>
-> <p><i>Madeleine Albright</i></p>
+> <b>My mother was a professional sick person she took a lot of pain pills. There are many people like that. It's just how they are used to getting attention. I always remember she's the daughter of alcoholics who'd leave her alone at Christmas time.</b>
+> <p><i>Jim Carrey</i></p>
 
 <br>
