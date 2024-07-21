@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All change is not growth, as all movement is not forward.</b>
-> <p><i>Ellen Glasgow</i></p>
+> <b>My dad was my best friend and greatest role model. He was an amazing dad, coach, mentor, soldier, husband and friend.</b>
+> <p><i>Tiger Woods</i></p>
 
 <br>
