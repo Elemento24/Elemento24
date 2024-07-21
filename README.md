@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To my surprise, my 70s are nicer than my 60s and my 60s than my 50s, and I wouldn't wish my teens and 20s on my enemies.</b>
-> <p><i>Lionel Blue</i></p>
+> <b>A sculptor wields The chisel, and the stricken marble grows To beauty.</b>
+> <p><i>William C. Bryant</i></p>
 
 <br>
