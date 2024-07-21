@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ultimate victory in competition is derived from the inner satisfaction of knowing that you have done your best and that you have gotten the most out of what you had to give.</b>
-> <p><i>Howard Cosell</i></p>
+> <b>If you play it straight it's funny - the best comedy is always played straight down the middle. The adjustment is understanding from the screenplay that a moment is hilarious.</b>
+> <p><i>Tom Hiddleston</i></p>
 
 <br>
