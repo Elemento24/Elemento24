@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Memory in youth is active and easily impressible in old age it is comparatively callous to new impressions, but still retains vividly those of earlier years.</b>
-> <p><i>Charlotte Bronte</i></p>
+> <b>The racing driver's mind has to have the ability to have amazing anticipation, coordination, and reflex. Because of the speed the car goes.</b>
+> <p><i>Emerson Fittipaldi</i></p>
 
 <br>
