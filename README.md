@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Speak the truth, do not yield to anger give, if thou art asked for little by these three steps thou wilt go near the gods.</b>
-> <p><i>Confucius</i></p>
+> <b>I was 16 years old, driving to LA, and sleeping in my car, just trying to make it happen.</b>
+> <p><i>Nick Cannon</i></p>
 
 <br>
