@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a kid. You don't get in this business for anonymity. It's not like I have posters of myself on the wall, but at the same time, I'm kind of ready for a little bit of it, but I worry for my little one, and my family - their privacy. That's what I'm more protective of.</b>
-> <p><i>Hugh Jackman</i></p>
+> <b>I always say beauty is only sin deep.</b>
+> <p><i>Hector Hugh Munro</i></p>
 
 <br>
