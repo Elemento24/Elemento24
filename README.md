@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was 16 years old, driving to LA, and sleeping in my car, just trying to make it happen.</b>
-> <p><i>Nick Cannon</i></p>
+> <b>Some people won't go the extra mile, and then on their birthday, when no one makes a fuss, they feel neglected and bitter.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
