@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The perfect life would be to have an amazing part every year and to spend all my free time to just write.</b>
-> <p><i>Melanie Laurent</i></p>
+> <b>Our economic system, run for profit and waste and based primarily on the extractive industries, is the cause of climate change. We have wasted the earth's treasure and we can no longer exploit it cheaply.</b>
+> <p><i>Vivienne Westwood</i></p>
 
 <br>
