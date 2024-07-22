@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is whatever you think it is. You are as old as you think you are.</b>
-> <p><i>Muhammad Ali</i></p>
+> <b>After its hothouse incubation in the seventies, appropriation breathed important new life into art. This life flowered spectacularly over the decades - even if it's now close to aesthetic kudzu.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
