@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Environmentalism opposes reckless innovation and makes conservation the central order of business.</b>
-> <p><i>Christopher Lasch</i></p>
+> <b>Speak the truth, do not yield to anger give, if thou art asked for little by these three steps thou wilt go near the gods.</b>
+> <p><i>Confucius</i></p>
 
 <br>
