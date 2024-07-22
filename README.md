@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After its hothouse incubation in the seventies, appropriation breathed important new life into art. This life flowered spectacularly over the decades - even if it's now close to aesthetic kudzu.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>The best medicine I know for rheumatism is to thank the Lord that it ain't gout.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
