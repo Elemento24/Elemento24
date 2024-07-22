@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our economic system, run for profit and waste and based primarily on the extractive industries, is the cause of climate change. We have wasted the earth's treasure and we can no longer exploit it cheaply.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>Art has to move you and design does not, unless it's a good design for a bus.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
