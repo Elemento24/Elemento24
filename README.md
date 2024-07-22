@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is always wakeful as if, the longer linked with life, the less man has to do with aught that looks like death.</b>
-> <p><i>Herman Melville</i></p>
+> <b>My point is that perceptual bias can affect nut jobs and scientists alike. If we hold too rigidly to what we think we know, we ignore or avoid evidence of anything that might change our mind.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
