@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age carries all things away, even the mind.</b>
-> <p><i>Virgil</i></p>
+> <b>I have very long legs and I hate driving anything unless it's a boat or an ATV in the jungle. I like to sit in the back of a car, where I can look out the window, answer my emails on my iPad, or hold hands with a pretty girl.</b>
+> <p><i>Jean Pigozzi</i></p>
 
 <br>
