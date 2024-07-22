@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Words empty as the wind are best left unsaid.</b>
-> <p><i>Homer</i></p>
+> <b>A rise in the level of saving can reduce aggregate activity temporarily but only a sustained high level of saving makes it possible to have the sustained high level of business investment that contributes to the long-run growth of output.</b>
+> <p><i>Martin Feldstein</i></p>
 
 <br>
