@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people won't go the extra mile, and then on their birthday, when no one makes a fuss, they feel neglected and bitter.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>They say marriage will change you but it didn't change me. Being in love changed me.</b>
+> <p><i>R. Kelly</i></p>
 
 <br>
