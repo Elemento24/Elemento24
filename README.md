@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every happening, great and small, is a parable whereby God speaks to us, and the art of life is to get the message.</b>
-> <p><i>Malcolm Muggeridge</i></p>
+> <b>The perfect life would be to have an amazing part every year and to spend all my free time to just write.</b>
+> <p><i>Melanie Laurent</i></p>
 
 <br>
