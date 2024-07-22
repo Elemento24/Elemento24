@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you or me go to the gas station to fill up our car and it costs us much more than we expected, it will zap our discretionary income. We won't have the extra money to buy that washing machine or new winter coat-all big ticket items that are important to economic growth.</b>
-> <p><i>Maria Bartiromo</i></p>
+> <b>Age is whatever you think it is. You are as old as you think you are.</b>
+> <p><i>Muhammad Ali</i></p>
 
 <br>
