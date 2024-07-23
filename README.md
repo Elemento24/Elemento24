@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just like food too much, and I don't want to change. I spent so much of childhood trying to change, and I just got sick of it... I don't want to look like Britney Spears, I just don't want to. She's hideous.</b>
-> <p><i>Beth Ditto</i></p>
+> <b>Well, it is so difficult right now when you look out on the road and how fast people go and the more and more cars you see out there, for teenagers, you'd think a kid that literally, a few years before, was sitting back in a car seat in the back seat is now behind the wheel.</b>
+> <p><i>Amy Klobuchar</i></p>
 
 <br>
