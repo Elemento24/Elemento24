@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How incessant and great are the ills with which a prolonged old age is replete.</b>
-> <p><i>C. S. Lewis</i></p>
+> <b>Living alone makes it harder to find someone to blame.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
