@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maybe we can show government how to operate better as a result of better architecture. Eventually, I think Chicago will be the most beautiful great city left in the world.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>Getting through the nights is the toughest part. Being alone. Not having her there to talk to.</b>
+> <p><i>Stuart Appleby</i></p>
 
 <br>
