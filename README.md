@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just as we reject racism, sexism, ageism, and heterosexism, we reject speciesism. The species of a sentient being is no more reason to deny the protection of this basic right than race, sex, age, or sexual orientation is a reason to deny membership in the human moral community to other humans.</b>
-> <p><i>Gary L. Francione</i></p>
+> <b>Turbulence is life force. It is opportunity. Let's love turbulence and use it for change.</b>
+> <p><i>Ramsey Clark</i></p>
 
 <br>
