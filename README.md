@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every year of my life I grow more convinced that it is wisest and best to fix our attention on the beautiful and the good, and dwell as little as possible on the evil and the false.</b>
-> <p><i>Richard Cecil</i></p>
+> <b>The beauty of dystopia is that it lets us vicariously experience future worlds - but we still have the power to change our own.</b>
+> <p><i>Ally Condie</i></p>
 
 <br>
