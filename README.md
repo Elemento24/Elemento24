@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My age and health will never allow me to realize the dream of art I've been pursuing all my life.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>The American people are smart. They've gotten sick of the predictable hyperpartisan talking points and canned anger.</b>
+> <p><i>John Avlon</i></p>
 
 <br>
