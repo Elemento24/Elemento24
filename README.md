@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Getting through the nights is the toughest part. Being alone. Not having her there to talk to.</b>
-> <p><i>Stuart Appleby</i></p>
+> <b>How incessant and great are the ills with which a prolonged old age is replete.</b>
+> <p><i>C. S. Lewis</i></p>
 
 <br>
