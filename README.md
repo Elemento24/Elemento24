@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes it's the smallest decisions that can change your life forever.</b>
-> <p><i>Keri Russell</i></p>
+> <b>When you ain't got no money, you gotta get an attitude.</b>
+> <p><i>Richard Pryor</i></p>
 
 <br>
