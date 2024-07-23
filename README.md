@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Living alone makes it harder to find someone to blame.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>My age and health will never allow me to realize the dream of art I've been pursuing all my life.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
