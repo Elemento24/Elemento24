@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is best to rise from life as from a banquet, neither thirsty nor drunken.</b>
-> <p><i>Aristotle</i></p>
+> <b>Sometimes when you innovate, you make mistakes. It is best to admit them quickly, and get on with improving your other innovations.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
