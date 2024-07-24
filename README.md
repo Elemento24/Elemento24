@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Healing,' Papa would tell me, 'is not a science, but the intuitive art of wooing nature.'</b>
-> <p><i>W. H. Auden</i></p>
+> <b>The fame that goes with wealth and beauty is fleeting and fragile intellectual superiority is a possession glorious and eternal.</b>
+> <p><i>Sallust</i></p>
 
 <br>
