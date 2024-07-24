@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look, everything that you experience as a kid is the foundation of how you are today. I was brought up in a working class family in Leeds and when it comes to money both my parents worked hard and instilled the same attitude into me.</b>
-> <p><i>Melanie Brown</i></p>
+> <b>I don't think the government should be in the trailer-park business. I don't think they know how to run a trailer park.</b>
+> <p><i>Billy Graham</i></p>
 
 <br>
