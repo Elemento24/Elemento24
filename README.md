@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All art comes from other art, and all immigrants come from other places.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I've drunk Amazon's free Diet Coke. Nothing makes more sense to me than a company trying to make bookselling into a profitable business. I'm not anti-Amazon, and I'm not pro-publishers either. I'm pro-books.</b>
+> <p><i>Lev Grossman</i></p>
 
 <br>
