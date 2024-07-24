@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've drunk Amazon's free Diet Coke. Nothing makes more sense to me than a company trying to make bookselling into a profitable business. I'm not anti-Amazon, and I'm not pro-publishers either. I'm pro-books.</b>
-> <p><i>Lev Grossman</i></p>
+> <b>Look, everything that you experience as a kid is the foundation of how you are today. I was brought up in a working class family in Leeds and when it comes to money both my parents worked hard and instilled the same attitude into me.</b>
+> <p><i>Melanie Brown</i></p>
 
 <br>
