@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The golden opportunity you are seeking is in yourself. It is not in your environment it is not in luck or chance, or the help of others it is in yourself alone.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>It is best to rise from life as from a banquet, neither thirsty nor drunken.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
