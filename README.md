@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought, after the Pulitzer, at least nothing will surprise me quite that much in my life. And another one happened. It was quite amazing.</b>
-> <p><i>Rita Dove</i></p>
+> <b>The only people who like to live alone more than comics are priests.</b>
+> <p><i>Colin Quinn</i></p>
 
 <br>
