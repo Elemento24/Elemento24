@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes when you innovate, you make mistakes. It is best to admit them quickly, and get on with improving your other innovations.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>There are things I can't force. I must adjust. There are times when the greatest change needed is a change of my viewpoint.</b>
+> <p><i>Denis Diderot</i></p>
 
 <br>
