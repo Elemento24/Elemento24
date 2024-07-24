@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Simply by not owning three medium-sized castles in Tuscany I have saved enough money in the last forty years on insurance premiums alone to buy a medium-sized castle in Tuscany.</b>
-> <p><i>Ludwig Mies van der Rohe</i></p>
+> <b>But when I was twelve years old I caught my first strong glimpse of one of the fundamental forces of existence, whose votary I was destined to be for life - namely, Beauty.</b>
+> <p><i>Georg Brandes</i></p>
 
 <br>
