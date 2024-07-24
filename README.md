@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think women like Ferraris. A Ferrari is everybody's car.</b>
-> <p><i>Tim Allen</i></p>
+> <b>The attitude is we live and let live. This is actually an amazing change in values in a rather short time and it's an example of freedom from religion.</b>
+> <p><i>Tom Wolfe</i></p>
 
 <br>
