@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But when I was twelve years old I caught my first strong glimpse of one of the fundamental forces of existence, whose votary I was destined to be for life - namely, Beauty.</b>
-> <p><i>Georg Brandes</i></p>
+> <b>I think women like Ferraris. A Ferrari is everybody's car.</b>
+> <p><i>Tim Allen</i></p>
 
 <br>
