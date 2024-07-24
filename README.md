@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Baseball was, is and always will be to me the best game in the world.</b>
-> <p><i>Babe Ruth</i></p>
+> <b>The golden opportunity you are seeking is in yourself. It is not in your environment it is not in luck or chance, or the help of others it is in yourself alone.</b>
+> <p><i>Orison Swett Marden</i></p>
 
 <br>
