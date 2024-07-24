@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In such ugly times, the only true protest is beauty.</b>
-> <p><i>Phil Ochs</i></p>
+> <b>All art comes from other art, and all immigrants come from other places.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
