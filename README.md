@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any role that big is going to be a challenge for any actor, but for an actor of a young age, it's going to be even tougher.</b>
-> <p><i>Jeff Bridges</i></p>
+> <b>'Healing,' Papa would tell me, 'is not a science, but the intuitive art of wooing nature.'</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
