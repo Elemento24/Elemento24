@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did a lot of gasoline commercials - Hess, Texaco. I was part of the family in the car, the little brat in the back.</b>
-> <p><i>Ricky Schroder</i></p>
+> <b>According to the Small Business Administration, more than 70 percent of all family businesses do not survive through the second generation, and 8 percent do not make it to a third.</b>
+> <p><i>Kit Bond</i></p>
 
 <br>
