@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, when I was a kid waiting on the bus, I remember that was when I imagined my life. I imagined everything that I was gonna be when I grew up and I imagined all of these amazing journeys and amazing people I'd meet. Of course, all of it has kind of come to fruition.</b>
-> <p><i>Glen Hansard</i></p>
+> <b>The best time for you to hold your tongue is the time you feel you must say something or bust.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
