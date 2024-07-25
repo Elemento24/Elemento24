@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only God who made us can touch us and change us and save us from ourselves.</b>
-> <p><i>Billy Graham</i></p>
+> <b>As a mom, I don't have much time for beauty.</b>
+> <p><i>Idina Menzel</i></p>
 
 <br>
