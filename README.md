@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You get more churches burned down in the United States in the last two years than in the last hundred, because of the lack of understanding of culture and diversity and the beauty of it.</b>
-> <p><i>Edward James Olmos</i></p>
+> <b>Art is always and everywhere the secret confession, and at the same time the immortal movement of its time.</b>
+> <p><i>Karl Marx</i></p>
 
 <br>
