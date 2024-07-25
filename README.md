@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We used to think that revolutions are the cause of change. Actually it is the other way around: change prepares the ground for revolution.</b>
-> <p><i>Eric Hoffer</i></p>
+> <b>The amazing thing now is that most of those so-called critics who were telling me to find my own voice seem to have lost theirs.</b>
+> <p><i>Brian Lumley</i></p>
 
 <br>
