@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is always and everywhere the secret confession, and at the same time the immortal movement of its time.</b>
-> <p><i>Karl Marx</i></p>
+> <b>There's nothing wrong with anger provided you use it constructively.</b>
+> <p><i>Wayne Dyer</i></p>
 
 <br>
