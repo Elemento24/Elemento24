@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Regardless of what one's attitude towards prohibition may be, temperance is something against which, at a time of war, no reasonable protest can be made.</b>
-> <p><i>William Lyon Mackenzie King</i></p>
+> <b>I did a lot of gasoline commercials - Hess, Texaco. I was part of the family in the car, the little brat in the back.</b>
+> <p><i>Ricky Schroder</i></p>
 
 <br>
