@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a standup, I try to change the world. As an entertainer, I try to entertain. And as a lesbian, I try to pick up the prettiest girl in the room.</b>
-> <p><i>Lea DeLaria</i></p>
+> <b>I perfectly understood President Obama's attitude throughout the French presidential campaign. He had no reason to distance himself from Nicolas Sarkozy. It's the basic solidarity that leaders who worked together owe to each other.</b>
+> <p><i>Francois Hollande</i></p>
 
 <br>
