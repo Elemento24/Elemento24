@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>According to the Small Business Administration, more than 70 percent of all family businesses do not survive through the second generation, and 8 percent do not make it to a third.</b>
-> <p><i>Kit Bond</i></p>
+> <b>As a standup, I try to change the world. As an entertainer, I try to entertain. And as a lesbian, I try to pick up the prettiest girl in the room.</b>
+> <p><i>Lea DeLaria</i></p>
 
 <br>
