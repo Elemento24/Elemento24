@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's nothing wrong with anger provided you use it constructively.</b>
-> <p><i>Wayne Dyer</i></p>
+> <b>Only God who made us can touch us and change us and save us from ourselves.</b>
+> <p><i>Billy Graham</i></p>
 
 <br>
