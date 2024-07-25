@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is folly for an eminent man to think of escaping censure, and a weakness to be affected with it. All the illustrious persons of antiquity, and indeed of every age in the world, have passed through this fiery persecution.</b>
-> <p><i>Joseph Addison</i></p>
+> <b>Regardless of what one's attitude towards prohibition may be, temperance is something against which, at a time of war, no reasonable protest can be made.</b>
+> <p><i>William Lyon Mackenzie King</i></p>
 
 <br>
