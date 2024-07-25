@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The trite saying that honesty is the best policy has met with the just criticism that honesty is not policy. The real honest man is honest from conviction of what is right, not from policy.</b>
-> <p><i>Robert E. Lee</i></p>
+> <b>You know, when I was a kid waiting on the bus, I remember that was when I imagined my life. I imagined everything that I was gonna be when I grew up and I imagined all of these amazing journeys and amazing people I'd meet. Of course, all of it has kind of come to fruition.</b>
+> <p><i>Glen Hansard</i></p>
 
 <br>
