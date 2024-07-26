@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religion and art spring from the same root and are close kin. Economics and art are strangers.</b>
-> <p><i>Nathaniel Hawthorne</i></p>
+> <b>What I'm trying to do is get this message out about self-empowerment, entrepreneurial spirit and true Americanism - the way we were when we changed the world, when Edison was alone, failing his 2,000th time on the lightbulb.</b>
+> <p><i>Glenn Beck</i></p>
 
 <br>
