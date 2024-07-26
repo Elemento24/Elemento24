@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always prefer to believe the best of everybody, it saves so much trouble.</b>
-> <p><i>Rudyard Kipling</i></p>
+> <b>You can't really say what is beautiful about a place, but the image of the place will remain vividly with you.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
