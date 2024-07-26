@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I'm trying to do is get this message out about self-empowerment, entrepreneurial spirit and true Americanism - the way we were when we changed the world, when Edison was alone, failing his 2,000th time on the lightbulb.</b>
-> <p><i>Glenn Beck</i></p>
+> <b>When I saw all those other drivers, I realized that they wanted to win that money just as much as I did. But I didn't have to worry. A tire came off my car and I was lucky I got it off the track.</b>
+> <p><i>Buck Baker</i></p>
 
 <br>
