@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good manners will open doors that the best education cannot.</b>
-> <p><i>Clarence Thomas</i></p>
+> <b>In the US, there is basically one party - the business party. It has two factions, called Democrats and Republicans, which are somewhat different but carry out variations on the same policies. By and large, I am opposed to those policies. As is most of the population.</b>
+> <p><i>Noam Chomsky</i></p>
 
 <br>
