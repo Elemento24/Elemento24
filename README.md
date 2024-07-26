@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the US, there is basically one party - the business party. It has two factions, called Democrats and Republicans, which are somewhat different but carry out variations on the same policies. By and large, I am opposed to those policies. As is most of the population.</b>
-> <p><i>Noam Chomsky</i></p>
+> <b>A horse is a thing of beauty... none will tire of looking at him as long as he displays himself in his splendor.</b>
+> <p><i>Xenophon</i></p>
 
 <br>
