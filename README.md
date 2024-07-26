@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change alone is eternal, perpetual, immortal.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>Grab the broom of anger and drive off the beast of fear.</b>
+> <p><i>Zora Neale Hurston</i></p>
 
 <br>
