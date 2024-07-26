@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I saw all those other drivers, I realized that they wanted to win that money just as much as I did. But I didn't have to worry. A tire came off my car and I was lucky I got it off the track.</b>
-> <p><i>Buck Baker</i></p>
+> <b>Successful people recognize crisis as a time for change - from lesser to greater, smaller to bigger.</b>
+> <p><i>Edwin Louis Cole</i></p>
 
 <br>
