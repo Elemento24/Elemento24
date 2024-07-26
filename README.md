@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Successful people recognize crisis as a time for change - from lesser to greater, smaller to bigger.</b>
-> <p><i>Edwin Louis Cole</i></p>
+> <b>I always prefer to believe the best of everybody, it saves so much trouble.</b>
+> <p><i>Rudyard Kipling</i></p>
 
 <br>
