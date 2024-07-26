@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An advertising agency is 85 percent confusion and 15 percent commission.</b>
-> <p><i>Fred Allen</i></p>
+> <b>Change alone is eternal, perpetual, immortal.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
