@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't really say what is beautiful about a place, but the image of the place will remain vividly with you.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>Five enemies of peace inhabit with us - avarice, ambition, envy, anger, and pride if these were to be banished, we should infallibly enjoy perpetual peace.</b>
+> <p><i>Petrarch</i></p>
 
 <br>
