@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That which you create in beauty and goodness and truth lives on for all time to come. Don't spend your life accumulating material objects that will only turn to dust and ashes.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>I never get the accountants in before I start up a business. It's done on gut feeling, especially if I can see that they are taking the mickey out of the consumer.</b>
+> <p><i>Richard Branson</i></p>
 
 <br>
