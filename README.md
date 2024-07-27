@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is often said that second thoughts are best. So they are in matters of judgment but not in matters of conscience.</b>
-> <p><i>John Henry Newman</i></p>
+> <b>I have heard show business characterized as a refuge for childlike persons in flight from all things harsh and real.</b>
+> <p><i>Carroll O'Connor</i></p>
 
 <br>
