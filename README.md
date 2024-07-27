@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought of Paris as a beauty spot on the face of the earth, and of London as a big freckle.</b>
-> <p><i>James Weldon Johnson</i></p>
+> <b>After I lost my fiance, it seemed like it would be better to always be alone than to risk being hurt again.</b>
+> <p><i>Nancy Grace</i></p>
 
 <br>
