@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm from Canada, and New Zealand feels like you took all the best bits of Canada and squished them onto a tiny island like Hawaii. I was absolutely blown away by the beauty of the South Island.</b>
-> <p><i>Evangeline Lilly</i></p>
+> <b>I grew up in a very large family in a very small house. I never slept alone until after I was married.</b>
+> <p><i>Lewis Grizzard</i></p>
 
 <br>
