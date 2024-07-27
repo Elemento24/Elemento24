@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really think we should pass a law in every state, I don't care whether it takes the independence away from an old person or not. You shouldn't be driving a car if you're over the age of 80. Maybe even less than that.</b>
-> <p><i>Evel Knievel</i></p>
+> <b>The trite saying that honesty is the best policy has met with the just criticism that honesty is not policy. The real honest man is honest from conviction of what is right, not from policy.</b>
+> <p><i>Robert E. Lee</i></p>
 
 <br>
