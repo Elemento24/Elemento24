@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After I lost my fiance, it seemed like it would be better to always be alone than to risk being hurt again.</b>
-> <p><i>Nancy Grace</i></p>
+> <b>I think when the full horror of being fifty hits you, you should stay home and have a good cry.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
