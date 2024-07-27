@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have heard show business characterized as a refuge for childlike persons in flight from all things harsh and real.</b>
-> <p><i>Carroll O'Connor</i></p>
+> <b>That which you create in beauty and goodness and truth lives on for all time to come. Don't spend your life accumulating material objects that will only turn to dust and ashes.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
