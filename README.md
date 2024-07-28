@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was doing these performance art pop music pieces in the city. And they were a bit on the eccentric side I suppose. So people started to call me Gaga after the Queen song 'Radio Gaga.'</b>
-> <p><i>Lady Gaga</i></p>
+> <b>A beauty is a woman you notice a charmer is one who notices you.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
