@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like people and get along, and I'm afraid to express my anger and my rage.</b>
-> <p><i>Fisher Stevens</i></p>
+> <b>I never want to change so much that people can't recognize me.</b>
+> <p><i>Taylor Swift</i></p>
 
 <br>
