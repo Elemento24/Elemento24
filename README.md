@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been asked, 'What is my favorite car?' and I've always said 'The next one.'</b>
-> <p><i>Caroll Shelby</i></p>
+> <b>I like people and get along, and I'm afraid to express my anger and my rage.</b>
+> <p><i>Fisher Stevens</i></p>
 
 <br>
