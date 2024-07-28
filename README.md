@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our combination of great research universities, a pro-risk business culture, deep pools of innovation-seeking equity capital and reliable business and contract law is unprecedented and unparalleled in the world.</b>
-> <p><i>Marc Andreessen</i></p>
+> <b>My wife is amazing. She had to know she was getting into a heap of trouble when we met.</b>
+> <p><i>Taylor Hanson</i></p>
 
 <br>
