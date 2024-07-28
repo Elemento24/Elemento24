@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics would be a helluva good business if it weren't for the goddamned people.</b>
-> <p><i>Richard M. Nixon</i></p>
+> <b>Eventually I did that, but it took a lot of twists and turns, and there were a year or two there where I was living with no money at all - no home, no car, no nothing. I was living in somebody's garage in Los Angeles at that point - for a year.</b>
+> <p><i>Renny Harlin</i></p>
 
 <br>
