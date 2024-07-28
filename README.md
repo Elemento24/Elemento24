@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter what you study, the thing that you know best is what you grew up with.</b>
-> <p><i>Maria Sharapova</i></p>
+> <b>I've always been asked, 'What is my favorite car?' and I've always said 'The next one.'</b>
+> <p><i>Caroll Shelby</i></p>
 
 <br>
