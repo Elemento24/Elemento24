@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never want to change so much that people can't recognize me.</b>
-> <p><i>Taylor Swift</i></p>
+> <b>The Jew does not wish to be isolated. He fears being alone, without allies.</b>
+> <p><i>Meir Kahane</i></p>
 
 <br>
