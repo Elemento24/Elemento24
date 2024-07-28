@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What starts the process, really, are laughs and slights and snubs when you are a kid. If your anger is deep enough and strong enough, you learn that you can change those attitudes by excellence, personal gut performance.</b>
-> <p><i>Richard M. Nixon</i></p>
+> <b>Beautiful music is the art of the prophets that can calm the agitations of the soul it is one of the most magnificent and delightful presents God has given us.</b>
+> <p><i>Martin Luther</i></p>
 
 <br>
