@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>May your trails be crooked, winding, lonesome, dangerous, leading to the most amazing view. May your mountains rise into and above the clouds.</b>
-> <p><i>Edward Abbey</i></p>
+> <b>Life belongs to the living, and he who lives must be prepared for changes.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
