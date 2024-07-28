@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A business of high principle generates greater drive and effectiveness because people know that they can do the right thing decisively and with confidence.</b>
-> <p><i>Marvin Bower</i></p>
+> <b>I was doing these performance art pop music pieces in the city. And they were a bit on the eccentric side I suppose. So people started to call me Gaga after the Queen song 'Radio Gaga.'</b>
+> <p><i>Lady Gaga</i></p>
 
 <br>
