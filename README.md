@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was already on pole, then by half a second and then one second and I just kept going. Suddenly I was nearly two seconds faster than anybody else, including my team mate with the same car.</b>
-> <p><i>Ayrton Senna</i></p>
+> <b>If you have a positive attitude and constantly strive to give your best effort, eventually you will overcome your immediate problems and find you are ready for greater challenges.</b>
+> <p><i>Pat Riley</i></p>
 
 <br>
