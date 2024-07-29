@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My wife is amazing. She had to know she was getting into a heap of trouble when we met.</b>
-> <p><i>Taylor Hanson</i></p>
+> <b>I'd like to introduce someone who has just come into my life. I've admired him for 35 years. He's someone who represents integrity, honesty, art, and on top of that stuff I'm actually sleeping with him.</b>
+> <p><i>Shirley MacLaine</i></p>
 
 <br>
