@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that all the anger and cynicism comes from suppressing things that we always wanted.</b>
-> <p><i>John Lee Hancock</i></p>
+> <b>On a royal birthday every house must fly a flag, or the owner would be dragged to a police station and be fined twenty-five rubles.</b>
+> <p><i>Mary Antin</i></p>
 
 <br>
