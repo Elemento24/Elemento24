@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Profits in business always depend on the rate of interest: the higher the interest, the higher the rate of profit required.</b>
-> <p><i>James Buchan</i></p>
+> <b>The Chinese government wants me to say that for many centuries Tibet has been part of China. Even if I make that statement, many people would just laugh. And my statement will not change past history. History is history.</b>
+> <p><i>Dalai Lama</i></p>
 
 <br>
