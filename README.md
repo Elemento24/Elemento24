@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Surely being a Professional Beauty - let alone an ageing one - is one of the most insecure and doomed careers imaginable.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>I think that all the anger and cynicism comes from suppressing things that we always wanted.</b>
+> <p><i>John Lee Hancock</i></p>
 
 <br>
