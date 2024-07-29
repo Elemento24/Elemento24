@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Chinese government wants me to say that for many centuries Tibet has been part of China. Even if I make that statement, many people would just laugh. And my statement will not change past history. History is history.</b>
-> <p><i>Dalai Lama</i></p>
+> <b>I think Nina Simone has had an amazing journey. She was spicy and she had attitude and she didn't care, she wanted her money in a paper bag and don't mess with me and I've been doing some research on that so.</b>
+> <p><i>Nia Long</i></p>
 
 <br>
