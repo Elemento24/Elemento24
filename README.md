@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was at Bell Labs that I first made direct contact with real semiconductor experts and thus began to fully understand what amazing materials they were and what they could do.</b>
-> <p><i>Robert B. Laughlin</i></p>
+> <b>Some of the most amazing human beings on the face of the planet go to sci-fi conventions, although I'm sure a few of them wouldn't admit it.</b>
+> <p><i>Richard Hatch</i></p>
 
 <br>
