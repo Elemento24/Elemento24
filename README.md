@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On a royal birthday every house must fly a flag, or the owner would be dragged to a police station and be fined twenty-five rubles.</b>
-> <p><i>Mary Antin</i></p>
+> <b>Utility is the great idol of the age, to which all powers must do service and all talents swear allegiance.</b>
+> <p><i>Friedrich Schiller</i></p>
 
 <br>
