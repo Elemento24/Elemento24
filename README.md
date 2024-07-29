@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd like to introduce someone who has just come into my life. I've admired him for 35 years. He's someone who represents integrity, honesty, art, and on top of that stuff I'm actually sleeping with him.</b>
-> <p><i>Shirley MacLaine</i></p>
+> <b>What you have now is a Hollywood that is pure poison. Hollywood was a central place in the history of art in the 20th century: it was human idealism preserved. And then, like any great place, it collapsed, and it collapsed into the most awful machinery in the world.</b>
+> <p><i>Emir Kusturica</i></p>
 
 <br>
