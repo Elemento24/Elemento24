@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We should so provide for old age that it may have no urgent wants of this world to absorb it from meditation on the next. It is awful to see the lean hands of dotage making a coffer of the grave.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>One of the most important things that I did to turn my life around was to realize and to accept that from this minute, that's all we have. Everything that happened behind us we cannot change so you might as well look to the future.</b>
+> <p><i>Nick Carter</i></p>
 
 <br>
