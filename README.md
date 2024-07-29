@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the most important things that I did to turn my life around was to realize and to accept that from this minute, that's all we have. Everything that happened behind us we cannot change so you might as well look to the future.</b>
-> <p><i>Nick Carter</i></p>
+> <b>Set up another case bartender! The best thing for a case of nerves is a case of Scotch.</b>
+> <p><i>W. C. Fields</i></p>
 
 <br>
