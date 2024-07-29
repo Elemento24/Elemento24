@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is a great mystery that though the human heart longs for Truth, in which alone it finds liberation and delight, the first reaction of human beings to Truth is one of hostility and fear!</b>
-> <p><i>Anthony de Mello</i></p>
+> <b>My interest in architecture has always been sculptural. Most of my photography is of architecture.</b>
+> <p><i>Parker Stevenson</i></p>
 
 <br>
