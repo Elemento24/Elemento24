@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is certain. Peace is followed by disturbances departure of evil men by their return. Such recurrences should not constitute occasions for sadness but realities for awareness, so that one may be happy in the interim.</b>
-> <p><i>Percy Bysshe Shelley</i></p>
+> <b>We should so provide for old age that it may have no urgent wants of this world to absorb it from meditation on the next. It is awful to see the lean hands of dotage making a coffer of the grave.</b>
+> <p><i>Pearl S. Buck</i></p>
 
 <br>
