@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>New Year's Day is every man's birthday.</b>
-> <p><i>Charles Lamb</i></p>
+> <b>The great book for you is the book that has the most to say to you at the moment when you are reading. I do not mean the book that is most instructive, but the book that feeds your spirit. And that depends on your age, your experience, your psychological and spiritual need.</b>
+> <p><i>Robertson Davies</i></p>
 
 <br>
