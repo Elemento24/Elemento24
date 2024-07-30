@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And queenly is the state she keeps, In beauty's lofty trust secure.</b>
-> <p><i>William Allen Butler</i></p>
+> <b>The people who live in a golden age usually go around complaining how yellow everything looks.</b>
+> <p><i>Randall Jarrell</i></p>
 
 <br>
