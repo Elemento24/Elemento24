@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great art speaks a language which every intelligent person can understand. The people who call themselves modernists today speak a different language.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>I was never one to patiently pick up broken fragments and glue them together again and tell myself that the mended whole was as good as new. What is broken is broken - and I'd rather remember it as it was at its best than mend it and see the broken places as long as I lived.</b>
+> <p><i>Margaret Mitchell</i></p>
 
 <br>
