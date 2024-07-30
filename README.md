@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Turkey, you're not allowed to be left alone in the hospital. The nurse teaches the family how to do things, and somebody is always there with the patient.</b>
-> <p><i>Mehmet Oz</i></p>
+> <b>It is very important to generate a good attitude, a good heart, as much as possible. From this, happiness in both the short term and the long term for both yourself and others will come.</b>
+> <p><i>Dalai Lama</i></p>
 
 <br>
