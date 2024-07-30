@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a drugstore beauty girl, I love going to the drugstore and buying makeup.</b>
-> <p><i>Melanie Fiona</i></p>
+> <b>One cannot develop taste from what is of average quality but only from the very best.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
