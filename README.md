@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The foundations of a strong economy don't rest alone on the decisions of Chancellors or the spending programmes of government.</b>
-> <p><i>George Osborne</i></p>
+> <b>I discovered something amazing, which has caused a lot of controversy - the fountain of youth. I have to keep it a secret!</b>
+> <p><i>David Copperfield</i></p>
 
 <br>
