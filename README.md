@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are all of us failures, at least, the best of us are.</b>
-> <p><i>James M. Barrie</i></p>
+> <b>The foundations of a strong economy don't rest alone on the decisions of Chancellors or the spending programmes of government.</b>
+> <p><i>George Osborne</i></p>
 
 <br>
