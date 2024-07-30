@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I discovered something amazing, which has caused a lot of controversy - the fountain of youth. I have to keep it a secret!</b>
-> <p><i>David Copperfield</i></p>
+> <b>Comics, for me, is being able to sing alone in the shower. I find it freeing. You just pick up a pen and get to it.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
