@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One cannot develop taste from what is of average quality but only from the very best.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>I always feel like the art's there and I just see it, so it's not really a lot of work.</b>
+> <p><i>Damien Hirst</i></p>
 
 <br>
