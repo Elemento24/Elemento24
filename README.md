@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At my age the only problem is with remembering names. When I call everyone darling, it has damn all to do with passionately adoring them, but I know I'm safe calling them that. Although, of course, I adore them too.</b>
-> <p><i>Richard Attenborough</i></p>
+> <b>Of middle age the best that can be said is that a middle-aged person has likely learned how to have a little fun in spite of his troubles.</b>
+> <p><i>Don Marquis</i></p>
 
 <br>
