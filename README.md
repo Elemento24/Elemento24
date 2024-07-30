@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You need someone to tell you how to do things like hitting your marks, or driving a car so it looks right or getting out of a car so it doesn't take a million years of screen time.</b>
-> <p><i>Gary Cole</i></p>
+> <b>The foundations of a strong economy don't rest alone on the decisions of Chancellors or the spending programmes of government.</b>
+> <p><i>George Osborne</i></p>
 
 <br>
