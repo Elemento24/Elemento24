@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is growth. For me it has been a very spiritual and musical rebirth.</b>
-> <p><i>Lenny Kravitz</i></p>
+> <b>It remains to consider what attitude thoughtful men and Christian believers should take respecting them, and how they stand related to beliefs of another order.</b>
+> <p><i>Asa Gray</i></p>
 
 <br>
