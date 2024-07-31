@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my world, history comes down to language and art. No one cares much about what battles were fought, who won them and who lost them - unless there is a painting, a play, a song or a poem that speaks of the event.</b>
-> <p><i>Theodore Bikel</i></p>
+> <b>The only disability in life is a bad attitude.</b>
+> <p><i>Scott Hamilton</i></p>
 
 <br>
