@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Newspapers with declining circulations can complain all they want about their readers and even say they have no taste. But you will still go out of business over time. A newspaper is not a public trust - it has a business model that either works or it doesn't.</b>
-> <p><i>Marc Andreessen</i></p>
+> <b>Success is like reaching an important birthday and finding you're exactly the same.</b>
+> <p><i>Audrey Hepburn</i></p>
 
 <br>
