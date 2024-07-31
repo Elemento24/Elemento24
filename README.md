@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of middle age the best that can be said is that a middle-aged person has likely learned how to have a little fun in spite of his troubles.</b>
-> <p><i>Don Marquis</i></p>
+> <b>The two elements the traveler first captures in the big city are extra human architecture and furious rhythm. Geometry and anguish.</b>
+> <p><i>Federico Garcia Lorca</i></p>
 
 <br>
