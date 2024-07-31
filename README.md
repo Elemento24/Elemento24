@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Work hard, stay positive, and get up early. It's the best part of the day.</b>
-> <p><i>George Allen, Sr.</i></p>
+> <b>Although believers by nature, are far from God, and children of wrath, even as others, yet it is amazing to think how nigh they are brought to him again by the blood of Jesus Christ.</b>
+> <p><i>George Whitefield</i></p>
 
 <br>
