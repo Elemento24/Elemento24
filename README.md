@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The very women who object to the morals of a notoriously beautiful actress, grow big with pride when an admirer suggests their marked resemblance to this stage beauty in physique.</b>
-> <p><i>Minna Antrim</i></p>
+> <b>Work hard, stay positive, and get up early. It's the best part of the day.</b>
+> <p><i>George Allen, Sr.</i></p>
 
 <br>
