@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The two elements the traveler first captures in the big city are extra human architecture and furious rhythm. Geometry and anguish.</b>
-> <p><i>Federico Garcia Lorca</i></p>
+> <b>Art is the elimination of the unnecessary.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
