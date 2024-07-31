@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I figured out it was a social thing, what women were allowed to do. At a very young age, I decided I was not going to follow women's rules.</b>
-> <p><i>Joan Jett</i></p>
+> <b>The way that people show me love on Twitter? I don't know man. It's amazing.</b>
+> <p><i>T-Pain</i></p>
 
 <br>
