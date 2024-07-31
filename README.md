@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be honest, I sort of feel like 'movie actor' isn't of this time. I love it. But it's a 20th-century art form.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>I figured out it was a social thing, what women were allowed to do. At a very young age, I decided I was not going to follow women's rules.</b>
+> <p><i>Joan Jett</i></p>
 
 <br>
