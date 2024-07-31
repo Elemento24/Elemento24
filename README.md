@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you're my age and you see a story, you better go for it pretty quickly. I'd just like to get a few more novels under my belt.</b>
-> <p><i>John le Carre</i></p>
+> <b>I replaced the headlights in my car with strobe lights, so it looks like I'm the only one moving.</b>
+> <p><i>Steven Wright</i></p>
 
 <br>
