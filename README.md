@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pretend to be dumb, that's the only way to reach old age.</b>
-> <p><i>Friedrich Durrenmatt</i></p>
+> <b>If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair.</b>
+> <p><i>Samuel Johnson</i></p>
 
 <br>
