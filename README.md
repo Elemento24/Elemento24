@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But one of the things I learned is that when you fight for something you believe in and you tell the truth and you do your best, you can always hold your head up high and no one can take that away from you.</b>
-> <p><i>Vanessa Kerry</i></p>
+> <b>This was meaningful that at almost 41 years old, I could be getting my first beauty campaign.</b>
+> <p><i>Teri Hatcher</i></p>
 
 <br>
