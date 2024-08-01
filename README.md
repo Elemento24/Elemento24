@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think art education, especially in this country, which government pretty much ignores, is so important for young people.</b>
-> <p><i>Mikhail Baryshnikov</i></p>
+> <b>Growing up on stage, I was introduced to makeup at a young age and I will never forget the first time I tried on a L'Oreal Paris iconic lipstick - it was instant glamour and I've been hooked ever since.</b>
+> <p><i>Lea Michele</i></p>
 
 <br>
