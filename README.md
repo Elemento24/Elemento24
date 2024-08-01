@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He has a profound respect for old age. Especially when it's bottled.</b>
-> <p><i>Gene Fowler</i></p>
+> <b>There is no abstract art. You must always start with something. Afterward you can remove all traces of reality.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
