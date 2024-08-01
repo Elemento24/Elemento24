@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can take no credit for beauty at sixteen. But if you are beautiful at sixty, it will be your soul's own doing.</b>
-> <p><i>Marie Stopes</i></p>
+> <b>I don't drive around London much. Any journey around Islington involves hundreds of speed bumps that seem to tear the bottom of your car off.</b>
+> <p><i>Alan Davies</i></p>
 
 <br>
