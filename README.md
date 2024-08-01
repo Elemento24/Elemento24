@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>Well, I've always thought that my career was in England, really. I used to do more in the theatre, and I felt that I should be there. It's not far is it? It's amazing the way that special FX have taken a quantum leap in what they're capable of doing.</b>
+> <p><i>Albert Finney</i></p>
 
 <br>
