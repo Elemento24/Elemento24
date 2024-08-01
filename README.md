@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To say that I am organized is an understatement, but my car tells a different story.</b>
-> <p><i>Emily Procter</i></p>
+> <b>He has a profound respect for old age. Especially when it's bottled.</b>
+> <p><i>Gene Fowler</i></p>
 
 <br>
