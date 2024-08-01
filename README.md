@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A race is a work of art that people can look at and be affected in as many ways they're capable of understanding.</b>
-> <p><i>Steve Prefontaine</i></p>
+> <b>Over the years Woodstock got glorified and romanticised and became the event that symbolised Utopia. It's the last page of our collective memory of the age of innocence. Then things turned ugly and would never be the same again.</b>
+> <p><i>Ang Lee</i></p>
 
 <br>
