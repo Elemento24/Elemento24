@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm jamming 'Black Sabbath Vol. 4' all the time. Zappa's 'Cruising With Ruben &amp The Jets.' A lot of Gong lately. Some Hawkwind. The Residents' 'Duck Stab' is amazing. Some Fugs. Lots of stuff, man. I'm pretty schizophrenic with records.</b>
-> <p><i>Ty Segall</i></p>
+> <b>A saboteur in the house of art and a comedienne in the house of art theory, Lawler has spent three decades documenting the secret life of art. Functioning as a kind of one-woman CSI unit, she has photographed pictures and objects in collectors' homes, in galleries, on the walls of auction houses, and off the walls, in museum storage.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
