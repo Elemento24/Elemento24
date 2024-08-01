@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you are a writer you locate yourself behind a wall of silence and no matter what you are doing, driving a car or walking or doing housework you can still be writing, because you have that space.</b>
-> <p><i>Joyce Carol Oates</i></p>
+> <b>The irony is that it was tougher to rent a car from Cerberus when it owned Alamo than to buy a semi-automatic. To rent a car, one had to provide ID, a drivers' license, and get insurance coverage. To buy a gun? Cash and carry, from the back of a station wagon at a gun show. No concerns about downstream liability or risk.</b>
+> <p><i>Eliot Spitzer</i></p>
 
 <br>
