@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A saboteur in the house of art and a comedienne in the house of art theory, Lawler has spent three decades documenting the secret life of art. Functioning as a kind of one-woman CSI unit, she has photographed pictures and objects in collectors' homes, in galleries, on the walls of auction houses, and off the walls, in museum storage.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>You can take no credit for beauty at sixteen. But if you are beautiful at sixty, it will be your soul's own doing.</b>
+> <p><i>Marie Stopes</i></p>
 
 <br>
