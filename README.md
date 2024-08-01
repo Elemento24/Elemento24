@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is mysterious as well as terrible. God and devil are fighting there, and the battlefield is the heart of man.</b>
-> <p><i>Fyodor Dostoevsky</i></p>
+> <b>The reason can only be this: heroic poetry depends on an heroic age, and an age is heroic because of what it is, not because of what it does.</b>
+> <p><i>Lascelles Abercrombie</i></p>
 
 <br>
