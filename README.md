@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't drive around London much. Any journey around Islington involves hundreds of speed bumps that seem to tear the bottom of your car off.</b>
-> <p><i>Alan Davies</i></p>
+> <b>A race is a work of art that people can look at and be affected in as many ways they're capable of understanding.</b>
+> <p><i>Steve Prefontaine</i></p>
 
 <br>
