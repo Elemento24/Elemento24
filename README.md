@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no abstract art. You must always start with something. Afterward you can remove all traces of reality.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>The best way to know God is to love many things.</b>
+> <p><i>Vincent Van Gogh</i></p>
 
 <br>
