@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reason can only be this: heroic poetry depends on an heroic age, and an age is heroic because of what it is, not because of what it does.</b>
-> <p><i>Lascelles Abercrombie</i></p>
+> <b>I'm jamming 'Black Sabbath Vol. 4' all the time. Zappa's 'Cruising With Ruben &amp The Jets.' A lot of Gong lately. Some Hawkwind. The Residents' 'Duck Stab' is amazing. Some Fugs. Lots of stuff, man. I'm pretty schizophrenic with records.</b>
+> <p><i>Ty Segall</i></p>
 
 <br>
