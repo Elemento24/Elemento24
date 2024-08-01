@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, I've always thought that my career was in England, really. I used to do more in the theatre, and I felt that I should be there. It's not far is it? It's amazing the way that special FX have taken a quantum leap in what they're capable of doing.</b>
-> <p><i>Albert Finney</i></p>
+> <b>If you are a writer you locate yourself behind a wall of silence and no matter what you are doing, driving a car or walking or doing housework you can still be writing, because you have that space.</b>
+> <p><i>Joyce Carol Oates</i></p>
 
 <br>
