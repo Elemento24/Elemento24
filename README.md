@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Over the years Woodstock got glorified and romanticised and became the event that symbolised Utopia. It's the last page of our collective memory of the age of innocence. Then things turned ugly and would never be the same again.</b>
-> <p><i>Ang Lee</i></p>
+> <b>I think it's particularly a distinctively American concept that resonates with American culture through biker culture. A motorcycle is an independent thing. You're like, 'I don't want to ride in a car with this person. I want to be independent and ride by myself. But, let's ride in a group. Let's be independent, together.'</b>
+> <p><i>Ryan Hurst</i></p>
 
 <br>
