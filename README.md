@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This was meaningful that at almost 41 years old, I could be getting my first beauty campaign.</b>
-> <p><i>Teri Hatcher</i></p>
+> <b>When art dresses in worn-out material it is most easily recognized as art.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
