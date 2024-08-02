@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not since the digital revolution in the early '90s has technology placed such a comprehensive burden on business, employees and individuals to reinvent their business plans, services and products, and themselves to keep pace with the changing marketplace.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>I would love to work with Anthony Hopkins I would love to work with Meryl Streep I would love to work with DeNiro I would love to work with Johnny Depp I'd love to work with Brad Pitt, Matt Damon, Gwyneth Paltrow... I think she's amazing.</b>
+> <p><i>Tara Reid</i></p>
 
 <br>
