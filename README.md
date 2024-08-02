@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One thing, however, is sure, - that in all cases the effort should be to impose all the cost of repairing the wrong upon the doer of the wrong. This alone is real justice, and of course such justice is necessarily free.</b>
-> <p><i>Benjamin Tucker</i></p>
+> <b>It's not the style that motivates me, as much as an attitude of openness that I have when I go into a project.</b>
+> <p><i>Herbie Hancock</i></p>
 
 <br>
