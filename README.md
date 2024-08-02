@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just as your car runs more smoothly and requires less energy to go faster and farther when the wheels are in perfect alignment, you perform better when your thoughts, feelings, emotions, goals, and values are in balance.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>To love our neighbor as ourselves is such a truth for regulating human society, that by that alone one might determine all the cases in social morality.</b>
+> <p><i>John Locke</i></p>
 
 <br>
