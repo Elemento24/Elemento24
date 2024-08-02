@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was impressed by Hendrix. His attitude was brilliant. Even the way he walked was amazing.</b>
-> <p><i>Ritchie Blackmore</i></p>
+> <b>Anger and hate against one we love steels our hearts, but contempt or pity leaves us silent and ashamed.</b>
+> <p><i>Edgar Rice Burroghs</i></p>
 
 <br>
