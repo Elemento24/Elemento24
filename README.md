@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a kid I had buck teeth and braces and acne. I hated what I saw. I'm still not comfortable, but that's why I change and adapt the way I look.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>I was impressed by Hendrix. His attitude was brilliant. Even the way he walked was amazing.</b>
+> <p><i>Ritchie Blackmore</i></p>
 
 <br>
