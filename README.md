@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been given an amazing opportunity and I could not be more grateful. But I also know that all this will eventually die off. It's not real. It will go away and then you'll go away and then, I don't know, I'll be left sitting in some English hotel room.</b>
-> <p><i>Josh Brolin</i></p>
+> <b>One thing, however, is sure, - that in all cases the effort should be to impose all the cost of repairing the wrong upon the doer of the wrong. This alone is real justice, and of course such justice is necessarily free.</b>
+> <p><i>Benjamin Tucker</i></p>
 
 <br>
