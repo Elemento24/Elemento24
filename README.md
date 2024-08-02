@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Strike an average between what a woman thinks of her husband a month before she marries him and what she thinks of him a year afterward, and you will have the truth about him.</b>
-> <p><i>H. L. Mencken</i></p>
+> <b>As a kid I had buck teeth and braces and acne. I hated what I saw. I'm still not comfortable, but that's why I change and adapt the way I look.</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
