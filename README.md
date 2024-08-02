@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I spent well over a year on the road with Sarah Vaughn. That was amazing.</b>
-> <p><i>Jan Hammer</i></p>
+> <b>Designed by architects with honorable intentions but hands of palsy.</b>
+> <p><i>Jimmy Breslin</i></p>
 
 <br>
