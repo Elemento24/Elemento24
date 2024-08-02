@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger and hate against one we love steels our hearts, but contempt or pity leaves us silent and ashamed.</b>
-> <p><i>Edgar Rice Burroghs</i></p>
+> <b>Forty is the old age of youth fifty the youth of old age.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
