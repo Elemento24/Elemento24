@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would love to work with Anthony Hopkins I would love to work with Meryl Streep I would love to work with DeNiro I would love to work with Johnny Depp I'd love to work with Brad Pitt, Matt Damon, Gwyneth Paltrow... I think she's amazing.</b>
-> <p><i>Tara Reid</i></p>
+> <b>Her beauty didn't do her any good and she couldn't use it in any positive way or manipulative way. I just hope that people will look and see and believe in that hope of love, that hope of freedom, even if it was just for a limited time.</b>
+> <p><i>Diane Kruger</i></p>
 
 <br>
