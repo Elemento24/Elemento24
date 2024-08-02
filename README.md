@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think naturally, if you're an actor, there's a high level of assertiveness that you need to have to survive this business. There's boldness in being assertive, and there's strength and confidence.</b>
-> <p><i>Bryan Cranston</i></p>
+> <b>The reward of art is not fame or success but intoxication: that is why so many bad artists are unable to give it up.</b>
+> <p><i>Jean Cocteau</i></p>
 
 <br>
