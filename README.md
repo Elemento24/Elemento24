@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty for some provides escape, who gain a happiness in eyeing the gorgeous buttocks of the ape or Autumn sunsets exquisitely dying.</b>
-> <p><i>Langston Hughes</i></p>
+> <b>I like making films about old people because they are repositories of amazing stories that they tell well. And they're incredibly good telly.</b>
+> <p><i>Ian Hislop</i></p>
 
 <br>
