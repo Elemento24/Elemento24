@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fatherhood is the most amazing thing that could ever have happened in my life.</b>
-> <p><i>Corey Feldman</i></p>
+> <b>But having said that, there's also a sea change in attitude towards media.</b>
+> <p><i>Robert McChesney</i></p>
 
 <br>
