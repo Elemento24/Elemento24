@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But having said that, there's also a sea change in attitude towards media.</b>
-> <p><i>Robert McChesney</i></p>
+> <b>You can't be halfway in this business. If you don't meet the fans, you lose all you've got.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
