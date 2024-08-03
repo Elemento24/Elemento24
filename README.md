@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To love our neighbor as ourselves is such a truth for regulating human society, that by that alone one might determine all the cases in social morality.</b>
-> <p><i>John Locke</i></p>
+> <b>Every work of art is an uncommitted crime.</b>
+> <p><i>Theodor Adorno</i></p>
 
 <br>
