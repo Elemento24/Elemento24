@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're all outsiders in a way. We're all alone and can become very lonely.</b>
-> <p><i>Hugo Weaving</i></p>
+> <b>The mind that is wise mourns less for what age takes away than what it leaves behind.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
