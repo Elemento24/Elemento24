@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like making films about old people because they are repositories of amazing stories that they tell well. And they're incredibly good telly.</b>
-> <p><i>Ian Hislop</i></p>
+> <b>Politics is just show business for ugly people.</b>
+> <p><i>Jay Leno</i></p>
 
 <br>
