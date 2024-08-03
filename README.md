@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They played Boston. They played at the Boston Tea Party and through an amazing chain of events I got to hang out with them backstage even though I was underage.</b>
-> <p><i>Jonathan Richman</i></p>
+> <b>We're all outsiders in a way. We're all alone and can become very lonely.</b>
+> <p><i>Hugo Weaving</i></p>
 
 <br>
