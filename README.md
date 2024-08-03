@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I may be kindly, I am ordinarily gentle, but in my line of business I am obliged to will terribly what I will at all.</b>
-> <p><i>Catherine the Great</i></p>
+> <b>I'm a workaholic. Before long I'm traveling on my nervous energy alone. This is incredibly exhausting.</b>
+> <p><i>Eva Gabor</i></p>
 
 <br>
