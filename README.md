@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The season of failure is the best time for sowing the seeds of success.</b>
-> <p><i>Paramahansa Yogananda</i></p>
+> <b>I sing in the car if I'm in LA, because you're like soundproofed.</b>
+> <p><i>Jimmy Fallon</i></p>
 
 <br>
