@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are all travelers in the wilderness of this world, and the best we can find in our travels is an honest friend.</b>
-> <p><i>Robert Louis Stevenson</i></p>
+> <b>The aim of art is to represent not the outward appearance of things, but their inward significance.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
