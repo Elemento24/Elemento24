@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a car fanatic and each morning I wake up with a smile on my face, whether I'm commentating on the Formula One or at Silver Hatch racetrack in Roary the Racing Car.</b>
-> <p><i>Murray Walker</i></p>
+> <b>They put chains on me they chained my waist, my legs. Put me in the back of a squad car, and I literally blacked out. I didn't even - there's whole pieces missing.</b>
+> <p><i>Jim Bakker</i></p>
 
 <br>
