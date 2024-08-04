@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to be boring is to leave nothing out.</b>
-> <p><i>Voltaire</i></p>
+> <b>I hate to mention age, but I come from an era when we weren't consumed by technology and television.</b>
+> <p><i>Jimmy Buffett</i></p>
 
 <br>
