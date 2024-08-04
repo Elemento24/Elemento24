@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They put chains on me they chained my waist, my legs. Put me in the back of a squad car, and I literally blacked out. I didn't even - there's whole pieces missing.</b>
-> <p><i>Jim Bakker</i></p>
+> <b>I have been alone since my husband died. I stay in my home. I don't date. It's hard to date when you're at home. Nobody knows you.</b>
+> <p><i>Anna Nicole Smith</i></p>
 
 <br>
