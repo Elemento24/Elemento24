@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was a great mantel to be able to take on really, an amazing legacy. And you know to finally see it, because I just saw the final product yesterday as well, is really amazing to be part of something like this.</b>
-> <p><i>Brandon Routh</i></p>
+> <b>A work of art that contains theories is like an object on which the price tag has been left.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
