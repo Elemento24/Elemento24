@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One person alone can't do anything as important as bringing genuine democracy to a country.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>The alarm rings 4:45, again at 5, but I wake up 4:30 naturally. Shower, shave, orange juice, perk my own coffee, hear the news, and the CBS car arrives 5:30.</b>
+> <p><i>Charlie Rose</i></p>
 
 <br>
