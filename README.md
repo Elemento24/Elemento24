@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Definitely they write themselves. It's an amazing experience. It's like the characters have come alive and are sitting on my shoulder talking to me, telling me their tales.</b>
-> <p><i>R. A. Salvatore</i></p>
+> <b>The best argument I know for an immortal life is the existence of a man who deserves one.</b>
+> <p><i>William James</i></p>
 
 <br>
