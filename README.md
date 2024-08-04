@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have been alone since my husband died. I stay in my home. I don't date. It's hard to date when you're at home. Nobody knows you.</b>
-> <p><i>Anna Nicole Smith</i></p>
+> <b>I believe we need to attract a new generation of the best and brightest to public service and I believe that government can be a source of inspiration, not degradation.</b>
+> <p><i>Andrew Cuomo</i></p>
 
 <br>
