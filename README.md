@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I dream of is an art of balance, of purity and serenity devoid of troubling or depressing subject matter - a soothing, calming influence on the mind, rather like a good armchair which provides relaxation from physical fatigue.</b>
-> <p><i>Henri Matisse</i></p>
+> <b>Human beings are the only animal that thinks they change who they are simply by moving to a different place. Birds migrate, but it's not quite the same thing.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
