@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can feel the 60S looming. In my profession, I've just moved along with my age. By thinking in decades, rather than whether someone's 42 or 47, you can give yourself a whole 10 years to turn yourself around in.</b>
-> <p><i>Francesca Annis</i></p>
+> <b>I'm a car fanatic and each morning I wake up with a smile on my face, whether I'm commentating on the Formula One or at Silver Hatch racetrack in Roary the Racing Car.</b>
+> <p><i>Murray Walker</i></p>
 
 <br>
