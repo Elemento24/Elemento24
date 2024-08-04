@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A representative is free delivery she's a personal beauty consultant. Some people want that high touch.</b>
-> <p><i>Andrea Jung</i></p>
+> <b>Shanghai set out to take over from Hong Kong and I think it's done that. It's got the most amazing futuristic skyline which rivals and even betters Tokyo.</b>
+> <p><i>Paul Oakenfold</i></p>
 
 <br>
