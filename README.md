@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think sometimes when children grow up, their parents grow up. Mine grew up with me. We coexist. I don't try to change them anymore, and I don't think they try to change me.</b>
-> <p><i>Katy Perry</i></p>
+> <b>The best way to be boring is to leave nothing out.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
