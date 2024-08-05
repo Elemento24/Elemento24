@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Woman is fine for her own satisfaction alone. No man will admire her the more, no woman will like her the better for it. Neatness and fashion are enough for the former, and a something of shabbiness or impropriety will be most endearing to the latter.</b>
-> <p><i>Jane Austen</i></p>
+> <b>I do not understand how it is that financial institutions could think that they could take taxpayer money and then turn around and act like it's business as usual. I don't understand how they can't see that the world has changed in a fundamental way, that it is not business as usual when you take taxpayer dollars.</b>
+> <p><i>Elizabeth Warren</i></p>
 
 <br>
