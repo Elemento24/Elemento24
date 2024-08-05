@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The future belongs to those who believe in the beauty of their dreams.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>We have to get back to the beauty of just being alive in this present moment.</b>
+> <p><i>Mary McDonnell</i></p>
 
 <br>
