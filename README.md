@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A zebra does not change its spots.</b>
-> <p><i>Al Gore</i></p>
+> <b>Things alter for the worse spontaneously, if they be not altered for the better designedly.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
