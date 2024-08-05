@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am rediscovering the whole sexual dimension of life at the age of 86, really. And that also means discovering the feminine. So the whole of this dimension, which I had been seeking for a very long time, is now sort of opening itself up to me.</b>
-> <p><i>Bede Griffiths</i></p>
+> <b>Let me be the first to tell you, drinking alcohol is the worst thing to do in cold weather. Hot soup is the best because the process of digesting food helps to warm you up.</b>
+> <p><i>Morgan Freeman</i></p>
 
 <br>
