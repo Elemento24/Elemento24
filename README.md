@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be like Tom Cruise from 'The Outsiders' and go on and do amazing movies for a long time.</b>
-> <p><i>Ashton Kutcher</i></p>
+> <b>I've actually spent a lot of time researching beauty products, how they are produced and how they are sold.</b>
+> <p><i>Lauren Conrad</i></p>
 
 <br>
