@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One morning, about four o'clock, I was driving my car just about as fast as I could. I thought, Why am I out this time of night? I was miserable, and it came to me: I'm falling in love with somebody I have no right to fall in love with.</b>
-> <p><i>June Carter Cash</i></p>
+> <b>I have a full life: I have two amazing kids, I have great friends, great family. And right now, that's plenty for me to manage. A new relationship just seems like way too much work.</b>
+> <p><i>Sarah McLachlan</i></p>
 
 <br>
