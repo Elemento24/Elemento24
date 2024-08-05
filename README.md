@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's brought the world a lot closer together, and will continue to do that. There are downsides to everything there are unintended consequences to everything. The most corrosive piece of technology that I've ever seen is called television - but then, again, television, at its best, is magnificent.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>I just want to go in with the right attitude and from Day 1 make a difference.</b>
+> <p><i>Freddy Adu</i></p>
 
 <br>
