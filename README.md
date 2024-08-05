@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was impressed by Hendrix. His attitude was brilliant. Even the way he walked was amazing.</b>
-> <p><i>Ritchie Blackmore</i></p>
+> <b>Guilt is anger directed at ourselves - at what we did or did not do. Resentment is anger directed at others - at what they did or did not do.</b>
+> <p><i>Peter McWilliams</i></p>
 
 <br>
