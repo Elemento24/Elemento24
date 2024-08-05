@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Guilt is anger directed at ourselves - at what we did or did not do. Resentment is anger directed at others - at what they did or did not do.</b>
-> <p><i>Peter McWilliams</i></p>
+> <b>A zebra does not change its spots.</b>
+> <p><i>Al Gore</i></p>
 
 <br>
