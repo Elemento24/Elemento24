@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just want to go in with the right attitude and from Day 1 make a difference.</b>
-> <p><i>Freddy Adu</i></p>
+> <b>I want to be like Tom Cruise from 'The Outsiders' and go on and do amazing movies for a long time.</b>
+> <p><i>Ashton Kutcher</i></p>
 
 <br>
