@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mass transportation is doomed to failure in North America because a person's car is the only place where he can be alone and think.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>Economic depression cannot be cured by legislative action or executive pronouncement. Economic wounds must be healed by the action of the cells of the economic body - the producers and consumers themselves.</b>
+> <p><i>Herbert Hoover</i></p>
 
 <br>
