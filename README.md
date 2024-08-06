@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to look like a deer in headlights on the red carpet. You step out of the car and it's bedlam. Everyone's got crazy eyes.</b>
-> <p><i>Emily Blunt</i></p>
+> <b>I binge when I'm happy. When everything is going really well, every day is like I'm at a birthday party.</b>
+> <p><i>Kirstie Alley</i></p>
 
 <br>
