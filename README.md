@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing that something I did 23 years ago still has an audience that people respond to and I am touched and surprised that people are still very positive about.</b>
-> <p><i>Gil Gerard</i></p>
+> <b>Convinced as I am and as I am from my government that the world needs a new moral architecture over all I believe that this should be the first topic to debate in our world of today, ethics, moral.</b>
+> <p><i>Hugo Chavez</i></p>
 
 <br>
