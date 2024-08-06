@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel like I have had the most amazing life in my public service.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>I have short goals - to get better every day, to help my teammates every day - but my only ultimate goal is to win an NBA championship. It's all that matters. I dream about it. I dream about it all the time, how it would look, how it would feel. It would be so amazing.</b>
+> <p><i>LeBron James</i></p>
 
 <br>
