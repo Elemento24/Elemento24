@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Economic depression cannot be cured by legislative action or executive pronouncement. Economic wounds must be healed by the action of the cells of the economic body - the producers and consumers themselves.</b>
-> <p><i>Herbert Hoover</i></p>
+> <b>Study after study confirms that even when you control for variables like profession, education, hours worked, age, marital status, and children, men still are compensated substantially more - even in professions, like nursing, dominated by women. No wonder there's a gender gap.</b>
+> <p><i>Dee Dee Myers</i></p>
 
 <br>
