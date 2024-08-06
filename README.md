@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Convinced as I am and as I am from my government that the world needs a new moral architecture over all I believe that this should be the first topic to debate in our world of today, ethics, moral.</b>
-> <p><i>Hugo Chavez</i></p>
+> <b>The population forecast for the United States in 1970 is 170 million. The population forecast for Russia alone in 1970 is 251 million. The implications are clear.</b>
+> <p><i>Emanuel Celler</i></p>
 
 <br>
