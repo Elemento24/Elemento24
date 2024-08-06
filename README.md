@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture in general is frozen music.</b>
-> <p><i>Friedrich von Schelling</i></p>
+> <b>Is fuel efficiency really what we need most desperately? I say that what we really need is a car that can be shot when it breaks down.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
