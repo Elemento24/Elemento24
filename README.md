@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Study after study confirms that even when you control for variables like profession, education, hours worked, age, marital status, and children, men still are compensated substantially more - even in professions, like nursing, dominated by women. No wonder there's a gender gap.</b>
-> <p><i>Dee Dee Myers</i></p>
+> <b>I used to look like a deer in headlights on the red carpet. You step out of the car and it's bedlam. Everyone's got crazy eyes.</b>
+> <p><i>Emily Blunt</i></p>
 
 <br>
