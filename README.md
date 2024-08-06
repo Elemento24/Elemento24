@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I binge when I'm happy. When everything is going really well, every day is like I'm at a birthday party.</b>
-> <p><i>Kirstie Alley</i></p>
+> <b>I can not believe that war is the best solution. No one won the last war, and no one will win the next war.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
