@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With fitness, I do Bikrams hot yoga. The gym that I have in my building is amazing. I love to do cardio and weights there.</b>
-> <p><i>Shay Mitchell</i></p>
+> <b>What I love best in life is new starts.</b>
+> <p><i>Karl Lagerfeld</i></p>
 
 <br>
