@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the principles of heaven and earth are living inside you. Life itself is truth, and this will never change. Everything in heaven and earth breathes. Breath is the thread that ties creation together.</b>
-> <p><i>Morihei Ueshiba</i></p>
+> <b>The best teacher is the one who suggests rather than dogmatizes, and inspires his listener with the wish to teach himself.</b>
+> <p><i>Edward G. Bulwer-Lytton</i></p>
 
 <br>
