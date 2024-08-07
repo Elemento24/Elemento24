@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Absolute truth belongs to Thee alone.</b>
-> <p><i>Gotthold Ephraim Lessing</i></p>
+> <b>There's a lot of stress... but once you get in the car, all that goes out the window.</b>
+> <p><i>Dan Brown</i></p>
 
 <br>
