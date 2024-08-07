@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't purposely speed, but I might go over by five or six miles an hour from time to time. It doesn't give me a buzz driving on normal roads, because I can't go fast enough. It's never going to be anything like an F1 car.</b>
-> <p><i>Jenson Button</i></p>
+> <b>Most people have no idea how to politely answer a phone. The English do, and it's been their only major business advantage for the past two centuries.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
