@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I love best in life is new starts.</b>
-> <p><i>Karl Lagerfeld</i></p>
+> <b>You can work on the saxophone alone, but ultimately you must perform with others.</b>
+> <p><i>Steve Lacy</i></p>
 
 <br>
