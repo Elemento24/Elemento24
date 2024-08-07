@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always interested in fashion and beauty. I was fifteen when I was scouted in a flea market. Two years later, I arrived in New York. I was in awe because it was like another planet.</b>
-> <p><i>Candice Swanepoel</i></p>
+> <b>With fitness, I do Bikrams hot yoga. The gym that I have in my building is amazing. I love to do cardio and weights there.</b>
+> <p><i>Shay Mitchell</i></p>
 
 <br>
