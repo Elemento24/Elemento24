@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart. There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart.</b>
-> <p><i>Kenzo Tange</i></p>
+> <b>From 18 to 22, I was alone, living in L.A. with a bunch of friends, partying.</b>
+> <p><i>Heath Ledger</i></p>
 
 <br>
