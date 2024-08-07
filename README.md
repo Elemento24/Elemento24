@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a lot of stress... but once you get in the car, all that goes out the window.</b>
-> <p><i>Dan Brown</i></p>
+> <b>The challenge is to practice politics as the art of making what appears to be impossible, possible.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
