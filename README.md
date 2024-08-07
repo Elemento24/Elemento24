@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be with those who know secret things or else alone.</b>
-> <p><i>Rainer Maria Rilke</i></p>
+> <b>There is no such thing as liberty. You only change one sort of domination for another. All we can do is to choose our master.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
