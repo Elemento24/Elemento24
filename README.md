@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The challenge is to practice politics as the art of making what appears to be impossible, possible.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>I was always interested in fashion and beauty. I was fifteen when I was scouted in a flea market. Two years later, I arrived in New York. I was in awe because it was like another planet.</b>
+> <p><i>Candice Swanepoel</i></p>
 
 <br>
