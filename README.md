@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing when you're playing to a crowd who barely understands English but they're singing parts of your song back to you.</b>
-> <p><i>Jason Derulo</i></p>
+> <b>Few expected very much of Franklin Roosevelt on Inauguration Day in 1933. Like Barack Obama seventy-six years later, he was succeeding a failed Republican president, and Americans had voted for change. What that change might be Roosevelt never clearly said, probably because he himself didn't know.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
