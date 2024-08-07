@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always felt toward the slightest scene, even if all I had to do in a scene was just to come in and say, 'Hi,' that the people ought to get their money's worth and that this is an obligation of mine, to give them the best you can get from me.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart. There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart.</b>
+> <p><i>Kenzo Tange</i></p>
 
 <br>
