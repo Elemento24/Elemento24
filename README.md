@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most people have no idea how to politely answer a phone. The English do, and it's been their only major business advantage for the past two centuries.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>It is quite amazing what I didn't feel after a while. I didn't really want to feel things.</b>
+> <p><i>Kate Moss</i></p>
 
 <br>
