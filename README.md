@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter how good you are, how brave you are or anything, it comes down to that car so many times. Not every time, but so many times.</b>
-> <p><i>Danica Patrick</i></p>
+> <b>I just did a part in 'Sin City 2.' I got to do a scene with Ray Liotta. Amazing man, extraordinary gentleman who was just so kind to me... I'm so excited about that I think it's gonna be very cool.</b>
+> <p><i>Juno Temple</i></p>
 
 <br>
