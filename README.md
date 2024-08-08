@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's art that pushes against psychological and social expectations, that tries to transform decay into something generative, that is replicative in a baroque way, that isn't about progress, and wants to - as Walt Whitman put it - 'contain multitudes.'</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>We find delight in the beauty and happiness of children that makes the heart too big for the body.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
