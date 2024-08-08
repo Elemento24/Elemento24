@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love clothes, but I don't know what to put on myself, let alone others. I have a lot of help getting dressed.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>Life is an unfoldment, and the further we travel the more truth we can comprehend. To understand the things that are at our door is the best preparation for understanding those that lie beyond.</b>
+> <p><i>Hypatia</i></p>
 
 <br>
