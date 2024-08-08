@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Despite the demands of this job, one of the things my wife and I try to do is to spend time together alone. And one of the things we really enjoy doing together is seeing a good movie.</b>
-> <p><i>Warren Christopher</i></p>
+> <b>We don't accomplish anything in this world alone... and whatever happens is the result of the whole tapestry of one's life and all the weavings of individual threads form one to another that creates something.</b>
+> <p><i>Sandra Day O'Connor</i></p>
 
 <br>
