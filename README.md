@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have to make America the best place in the world to do business.</b>
-> <p><i>Dick Cheney</i></p>
+> <b>Government in the U.S. today is a senior partner in every business in the country.</b>
+> <p><i>Norman Cousins</i></p>
 
 <br>
