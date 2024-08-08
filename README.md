@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We find delight in the beauty and happiness of children that makes the heart too big for the body.</b>
+> <b>The age of a woman doesn't mean a thing. The best tunes are played on the oldest fiddles.</b>
 > <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
