@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We don't accomplish anything in this world alone... and whatever happens is the result of the whole tapestry of one's life and all the weavings of individual threads form one to another that creates something.</b>
-> <p><i>Sandra Day O'Connor</i></p>
+> <b>I have always had this mentality because I hated to break anything on the car.</b>
+> <p><i>Alain Prost</i></p>
 
 <br>
