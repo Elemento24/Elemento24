@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Infinite striving to be the best is man's duty it is its own reward. Everything else is in God's hands.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>I love clothes, but I don't know what to put on myself, let alone others. I have a lot of help getting dressed.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
