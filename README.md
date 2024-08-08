@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My business is the enforcement of the tax laws and the integrity of the tax code and making sure that trustees of charitable giving are true trustees.</b>
-> <p><i>Chuck Grassley</i></p>
+> <b>The beauty of 'The Walking Dead' and the beauty of being on a television show for a while, is that, it's your backstory, it's part of what you are, it's what you carry with you every day.</b>
+> <p><i>Laurie Holden</i></p>
 
 <br>
