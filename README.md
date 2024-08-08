@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've looked after my money. As I started working around my third birthday, my first check went straight to the bank.</b>
-> <p><i>Samantha Barks</i></p>
+> <b>No matter how good you are, how brave you are or anything, it comes down to that car so many times. Not every time, but so many times.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
