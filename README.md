@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The age of a woman doesn't mean a thing. The best tunes are played on the oldest fiddles.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>My business is the enforcement of the tax laws and the integrity of the tax code and making sure that trustees of charitable giving are true trustees.</b>
+> <p><i>Chuck Grassley</i></p>
 
 <br>
