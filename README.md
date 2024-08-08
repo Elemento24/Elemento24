@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fantastic tyrant of the amorous heart. How hard thy yoke, how cruel thy dart. Those escape your anger who refuse your sway, and those are punished most, who most obey.</b>
-> <p><i>Matthew Prior</i></p>
+> <b>I've looked after my money. As I started working around my third birthday, my first check went straight to the bank.</b>
+> <p><i>Samantha Barks</i></p>
 
 <br>
