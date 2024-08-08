@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you have a tough loss, go through it and agonize. I had one loss that I still want to change, but at the same time I realize it is an important part of who I am.</b>
-> <p><i>Andrew Shue</i></p>
+> <b>It's art that pushes against psychological and social expectations, that tries to transform decay into something generative, that is replicative in a baroque way, that isn't about progress, and wants to - as Walt Whitman put it - 'contain multitudes.'</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
