@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dream is of a place and a time where America will once again be seen as the last best hope of earth.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>The rest of the world cares about how we conduct our affairs because they then take that lead. We're the only leader in the world today. Some are wishing us well, others think that we're down and are not going to get back up again, but they are all watching with great interest to see how we conduct our business over the next couple of years.</b>
+> <p><i>Jon Huntsman, Jr.</i></p>
 
 <br>
