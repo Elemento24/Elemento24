@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you create something that is asking for people to respond as they're going to respond, you have to allow them to respond as they're going to respond. Some of the people are going to be uninterested and some people are going to be mad for some reason, which is their business. That's just the way the world is.</b>
-> <p><i>Charlie Kaufman</i></p>
+> <b>I really liked the helicopter pilot in 'Dawn of the Dead', when he gets bitten and comes out of the elevator. That guy was amazing. He did this incredible walk that we didn't even know about until we started shooting.</b>
+> <p><i>George A. Romero</i></p>
 
 <br>
