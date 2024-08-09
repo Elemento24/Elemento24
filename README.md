@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our country will, I believe, sooner forgive an officer for attacking an enemy than for letting it alone.</b>
-> <p><i>Horatio Nelson</i></p>
+> <b>Wisdom is not wisdom when it is derived from books alone.</b>
+> <p><i>Horace</i></p>
 
 <br>
