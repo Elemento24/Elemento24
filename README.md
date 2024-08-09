@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything that has happened to me has been amazing and surprising.</b>
-> <p><i>R. L. Stine</i></p>
+> <b>Men of age object too much, consult too long, adventure too little, repent too soon, and seldom drive business home to the full period, but content themselves with a mediocrity of success.</b>
+> <p><i>Dale Carnegie</i></p>
 
 <br>
