@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Enhance and intensify one's vision of that synthesis of truth and beauty which is the highest and deepest reality.</b>
-> <p><i>Ovid</i></p>
+> <b>Life is so impermanent that it's not about somebody else or things around me, it's about knowing you are completely alone in this world and being content inside.</b>
+> <p><i>K. D. Lang</i></p>
 
 <br>
