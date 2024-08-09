@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just don't believe that you have to come in and insult people when you want to change things.</b>
-> <p><i>Sydney Schanberg</i></p>
+> <b>Testing oneself is best when done alone.</b>
+> <p><i>Jimmy Carter</i></p>
 
 <br>
