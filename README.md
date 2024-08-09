@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men of age object too much, consult too long, adventure too little, repent too soon, and seldom drive business home to the full period, but content themselves with a mediocrity of success.</b>
-> <p><i>Dale Carnegie</i></p>
+> <b>He travels fastest who travels alone, and that goes double for she. Real feminism is spinsterhood.</b>
+> <p><i>Florence King</i></p>
 
 <br>
