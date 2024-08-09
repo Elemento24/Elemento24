@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We learn about life not from plusses alone, but from minuses as well.</b>
-> <p><i>Anton Chekhov</i></p>
+> <b>The price of a work of art has nothing to do with what the work of art is, can do, or is worth on an existential, alchemical level.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
