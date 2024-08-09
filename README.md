@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always had this mentality because I hated to break anything on the car.</b>
-> <p><i>Alain Prost</i></p>
+> <b>If you create something that is asking for people to respond as they're going to respond, you have to allow them to respond as they're going to respond. Some of the people are going to be uninterested and some people are going to be mad for some reason, which is their business. That's just the way the world is.</b>
+> <p><i>Charlie Kaufman</i></p>
 
 <br>
