@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The current Babe Ruth of improv? Sacha Baron Cohen. He's pretty amazing.</b>
-> <p><i>Seth Rogen</i></p>
+> <b>Our country will, I believe, sooner forgive an officer for attacking an enemy than for letting it alone.</b>
+> <p><i>Horatio Nelson</i></p>
 
 <br>
