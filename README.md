@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the greatest amount of pressure is the pressure I place on myself. So in a way I chose to be alone.</b>
-> <p><i>Cathy Freeman</i></p>
+> <b>I just don't believe that you have to come in and insult people when you want to change things.</b>
+> <p><i>Sydney Schanberg</i></p>
 
 <br>
