@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He travels fastest who travels alone, and that goes double for she. Real feminism is spinsterhood.</b>
-> <p><i>Florence King</i></p>
+> <b>Enthusiasm is the best protection in any situation. Wholeheartedness is contagious. Give yourself, if you wish to get others.</b>
+> <p><i>David Seabury</i></p>
 
 <br>
