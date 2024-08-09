@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Enthusiasm is the best protection in any situation. Wholeheartedness is contagious. Give yourself, if you wish to get others.</b>
-> <p><i>David Seabury</i></p>
+> <b>Enhance and intensify one's vision of that synthesis of truth and beauty which is the highest and deepest reality.</b>
+> <p><i>Ovid</i></p>
 
 <br>
