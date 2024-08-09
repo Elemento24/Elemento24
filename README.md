@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wisdom is not wisdom when it is derived from books alone.</b>
-> <p><i>Horace</i></p>
+> <b>I think the greatest amount of pressure is the pressure I place on myself. So in a way I chose to be alone.</b>
+> <p><i>Cathy Freeman</i></p>
 
 <br>
