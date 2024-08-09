@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Testing oneself is best when done alone.</b>
-> <p><i>Jimmy Carter</i></p>
+> <b>An artist is an artist only because of his exquisite sense of beauty, a sense which shows him intoxicating pleasures, but which at the same time implies and contains an equally exquisite sense of all deformities and all disproportion.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
