@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The price of a work of art has nothing to do with what the work of art is, can do, or is worth on an existential, alchemical level.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Everything that has happened to me has been amazing and surprising.</b>
+> <p><i>R. L. Stine</i></p>
 
 <br>
