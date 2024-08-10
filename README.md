@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business of the poet is not to find new emotions, but to use the ordinary ones and, in working them up into poetry, to express feelings which are not in actual emotions at all.</b>
-> <p><i>T. S. Eliot</i></p>
+> <b>Our dilemma is that we hate change and love it at the same time what we really want is for things to remain the same but get better.</b>
+> <p><i>Sydney J. Harris</i></p>
 
 <br>
