@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our task must be to free ourselves by widening our circle of compassion to embrace all living creatures and the whole of nature and its beauty.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>Barack Obama doesn't believe in free enterprise. He's never going to admit it. For instance, he's never going to come straight out and say, 'If you own a business you didn't build it.' Alright, maybe he will.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
