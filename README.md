@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are 27 or 28 right? It is very tough to live at that age. When nothing is sure. I have sympathy with you.</b>
-> <p><i>Haruki Murakami</i></p>
+> <b>The artist's world is limitless. It can be found anywhere, far from where he lives or a few feet away. It is always on his doorstep.</b>
+> <p><i>Paul Strand</i></p>
 
 <br>
