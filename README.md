@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is the art of drawing sufficient conclusions from insufficient premises.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>We should be proud that our Prophet came into the world with the message of Islam to change it for the better, and not for the worse, or to keep things as they are.</b>
+> <p><i>Abu Bakar Bashir</i></p>
 
 <br>
