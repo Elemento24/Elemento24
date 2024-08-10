@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was 100 feet of 16 mm black-and-white film of a car coming to a stop sign, and driving off. I had to decide how to frame and light it. It was magic. There was a sense of mystery.</b>
-> <p><i>Conrad Hall</i></p>
+> <b>Design can never be an ultimate explanation for anything. It can only be a proximate explanation. A plane or a car is explained by a designer but that's because the designer himself, the engineer, is explained by natural selection.</b>
+> <p><i>Richard Dawkins</i></p>
 
 <br>
