@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The question of whether or to what extent human activities are causing global warming is not a matter of ideology, let alone of belief. The issue is simply one of risk management.</b>
-> <p><i>Malcolm Turnbull</i></p>
+> <b>To be nobody but yourself in a world which is doing its best, night and day, to make you everybody else means to fight the hardest battle which any human being can fight and never stop fighting.</b>
+> <p><i>e. e. cummings</i></p>
 
 <br>
