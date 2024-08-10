@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children, dear and loving children, can alone console a woman for the loss of her beauty.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>Lord, Bless our enemies have mercy upon them, may they turn their course and let us alone, and let us live in peace at our homes in our own native land.</b>
+> <p><i>William Pennington</i></p>
 
 <br>
