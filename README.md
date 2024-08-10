@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business has only two functions - marketing and innovation.</b>
-> <p><i>Milan Kundera</i></p>
+> <b>Knowing your own darkness is the best method for dealing with the darknesses of other people.</b>
+> <p><i>Carl Jung</i></p>
 
 <br>
