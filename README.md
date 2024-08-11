@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You will not be punished for your anger, you will be punished by your anger.</b>
-> <p><i>Buddha</i></p>
+> <b>Beauty set up distance between other people and me. It warped their behavior.</b>
+> <p><i>Candice Bergen</i></p>
 
 <br>
