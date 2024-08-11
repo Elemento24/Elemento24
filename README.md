@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not make best friends with a melancholy sad soul. They always are heavily loaded, and you must bear half.</b>
-> <p><i>Francois Fenelon</i></p>
+> <b>You may tell a man thou art a fiend, but not your nose wants blowing to him alone who can bear a thing of that kind, you may tell all.</b>
+> <p><i>Johann Kaspar Lavater</i></p>
 
 <br>
