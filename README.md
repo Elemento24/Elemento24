@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But those musics do not address the larger kind of architecture in time that classical music does, whatever each one of us knows that classical music must mean.</b>
-> <p><i>Michael Tilson Thomas</i></p>
+> <b>My habit would have been to veer towards the dark - to prove I was something edgy, or maybe to prove that I was cognisant of the dark side. Now, with age and confidence, I can say, yeah, that's true, but I am cognisant of the fact that people can do things well. And can be more loving than you expect.</b>
+> <p><i>George Saunders</i></p>
 
 <br>
