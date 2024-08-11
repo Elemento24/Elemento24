@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In 1981, at age 31, I was voted the best player in basketball, and the most valuable player in the league.</b>
-> <p><i>Julius Erving</i></p>
+> <b>Without this spirit, Modernist architecture cannot fully exist. Since there is often a mismatch between the logic and the spirit of Modernism, I use architecture to reconcile the two.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
