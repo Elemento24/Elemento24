@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty set up distance between other people and me. It warped their behavior.</b>
-> <p><i>Candice Bergen</i></p>
+> <b>The 1990s, after the reign of terror of academic vandalism, will be a decade of restoration: restoration of meaning, value, beauty, pleasure, and emotion to art and restoration of art to its audience.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
