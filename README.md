@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't need plastic in my body to validate me as a woman.</b>
-> <p><i>Courtney Love</i></p>
+> <b>When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
