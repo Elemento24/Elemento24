@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The function of prayer is not to influence God, but rather to change the nature of the one who prays.</b>
-> <p><i>Soren Kierkegaard</i></p>
+> <b>But those musics do not address the larger kind of architecture in time that classical music does, whatever each one of us knows that classical music must mean.</b>
+> <p><i>Michael Tilson Thomas</i></p>
 
 <br>
