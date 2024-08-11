@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It never seems to occur to some people, that, like beauty, a sense of humor may sometimes be fatal.</b>
-> <p><i>Edgar Rice Burroghs</i></p>
+> <b>Do not make best friends with a melancholy sad soul. They always are heavily loaded, and you must bear half.</b>
+> <p><i>Francois Fenelon</i></p>
 
 <br>
