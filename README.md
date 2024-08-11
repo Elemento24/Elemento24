@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>If you can build a business up big enough, it's respectable.</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
