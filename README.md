@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you can build a business up big enough, it's respectable.</b>
-> <p><i>Will Rogers</i></p>
+> <b>I think there's a great beauty to having problems. That's one of the ways we learn.</b>
+> <p><i>Herbie Hancock</i></p>
 
 <br>
