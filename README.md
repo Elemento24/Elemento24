@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our task must be to free ourselves by widening our circle of compassion to embrace all living creatures and the whole of nature and its beauty.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>When a man opens a car door for his wife, it's either a new car or a new wife.</b>
+> <p><i>Prince Philip</i></p>
 
 <br>
