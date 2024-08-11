@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Artists walk alone.</b>
-> <p><i>Ezra Miller</i></p>
+> <b>I have found that being honest is the best technique I can use. Right up front, tell people what you're trying to accomplish and what you're willing to sacrifice to accomplish it.</b>
+> <p><i>Lee Iacocca</i></p>
 
 <br>
