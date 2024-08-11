@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have found that being honest is the best technique I can use. Right up front, tell people what you're trying to accomplish and what you're willing to sacrifice to accomplish it.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>In 1981, at age 31, I was voted the best player in basketball, and the most valuable player in the league.</b>
+> <p><i>Julius Erving</i></p>
 
 <br>
