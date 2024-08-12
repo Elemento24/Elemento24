@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Part of the reason for the ugliness of adults, in a child's eyes, is that the child is usually looking upwards, and few faces are at their best when seen from below.</b>
-> <p><i>George Orwell</i></p>
+> <b>I feel like I have as good a shot as anybody out there and I have gotten close in the past, so why not have the attitude that I can come out and play great tennis and maybe even win this tournament.</b>
+> <p><i>Michael Chang</i></p>
 
 <br>
