@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always loved aesthetics. Not particularly fashion, but an idea of beauty.</b>
-> <p><i>Miuccia Prada</i></p>
+> <b>Jazz is known all over the world as an American musical art form and that's it. No America, no jazz. I've seen people try to connect it to other countries, for instance to Africa, but it doesn't have a damn thing to do with Africa.</b>
+> <p><i>Art Blakey</i></p>
 
 <br>
