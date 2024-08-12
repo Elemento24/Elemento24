@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of healing comes from nature, not from the physician. Therefore the physician must start from nature, with an open mind.</b>
-> <p><i>Paracelsus</i></p>
+> <b>I always loved aesthetics. Not particularly fashion, but an idea of beauty.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
