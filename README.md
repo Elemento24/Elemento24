@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We neither laugh alone, nor weep alone, why then should we pray alone?</b>
-> <p><i>Anna Letitia Barbauld</i></p>
+> <b>Part of the reason for the ugliness of adults, in a child's eyes, is that the child is usually looking upwards, and few faces are at their best when seen from below.</b>
+> <p><i>George Orwell</i></p>
 
 <br>
