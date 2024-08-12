@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man, alone, has the power to transform his thoughts into physical reality man, alone, can dream and make his dreams come true.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>You're pulling 4-5G for a lot of the corners around the lap. We build up lactic acid because there are a lot of vibrations in the car, and you have to have strong legs to hit the brake pedal. We need to be fit to do every lap at 100%.</b>
+> <p><i>Jenson Button</i></p>
 
 <br>
