@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went onto reality TV as a business decision.</b>
-> <p><i>Bethenny Frankel</i></p>
+> <b>Beauty and the devil are the same thing.</b>
+> <p><i>Robert Mapplethorpe</i></p>
 
 <br>
