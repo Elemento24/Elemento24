@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You may tell a man thou art a fiend, but not your nose wants blowing to him alone who can bear a thing of that kind, you may tell all.</b>
-> <p><i>Johann Kaspar Lavater</i></p>
+> <b>My mother is a beauty.</b>
+> <p><i>Mary-Louise Parker</i></p>
 
 <br>
