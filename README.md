@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The minute you try to talk business with him he takes the attitude that he is a gentleman and a scholar, and the moment you try to approach him on the level of his moral integrity he starts to talk business.</b>
-> <p><i>Raymond Chandler</i></p>
+> <b>Law is not a profession at all, but rather a business service station and repair shop.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
