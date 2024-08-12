@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For every moment of triumph, for every instance of beauty, many souls must be trampled.</b>
-> <p><i>Hunter S. Thompson</i></p>
+> <b>We neither laugh alone, nor weep alone, why then should we pray alone?</b>
+> <p><i>Anna Letitia Barbauld</i></p>
 
 <br>
