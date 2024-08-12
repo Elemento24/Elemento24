@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and the devil are the same thing.</b>
-> <p><i>Robert Mapplethorpe</i></p>
+> <b>Man, alone, has the power to transform his thoughts into physical reality man, alone, can dream and make his dreams come true.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
