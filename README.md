@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You're pulling 4-5G for a lot of the corners around the lap. We build up lactic acid because there are a lot of vibrations in the car, and you have to have strong legs to hit the brake pedal. We need to be fit to do every lap at 100%.</b>
-> <p><i>Jenson Button</i></p>
+> <b>The minute you try to talk business with him he takes the attitude that he is a gentleman and a scholar, and the moment you try to approach him on the level of his moral integrity he starts to talk business.</b>
+> <p><i>Raymond Chandler</i></p>
 
 <br>
