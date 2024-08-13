@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No one should be left to suffer alone.</b>
-> <p><i>Daisaku Ikeda</i></p>
+> <b>Maybe it is something to do with age, but I have become fonder of poetry than of prose.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
