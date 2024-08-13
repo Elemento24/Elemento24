@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They think they can make fuel from horse manure - now, I don't know if your car will be able to get 30 miles to the gallon, but it's sure gonna put a stop to siphoning.</b>
-> <p><i>Billie Holiday</i></p>
+> <b>No human being is constituted to know the truth, the whole truth, and nothing but the truth and even the best of men must be content with fragments, with partial glimpses, never the full fruition.</b>
+> <p><i>William Osler</i></p>
 
 <br>
