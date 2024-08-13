@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It isn't enough just to scream at the Occupy Wall Street demonstrations. We need our political system to start reflect this anger back into, 'How do we fix it? How do we get the economy going again?'</b>
-> <p><i>Colin Powell</i></p>
+> <b>I quit college. I was studying architecture for about a year.</b>
+> <p><i>Barry Mann</i></p>
 
 <br>
