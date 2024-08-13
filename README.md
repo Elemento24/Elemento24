@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I quit college. I was studying architecture for about a year.</b>
-> <p><i>Barry Mann</i></p>
+> <b>I think that the best training a top manager can be engaged in is management by example.</b>
+> <p><i>Carlos Ghosn</i></p>
 
 <br>
