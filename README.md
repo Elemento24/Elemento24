@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No human being is constituted to know the truth, the whole truth, and nothing but the truth and even the best of men must be content with fragments, with partial glimpses, never the full fruition.</b>
-> <p><i>William Osler</i></p>
+> <b>I've always been shocked and waiting-for-the-other-shoe-to-drop that a girl would ever talk to me, let alone want to marry me. They always seem to hold the power to me, and from my mother to my wife to my daughter, every time I try to really figure them out, and think I've got them pegged, I pay for it.</b>
+> <p><i>Andrew Stanton</i></p>
 
 <br>
