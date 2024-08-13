@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Us investigators who went out into the field were faced on occasion with a lot of anger, by people saying why has it taken you five or six year to come and see me?</b>
-> <p><i>Tony Greig</i></p>
+> <b>Pilates is amazing, my posture is so much better and I'm even starting to get muscles on my tummy - it's incredible.</b>
+> <p><i>Kelly Osbourne</i></p>
 
 <br>
