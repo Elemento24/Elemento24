@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only real progress lies in learning to be wrong all alone.</b>
-> <p><i>Albert Camus</i></p>
+> <b>Everyone can identify with a fragrant garden, with beauty of sunset, with the quiet of nature, with a warm and cozy cottage.</b>
+> <p><i>Thomas Kincade</i></p>
 
 <br>
