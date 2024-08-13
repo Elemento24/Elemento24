@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that the best training a top manager can be engaged in is management by example.</b>
-> <p><i>Carlos Ghosn</i></p>
+> <b>There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart. There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart.</b>
+> <p><i>Kenzo Tange</i></p>
 
 <br>
