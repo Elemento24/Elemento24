@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought I was going to be killed. The casualties were so heavy, it was just a given. I learned to take each day, each mission, as it came. That's an attitude I've carried into my professional life. I take each case, each job, as it comes.</b>
-> <p><i>Elliot Richardson</i></p>
+> <b>Us investigators who went out into the field were faced on occasion with a lot of anger, by people saying why has it taken you five or six year to come and see me?</b>
+> <p><i>Tony Greig</i></p>
 
 <br>
