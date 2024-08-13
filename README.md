@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>None are so old as those who have outlived enthusiasm.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>I would like you all to give me a round of applause as I have not crashed my car in over 15 months.</b>
+> <p><i>Matthew Perry</i></p>
 
 <br>
