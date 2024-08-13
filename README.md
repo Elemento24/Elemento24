@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Preparation for old age should begin not later than one's teens. A life which is empty of purpose until 65 will not suddenly become filled on retirement.</b>
-> <p><i>Dwight L. Moody</i></p>
+> <b>It has always been my belief that a man should do his best, regardless of how much he receives for his services, or the number of people he may be serving or the class of people served.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
