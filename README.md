@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Choreography is amazing. I'm still a dancer, yet I transitioned into choreography then as a Creative Director. All of these creative elements are brought out of being a dancer. Directing is something that comes out of understanding movement and choreography. Directing movement is directing a dance piece.</b>
-> <p><i>Laurieann Gibson</i></p>
+> <b>As far as luxury goes, about the only thing I do is... I go first class all the way. I live on the road, so when I'm out there, I'm getting the nice hotel suite, I'm getting the luxury car, I'm eating the good food, and I make sure I take care of myself on the road.</b>
+> <p><i>Trish Stratus</i></p>
 
 <br>
