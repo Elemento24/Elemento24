@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The earth was made so various, that the mind Of desultory man, studious of change, And pleased with novelty, might be indulged.</b>
-> <p><i>William Cowper</i></p>
+> <b>The style of ancient Egyptian art is transcendently clear, something 8-year-olds can recognize in an instant. Its consistency and codification is one of the most epic visual journeys in all art, one that lasts 30 dynasties spread over 3,000 years.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
