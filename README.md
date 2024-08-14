@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never been to a race car race before.</b>
-> <p><i>Christina Ricci</i></p>
+> <b>Art never improves, but... the material of art is never quite the same.</b>
+> <p><i>T. S. Eliot</i></p>
 
 <br>
