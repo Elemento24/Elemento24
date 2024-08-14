@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been shocked and waiting-for-the-other-shoe-to-drop that a girl would ever talk to me, let alone want to marry me. They always seem to hold the power to me, and from my mother to my wife to my daughter, every time I try to really figure them out, and think I've got them pegged, I pay for it.</b>
-> <p><i>Andrew Stanton</i></p>
+> <b>I mostly drive around in a Fiat 500 TwinAir, and that's a pretty small car!</b>
+> <p><i>Richard Hammond</i></p>
 
 <br>
