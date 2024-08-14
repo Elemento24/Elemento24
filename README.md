@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have played on many teams throughout my career, and I know when a team has the tools, and the right positive attitude towards winning.</b>
-> <p><i>Boomer Esiason</i></p>
+> <b>Beauty is only skin deep. I think what's really important is finding a balance of mind, body and spirit.</b>
+> <p><i>Jennifer Lopez</i></p>
 
 <br>
