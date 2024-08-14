@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As far as luxury goes, about the only thing I do is... I go first class all the way. I live on the road, so when I'm out there, I'm getting the nice hotel suite, I'm getting the luxury car, I'm eating the good food, and I make sure I take care of myself on the road.</b>
-> <p><i>Trish Stratus</i></p>
+> <b>Kids are brought into show business because they are cute and see truth and they're very bright. But there's a sense of doing it because you want the adults to be approving of you. You want to make them happy.</b>
+> <p><i>Anna Chlumsky</i></p>
 
 <br>
