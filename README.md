@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty can make you powerful in a way that isn't good for you. Being OK is better for the person I have become.</b>
-> <p><i>Felicity Huffman</i></p>
+> <b>I'm not trying to stump anybody... it's the beauty of the language that I'm interested in.</b>
+> <p><i>Buddy Holly</i></p>
 
 <br>
