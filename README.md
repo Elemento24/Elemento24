@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To copy beauty forfeits all pretense to fame to copy faults is want of sense.</b>
-> <p><i>Charles Churchill</i></p>
+> <b>I love the way you can fall in love with a piece of literature how words alone can get your heart doing that.</b>
+> <p><i>Laura Marling</i></p>
 
 <br>
