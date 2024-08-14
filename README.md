@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not trying to stump anybody... it's the beauty of the language that I'm interested in.</b>
-> <p><i>Buddy Holly</i></p>
+> <b>Choreography is amazing. I'm still a dancer, yet I transitioned into choreography then as a Creative Director. All of these creative elements are brought out of being a dancer. Directing is something that comes out of understanding movement and choreography. Directing movement is directing a dance piece.</b>
+> <p><i>Laurieann Gibson</i></p>
 
 <br>
