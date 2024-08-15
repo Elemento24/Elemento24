@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Beauty is truth, truth beauty,' - that is all ye know on earth, and all ye need to know.</b>
-> <p><i>John Keats</i></p>
+> <b>Onion rings in the car cushions do not improve with time.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
