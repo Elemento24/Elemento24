@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Onion rings in the car cushions do not improve with time.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>Sometimes I wish I could drive a car, but I'm gonna drive a car one day, so I don't worry about that.</b>
+> <p><i>Stevie Wonder</i></p>
 
 <br>
