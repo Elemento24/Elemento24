@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The stars shall fade away, the sun himself Grow dim with age, and nature sink in years, But thou shalt flourish in immortal youth, Unhurt amidst the wars of elements, The wrecks of matter, and the crush of worlds.</b>
-> <p><i>Joseph Addison</i></p>
+> <b>I know a lot of Eastern Europeans, and because of what they have been through and what they have seen, they have an attitude where they are not easily fooled.</b>
+> <p><i>Francine Prose</i></p>
 
 <br>
