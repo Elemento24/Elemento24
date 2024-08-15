@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the shoe doesn't fit, must we change the foot?</b>
-> <p><i>Gloria Steinem</i></p>
+> <b>The Framers of the Constitution knew that free speech is the friend of change and revolution. But they also knew that it is always the deadliest enemy of tyranny.</b>
+> <p><i>Hugo Black</i></p>
 
 <br>
