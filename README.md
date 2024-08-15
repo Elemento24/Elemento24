@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know a lot of Eastern Europeans, and because of what they have been through and what they have seen, they have an attitude where they are not easily fooled.</b>
-> <p><i>Francine Prose</i></p>
+> <b>The art of art, the glory of expression and the sunshine of the light of letters, is simplicity.</b>
+> <p><i>Walt Whitman</i></p>
 
 <br>
