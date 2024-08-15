@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When the shriveled skin of the ordinary is stuffed out with meaning, it satisfies the senses amazingly.</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>If the shoe doesn't fit, must we change the foot?</b>
+> <p><i>Gloria Steinem</i></p>
 
 <br>
