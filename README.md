@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your attitude, not your aptitude, will determine your altitude.</b>
-> <p><i>Zig Ziglar</i></p>
+> <b>The best director is the one you don't see.</b>
+> <p><i>Billy Wilder</i></p>
 
 <br>
