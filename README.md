@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When someone says that I'm angry it's actually a compliment. I have not always been direct with my anger in my relationships, which is part of why I'd write about it in my songs because I had such fear around expressing anger as a woman.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Largely this is a class thing - writers tend to be cosseted little middle-class kiddies who think that the world owes them a royalty cheque. But just doing it - being in your room for years on end, locked in your head, alone with invented ghosts - it weakens and softens the body. And I know I can't just live in my head.</b>
+> <p><i>Tony Parsons</i></p>
 
 <br>
