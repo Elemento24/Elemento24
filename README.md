@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a sensitive writer, actor and director. Talking business disgusts me. If you want to talk business, call my disgusting personal manager.</b>
-> <p><i>Sylvester Stallone</i></p>
+> <b>Under any circumstance, simply do your best, and you will avoid self-judgment, self-abuse and regret.</b>
+> <p><i>Miguel Angel Ruiz</i></p>
 
 <br>
