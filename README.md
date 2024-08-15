@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I wish I could drive a car, but I'm gonna drive a car one day, so I don't worry about that.</b>
-> <p><i>Stevie Wonder</i></p>
+> <b>When someone says that I'm angry it's actually a compliment. I have not always been direct with my anger in my relationships, which is part of why I'd write about it in my songs because I had such fear around expressing anger as a woman.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
