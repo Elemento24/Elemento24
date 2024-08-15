@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of art, the glory of expression and the sunshine of the light of letters, is simplicity.</b>
-> <p><i>Walt Whitman</i></p>
+> <b>Some argue that now isn't the time to push the green agenda - that all efforts should be on preventing a serious recession. That is a false choice. It fails to recognise that climate change and our carbon reliance is part of problem - high fuel prices and food shortages due to poor crop yields compound today's financial difficulties.</b>
+> <p><i>Lucy Powell</i></p>
 
 <br>
