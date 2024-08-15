@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good design is good business.</b>
-> <p><i>Thomas J. Watson</i></p>
+> <b>Perhaps I know best why it is man alone who laughs he alone suffers so deeply that he had to invent laughter.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
