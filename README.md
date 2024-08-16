@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Take care to sell your horse before he dies. The art of life is passing losses on.</b>
-> <p><i>Robert Frost</i></p>
+> <b>Come rain or shine I walk short distances rather than taking my car.</b>
+> <p><i>Sophie Ellis-Bextor</i></p>
 
 <br>
