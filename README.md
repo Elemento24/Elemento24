@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Come rain or shine I walk short distances rather than taking my car.</b>
-> <p><i>Sophie Ellis-Bextor</i></p>
+> <b>To be nobody but yourself in a world which is doing its best, night and day, to make you everybody else means to fight the hardest battle which any human being can fight and never stop fighting.</b>
+> <p><i>e. e. cummings</i></p>
 
 <br>
