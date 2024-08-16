@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think any man in business would be foolish to fool around with his secretary. If it's somebody else's secretary, fine.</b>
-> <p><i>Barry Goldwater</i></p>
+> <b>Look at the Afghans, during the time of the Soviet invasion. They were among the poorest Muslims in the world, yet they were sustained by their faith in God, and God alone.</b>
+> <p><i>Abu Bakar Bashir</i></p>
 
 <br>
