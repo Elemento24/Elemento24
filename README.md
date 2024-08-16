@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is whatever you think it is. You are as old as you think you are.</b>
-> <p><i>Muhammad Ali</i></p>
+> <b>Yeah, to me, acting is very therapeutic. I get out a lot of anger and frustration.</b>
+> <p><i>Diane Kruger</i></p>
 
 <br>
