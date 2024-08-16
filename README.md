@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since September 11, security has been increased everywhere, and we have new IDs to get on to the Fox lot. I drove to the security gate, but realized I'd left my ID in my other car. I just broke into that voice - 'Hey, man, I'm Bart Simpson. Who else sounds like this?' The guard waved me through.</b>
-> <p><i>Nancy Cartwright</i></p>
+> <b>I'm from Naples. I was born in a poor neighborhood and I always, in my heart, felt like it would be amazing to be able to adopt a child from Naples. I could give someone the opportunity I had. I would love to give back in that way and pay it forward.</b>
+> <p><i>Giuliana Rancic</i></p>
 
 <br>
