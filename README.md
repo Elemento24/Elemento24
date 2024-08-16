@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I choose a block of marble and chop off whatever I don't need.</b>
-> <p><i>Auguste Rodin</i></p>
+> <b>Wherever art appears, life disappears.</b>
+> <p><i>Robert Motherwell</i></p>
 
 <br>
