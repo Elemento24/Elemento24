@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perfection is immutable. But for things imperfect, change is the way to perfect them.</b>
-> <p><i>Owen Feltham</i></p>
+> <b>I find, in being black, a thing of beauty: a joy a strength a secret cup of gladness.</b>
+> <p><i>Ossie Davis</i></p>
 
 <br>
