@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It takes a long time to become young.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>There's a lot of people out there who go through hard times, and they feel alone. They feel like nobody is there. But I'm in the same boat.</b>
+> <p><i>Brandy Norwood</i></p>
 
 <br>
