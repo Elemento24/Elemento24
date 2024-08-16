@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Solidarity is an attitude of resistance, I suppose, or it should be.</b>
-> <p><i>Christopher Hitchens</i></p>
+> <b>I think any man in business would be foolish to fool around with his secretary. If it's somebody else's secretary, fine.</b>
+> <p><i>Barry Goldwater</i></p>
 
 <br>
