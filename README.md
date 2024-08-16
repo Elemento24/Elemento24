@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is it not careless to become too local when there are four hundred billion stars in our galaxy alone.</b>
-> <p><i>A. R. Ammons</i></p>
+> <b>Age is whatever you think it is. You are as old as you think you are.</b>
+> <p><i>Muhammad Ali</i></p>
 
 <br>
