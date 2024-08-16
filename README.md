@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be nobody but yourself in a world which is doing its best, night and day, to make you everybody else means to fight the hardest battle which any human being can fight and never stop fighting.</b>
-> <p><i>e. e. cummings</i></p>
+> <b>It takes a long time to become young.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
