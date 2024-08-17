@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The war is dreadful. It is the business of the artist to follow it home to the heart of the individual fighters - not to talk in armies and nations and numbers - but to track it home.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>The music is first and foremost everything - no egos, no attitude, nothing - it's about the music.</b>
+> <p><i>Big Boi</i></p>
 
 <br>
