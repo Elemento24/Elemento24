@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to have a good life, you should focus on your family, on your business, on your dog, on your fun, and you'll have a good life.</b>
-> <p><i>Adam Carolla</i></p>
+> <b>What breadth, what beauty and power of human nature and development there must be in a woman to get over all the palisades, all the fences, within which she is held captive!</b>
+> <p><i>Alexander Herzen</i></p>
 
 <br>
