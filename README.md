@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The heart never grows better by age I fear rather worse, always harder. A young liar will be an old one, and a young knave will only be a greater knave as he grows older.</b>
-> <p><i>Lord Chesterfield</i></p>
+> <b>If you want to have a good life, you should focus on your family, on your business, on your dog, on your fun, and you'll have a good life.</b>
+> <p><i>Adam Carolla</i></p>
 
 <br>
