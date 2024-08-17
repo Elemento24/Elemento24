@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture should speak of its time and place, but yearn for timelessness.</b>
-> <p><i>Frank Gehry</i></p>
+> <b>When art wins, everyone wins.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
