@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A guilty conscience needs to confess. A work of art is a confession.</b>
-> <p><i>Albert Camus</i></p>
+> <b>The war is dreadful. It is the business of the artist to follow it home to the heart of the individual fighters - not to talk in armies and nations and numbers - but to track it home.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
