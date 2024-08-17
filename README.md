@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been an amazing year of individual performances.</b>
-> <p><i>Steve Kerr</i></p>
+> <b>The heart never grows better by age I fear rather worse, always harder. A young liar will be an old one, and a young knave will only be a greater knave as he grows older.</b>
+> <p><i>Lord Chesterfield</i></p>
 
 <br>
