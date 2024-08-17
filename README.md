@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To do a dull thing with style-now that's what I call art.</b>
-> <p><i>Charles Bukowski</i></p>
+> <b>The attitude that nature is chaotic and that the artist puts order into it is a very absurd point of view, I think. All that we can hope for is to put some order into ourselves.</b>
+> <p><i>Willem de Kooning</i></p>
 
 <br>
