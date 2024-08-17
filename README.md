@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a lot of people out there who go through hard times, and they feel alone. They feel like nobody is there. But I'm in the same boat.</b>
-> <p><i>Brandy Norwood</i></p>
+> <b>A guilty conscience needs to confess. A work of art is a confession.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
