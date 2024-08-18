@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good manners is the art of making those people easy with whom we converse. Whoever makes the fewest people uneasy is the best bred in the room.</b>
-> <p><i>Jonathan Swift</i></p>
+> <b>Meetings are indispensable when you don't want to do anything.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
