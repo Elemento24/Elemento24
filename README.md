@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We say keep your change, we'll keep our God, our guns, our constitution.</b>
-> <p><i>Sarah Palin</i></p>
+> <b>Good manners is the art of making those people easy with whom we converse. Whoever makes the fewest people uneasy is the best bred in the room.</b>
+> <p><i>Jonathan Swift</i></p>
 
 <br>
