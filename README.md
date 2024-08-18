@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like physics. I think it is the best science out of all three of them, because generally it's more useful. You learn about speed and velocity and time, and that's all clever stuff.</b>
-> <p><i>Tom Felton</i></p>
+> <b>People quit on jobs. They quit on marriages. They quit on school. There's an immediacy of this day and age that doesn't lend itself to being committed to anything.</b>
+> <p><i>Emily Blunt</i></p>
 
 <br>
