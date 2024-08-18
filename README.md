@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a kid, I kind of spent my life being amazed by being tricked. I love being tricked. I still love it today.</b>
-> <p><i>Daniel Craig</i></p>
+> <b>You can just drift unhappily towards this vision of heaven on earth, and ultimately that is what architecture is a vision of: Heaven on earth, at it's best.</b>
+> <p><i>Ben Nicholson</i></p>
 
 <br>
