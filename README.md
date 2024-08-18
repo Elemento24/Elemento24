@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to hit the gym. I have beauty appointments. I have to work toward my next job and maintaining my image, just like an athlete.</b>
-> <p><i>Linda Evangelista</i></p>
+> <b>Let them eat cake.</b>
+> <p><i>Marie Antoinette</i></p>
 
 <br>
