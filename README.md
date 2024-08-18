@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude that nature is chaotic and that the artist puts order into it is a very absurd point of view, I think. All that we can hope for is to put some order into ourselves.</b>
-> <p><i>Willem de Kooning</i></p>
+> <b>The art of dancing stands at the source of all the arts that express themselves first in the human person. The art of building, or architecture, is the beginning of all the arts that lie outside the person and in the end they unite.</b>
+> <p><i>Havelock Ellis</i></p>
 
 <br>
