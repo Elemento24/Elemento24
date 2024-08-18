@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can just drift unhappily towards this vision of heaven on earth, and ultimately that is what architecture is a vision of: Heaven on earth, at it's best.</b>
-> <p><i>Ben Nicholson</i></p>
+> <b>The year most of my high school friends and I got our driver's permits, the coolest thing one could do was stand outside after school and twirl one's car keys like a lifeguard whistle. That jingling sound meant freedom and power.</b>
+> <p><i>Sloane Crosley</i></p>
 
 <br>
