@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We were alone. Where, I could not say, hardly imagine. All was black, and such a dense black that, after some minutes, my eyes had not been able to discern even the faintest glimmer.</b>
-> <p><i>Jules Verne</i></p>
+> <b>This is the highest wisdom that I own freedom and life are earned by those alone who conquer them each day anew.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
