@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a lot of amazing women, you know, women in my life who have been an example for me of what not to do.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>The bungalow had more to do with how Americans live today than any other building that has gone remotely by the name of architecture in our history.</b>
+> <p><i>Russell Lynes</i></p>
 
 <br>
