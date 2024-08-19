@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're still living with the old paradigm of age as an arch. That's the old metaphor: You're born, you peak at midlife and decline into decrepitude.</b>
-> <p><i>Jane Fonda</i></p>
+> <b>Music, art, theater. I'm just a big fan of beauty.</b>
+> <p><i>Jerry Hall</i></p>
 
 <br>
