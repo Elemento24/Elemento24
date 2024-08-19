@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Parents are usually more careful to bestow knowledge on their children rather than virtue, the art of speaking well rather than doing well but their manners should be of the greatest concern.</b>
-> <p><i>R. Buckminster Fuller</i></p>
+> <b>Sales are contingent upon the attitude of the salesman - not the attitude of the prospect.</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
