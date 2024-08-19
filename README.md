@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are two kinds of artists in this world those that work because the spirit is in them, and they cannot be silent if they would, and those that speak from a conscientious desire to make apparent to others the beauty that has awakened their own admiration.</b>
-> <p><i>Anna Katharine Green</i></p>
+> <b>Men was formed for society, and is neither capable of living alone, nor has the courage to do it.</b>
+> <p><i>William Blackstone</i></p>
 
 <br>
