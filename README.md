@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and brains, pleasure and usability - they should go hand in hand.</b>
-> <p><i>Donald Norman</i></p>
+> <b>The desire to hit a big home run is dominating the music business.</b>
+> <p><i>Billy Corgan</i></p>
 
 <br>
