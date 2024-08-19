@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like the way my heart beats, I like the way I think I don't need or want anything to change that.</b>
-> <p><i>Jordin Sparks</i></p>
+> <b>Science is simply common sense at its best, that is, rigidly accurate in observation, and merciless to fallacy in logic.</b>
+> <p><i>Thomas Huxley</i></p>
 
 <br>
