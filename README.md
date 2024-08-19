@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The desire to hit a big home run is dominating the music business.</b>
-> <p><i>Billy Corgan</i></p>
+> <b>Blanche talks about aging, and why should she be considered poor, because physical beauty is transitory and fading and she has such richness of the soul. I think that speech is so beautiful, and so telling and so true.</b>
+> <p><i>Delta Burke</i></p>
 
 <br>
