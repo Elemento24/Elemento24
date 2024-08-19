@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think your alcohol intake has to change. You know, usually a big person feels they can drink anything they want to and as much as they want to and I've cut that way back.</b>
-> <p><i>Mike Ditka</i></p>
+> <b>We were alone. Where, I could not say, hardly imagine. All was black, and such a dense black that, after some minutes, my eyes had not been able to discern even the faintest glimmer.</b>
+> <p><i>Jules Verne</i></p>
 
 <br>
