@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sales are contingent upon the attitude of the salesman - not the attitude of the prospect.</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>I like the way my heart beats, I like the way I think I don't need or want anything to change that.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
