@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can have no progress without change, whether it be basketball or anything else.</b>
-> <p><i>John Wooden</i></p>
+> <b>I mean, the whole idea of movies was it was special to go to see - you went to a movie theater to see something that was magical and amazing, in a very special location.</b>
+> <p><i>Bob Balaban</i></p>
 
 <br>
