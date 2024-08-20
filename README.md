@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to get old gracefully. I want to have good posture, I want to be healthy and be an example to my children.</b>
-> <p><i>Sting</i></p>
+> <b>Of life's two chief prizes, beauty and truth, I found the first in a loving heart and the second in a laborer's hand.</b>
+> <p><i>Khalil Gibran</i></p>
 
 <br>
