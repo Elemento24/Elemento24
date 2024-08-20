@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, the whole idea of movies was it was special to go to see - you went to a movie theater to see something that was magical and amazing, in a very special location.</b>
-> <p><i>Bob Balaban</i></p>
+> <b>After a few months in my parents' basement, I took an apartment near the state university, where I discovered both crystal methamphetamine and conceptual art. Either one of these things are dangerous, but in combination they have the potential to destroy entire civilizations.</b>
+> <p><i>David Sedaris</i></p>
 
 <br>
