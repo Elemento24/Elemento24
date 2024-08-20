@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The idea that happiness could have a share in beauty would be too much of a good thing.</b>
-> <p><i>Walter Benjamin</i></p>
+> <b>A strategy is something like, an innovative new product globalization, taking your products around the world be the low-cost producer. A strategy is something you can touch you can motivate people with be number one and number two in every business. You can energize people around the message.</b>
+> <p><i>Jack Welch</i></p>
 
 <br>
