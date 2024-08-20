@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Punctuality is one of the cardinal business virtues: always insist on it in your subordinates.</b>
-> <p><i>Don Marquis</i></p>
+> <b>Acting is still, of course, what I love to do most. The beauty of it is that by changing characters, it never gets boring.</b>
+> <p><i>Christopher Lambert</i></p>
 
 <br>
