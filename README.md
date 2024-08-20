@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The monarchy is foremost a business, and it's important to them that the British public continue to finance the excessive luxurious lifestyles of the now quite enormous, wasteful and useless 'royal' family. I find it very sad.</b>
-> <p><i>Steven Patrick Morrissey</i></p>
+> <b>We can have no progress without change, whether it be basketball or anything else.</b>
+> <p><i>John Wooden</i></p>
 
 <br>
