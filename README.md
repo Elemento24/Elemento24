@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Almost all quality improvement comes via simplification of design, manufacturing... layout, processes, and procedures.</b>
-> <p><i>Tom Peters</i></p>
+> <b>Punctuality is one of the cardinal business virtues: always insist on it in your subordinates.</b>
+> <p><i>Don Marquis</i></p>
 
 <br>
