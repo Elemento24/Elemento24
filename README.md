@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I spend my life essentially alone at a computer. That doesn't change. I have the same challenges every day.</b>
-> <p><i>Dan Brown</i></p>
+> <b>Why can't everybody leave everybody else the hell alone.</b>
+> <p><i>Jimmy Durante</i></p>
 
 <br>
