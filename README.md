@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of life's two chief prizes, beauty and truth, I found the first in a loving heart and the second in a laborer's hand.</b>
-> <p><i>Khalil Gibran</i></p>
+> <b>I'm not saying that there's anything better than mated bliss at its best, but I'm saying that living alone is as good in its own way. But we haven't quite given ourselves permission to recognize that.</b>
+> <p><i>Barbara Feldon</i></p>
 
 <br>
