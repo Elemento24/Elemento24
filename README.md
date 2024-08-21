@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was terribly shy when I was growing up, I really wasn't confident with other people and I think I was always afraid of up or not being this very cool, amazing person that I wanted to be.</b>
-> <p><i>Emily Mortimer</i></p>
+> <b>Land really is the best art.</b>
+> <p><i>Andy Warhol</i></p>
 
 <br>
