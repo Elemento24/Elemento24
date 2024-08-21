@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Land really is the best art.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>Most women are dissatisfied with their appearance - it's the stuff that fuels the beauty and fashion industries.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
