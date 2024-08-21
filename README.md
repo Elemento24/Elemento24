@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There were times when I thought I would never own a car.</b>
-> <p><i>Victor Cruz</i></p>
+> <b>There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second.</b>
+> <p><i>Jeff Bezos</i></p>
 
 <br>
