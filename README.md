@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage is an act of will that signifies and involves a mutual gift, which unites the spouses and binds them to their eventual souls, with whom they make up a sole family - a domestic church.</b>
-> <p><i>Pope John Paul II</i></p>
+> <b>In my early 20s I was so miserable doing construction, I wanted something that paid money. I liked nice stuff. I liked cars and architecture, and things that cost money. I wanted to not swing a hammer, and make money... and not do stuff that was dirty. I attempted to get into comedy. I started to do stand-up, but I wasn't very good at it.</b>
+> <p><i>Adam Carolla</i></p>
 
 <br>
