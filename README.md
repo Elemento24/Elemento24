@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is danger in reckless change, but greater danger in blind conservatism.</b>
-> <p><i>Henry George</i></p>
+> <b>A technical solution may be defined as one that requires a change only in the techniques of the natural sciences, demanding little or nothing in the way of change in human values or ideas of morality.</b>
+> <p><i>Garrett Hardin</i></p>
 
 <br>
