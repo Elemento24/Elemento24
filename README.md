@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing to see places like Madison Square Garden on the schedule again.</b>
-> <p><i>Roger Andrew Taylor</i></p>
+> <b>There is danger in reckless change, but greater danger in blind conservatism.</b>
+> <p><i>Henry George</i></p>
 
 <br>
