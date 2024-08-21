@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every time you get angry, you poison your own system.</b>
-> <p><i>Alfred A. Montapert</i></p>
+> <b>It is not fit the public trusts should be lodged in the hands of any, till they are first proved and found fit for the business they are to be entrusted with.</b>
+> <p><i>Matthew Henry</i></p>
 
 <br>
