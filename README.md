@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have to make America the best place in the world to do business.</b>
-> <p><i>Dick Cheney</i></p>
+> <b>Every time you get angry, you poison your own system.</b>
+> <p><i>Alfred A. Montapert</i></p>
 
 <br>
