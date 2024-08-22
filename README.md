@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The history of my life must begin by the earliest circumstance which my memory can evoke it will therefore commence when I had attained the age of eight years and four months.</b>
-> <p><i>Giacomo Casanova</i></p>
+> <b>Your attitude, not your aptitude, will determine your altitude.</b>
+> <p><i>Zig Ziglar</i></p>
 
 <br>
