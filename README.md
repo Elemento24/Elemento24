@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Would you want to do business with a person who was 99% honest?</b>
-> <p><i>Sydney Madwed</i></p>
+> <b>Faith, mighty faith, the promise sees, And looks to God alone Laughs at impossibilities, And cries it shall be done.</b>
+> <p><i>Charles Wesley</i></p>
 
 <br>
