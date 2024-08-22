@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When a management with a reputation for brilliance tackles a business with a reputation for bad economics, it is the reputation of the business that remains intact.</b>
-> <p><i>Warren Buffett</i></p>
+> <b>A newspaper is lumber made malleable. It is ink made into words and pictures. It is conceived, born, grows up and dies of old age in a day.</b>
+> <p><i>Jim Bishop</i></p>
 
 <br>
