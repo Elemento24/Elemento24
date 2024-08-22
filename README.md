@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all have big changes in our lives that are more or less a second chance.</b>
-> <p><i>Harrison Ford</i></p>
+> <b>Would you want to do business with a person who was 99% honest?</b>
+> <p><i>Sydney Madwed</i></p>
 
 <br>
