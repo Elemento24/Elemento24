@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Faith, mighty faith, the promise sees, And looks to God alone Laughs at impossibilities, And cries it shall be done.</b>
-> <p><i>Charles Wesley</i></p>
+> <b>I don't even know what words to use to talk about the music industry anymore. But the business has changed a lot - the methods of releasing music.</b>
+> <p><i>Anthony Kiedis</i></p>
 
 <br>
