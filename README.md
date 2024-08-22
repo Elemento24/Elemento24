@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A newspaper is lumber made malleable. It is ink made into words and pictures. It is conceived, born, grows up and dies of old age in a day.</b>
-> <p><i>Jim Bishop</i></p>
+> <b>Man cannot live by bread alone he must have peanut butter.</b>
+> <p><i>James A. Garfield</i></p>
 
 <br>
