@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's naive to pray for world peace if we're not going to change the form in which we live.</b>
-> <p><i>Godfrey Reggio</i></p>
+> <b>We all have big changes in our lives that are more or less a second chance.</b>
+> <p><i>Harrison Ford</i></p>
 
 <br>
