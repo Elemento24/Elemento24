@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bologna is the best city in Italy for food and has the least number of tourists. With its medieval beauty, it has it all.</b>
-> <p><i>Mario Batali</i></p>
+> <b>I think it's naive to pray for world peace if we're not going to change the form in which we live.</b>
+> <p><i>Godfrey Reggio</i></p>
 
 <br>
