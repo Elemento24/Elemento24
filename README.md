@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was my father who instilled the 'never say no' attitude I carry around with me today, and who instilled in me a sense of wonder, always taking us on adventures in the car, never telling us the destination.</b>
-> <p><i>Marlee Matlin</i></p>
+> <b>When I judge art, I take my painting and put it next to a God made object like a tree or flower. If it clashes, it is not art.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
