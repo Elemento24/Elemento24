@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man cannot live by bread alone he must have peanut butter.</b>
-> <p><i>James A. Garfield</i></p>
+> <b>When the traveler goes alone he gets acquainted with himself.</b>
+> <p><i>Liberty Hyde Bailey</i></p>
 
 <br>
