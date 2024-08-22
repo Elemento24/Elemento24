@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This great, though disastrous, culture can only change as we begin to stand off and see... the inveterate materialism which has become the model for cultures around the world.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>Here's my Golden Rule for a tarnished age: Be fair with others, but keep after them until they're fair with you.</b>
+> <p><i>Alan Alda</i></p>
 
 <br>
