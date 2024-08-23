@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't want to go out and change anything. I just wanted to make the music that was part of my background, which was rock and blues and hip-hop.</b>
-> <p><i>Kid Rock</i></p>
+> <b>It's a melting pot, southern Africa. You find these cultural collisions that result in art and music, and it's pretty amazing.</b>
+> <p><i>Dave Matthews</i></p>
 
 <br>
