@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no question that climate change is happening the only arguable point is what part humans are playing in it.</b>
-> <p><i>David Attenborough</i></p>
+> <b>I want to be a morning-talk-show host. I love Kelly Ripa's job. She gets to live in New York and has this amazing job hosting a talk show.</b>
+> <p><i>Ellie Kemper</i></p>
 
 <br>
