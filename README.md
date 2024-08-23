@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Here's my Golden Rule for a tarnished age: Be fair with others, but keep after them until they're fair with you.</b>
-> <p><i>Alan Alda</i></p>
+> <b>Let your Discourse with Men of Business be Short and Comprehensive.</b>
+> <p><i>George Washington</i></p>
 
 <br>
