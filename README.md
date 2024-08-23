@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a melting pot, southern Africa. You find these cultural collisions that result in art and music, and it's pretty amazing.</b>
-> <p><i>Dave Matthews</i></p>
+> <b>America is the best half-educated country in the world.</b>
+> <p><i>Nicholas M. Butler</i></p>
 
 <br>
