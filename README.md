@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I take sounds and change them into words.</b>
-> <p><i>Brian Eno</i></p>
+> <b>You just never know when you're living in a golden age.</b>
+> <p><i>Alexander Payne</i></p>
 
 <br>
