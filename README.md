@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>America is the best half-educated country in the world.</b>
-> <p><i>Nicholas M. Butler</i></p>
+> <b>For Forms of Government let fools contest whatever is best administered is best.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
