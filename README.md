@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be a morning-talk-show host. I love Kelly Ripa's job. She gets to live in New York and has this amazing job hosting a talk show.</b>
-> <p><i>Ellie Kemper</i></p>
+> <b>I've never had any illusions about being a lead actor in films, because lead actors have to be of a certain kind. Apart from the beauty of looks and figure, which I cannot claim to have, there's just a particular kind of ordinary-Joe quality that a film star needs to have.</b>
+> <p><i>Stephen Fry</i></p>
 
 <br>
