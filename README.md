@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Future shock is the shattering stress and disorientation that we induce in individuals by subjecting them to too much change in too short a time.</b>
-> <p><i>Alvin Toffler</i></p>
+> <b>Dad needs to show an incredible amount of respect and humor and friendship toward his mate so the kids understand their parents are sexy, they're fun, they do things together, they're best friends. Kids learn by example. If I respect Mom, they're going to respect Mom.</b>
+> <p><i>Tim Allen</i></p>
 
 <br>
