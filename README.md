@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that the biggest beauty essential is as simple as a good, full night's sleep.</b>
-> <p><i>Angela Kinsey</i></p>
+> <b>As far as the girls in my grade, it was always kind of an on-and-off thing. When all this came up, it was kind of hard. My guy friends and my family friends have been so amazing and supportive.</b>
+> <p><i>Stacie Orrico</i></p>
 
 <br>
