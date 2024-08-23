@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What a lovely surprise to finally discover how unlonely being alone can be.</b>
-> <p><i>Ellen Burstyn</i></p>
+> <b>What Englishman will give his mind to politics as long as he can afford to keep a motor car?</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
