@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For Forms of Government let fools contest whatever is best administered is best.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>I am endlessly busy, bringing up five young kids, and trying to keep up with the three older ones. I still spend most of my life driving car pools.</b>
+> <p><i>Danielle Steel</i></p>
 
 <br>
