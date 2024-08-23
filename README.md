@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What Englishman will give his mind to politics as long as he can afford to keep a motor car?</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>I didn't want to go out and change anything. I just wanted to make the music that was part of my background, which was rock and blues and hip-hop.</b>
+> <p><i>Kid Rock</i></p>
 
 <br>
