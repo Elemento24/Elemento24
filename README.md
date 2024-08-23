@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the best parts of growing older? You can flirt all you like since you've become harmless.</b>
-> <p><i>Liz Smith</i></p>
+> <b>It is amazing how complete is the delusion that beauty is goodness.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
