@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hope everyone that is reading this is having a really good day. And if you are not, just know that in every new minute that passes you have an opportunity to change that.</b>
-> <p><i>Gillian Anderson</i></p>
+> <b>Even a liberal reporter is a patriot, wants the best for this country. And people, your fair and balanced friends at Fox, don't fully understand that.</b>
+> <p><i>Mike Wallace</i></p>
 
 <br>
