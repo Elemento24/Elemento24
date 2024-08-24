@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That attitude does not exist so much today, but in those days there was a very sharp distinction between basic physics and applied physics. Columbia did not deal with applied physics.</b>
-> <p><i>Gordon Gould</i></p>
+> <b>To be able to endure odium is the first art to be learned by those who aspire to power.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
