@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The two elements the traveler first captures in the big city are extra human architecture and furious rhythm. Geometry and anguish.</b>
-> <p><i>Federico Garcia Lorca</i></p>
+> <b>The image is where you have dinner at night, who you're seeing. It's what car you drive and how you dress. People in the industry sell that, and it creates a dream. There's nothing else.</b>
+> <p><i>Elle Macpherson</i></p>
 
 <br>
