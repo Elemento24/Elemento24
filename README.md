@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even a liberal reporter is a patriot, wants the best for this country. And people, your fair and balanced friends at Fox, don't fully understand that.</b>
-> <p><i>Mike Wallace</i></p>
+> <b>The two elements the traveler first captures in the big city are extra human architecture and furious rhythm. Geometry and anguish.</b>
+> <p><i>Federico Garcia Lorca</i></p>
 
 <br>
