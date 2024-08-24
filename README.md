@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Painting is easy when you don't know how, but very difficult when you do.</b>
-> <p><i>Edgar Degas</i></p>
+> <b>We're one of the forces that causes actors to fasten seat belts before they take off chasing the bad guy in the car... or removes some of the cigarette smoking on television.</b>
+> <p><i>Gerald McRaney</i></p>
 
 <br>
