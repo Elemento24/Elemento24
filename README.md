@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was a kid, for my birthday every year, my mother made me pasta bechamel, which is rigatoni with a white cream sauce.</b>
-> <p><i>Giada De Laurentiis</i></p>
+> <b>Always write angry letters to your enemies. Never mail them.</b>
+> <p><i>James Fallows</i></p>
 
 <br>
