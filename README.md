@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be able to endure odium is the first art to be learned by those who aspire to power.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>A private railroad car is not an acquired taste. One takes to it immediately.</b>
+> <p><i>Eleanor Robson Belmont</i></p>
 
 <br>
