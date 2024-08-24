@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're one of the forces that causes actors to fasten seat belts before they take off chasing the bad guy in the car... or removes some of the cigarette smoking on television.</b>
-> <p><i>Gerald McRaney</i></p>
+> <b>What is sure is that technological change is accelerating in all directions and, like children playing in a fountain, consumers are reveling in the experience.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
