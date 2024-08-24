@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always write angry letters to your enemies. Never mail them.</b>
-> <p><i>James Fallows</i></p>
+> <b>Don't clap too hard - it's a very old building.</b>
+> <p><i>John Osborne</i></p>
 
 <br>
