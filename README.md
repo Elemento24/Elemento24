@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is like art. You have to work hard to keep it simple and still have meaning.</b>
-> <p><i>Charles de Lint</i></p>
+> <b>Painting is easy when you don't know how, but very difficult when you do.</b>
+> <p><i>Edgar Degas</i></p>
 
 <br>
