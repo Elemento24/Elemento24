@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The image is where you have dinner at night, who you're seeing. It's what car you drive and how you dress. People in the industry sell that, and it creates a dream. There's nothing else.</b>
-> <p><i>Elle Macpherson</i></p>
+> <b>The world changes in direct proportion to the number of people willing to be honest about their lives.</b>
+> <p><i>Armistead Maupin</i></p>
 
 <br>
