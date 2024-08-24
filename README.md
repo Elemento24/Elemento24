@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to go to the mall, you have to take security. But it's always cool. The kids are amazing.</b>
-> <p><i>Aaliyah</i></p>
+> <b>Death comes not to the living soul, nor age to the loving heart.</b>
+> <p><i>Phoebe Cary</i></p>
 
 <br>
