@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It never made sense to me that someone would achieve any kind of success in show business, only to become a jerk.</b>
-> <p><i>Josh Radnor</i></p>
+> <b>Washington is still very much a male-oriented culture. Being from Los Angeles, I think it is less so there - there is less attachment to tradition, perhaps, there is more flexibility, more acceptance of change generally. That is partly because of Hollywood.</b>
+> <p><i>Dee Dee Myers</i></p>
 
 <br>
