@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I saw 'The Artist.' It's really beautiful and it's all done to the letter with all the silent film techniques. The costumes were amazing and the dog is so good.</b>
-> <p><i>Florence Welch</i></p>
+> <b>I'm an introvert at heart... And show business - even though I've loved it so much - has always been hard for me.</b>
+> <p><i>Roy Rogers</i></p>
 
 <br>
