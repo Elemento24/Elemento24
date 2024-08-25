@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is a visual art, and the buildings speak for themselves.</b>
-> <p><i>Julia Morgan</i></p>
+> <b>The best place to find God is in a garden. You can dig for him there.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
