@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mum is my beauty icon, because she represents what I think beauty is.</b>
-> <p><i>Bar Refaeli</i></p>
+> <b>I'm definitely open to change, but at the same time I am quite stubborn.</b>
+> <p><i>Andy Murray</i></p>
 
 <br>
