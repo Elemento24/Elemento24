@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work of art is a scream of freedom.</b>
-> <p><i>Christo</i></p>
+> <b>I get heartfelt thanks from all kinds of people. Today I heard from a waitress in Georgia who has lost her job and is trying to figure out how her local bank can change the terms on her credit card, and I heard from a physicist at a major research university who wants to explain a better theory of financial stress tests.</b>
+> <p><i>Elizabeth Warren</i></p>
 
 <br>
