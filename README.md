@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman can't be alone. She needs a man. A man and a woman support and strengthen each other. She just can't do it by herself.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>I have found the best way to give advice to your children is to find out what they want and then advise them to do it.</b>
+> <p><i>Harry S. Truman</i></p>
 
 <br>
