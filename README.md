@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the things I like enormously about Bob Weinstein is that that he's the only studio head I have ever known who will change his mind and say he was wrong.</b>
-> <p><i>Dean Koontz</i></p>
+> <b>It never made sense to me that someone would achieve any kind of success in show business, only to become a jerk.</b>
+> <p><i>Josh Radnor</i></p>
 
 <br>
