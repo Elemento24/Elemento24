@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I drank a lot when I was a teenager and I don't drink any more, because that's when I thought, you know, I'm gonna end up a car wreck.</b>
-> <p><i>Kristin Davis</i></p>
+> <b>In old age we are like a batch of letters that someone has sent. We are no longer in the past, we have arrived.</b>
+> <p><i>Knut Hamsun</i></p>
 
 <br>
