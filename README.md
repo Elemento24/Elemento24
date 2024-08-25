@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For every minute you remain angry, you give up sixty seconds of peace of mind.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>I hate the idea that you shouldn't wear something just because you're a certain age.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
