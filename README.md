@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm an introvert at heart... And show business - even though I've loved it so much - has always been hard for me.</b>
-> <p><i>Roy Rogers</i></p>
+> <b>I love producing. I am loving doing that. I think that is my most natural space in the business. I just love producing or editing and that's where I thrive.</b>
+> <p><i>Will Smith</i></p>
 
 <br>
