@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to change the way your banking system is regulated, if you want to learn the mistakes of what's gone wrong, then you have to change your government.</b>
-> <p><i>George Osborne</i></p>
+> <b>If you want to be certain, you should never get married. You should never change jobs. In fact, you might as well just stay home. Because I don't know anybody who is certain. That need to be certain is just procrastination.</b>
+> <p><i>Mark Burnett</i></p>
 
 <br>
