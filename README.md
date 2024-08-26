@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is eerie being all but alone in Westminster Abbey. Without the tourists, there are only the dead, many of them kings and queens. They speak powerfully and put my thoughts into vivid perspective.</b>
-> <p><i>A. N. Wilson</i></p>
+> <b>There are worlds of experience beyond the world of the aggressive man, beyond history, and beyond science. The moods and qualities of nature and the revelations of great art are equally difficult to define we can grasp them only in the depths of our perceptive spirit.</b>
+> <p><i>Ansel Adams</i></p>
 
 <br>
