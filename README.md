@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body is an amazing machine... If you eat the right things your body will perform incredibly well!</b>
-> <p><i>Shawn Johnson</i></p>
+> <b>Performing doesn't turn me on. It's an egomaniac business, filled with prima donnas - including this one.</b>
+> <p><i>Dan Rather</i></p>
 
 <br>
