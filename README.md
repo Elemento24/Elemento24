@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing can stop the man with the right mental attitude from achieving his goal nothing on earth can help the man with the wrong mental attitude.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>The body is an amazing machine... If you eat the right things your body will perform incredibly well!</b>
+> <p><i>Shawn Johnson</i></p>
 
 <br>
