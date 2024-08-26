@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is art? Nature concentrated.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>It is eerie being all but alone in Westminster Abbey. Without the tourists, there are only the dead, many of them kings and queens. They speak powerfully and put my thoughts into vivid perspective.</b>
+> <p><i>A. N. Wilson</i></p>
 
 <br>
