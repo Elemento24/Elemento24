@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love producing. I am loving doing that. I think that is my most natural space in the business. I just love producing or editing and that's where I thrive.</b>
-> <p><i>Will Smith</i></p>
+> <b>You want to balance the budget in this country? We change the salary structure for Congress and the President. Every year they don't balance the budget, we don't pay them.</b>
+> <p><i>Daniel Keys Moran</i></p>
 
 <br>
