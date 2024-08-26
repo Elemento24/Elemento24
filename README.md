@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art can never exist without naked beauty displayed.</b>
-> <p><i>William Blake</i></p>
+> <b>Business, you know, may bring you money, but friendship hardly ever does.</b>
+> <p><i>Jane Austen</i></p>
 
 <br>
