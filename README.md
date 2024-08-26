@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Performing doesn't turn me on. It's an egomaniac business, filled with prima donnas - including this one.</b>
-> <p><i>Dan Rather</i></p>
+> <b>Some years ago there was a study to discover the most stressful occupation. It turned out not to be the head of a large business, football manager or prime minister, but rather: bus driver.</b>
+> <p><i>Jonathan Sacks</i></p>
 
 <br>
