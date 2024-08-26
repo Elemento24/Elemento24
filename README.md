@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would rather be adorned by beauty of character than jewels. Jewels are the gift of fortune, while character comes from within.</b>
-> <p><i>Plautus</i></p>
+> <b>It's not the destination that matters. It's the change of scene.</b>
+> <p><i>Brian Eno</i></p>
 
 <br>
