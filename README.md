@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business, you know, may bring you money, but friendship hardly ever does.</b>
-> <p><i>Jane Austen</i></p>
+> <b>Nothing can stop the man with the right mental attitude from achieving his goal nothing on earth can help the man with the wrong mental attitude.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
