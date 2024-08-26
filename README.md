@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The smart thing in the art world is to have one good idea and never have another.</b>
-> <p><i>Brian Eno</i></p>
+> <b>I was living on the wrong side of the tracks in Evanston, Illinois, in a home for boys. We had these Jackson 5 records. I really related to their voices - they were about my age, but they were doing it.</b>
+> <p><i>Eddie Vedder</i></p>
 
 <br>
