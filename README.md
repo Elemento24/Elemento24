@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was living on the wrong side of the tracks in Evanston, Illinois, in a home for boys. We had these Jackson 5 records. I really related to their voices - they were about my age, but they were doing it.</b>
-> <p><i>Eddie Vedder</i></p>
+> <b>I've never run into a guy who could win at the top level in anything today and didn't have the right attitude, didn't give it everything he had, at least while he was doing it wasn't prepared and didn't have the whole program worked out.</b>
+> <p><i>Ted Turner</i></p>
 
 <br>
