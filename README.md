@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of jazz is that it's malleable. People are addressing it to suit their own personalities.</b>
-> <p><i>Pat Metheny</i></p>
+> <b>The smart thing in the art world is to have one good idea and never have another.</b>
+> <p><i>Brian Eno</i></p>
 
 <br>
