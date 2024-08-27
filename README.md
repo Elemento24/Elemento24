@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you're a stay-at-home mother you have to pretend it's really boring, but it's not. It's enriching and fulfilling, and an amazing experience. And then when you're a working mother you have to pretend that you feel guilty all day long.</b>
-> <p><i>Amy Poehler</i></p>
+> <b>I drank a lot when I was a teenager and I don't drink any more, because that's when I thought, you know, I'm gonna end up a car wreck.</b>
+> <p><i>Kristin Davis</i></p>
 
 <br>
