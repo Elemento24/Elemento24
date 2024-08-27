@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Leadership is the other side of the coin of loneliness, and he who is a leader must always act alone. And acting alone, accept everything alone.</b>
-> <p><i>Ferdinand Marcos</i></p>
+> <b>I don't know whether it's age or maturity, but I certainly find myself committed more and more to the looser forms of Western democracy at any price.</b>
+> <p><i>John le Carre</i></p>
 
 <br>
