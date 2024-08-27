@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With 'The Host,' I think the actors could be really big names. That would be cool. I'd love to see Robert Redford put on a beard and be Jeb he would be amazing... Matt Damon has some very Jared-esque qualities, and then Casey Affleck as Ian and Ben Affleck as Kyle. Imagine the interplay.</b>
-> <p><i>Stephenie Meyer</i></p>
+> <b>A work of art which did not begin in emotion is not art.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
