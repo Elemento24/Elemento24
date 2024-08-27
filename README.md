@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No real social change has ever been brought about without a revolution... revolution is but thought carried into action.</b>
-> <p><i>Emma Goldman</i></p>
+> <b>There is only one thing for us to do, and that is to do our level best right where we are every day of our lives To use our best judgment, and then to trust the rest to that Power which holds the forces of the universe in his hands.</b>
+> <p><i>Orison Swett Marden</i></p>
 
 <br>
