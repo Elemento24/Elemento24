@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As I grew older, I realized that it was much better to insist on the genuine forms of nature, for simplicity is the greatest adornment of art.</b>
-> <p><i>Albrecht Durer</i></p>
+> <b>I think I'm a bit less inhibited, and not thinking too much before speaking. It's not about being shameful, I'm just a bit more unabashedly myself because of this thing, and it probably started at age 15. I can be around people and say what I think without fear.</b>
+> <p><i>Kristen Stewart</i></p>
 
 <br>
