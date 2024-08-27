@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My learning process is by eye alone it's not at all scientific.</b>
-> <p><i>Miuccia Prada</i></p>
+> <b>Leadership is the other side of the coin of loneliness, and he who is a leader must always act alone. And acting alone, accept everything alone.</b>
+> <p><i>Ferdinand Marcos</i></p>
 
 <br>
