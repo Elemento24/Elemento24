@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Genius worship is the inevitable sign of an uncreative age.</b>
-> <p><i>Clive Bell</i></p>
+> <b>Everybody kind of perceives me as being angry. It's not anger, it's motivation.</b>
+> <p><i>Roger Clemens</i></p>
 
 <br>
