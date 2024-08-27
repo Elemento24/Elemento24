@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know whether it's age or maturity, but I certainly find myself committed more and more to the looser forms of Western democracy at any price.</b>
-> <p><i>John le Carre</i></p>
+> <b>Genius worship is the inevitable sign of an uncreative age.</b>
+> <p><i>Clive Bell</i></p>
 
 <br>
