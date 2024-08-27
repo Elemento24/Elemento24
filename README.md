@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have to do more than just elect a new President if we truly want to change this country.</b>
-> <p><i>Dan Quayle</i></p>
+> <b>With 'The Host,' I think the actors could be really big names. That would be cool. I'd love to see Robert Redford put on a beard and be Jeb he would be amazing... Matt Damon has some very Jared-esque qualities, and then Casey Affleck as Ian and Ben Affleck as Kyle. Imagine the interplay.</b>
+> <p><i>Stephenie Meyer</i></p>
 
 <br>
