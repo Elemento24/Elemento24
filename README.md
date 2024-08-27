@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody kind of perceives me as being angry. It's not anger, it's motivation.</b>
-> <p><i>Roger Clemens</i></p>
+> <b>We have to do more than just elect a new President if we truly want to change this country.</b>
+> <p><i>Dan Quayle</i></p>
 
 <br>
