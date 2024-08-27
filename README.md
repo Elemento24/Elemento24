@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A work of art which did not begin in emotion is not art.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Animals have a much better attitude to life and death than we do. They know when their time has come. We are the ones that suffer when they pass, but it's a healing kind of grief that enables us to deal with other griefs that are not so easy to grab hold of.</b>
+> <p><i>Emmylou Harris</i></p>
 
 <br>
