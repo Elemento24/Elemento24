@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a certain age at which a child looks at you in all earnestness and delivers a long, pleased speech in all the true inflections of spoken English, but with not one recognizable syllable.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>Having George W. Bush giving a lecture on business ethics is like having a leper give you a facial, it just doesn't work!</b>
+> <p><i>Robin Williams</i></p>
 
 <br>
