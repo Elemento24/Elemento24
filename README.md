@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Standards of beauty are arbitrary. Body shame exists only to the extent that our physiques don't match our own beliefs about how we should look.</b>
-> <p><i>Martha Beck</i></p>
+> <b>When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.</b>
+> <p><i>Charles R. Swindoll</i></p>
 
 <br>
