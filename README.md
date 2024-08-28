@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The two operations of our understanding, intuition and deduction, on which alone we have said we must rely in the acquisition of knowledge.</b>
-> <p><i>Rene Descartes</i></p>
+> <b>But it was great, we sit in the same dressing room where, like, Johnny Cash sat and Willie Nelson and all those guys. That was in itself something amazing - I was on the same space these guys stood on, ya know?</b>
+> <p><i>Alan Vega</i></p>
 
 <br>
