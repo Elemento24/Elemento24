@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.</b>
-> <p><i>Charles R. Swindoll</i></p>
+> <b>Theatre, when it is at its best, takes a lot of beating - the live experience and the shared collective experience of live storytelling is really special when it is good. Particularly here in New York because the audiences are amazing, very vocal and very engaged, and that makes theatre very exciting.</b>
+> <p><i>Dan Stevens</i></p>
 
 <br>
