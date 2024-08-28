@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is a short-lived tyranny.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>I have never denied my background or my culture. I have taught my child to embrace her Mexican heritage, to love my first language, Spanish, to learn about Mexican history, music, folk art, food, and even the Mexican candy I grew up with.</b>
+> <p><i>Salma Hayek</i></p>
 
 <br>
