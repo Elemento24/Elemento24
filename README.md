@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fame can be just so annoying because people are so critical of you. You can't just say, 'hi'. You say hi and people whisper' man did you see the way she said hi? What an attitude.</b>
-> <p><i>Juliette Lewis</i></p>
+> <b>I like to be alone so I can write. But focus can hurt you. I don't want to be some stress casualty in early middle age.</b>
+> <p><i>James Ellroy</i></p>
 
 <br>
