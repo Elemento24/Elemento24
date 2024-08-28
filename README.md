@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When superstition is allowed to perform the task of old age in dulling the human temperament, we can say goodbye to all excellence in poetry, in painting, and in music.</b>
-> <p><i>Denis Diderot</i></p>
+> <b>Our fears are an amazing gift of the imagination... a way of glimpsing what might be the future when there's still time to influence how that future will play out.</b>
+> <p><i>Karen Thompson Walker</i></p>
 
 <br>
