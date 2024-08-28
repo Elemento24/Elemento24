@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is cruel, you know, that music should be so beautiful. It has the beauty of loneliness of pain: of strength and freedom. The beauty of disappointment and never-satisfied love. The cruel beauty of nature and everlasting beauty of monotony.</b>
-> <p><i>Benjamin Britten</i></p>
+> <b>Be modest, humble, simple. Control your anger.</b>
+> <p><i>Abraham Cahan</i></p>
 
 <br>
