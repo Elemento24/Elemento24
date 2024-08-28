@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I realised one day that men are emotional cripples. We can't express ourselves emotionally, we can only do it with anger and humour. Emotional stability and expression comes from women.</b>
-> <p><i>Bob Hoskins</i></p>
+> <b>Standards of beauty are arbitrary. Body shame exists only to the extent that our physiques don't match our own beliefs about how we should look.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
