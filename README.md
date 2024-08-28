@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have never denied my background or my culture. I have taught my child to embrace her Mexican heritage, to love my first language, Spanish, to learn about Mexican history, music, folk art, food, and even the Mexican candy I grew up with.</b>
-> <p><i>Salma Hayek</i></p>
+> <b>I realised one day that men are emotional cripples. We can't express ourselves emotionally, we can only do it with anger and humour. Emotional stability and expression comes from women.</b>
+> <p><i>Bob Hoskins</i></p>
 
 <br>
