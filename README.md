@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Are we changing the idea of what beauty is? Let's hope so. I'm not the typical Hollywood beauty. Let's hope we're looking at the insides of people a little more.</b>
-> <p><i>Anne Heche</i></p>
+> <b>The preparation, commitment and desire to win will be no less than the last time I drove a grand prix car in anger.</b>
+> <p><i>Nigel Mansell</i></p>
 
 <br>
