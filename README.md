@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I liken myself to Henry Ford and the auto industry, I give you 90 percent of what most people need.</b>
-> <p><i>Adam Osborne</i></p>
+> <b>It is just as important that business keep out of government as that government keep out of business.</b>
+> <p><i>Herbert Hoover</i></p>
 
 <br>
