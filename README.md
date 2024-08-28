@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But it was great, we sit in the same dressing room where, like, Johnny Cash sat and Willie Nelson and all those guys. That was in itself something amazing - I was on the same space these guys stood on, ya know?</b>
-> <p><i>Alan Vega</i></p>
+> <b>Fame can be just so annoying because people are so critical of you. You can't just say, 'hi'. You say hi and people whisper' man did you see the way she said hi? What an attitude.</b>
+> <p><i>Juliette Lewis</i></p>
 
 <br>
