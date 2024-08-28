@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Theatre, when it is at its best, takes a lot of beating - the live experience and the shared collective experience of live storytelling is really special when it is good. Particularly here in New York because the audiences are amazing, very vocal and very engaged, and that makes theatre very exciting.</b>
-> <p><i>Dan Stevens</i></p>
+> <b>The two operations of our understanding, intuition and deduction, on which alone we have said we must rely in the acquisition of knowledge.</b>
+> <p><i>Rene Descartes</i></p>
 
 <br>
