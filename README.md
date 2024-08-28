@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Further, Take heed that you faithfully perform the business you have to do in the world, from a regard to the commands of God and not from an ambitious desire of being esteemed better than others.</b>
-> <p><i>David Brainerd</i></p>
+> <b>The beauty of a face is not a separate quality but a relation or proportion of qualities to each other.</b>
+> <p><i>George H. Mead</i></p>
 
 <br>
