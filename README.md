@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the tiniest little thing can change the course of your day, which can change the course of your year, which can change who you are.</b>
-> <p><i>Taylor Swift</i></p>
+> <b>Treaties, agreements and organizations to help settle disputes may be necessary, but they often favor the interests of business over citizens.</b>
+> <p><i>David Suzuki</i></p>
 
 <br>
