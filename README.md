@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's easy to make a buck. It's a lot tougher to make a difference.</b>
-> <p><i>Tom Brokaw</i></p>
+> <b>I don't believe in the after life, although I am bringing a change of underwear.</b>
+> <p><i>Woody Allen</i></p>
 
 <br>
