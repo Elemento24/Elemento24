@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our fears are an amazing gift of the imagination... a way of glimpsing what might be the future when there's still time to influence how that future will play out.</b>
-> <p><i>Karen Thompson Walker</i></p>
+> <b>Beauty is an outward gift which is seldom despised, except by those to whom it has been refused.</b>
+> <p><i>Edward Gibbon</i></p>
 
 <br>
