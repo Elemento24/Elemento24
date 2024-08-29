@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In art as in love, instinct is enough.</b>
-> <p><i>Anatole France</i></p>
+> <b>In the age of the individual's liquidation, the question of individuality must be raised anew.</b>
+> <p><i>Theodor Adorno</i></p>
 
 <br>
