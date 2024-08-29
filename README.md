@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We were really grown up for our age and it was an incredible special band.</b>
-> <p><i>Joan Jett</i></p>
+> <b>Wisdom I know is social. She seeks her fellows. But Beauty is jealous, and illy bears the presence of a rival.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
