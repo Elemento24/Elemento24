@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being a blockhead is sometimes the best security against being cheated by a man of wit.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>A major advantage of age is learning to accept people without passing judgment.</b>
+> <p><i>Liz Carpenter</i></p>
 
 <br>
