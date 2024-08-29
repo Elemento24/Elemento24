@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A major advantage of age is learning to accept people without passing judgment.</b>
-> <p><i>Liz Carpenter</i></p>
+> <b>I know I did the right thing by taking time off to raise my son. But it also came at a price. I turned down many opportunities over the years because I didn't want to leave him for long periods of time. And in Hollywood, as in any business, the calls stop coming when you don't answer.</b>
+> <p><i>Arsenio Hall</i></p>
 
 <br>
