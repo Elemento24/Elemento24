@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Treaties, agreements and organizations to help settle disputes may be necessary, but they often favor the interests of business over citizens.</b>
-> <p><i>David Suzuki</i></p>
+> <b>To help yourself, you must be yourself. Be the best that you can be. When you make a mistake, learn from it, pick yourself up and move on.</b>
+> <p><i>Dave Pelzer</i></p>
 
 <br>
