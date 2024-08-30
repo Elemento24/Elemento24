@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Economically, it's more expensive to make movies. I hope digital movies change that.</b>
-> <p><i>Ang Lee</i></p>
+> <b>I have no requirements for a style of architecture.</b>
+> <p><i>Michael Graves</i></p>
 
 <br>
