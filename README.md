@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best sermon is preached by the minister who has a sermon to preach and not by the man who has to preach a sermon.</b>
-> <p><i>William Feather</i></p>
+> <b>Even though I build buildings and I pursue my architecture, I pursue it as an artist. I deliberately keep a tiny studio. I don't want to be an architectural firm. I want to remain an artist.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
