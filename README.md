@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As human beings we do change, grow, adapt, perhaps even learn and become wiser.</b>
-> <p><i>Wendy Carlos</i></p>
+> <b>The best sermon is preached by the minister who has a sermon to preach and not by the man who has to preach a sermon.</b>
+> <p><i>William Feather</i></p>
 
 <br>
