@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty can make you powerful in a way that isn't good for you. Being OK is better for the person I have become.</b>
-> <p><i>Felicity Huffman</i></p>
+> <b>I've got a wife, four kids, a business, and a baseball career.</b>
+> <p><i>Curt Schilling</i></p>
 
 <br>
