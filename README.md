@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's best to leap into something you know you love. You might change your mind later, but that is the privilege of youth.</b>
-> <p><i>Charles Kuralt</i></p>
+> <b>Our Lord has written the promise of resurrection, not in books alone, but in every leaf in springtime.</b>
+> <p><i>Martin Luther</i></p>
 
 <br>
