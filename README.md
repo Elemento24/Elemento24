@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In 29 years, I had recorded over 2,200 songs. I was amazed.</b>
-> <p><i>Kate Smith</i></p>
+> <b>Beauty can make you powerful in a way that isn't good for you. Being OK is better for the person I have become.</b>
+> <p><i>Felicity Huffman</i></p>
 
 <br>
