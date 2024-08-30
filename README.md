@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ted Danson is amazing. He's incredible.</b>
-> <p><i>Alison Brie</i></p>
+> <b>In 29 years, I had recorded over 2,200 songs. I was amazed.</b>
+> <p><i>Kate Smith</i></p>
 
 <br>
