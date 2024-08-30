@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our Lord has written the promise of resurrection, not in books alone, but in every leaf in springtime.</b>
-> <p><i>Martin Luther</i></p>
+> <b>It's really amazing that in the age of unbelief, as a smart man called it, there isn't even more fraud. After all, with no God, there's no one to ever call you to account, and no accounting at all if you can get away with it.</b>
+> <p><i>Ben Stein</i></p>
 
 <br>
