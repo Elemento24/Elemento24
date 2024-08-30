@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even though I build buildings and I pursue my architecture, I pursue it as an artist. I deliberately keep a tiny studio. I don't want to be an architectural firm. I want to remain an artist.</b>
-> <p><i>Maya Lin</i></p>
+> <b>Too many people say to their brokers, I can't deal with this. Take my money. Do what you want. That's the worst attitude you can have.</b>
+> <p><i>Maria Bartiromo</i></p>
 
 <br>
