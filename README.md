@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man does not live by soap alone and hygiene, or even health, is not much good unless you can take a healthy view of it or, better still, feel a healthy indifference to it.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>Of the individual poems, some are more lyric and some are more descriptive or narrative. Each poem is fixed in a moment. All those moments written or read together take on the movement and architecture of a narrative.</b>
+> <p><i>Marilyn Hacker</i></p>
 
 <br>
