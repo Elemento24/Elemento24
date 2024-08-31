@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why is it you feel like a dope if you laugh alone, but that's usually how you end up crying?</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>The terrifying and edible beauty of Art Nouveau architecture.</b>
+> <p><i>Salvador Dali</i></p>
 
 <br>
