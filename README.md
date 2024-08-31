@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One-third of Americans have already been forced to change their lifestyle because their disposable income is gone. A guy can't go to the corner bar after a rough day at work to have a beer, that's gone to oil!</b>
-> <p><i>Terry McAuliffe</i></p>
+> <b>The educator must believe in the potential power of his pupil, and he must employ all his art in seeking to bring his pupil to experience this power.</b>
+> <p><i>Alfred Adler</i></p>
 
 <br>
