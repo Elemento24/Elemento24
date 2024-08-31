@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Big dress, cocktails, party - I love that. It is my work, but my work allow me to have glamour, to wear beautiful and amazing dresses, to go to big ceremonies.</b>
-> <p><i>Paz Vega</i></p>
+> <b>If you get a diagnosis, get on a therapy, keep a good attitude and keep your sense of humor.</b>
+> <p><i>Teri Garr</i></p>
 
 <br>
