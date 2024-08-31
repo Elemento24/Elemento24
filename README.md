@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I'm past the age of getting lost.</b>
-> <p><i>Amanda Seyfried</i></p>
+> <b>You can't fake it when you're alone with God, you know.</b>
+> <p><i>Jim Bakker</i></p>
 
 <br>
