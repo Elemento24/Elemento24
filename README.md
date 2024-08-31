@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Plant and your spouse plants with you weed and you weed alone.</b>
-> <p><i>Jean-Jacques Rousseau</i></p>
+> <b>The future hasn't happened yet and the past is gone. So I think the only moment we have is right here and now, and I try to make the best of those moments, the moments that I'm in.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
