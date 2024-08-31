@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't fake it when you're alone with God, you know.</b>
-> <p><i>Jim Bakker</i></p>
+> <b>I feel lazy when I'm not working. I learned all my business sense from my dad. He always believed in me, and I think the last thing he said to me before he passed away was, 'I know you're gonna be OK. I'm not worried about you'.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
