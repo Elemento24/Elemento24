@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am at that age when you panic at the slightest thing.</b>
-> <p><i>Rupert Everett</i></p>
+> <b>I love a beautiful gown on stage, and luckily I've been fortunate to wear some amazing dresses.</b>
+> <p><i>Leona Lewis</i></p>
 
 <br>
