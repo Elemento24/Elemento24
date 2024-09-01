@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the best provision for old age.</b>
-> <p><i>Aristotle</i></p>
+> <b>It is not the young people that degenerate they are not spoiled till those of mature age are already sunk into corruption.</b>
+> <p><i>Charles de Montesquieu</i></p>
 
 <br>
