@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And remember don't high post when you're far from home, and high posting when you're all alone.</b>
-> <p><i>Mos Def</i></p>
+> <b>The signs of outstanding leadership appear primarily among the followers. Are the followers reaching their potential? Are they learning? Serving? Do they achieve the required results? Do they change with grace? Manage conflict?</b>
+> <p><i>Max de Pree</i></p>
 
 <br>
