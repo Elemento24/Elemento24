@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that people don't know how to do anything anymore. My father was a janitor. He could take a car apart and put it back together. He could build a house in the back yard. Today, if you ask people what they know, they say, 'I know how to hire someone.'</b>
-> <p><i>Walter Mosley</i></p>
+> <b>Life is an exciting business, and most exciting when it is lived for others.</b>
+> <p><i>Helen Keller</i></p>
 
 <br>
