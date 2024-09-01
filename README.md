@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I felt I had to share Idaho with my friend from New York because he'd shared New York with me, so I was going to share the beauty of nature with a man who went to museums and clubs late at night. But there was nothing to do where I lived at night.</b>
-> <p><i>Mariel Hemingway</i></p>
+> <b>The world we see that seems so insane is the result of a belief system that is not working. To perceive the world differently, we must be willing to change our belief system, let the past slip away, expand our sense of now, and dissolve the fear in our minds.</b>
+> <p><i>William James</i></p>
 
 <br>
