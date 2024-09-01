@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So many women keep their anger inside and let it build until they explode and then people blow them off again.</b>
-> <p><i>Rosalind Wiseman</i></p>
+> <b>I think physical comedy is an amazing asset because it tells a story that's more universal than just language and dialogue. I grew up watching Charlie Chaplin and Buster Keaton. They're very powerful figures in my life.</b>
+> <p><i>Josh Gad</i></p>
 
 <br>
