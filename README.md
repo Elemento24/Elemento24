@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dear motorist on the information superhighway. I'm sorry I do not have a car.</b>
-> <p><i>Eric San</i></p>
+> <b>Surround yourself with good people. Whether they're the best or not, people are capable of learning if they've got good hearts and they're good souls.</b>
+> <p><i>Kid Rock</i></p>
 
 <br>
