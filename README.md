@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love a beautiful gown on stage, and luckily I've been fortunate to wear some amazing dresses.</b>
-> <p><i>Leona Lewis</i></p>
+> <b>When we do the best that we can, we never know what miracle is wrought in our life, or in the life of another.</b>
+> <p><i>Helen Keller</i></p>
 
 <br>
