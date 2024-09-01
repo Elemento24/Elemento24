@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't worry about people stealing your ideas. If your ideas are any good, you'll have to ram them down people's throats.</b>
-> <p><i>Howard Aiken</i></p>
+> <b>The driver of a racing car is a component. When I first began, I used to grip the steering wheel firmly, and I changed gear so hard that I damaged my hand.</b>
+> <p><i>Juan Manuel Fangio</i></p>
 
 <br>
