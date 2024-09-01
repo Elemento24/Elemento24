@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The driver of a racing car is a component. When I first began, I used to grip the steering wheel firmly, and I changed gear so hard that I damaged my hand.</b>
-> <p><i>Juan Manuel Fangio</i></p>
+> <b>So many women keep their anger inside and let it build until they explode and then people blow them off again.</b>
+> <p><i>Rosalind Wiseman</i></p>
 
 <br>
