@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is an exciting business, and most exciting when it is lived for others.</b>
-> <p><i>Helen Keller</i></p>
+> <b>Your life is yours and yours alone. Rise up and live it.</b>
+> <p><i>Terry Goodkind</i></p>
 
 <br>
