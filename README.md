@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not the young people that degenerate they are not spoiled till those of mature age are already sunk into corruption.</b>
-> <p><i>Charles de Montesquieu</i></p>
+> <b>I am at that age when you panic at the slightest thing.</b>
+> <p><i>Rupert Everett</i></p>
 
 <br>
