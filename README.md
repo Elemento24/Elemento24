@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It doesn't take money to have style, it just takes a really good eye. Sometimes you can find amazing culinary antiques that will make it feel like an old French kitchen.</b>
-> <p><i>Tyler Florence</i></p>
+> <b>I've always been ambitious since I was nine years old and that was never going to change.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
