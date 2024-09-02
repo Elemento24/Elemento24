@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people can sometimes really invade your space and kind of never leave you alone.</b>
-> <p><i>Julia Louis-Dreyfus</i></p>
+> <b>The American attitude towards efficiency and execution should always underlie architecture.</b>
+> <p><i>Helmut Jahn</i></p>
 
 <br>
