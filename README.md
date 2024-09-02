@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It used to happen in villages and towns in China that they would have - I guess you'd call them beauty contests - where all of the women of a particular village or town would be seated behind these screens or curtains with only their feet showing.</b>
-> <p><i>Lisa See</i></p>
+> <b>Far away there in the sunshine are my highest aspirations. I may not reach them, but I can look up and see their beauty, believe in them, and try to follow where they lead.</b>
+> <p><i>Louisa May Alcott</i></p>
 
 <br>
