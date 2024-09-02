@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the United States three new methods of transportation made their appearance at almost the same time - the steamboat, the canal boat, and the rail car.</b>
-> <p><i>John Moody</i></p>
+> <b>The aesthetic of architecture has to be rooted in a broader idea about human activities like walking, relaxing and communicating. Architecture thinks about how these activities can be given added value.</b>
+> <p><i>Thom Mayne</i></p>
 
 <br>
