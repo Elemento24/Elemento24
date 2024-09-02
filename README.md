@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the tests of leadership is the ability to recognize a problem before it becomes an emergency.</b>
-> <p><i>Arnold H. Glasow</i></p>
+> <b>With my wife I don't get no respect. I made a toast on her birthday to 'the best woman a man ever had.' The waiter joined me.</b>
+> <p><i>Rodney Dangerfield</i></p>
 
 <br>
