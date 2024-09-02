@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With my wife I don't get no respect. I made a toast on her birthday to 'the best woman a man ever had.' The waiter joined me.</b>
-> <p><i>Rodney Dangerfield</i></p>
+> <b>Despite the amazing diversity we're blessed with in this country, schools are still in large part segregated because of economic disparity. Sports are one of the few areas where kids are really given the opportunity to interact with those of different races and religions.</b>
+> <p><i>Steve Kerr</i></p>
 
 <br>
