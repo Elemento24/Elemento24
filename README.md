@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd kind of like to have a classic old muscle car. I think that would be fun.</b>
-> <p><i>Brooke Burke</i></p>
+> <b>It used to happen in villages and towns in China that they would have - I guess you'd call them beauty contests - where all of the women of a particular village or town would be seated behind these screens or curtains with only their feet showing.</b>
+> <p><i>Lisa See</i></p>
 
 <br>
