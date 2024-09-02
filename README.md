@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Far away there in the sunshine are my highest aspirations. I may not reach them, but I can look up and see their beauty, believe in them, and try to follow where they lead.</b>
-> <p><i>Louisa May Alcott</i></p>
+> <b>Some people can sometimes really invade your space and kind of never leave you alone.</b>
+> <p><i>Julia Louis-Dreyfus</i></p>
 
 <br>
