@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Hollywood, you play a mom, and the next thing you know, you're on 'The Golden Girls.' They age you so fast.</b>
-> <p><i>Gabrielle Union</i></p>
+> <b>Well, honey, I had the million dollar houses, I had the car, I had the horse, I had the barn I had everything. Was I set free? I didn't even know what that meant.</b>
+> <p><i>Taylor Dayne</i></p>
 
 <br>
