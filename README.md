@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, I was already so happy being chosen to do the issue itself, that when I got on the cover, it was even more of a surprise and even more amazing to me.</b>
-> <p><i>Heidi Klum</i></p>
+> <b>Power and beauty come from a very deep place.</b>
+> <p><i>Brooke Burke</i></p>
 
 <br>
