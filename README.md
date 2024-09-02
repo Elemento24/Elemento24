@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time, in general, has always been a central obsession of mine - what it does to people, how it can constitute a plot all on its own. So naturally, I am interested in old age.</b>
-> <p><i>Anne Tyler</i></p>
+> <b>Well, I was already so happy being chosen to do the issue itself, that when I got on the cover, it was even more of a surprise and even more amazing to me.</b>
+> <p><i>Heidi Klum</i></p>
 
 <br>
