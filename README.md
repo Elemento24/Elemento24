@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Surround yourself with good people. Whether they're the best or not, people are capable of learning if they've got good hearts and they're good souls.</b>
-> <p><i>Kid Rock</i></p>
+> <b>I'd kind of like to have a classic old muscle car. I think that would be fun.</b>
+> <p><i>Brooke Burke</i></p>
 
 <br>
