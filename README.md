@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, honey, I had the million dollar houses, I had the car, I had the horse, I had the barn I had everything. Was I set free? I didn't even know what that meant.</b>
-> <p><i>Taylor Dayne</i></p>
+> <b>Time, in general, has always been a central obsession of mine - what it does to people, how it can constitute a plot all on its own. So naturally, I am interested in old age.</b>
+> <p><i>Anne Tyler</i></p>
 
 <br>
