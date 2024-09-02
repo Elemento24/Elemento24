@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to understand the tone of the movie, because if it's supposed to be funny, it can be funny violent like the Home Alone stuff, but you have to really understand the tone of what you're doing and make the action work for that and for the character.</b>
-> <p><i>David R. Ellis</i></p>
+> <b>It is not the beauty of a building you should look at its the construction of the foundation that will stand the test of time.</b>
+> <p><i>David Allan Coe</i></p>
 
 <br>
