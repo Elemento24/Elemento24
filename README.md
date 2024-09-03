@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage has no guarantees. If that's what you're looking for, go live with a car battery.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>The only thing I fear more than change is no change. The business of being static makes me nuts.</b>
+> <p><i>Twyla Tharp</i></p>
 
 <br>
