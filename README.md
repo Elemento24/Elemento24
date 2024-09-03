@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am afraid we must make the world honest before we can honestly say to our children that honesty is the best policy.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>Youth is an amazing thing: I think back on when we did The Lost Boys, and I didn't think I could do anything wrong.</b>
+> <p><i>Kiefer Sutherland</i></p>
 
 <br>
