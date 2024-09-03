@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only thing I fear more than change is no change. The business of being static makes me nuts.</b>
-> <p><i>Twyla Tharp</i></p>
+> <b>If the First Amendment means anything, it means that a state has no business telling a man, sitting alone in his house, what books he may read or what films he may watch.</b>
+> <p><i>Thurgood Marshall</i></p>
 
 <br>
