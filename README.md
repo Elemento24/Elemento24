@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's the most unhappy people who most fear change.</b>
-> <p><i>Mignon McLaughlin</i></p>
+> <b>My son is now an 'entrepreneur.' That's what you're called when you don't have a job.</b>
+> <p><i>Ted Turner</i></p>
 
 <br>
