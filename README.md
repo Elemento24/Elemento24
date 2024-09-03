@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The place of chess in the society is closely related to the attitude of young people towards our game.</b>
-> <p><i>Boris Spassky</i></p>
+> <b>The seven marvels that best represent man's achievements over the last 2,000 years will be determined by Internet vote... so look for Howard Stern's Private Parts to come in No. 1.</b>
+> <p><i>Jon Stewart</i></p>
 
 <br>
