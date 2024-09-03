@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth is an amazing thing: I think back on when we did The Lost Boys, and I didn't think I could do anything wrong.</b>
-> <p><i>Kiefer Sutherland</i></p>
+> <b>I am an artist. The track is my canvas, and the car is my brush.</b>
+> <p><i>Graham Hill</i></p>
 
 <br>
