@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I meant that, given the circumstances of my childhood, I had the illusion that it's easier to be alone. To have your relationships be casual and also to pose as a solitary person, because it was more romantic. You know, I was raised on the idea of the ramblin' man and the loner.</b>
-> <p><i>Steve Martin</i></p>
+> <b>Of course this is Vegas and it is the melting pot for all over the world, but people from all over the world know Donny and Marie. It is amazing. I have been in the business a long time to realize careers can be fleeting. Five years is a long career nowadays for some people, and here we are still going strong after 40 years.</b>
+> <p><i>Donny Osmond</i></p>
 
 <br>
