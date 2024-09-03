@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am very rich because of 'Chic' - artistically as well as spiritually. It's been an amazing life.</b>
-> <p><i>Nile Rodgers</i></p>
+> <b>The best things in life are silly.</b>
+> <p><i>Scott Adams</i></p>
 
 <br>
