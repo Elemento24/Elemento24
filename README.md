@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a huge, active imagination, and I think I'm really scared of being alone because if I'm left to my own devices, I'll just turn into a madwoman.</b>
-> <p><i>Claire Danes</i></p>
+> <b>Develop an attitude of gratitude, and give thanks for everything that happens to you, knowing that every step forward is a step toward achieving something bigger and better than your current situation.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
