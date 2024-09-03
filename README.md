@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The balance of private good and general welfare is at the bottom of civilized morals but the morals of the Heroic Age are founded on individuality, and on nothing else.</b>
-> <p><i>Lascelles Abercrombie</i></p>
+> <b>I have a huge, active imagination, and I think I'm really scared of being alone because if I'm left to my own devices, I'll just turn into a madwoman.</b>
+> <p><i>Claire Danes</i></p>
 
 <br>
