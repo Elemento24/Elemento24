@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To really be centered and to really work well and to think about the kinds of things that I need to think about, I need to spend large amounts of time alone.</b>
-> <p><i>Donna Tartt</i></p>
+> <b>I think I meant that, given the circumstances of my childhood, I had the illusion that it's easier to be alone. To have your relationships be casual and also to pose as a solitary person, because it was more romantic. You know, I was raised on the idea of the ramblin' man and the loner.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
