@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My son is now an 'entrepreneur.' That's what you're called when you don't have a job.</b>
-> <p><i>Ted Turner</i></p>
+> <b>To really be centered and to really work well and to think about the kinds of things that I need to think about, I need to spend large amounts of time alone.</b>
+> <p><i>Donna Tartt</i></p>
 
 <br>
