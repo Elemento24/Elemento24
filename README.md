@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hurt leads to bitterness, bitterness to anger, travel too far that road and the way is lost.</b>
-> <p><i>Terry Brooks</i></p>
+> <b>I mean, I don't think I'm alone when I look at the homeless person or the bum or the psychotic or the drunk or the drug addict or the criminal and see their baby pictures in my mind's eye. You don't think they were cute like every other baby?</b>
+> <p><i>Dustin Hoffman</i></p>
 
 <br>
