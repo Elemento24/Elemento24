@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Among all the tests President Obama faced in his first term, his biggest failure was climate change.</b>
-> <p><i>Jeff Goodell</i></p>
+> <b>Hurt leads to bitterness, bitterness to anger, travel too far that road and the way is lost.</b>
+> <p><i>Terry Brooks</i></p>
 
 <br>
