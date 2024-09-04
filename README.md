@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have girls who are concerned about how they look compared to models or what have you. It's my responsibility to teach them that beauty is more than superficial.</b>
-> <p><i>Martina McBride</i></p>
+> <b>There's nobody else on the face of this earth that's playing a sport at a highest level... with a transplant. That alone continues to inspire me, because I realize throughout the whole world the struggles that people are going through. I need to inspire them the best way I can.</b>
+> <p><i>Alonzo Mourning</i></p>
 
 <br>
