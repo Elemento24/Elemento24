@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I am traveling in a carriage, or walking after a good meal, or during the night when I cannot sleep it is on such occasions that ideas flow best and most abundantly.</b>
-> <p><i>Wolfgang Amadeus Mozart</i></p>
+> <b>I have girls who are concerned about how they look compared to models or what have you. It's my responsibility to teach them that beauty is more than superficial.</b>
+> <p><i>Martina McBride</i></p>
 
 <br>
