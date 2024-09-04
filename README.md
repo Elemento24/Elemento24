@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's nobody else on the face of this earth that's playing a sport at a highest level... with a transplant. That alone continues to inspire me, because I realize throughout the whole world the struggles that people are going through. I need to inspire them the best way I can.</b>
-> <p><i>Alonzo Mourning</i></p>
+> <b>A truly great book should be read in youth, again in maturity and once more in old age, as a fine building should be seen by morning light, at noon and by moonlight.</b>
+> <p><i>Robertson Davies</i></p>
 
 <br>
