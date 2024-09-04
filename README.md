@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I read and walked for miles at night along the beach, writing bad blank verse and searching endlessly for someone wonderful who would step out of the darkness and change my life. It never crossed my mind that that person could be me.</b>
-> <p><i>Anna Quindlen</i></p>
+> <b>The writer, when he is also an artist, is someone who admits what others don't dare reveal.</b>
+> <p><i>Elia Kazan</i></p>
 
 <br>
