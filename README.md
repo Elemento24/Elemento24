@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The writer, when he is also an artist, is someone who admits what others don't dare reveal.</b>
-> <p><i>Elia Kazan</i></p>
+> <b>In times of rapid change, experience could be your worst enemy.</b>
+> <p><i>J. Paul Getty</i></p>
 
 <br>
