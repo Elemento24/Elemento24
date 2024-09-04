@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Before the throne of the Almighty, man will be judged not by his acts but by his intentions. For God alone reads our hearts.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>One reason we resist making deliberate choices is that choice equals change and most of us, feeling the world is unpredictable enough, try to minimise the trauma of change in our personal lives.</b>
+> <p><i>Hugh Mackay</i></p>
 
 <br>
