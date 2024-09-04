@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business is a very tricky obstacle course, and you should be very clear about work begetting work. If you're not working, you're not interesting.</b>
-> <p><i>Elisabeth Rohm</i></p>
+> <b>When I am traveling in a carriage, or walking after a good meal, or during the night when I cannot sleep it is on such occasions that ideas flow best and most abundantly.</b>
+> <p><i>Wolfgang Amadeus Mozart</i></p>
 
 <br>
