@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think this is the biggest win in my career. To beat Venus in Wimbledon is just something amazing.</b>
-> <p><i>Elena Vesnina</i></p>
+> <b>But my most favourite pursuit, after my daily exertions at the Foundry, was Astronomy. There were frequently clear nights when the glorious objects in the Heavens were seen in most attractive beauty and brilliancy.</b>
+> <p><i>James Nasmyth</i></p>
 
 <br>
