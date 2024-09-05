@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You cannot be lonely if you like the person you're alone with.</b>
-> <p><i>Wayne Dyer</i></p>
+> <b>You end up as you deserve. In old age you must put up with the face, the friends, the health, and the children you have earned.</b>
+> <p><i>Judith Viorst</i></p>
 
 <br>
