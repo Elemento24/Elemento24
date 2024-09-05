@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a Japanese proverb that literally goes 'Raise the sail with your stronger hand,' meaning you must go after the opportunities that arise in life that you are best equipped to do.</b>
-> <p><i>Soichiro Honda</i></p>
+> <b>There has to be a measure of faith. That's what this business is all about: trusting in something that may never show up, that you have no concrete proof of.</b>
+> <p><i>Wentworth Miller</i></p>
 
 <br>
