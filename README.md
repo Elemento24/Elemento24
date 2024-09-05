@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think, if you put a camera in anyone's life and document it daily from the age of 21 to 27, there are going to be things that aren't always pretty.</b>
-> <p><i>Sienna Miller</i></p>
+> <b>There is a Japanese proverb that literally goes 'Raise the sail with your stronger hand,' meaning you must go after the opportunities that arise in life that you are best equipped to do.</b>
+> <p><i>Soichiro Honda</i></p>
 
 <br>
