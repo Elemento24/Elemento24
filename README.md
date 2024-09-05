@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do the best that you can in the place where you are, and be kind.</b>
-> <p><i>Scott Nearing</i></p>
+> <b>U2 is an original species... there are colours and feelings and emotional terrain that we occupy that is ours and ours alone.</b>
+> <p><i>Bono</i></p>
 
 <br>
