@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There has to be a measure of faith. That's what this business is all about: trusting in something that may never show up, that you have no concrete proof of.</b>
-> <p><i>Wentworth Miller</i></p>
+> <b>What Paris has done right is to make it awful to get around by car and awfully easy to get around by public transportation or by bike.</b>
+> <p><i>Serge Schmemann</i></p>
 
 <br>
