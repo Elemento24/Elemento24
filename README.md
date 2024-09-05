@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You end up as you deserve. In old age you must put up with the face, the friends, the health, and the children you have earned.</b>
-> <p><i>Judith Viorst</i></p>
+> <b>Those who know the least obey the best.</b>
+> <p><i>George Farquhar</i></p>
 
 <br>
