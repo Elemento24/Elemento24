@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a big fan of Mashable and TechCrunch and other outlets like that, but TechMeme obviously does an amazing job of aggregating.</b>
-> <p><i>Gary Vaynerchuk</i></p>
+> <b>Art is making something out of nothing and selling it.</b>
+> <p><i>Frank Zappa</i></p>
 
 <br>
