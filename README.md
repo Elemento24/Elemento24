@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But my most favourite pursuit, after my daily exertions at the Foundry, was Astronomy. There were frequently clear nights when the glorious objects in the Heavens were seen in most attractive beauty and brilliancy.</b>
-> <p><i>James Nasmyth</i></p>
+> <b>Simply by not owning three medium-sized castles in Tuscany I have saved enough money in the last forty years on insurance premiums alone to buy a medium-sized castle in Tuscany.</b>
+> <p><i>Ludwig Mies van der Rohe</i></p>
 
 <br>
