@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is making something out of nothing and selling it.</b>
-> <p><i>Frank Zappa</i></p>
+> <b>You cannot be lonely if you like the person you're alone with.</b>
+> <p><i>Wayne Dyer</i></p>
 
 <br>
