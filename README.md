@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Simply by not owning three medium-sized castles in Tuscany I have saved enough money in the last forty years on insurance premiums alone to buy a medium-sized castle in Tuscany.</b>
-> <p><i>Ludwig Mies van der Rohe</i></p>
+> <b>What could be more beautiful than a dear old lady growing wise with age? Every age can be enchanting, provided you live within it.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
