@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love physical kinds of comedy and getting down and dirty and doing stunts. When I was growing up, I was always getting into fights with guys and usually punching out boys my age because I was a lot bigger and tougher. So I'm naturally accustomed to putting myself into the headspace of a girl who can take care of herself.</b>
-> <p><i>Cameron Diaz</i></p>
+> <b>I think, if you put a camera in anyone's life and document it daily from the age of 21 to 27, there are going to be things that aren't always pretty.</b>
+> <p><i>Sienna Miller</i></p>
 
 <br>
