@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A compromise is the art of dividing a cake in such a way that everyone believes he has the biggest piece.</b>
-> <p><i>Ludwig Erhard</i></p>
+> <b>I love physical kinds of comedy and getting down and dirty and doing stunts. When I was growing up, I was always getting into fights with guys and usually punching out boys my age because I was a lot bigger and tougher. So I'm naturally accustomed to putting myself into the headspace of a girl who can take care of herself.</b>
+> <p><i>Cameron Diaz</i></p>
 
 <br>
