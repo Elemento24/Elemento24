@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>U2 is an original species... there are colours and feelings and emotional terrain that we occupy that is ours and ours alone.</b>
-> <p><i>Bono</i></p>
+> <b>Some people have such a talent for making the best of a bad situation that they go around creating bad situations so they can make the best of them.</b>
+> <p><i>Jean Kerr</i></p>
 
 <br>
