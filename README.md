@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who know the least obey the best.</b>
-> <p><i>George Farquhar</i></p>
+> <b>A compromise is the art of dividing a cake in such a way that everyone believes he has the biggest piece.</b>
+> <p><i>Ludwig Erhard</i></p>
 
 <br>
