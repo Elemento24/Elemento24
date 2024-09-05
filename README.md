@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What Paris has done right is to make it awful to get around by car and awfully easy to get around by public transportation or by bike.</b>
-> <p><i>Serge Schmemann</i></p>
+> <b>If you've ever made change in the offering plate, you might be a redneck.</b>
+> <p><i>Jeff Foxworthy</i></p>
 
 <br>
