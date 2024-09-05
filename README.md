@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's kind of awkward to eat alone in a restaurant because everybody's looking at me.</b>
-> <p><i>Louis C. K.</i></p>
+> <b>The world hates change, yet it is the only thing that has brought progress.</b>
+> <p><i>Charles Kettering</i></p>
 
 <br>
