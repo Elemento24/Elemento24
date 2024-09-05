@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What could be more beautiful than a dear old lady growing wise with age? Every age can be enchanting, provided you live within it.</b>
-> <p><i>Brigitte Bardot</i></p>
+> <b>Do the best that you can in the place where you are, and be kind.</b>
+> <p><i>Scott Nearing</i></p>
 
 <br>
