@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To the man who loves art for its own sake, it is frequently in its least important and lowliest manifestations that the keenest pleasure is to be derived.</b>
-> <p><i>Arthur Conan Doyle</i></p>
+> <b>Our nation is being led astray by ungodly judges, mayors and governors, who are given to change, defying the Constitution and substituting their own wicked agendas.</b>
+> <p><i>David Wilkerson</i></p>
 
 <br>
