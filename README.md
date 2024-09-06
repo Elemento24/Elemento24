@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world hates change, yet it is the only thing that has brought progress.</b>
-> <p><i>Charles Kettering</i></p>
+> <b>Why should 20-year-olds only be considered sexy? I think we get better with age.</b>
+> <p><i>Jenny McCarthy</i></p>
 
 <br>
