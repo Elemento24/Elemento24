@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age acquires no value save through thought and discipline.</b>
-> <p><i>James Truslow Adams</i></p>
+> <b>If you believe in what you are doing, then let nothing hold you up in your work. Much of the best work of the world has been done against seeming impossibilities. The thing is to get the work done.</b>
+> <p><i>Dale Carnegie</i></p>
 
 <br>
