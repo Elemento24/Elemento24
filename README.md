@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If we're given a number of circumstances to deal with, the brain goes into this mode of trying to find a solution, and it's amazing how good we are at it.</b>
-> <p><i>Jon Brion</i></p>
+> <b>I don't really think that there is anyone in the modern pop business who I feel I want to spar with.</b>
+> <p><i>George Michael</i></p>
 
 <br>
