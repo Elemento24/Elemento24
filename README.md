@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why should 20-year-olds only be considered sexy? I think we get better with age.</b>
-> <p><i>Jenny McCarthy</i></p>
+> <b>I have to live with both my selves as best I may.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
