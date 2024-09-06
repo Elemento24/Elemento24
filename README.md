@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our nation is being led astray by ungodly judges, mayors and governors, who are given to change, defying the Constitution and substituting their own wicked agendas.</b>
-> <p><i>David Wilkerson</i></p>
+> <b>If we're given a number of circumstances to deal with, the brain goes into this mode of trying to find a solution, and it's amazing how good we are at it.</b>
+> <p><i>Jon Brion</i></p>
 
 <br>
