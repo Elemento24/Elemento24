@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate show business.</b>
-> <p><i>Joni Mitchell</i></p>
+> <b>It is well known that Beauty does not look with a good grace on the timid advances of Humour.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
