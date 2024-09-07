@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can not believe that war is the best solution. No one won the last war, and no one will win the next war.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>I think Polanski's an amazing director.</b>
+> <p><i>David Duchovny</i></p>
 
 <br>
