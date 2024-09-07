@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is well known that Beauty does not look with a good grace on the timid advances of Humour.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>No great movement designed to change the world can bear to be laughed at or belittled. Mockery is a rust that corrodes all it touches.</b>
+> <p><i>Milan Kundera</i></p>
 
 <br>
