@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the greatest amount of pressure is the pressure I place on myself. So in a way I chose to be alone.</b>
-> <p><i>Cathy Freeman</i></p>
+> <b>I think of art, at its most significant, as a DEW line, a Distant Early Warning system that can always be relied on to tell the old culture what is beginning to happen to it.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
