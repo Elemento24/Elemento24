@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Young women from a very young age are taught that life will be easier if you can just turn on the charming smile and say very little and be complacent and docile and sweet.</b>
-> <p><i>Amber Heard</i></p>
+> <b>There are a lot of people with a lot of money, and I'm amazed they don't understand what a great pleasure it can be to give.</b>
+> <p><i>Robert Mondavi</i></p>
 
 <br>
