@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you see a struggle that you may be having personally put on a big screen and in a roomful of people, then it makes you feel less crazy or alone, because you're seeing that other people are dealing with it too. You get to see in this imaginary scenario how people might try and answer some questions or deal with some problems.</b>
-> <p><i>Michael Shannon</i></p>
+> <b>But I also like to shower my parents with presents. I bought them a beautiful car and a house.</b>
+> <p><i>Eva Herzigova</i></p>
 
 <br>
