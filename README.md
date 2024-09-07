@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I walked to Seward School first through fourth grade. It's just amazing to me now that we'd walk down 10th Avenue on Capitol Hill.</b>
-> <p><i>Stone Gossard</i></p>
+> <b>I hate show business.</b>
+> <p><i>Joni Mitchell</i></p>
 
 <br>
