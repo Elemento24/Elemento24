@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the malady of our age that the young are so busy teaching us that they have no time left to learn.</b>
-> <p><i>Eric Hoffer</i></p>
+> <b>I am just absolutely convinced that the best formula for giving us peace and preserving the American way of life is freedom, limited government, and minding our own business overseas.</b>
+> <p><i>Ron Paul</i></p>
 
 <br>
