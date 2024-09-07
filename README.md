@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>True life is lived when tiny changes occur.</b>
-> <p><i>Leo Tolstoy</i></p>
+> <b>I think the greatest amount of pressure is the pressure I place on myself. So in a way I chose to be alone.</b>
+> <p><i>Cathy Freeman</i></p>
 
 <br>
