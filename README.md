@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No great movement designed to change the world can bear to be laughed at or belittled. Mockery is a rust that corrodes all it touches.</b>
-> <p><i>Milan Kundera</i></p>
+> <b>True life is lived when tiny changes occur.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
