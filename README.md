@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The books that help you most are those which make you think that most. The hardest way of learning is that of easy reading but a great book that comes from a great thinker is a ship of thought, deep freighted with truth and beauty.</b>
-> <p><i>Pablo Neruda</i></p>
+> <b>I can not believe that war is the best solution. No one won the last war, and no one will win the next war.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
