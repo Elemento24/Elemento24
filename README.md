@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think sometimes when children grow up, their parents grow up. Mine grew up with me. We coexist. I don't try to change them anymore, and I don't think they try to change me. We agree to disagree.</b>
-> <p><i>Katy Perry</i></p>
+> <b>I walked to Seward School first through fourth grade. It's just amazing to me now that we'd walk down 10th Avenue on Capitol Hill.</b>
+> <p><i>Stone Gossard</i></p>
 
 <br>
