@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think of art, at its most significant, as a DEW line, a Distant Early Warning system that can always be relied on to tell the old culture what is beginning to happen to it.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>I always use my husband's cocoa butter stuff. He has amazing skin!</b>
+> <p><i>Idina Menzel</i></p>
 
 <br>
