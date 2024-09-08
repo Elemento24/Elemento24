@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The right to be let alone is the underlying principle of the Constitution's Bill of Rights.</b>
-> <p><i>Erwin Griswold</i></p>
+> <b>I love Lady Antebellum and Miranda Lambert - they write from the heart. But it's hard to find a country music lover in L.A. None of my friends really listen to it, and they hate getting in the car with me because I just blast Taylor Swift.</b>
+> <p><i>Lucy Hale</i></p>
 
 <br>
