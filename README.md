@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always had a huge fear of dying or becoming ill. The thing I'm most afraid of, though, is being alone, which I think a lot of performers fear. It's why we seek the limelight - so we're not alone, were adored. We're loved, so people want to be around us. The fear of being alone drives my life.</b>
-> <p><i>Jennifer Lopez</i></p>
+> <b>We all have a social mask, right? We put it on, we go out, put our best foot forward, our best image. But behind that social mask is a personal truth, what we really, really believe about who we are and what we're capable of.</b>
+> <p><i>Phil McGraw</i></p>
 
 <br>
