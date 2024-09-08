@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is when you're sitting at home on a Saturday night and the telephone rings and you hope it isn't for you.</b>
-> <p><i>Ogden Nash</i></p>
+> <b>That's your best friend and your worst enemy - your own brain.</b>
+> <p><i>Fred Durst</i></p>
 
 <br>
