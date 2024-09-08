@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cinema is still a very young art form with extraordinary techniques and very impressive special effects but sometimes it seems the soul has been taken out of things.</b>
-> <p><i>Catherine Deneuve</i></p>
+> <b>Middle age is when you're sitting at home on a Saturday night and the telephone rings and you hope it isn't for you.</b>
+> <p><i>Ogden Nash</i></p>
 
 <br>
