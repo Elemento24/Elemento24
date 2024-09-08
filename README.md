@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to be focused on being the dopest rapper in the game, and then once that became what I was, I wanted something different, and I wanted to become the best businessman in the game. I wanted to learn how to master the business like I mastered the rap.</b>
-> <p><i>Snoop Dogg</i></p>
+> <b>Right up until the time I retired at age 37, I felt like there were still things that I could do better.</b>
+> <p><i>Julius Erving</i></p>
 
 <br>
