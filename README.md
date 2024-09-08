@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All great change in America begins at the dinner table.</b>
-> <p><i>Ronald Reagan</i></p>
+> <b>Cinema is still a very young art form with extraordinary techniques and very impressive special effects but sometimes it seems the soul has been taken out of things.</b>
+> <p><i>Catherine Deneuve</i></p>
 
 <br>
