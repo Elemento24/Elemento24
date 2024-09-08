@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love Lady Antebellum and Miranda Lambert - they write from the heart. But it's hard to find a country music lover in L.A. None of my friends really listen to it, and they hate getting in the car with me because I just blast Taylor Swift.</b>
-> <p><i>Lucy Hale</i></p>
+> <b>I used to be focused on being the dopest rapper in the game, and then once that became what I was, I wanted something different, and I wanted to become the best businessman in the game. I wanted to learn how to master the business like I mastered the rap.</b>
+> <p><i>Snoop Dogg</i></p>
 
 <br>
