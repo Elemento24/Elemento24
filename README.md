@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Start with good people, lay out the rules, communicate with your employees, motivate them and reward them. If you do all those things effectively, you can't miss.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>When anger rushes unrestrained to action, like a hot steed, it stumbles on its way. The man of thought strikes deepest and strikes safely.</b>
+> <p><i>Richard Savage</i></p>
 
 <br>
