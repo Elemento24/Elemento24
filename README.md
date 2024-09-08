@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's your mental attitude. So many of us start dreading age in high school and that's a waste of a lovely life. 'Oh... I'm 30, oh, I'm 40, oh, 50.' Make the most of it.</b>
-> <p><i>Betty White</i></p>
+> <b>All men's miseries derive from not being able to sit in a quiet room alone.</b>
+> <p><i>Blaise Pascal</i></p>
 
 <br>
