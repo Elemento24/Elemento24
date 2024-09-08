@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Quite a lot of our contemporary culture is actually shot through with a resentment of limits and the passage of time, anger at what we can't do, fear or even disgust at growing old.</b>
-> <p><i>Rowan Williams</i></p>
+> <b>All great change in America begins at the dinner table.</b>
+> <p><i>Ronald Reagan</i></p>
 
 <br>
