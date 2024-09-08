@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Opera, next to Gothic architecture, is one of the strangest inventions of Western man. It could not have been foreseen by any logical process.</b>
-> <p><i>Kenneth Clark</i></p>
+> <b>With reality TV, sometimes it's amazing chemistry and you get these gems that turn out to be everything you hoped, and the camera loves them and they just blossom on the show. And then sometimes it's not all you envision.</b>
+> <p><i>Alison Sweeney</i></p>
 
 <br>
