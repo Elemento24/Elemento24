@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can be the best actor in the world, but if you don't have that one lucky moment, it kind of doesn't matter. There are a lot of amazing actors who will never get the chance to prove themselves because they won't have that one lucky moment.</b>
-> <p><i>Jeremy Irvine</i></p>
+> <b>Start with good people, lay out the rules, communicate with your employees, motivate them and reward them. If you do all those things effectively, you can't miss.</b>
+> <p><i>Lee Iacocca</i></p>
 
 <br>
