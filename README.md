@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like the idea of being alone. I like the idea of often being alone in all aspects of my life. I like to feel lonely. I like to need things.</b>
-> <p><i>Robert Plant</i></p>
+> <b>I didn't grow up thinking of movies as film, or art, but as movies, something to do on a Saturday afternoon.</b>
+> <p><i>Sydney Pollack</i></p>
 
 <br>
