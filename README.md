@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Teenage girls these days are more and more getting lured into thinking they should dumb themselves down, and that's going to attract the wrong kind of guy, and it's serious. It's serious business.</b>
-> <p><i>Danica McKellar</i></p>
+> <b>Like many women my age, I am 28 years old.</b>
+> <p><i>Mary Schmich</i></p>
 
 <br>
