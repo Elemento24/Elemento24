@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The splinter in your eye is the best magnifying-glass.</b>
-> <p><i>Theodor Adorno</i></p>
+> <b>History develops, art stands still.</b>
+> <p><i>E. M. Forster</i></p>
 
 <br>
