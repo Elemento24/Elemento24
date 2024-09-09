@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is the art of being well deceived and in order that the deception may succeed it must be habitual and uninterrupted.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>Laughter is not a bad beginning for a friendship, and it is the best ending for one.</b>
+> <p><i>Henry Ward Beecher</i></p>
 
 <br>
