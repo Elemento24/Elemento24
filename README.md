@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Laughter is not a bad beginning for a friendship, and it is the best ending for one.</b>
-> <p><i>Henry Ward Beecher</i></p>
+> <b>If a man's character is to be abused there's nobody like a relative to do the business.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
