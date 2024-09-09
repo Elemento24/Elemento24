@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some painters transform the sun into a yellow spot, others transform a yellow spot into the sun.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>The feeling of your baby taking nourishment from your body for the first time is amazing, and it remains the most touching moment of my life.</b>
+> <p><i>Laura Schlessinger</i></p>
 
 <br>
