@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't grow up thinking of movies as film, or art, but as movies, something to do on a Saturday afternoon.</b>
-> <p><i>Sydney Pollack</i></p>
+> <b>Teenage girls these days are more and more getting lured into thinking they should dumb themselves down, and that's going to attract the wrong kind of guy, and it's serious. It's serious business.</b>
+> <p><i>Danica McKellar</i></p>
 
 <br>
