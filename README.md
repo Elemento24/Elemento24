@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Imagine a thousand more such daily intrusions in your life, every hour and minute of every day, and you can grasp the source of this paranoia, this anger that could consume me at any moment if I lost control.</b>
-> <p><i>Jack Henry Abbott</i></p>
+> <b>Engineering, medicine, business, architecture and painting are concerned not with the necessary but with the contingent - not with how things are but with how they might be - in short, with design.</b>
+> <p><i>Herbert Simon</i></p>
 
 <br>
