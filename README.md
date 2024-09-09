@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>History develops, art stands still.</b>
-> <p><i>E. M. Forster</i></p>
+> <b>Life is the art of being well deceived and in order that the deception may succeed it must be habitual and uninterrupted.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
