@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The more you are in this business, the more humbled by it you become.</b>
-> <p><i>Meryl Streep</i></p>
+> <b>You know you're getting old when the candles cost more than the cake.</b>
+> <p><i>Bob Hope</i></p>
 
 <br>
