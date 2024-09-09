@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The truth is that we can learn to condition our minds, bodies, and emotions to link pain or pleasure to whatever we choose. By changing what we link pain and pleasure to, we will instantly change our behaviors.</b>
-> <p><i>Tony Robbins</i></p>
+> <b>I take cabs if I need to get somewhere or I take car service. I don't drive, I wouldn't mind riding a bike... People think that because you become an entertainer you gotta have this rock star thug image. I'm an artist, man. I'm going to live like an artist.</b>
+> <p><i>ASAP Rocky</i></p>
 
 <br>
