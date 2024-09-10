@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think art is the only thing that's spiritual in the world. And I refuse to forced to believe in other people's interpretations of God. I don't think anybody should be. No one person can own the copyright to what God means.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>An age which is incapable of poetry is incapable of any kind of literature except the cleverness of a decadence.</b>
+> <p><i>Raymond Chandler</i></p>
 
 <br>
