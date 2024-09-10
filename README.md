@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An age which is incapable of poetry is incapable of any kind of literature except the cleverness of a decadence.</b>
-> <p><i>Raymond Chandler</i></p>
+> <b>A visit to a cinema is a little outing in itself. It breaks the monotony of an afternoon or evening it gives a change from the surroundings of home, however pleasant.</b>
+> <p><i>Ivor Novello</i></p>
 
 <br>
