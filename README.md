@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life's an awfully lonesome affair. You come into the world alone and you go out of the world alone yet it seems to me you are more alone while living than even going and coming.</b>
-> <p><i>Emily Carr</i></p>
+> <b>My heroes are guys like Tom Hanks, Leonardo DiCaprio, and Matt Damon. These are amazing actors with amazing careers that every actor should aspire to. I'm not saying I'm going to get anywhere close. It's not going to be an easy feat. I'm just in awe of their careers.</b>
+> <p><i>Dylan O'Brien</i></p>
 
 <br>
