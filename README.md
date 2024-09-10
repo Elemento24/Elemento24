@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maria is the best reason to come home.</b>
-> <p><i>Arnold Schwarzenegger</i></p>
+> <b>I like Mr. Gorbachev, we can do business together.</b>
+> <p><i>Margaret Thatcher</i></p>
 
 <br>
