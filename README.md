@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>Generalised anger and frustration is something that gets you in the studio, and gets you to work - though it's not necessarily evident in anything that's finished.</b>
+> <p><i>Bruce Nauman</i></p>
 
 <br>
