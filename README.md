@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry a criticism of life under the conditions fixed for such a criticism by the laws of poetic truth and poetic beauty.</b>
-> <p><i>Matthew Arnold</i></p>
+> <b>It's the most amazing cast, a dream cast. We laugh all the time.</b>
+> <p><i>Nicole Sullivan</i></p>
 
 <br>
