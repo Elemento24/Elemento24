@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to keep one's word is not to give it.</b>
-> <p><i>Napoleon Bonaparte</i></p>
+> <b>I am a soul. I know well that what I shall render up to the grave is not myself. That which is myself will go elsewhere. Earth, thou art not my abyss!</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
