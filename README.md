@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Many people would no more think of entering journalism than the sewage business - which at least does us all some good.</b>
-> <p><i>Stephen Fry</i></p>
+> <b>Maria is the best reason to come home.</b>
+> <p><i>Arnold Schwarzenegger</i></p>
 
 <br>
