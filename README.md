@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The American Dream has run out of gas. The car has stopped. It no longer supplies the world with its images, its dreams, its fantasies. No more. It's over. It supplies the world with its nightmares now: the Kennedy assassination, Watergate, Vietnam.</b>
-> <p><i>J. G. Ballard</i></p>
+> <b>Life's an awfully lonesome affair. You come into the world alone and you go out of the world alone yet it seems to me you are more alone while living than even going and coming.</b>
+> <p><i>Emily Carr</i></p>
 
 <br>
