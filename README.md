@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The cat could very well be man's best friend but would never stoop to admitting it.</b>
-> <p><i>Doug Larson</i></p>
+> <b>The American Dream has run out of gas. The car has stopped. It no longer supplies the world with its images, its dreams, its fantasies. No more. It's over. It supplies the world with its nightmares now: the Kennedy assassination, Watergate, Vietnam.</b>
+> <p><i>J. G. Ballard</i></p>
 
 <br>
