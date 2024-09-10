@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was raised not to be rude, but I also try to get the best work out of people.</b>
-> <p><i>Dick Wolf</i></p>
+> <b>The cat could very well be man's best friend but would never stoop to admitting it.</b>
+> <p><i>Doug Larson</i></p>
 
 <br>
