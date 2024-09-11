@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got volumes on how not to behave. I've got more information now than a guy should have at my age.</b>
-> <p><i>Charlie Sheen</i></p>
+> <b>The process I go through in the art and the architecture, I actually want it to be almost childlike. Sometimes I think it's magical.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
