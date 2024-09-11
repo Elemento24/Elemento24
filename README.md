@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A leader does not deserve the name unless he is willing occasionally to stand alone.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>I think every girl needs to love herself, regardless of anything. Like if you're having a bad day, if you don't like your hair, if you don't have the best family situation, whatever, you have to love yourself and you can't do anything until you love yourself first.</b>
+> <p><i>Julianne Hough</i></p>
 
 <br>
