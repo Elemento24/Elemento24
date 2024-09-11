@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each one of us requires the spur of insecurity to force us to do our best.</b>
-> <p><i>Harold W. Dodds</i></p>
+> <b>There is nothing in socialism that a little age or a little money will not cure.</b>
+> <p><i>Will Durant</i></p>
 
 <br>
