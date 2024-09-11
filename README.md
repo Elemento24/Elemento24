@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lesser artists borrow, great artists steal.</b>
-> <p><i>Igor Stravinsky</i></p>
+> <b>I realised the bohemian life was not for me. I would look around at my friends, living like starving artists, and wonder, 'Where's the art?' They weren't doing anything. And there was so much interesting stuff to do, so much fun to be had... maybe I could even quit renting.</b>
+> <p><i>P. J. O'Rourke</i></p>
 
 <br>
