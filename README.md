@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think every girl needs to love herself, regardless of anything. Like if you're having a bad day, if you don't like your hair, if you don't have the best family situation, whatever, you have to love yourself and you can't do anything until you love yourself first.</b>
-> <p><i>Julianne Hough</i></p>
+> <b>High expectations weren't nurtured in my neck of nowhere back then - children weren't fawned over from an early age as 'gifted' and groomed for a prizewinning future self-esteem was considered something you had to pick from the garden yourself.</b>
+> <p><i>James Wolcott</i></p>
 
 <br>
