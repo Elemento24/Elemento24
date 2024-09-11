@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing in socialism that a little age or a little money will not cure.</b>
-> <p><i>Will Durant</i></p>
+> <b>We submit to the majority because we have to. But we are not compelled to call our attitude of subjection a posture of respect.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
