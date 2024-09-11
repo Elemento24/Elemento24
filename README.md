@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Usher is amazing. He's perfection to me as a performer. He gets down.</b>
-> <p><i>Ciara</i></p>
+> <b>The hardest part was when I was in high school not having a job and always being broke. I had to get to auditions without a car. I either took the bus or walked.</b>
+> <p><i>Cuba Gooding, Jr.</i></p>
 
 <br>
