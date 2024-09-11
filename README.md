@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The concept of two people living together for 25 years without a serious dispute suggests a lack of spirit only to be admired in sheep.</b>
-> <p><i>A. P. Herbert</i></p>
+> <b>I've made club songs, and I've made radio songs, and I've made the car songs.</b>
+> <p><i>T-Pain</i></p>
 
 <br>
