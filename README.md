@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The waking mind is the least serviceable in the arts.</b>
-> <p><i>Henry Miller</i></p>
+> <b>Clever men are good, but they are not the best.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
