@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life has got a habit of not standing hitched. You got to ride it like you find it. You got to change with it. If a day goes by that don't change some of your old notions for new ones, that is just about like trying to milk a dead cow.</b>
-> <p><i>Woody Guthrie</i></p>
+> <b>We should be proud that our Prophet came into the world with the message of Islam to change it for the better, and not for the worse, or to keep things as they are.</b>
+> <p><i>Abu Bakar Bashir</i></p>
 
 <br>
