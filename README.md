@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Turbulence is life force. It is opportunity. Let's love turbulence and use it for change.</b>
-> <p><i>Ramsey Clark</i></p>
+> <b>A leader does not deserve the name unless he is willing occasionally to stand alone.</b>
+> <p><i>Henry A. Kissinger</i></p>
 
 <br>
