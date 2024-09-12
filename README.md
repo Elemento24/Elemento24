@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're in a bad situation, don't worry it'll change. If you're in a good situation, don't worry it'll change.</b>
-> <p><i>John A. Simone, Sr.</i></p>
+> <b>People naturally change a lot during their 20s, so my songs reflect that progression.</b>
+> <p><i>Miranda Lambert</i></p>
 
 <br>
