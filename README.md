@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm bored or tired of being blonde, I'll throw on a wig. It's a lot less of a permanent way to change your look, and I have about 10 - all different colors, shapes, bobs, long hair, short, feathered.</b>
-> <p><i>Sara Blakely</i></p>
+> <b>If you're in a bad situation, don't worry it'll change. If you're in a good situation, don't worry it'll change.</b>
+> <p><i>John A. Simone, Sr.</i></p>
 
 <br>
