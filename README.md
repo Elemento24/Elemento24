@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of being sick is not the same as the art of getting well.</b>
-> <p><i>Tony Snow</i></p>
+> <b>During the 80s and 90s, we all became consumed with ourselves. In the 21st century, we've come back to simpler times. People are struggling economically and this has forced them to scale back the material aspects of their lives and realise the beauty of finding the simple joy in being with the people we love.</b>
+> <p><i>Julia Roberts</i></p>
 
 <br>
