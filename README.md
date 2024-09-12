@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's what I love from metal, and that's what I love from hip-hop. That's what I love from any music that's hard, that's got an edge to it-The attitude in it.</b>
-> <p><i>Kid Rock</i></p>
+> <b>When I'm bored or tired of being blonde, I'll throw on a wig. It's a lot less of a permanent way to change your look, and I have about 10 - all different colors, shapes, bobs, long hair, short, feathered.</b>
+> <p><i>Sara Blakely</i></p>
 
 <br>
