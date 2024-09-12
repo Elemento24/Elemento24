@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's impossible, I think, however much I'd become disillusioned politically or evolve into a post-political person, I don't think I'd ever change my view that socialism is the best political moment humans have ever come up with.</b>
-> <p><i>Christopher Hitchens</i></p>
+> <b>Beauty is altogether in the eye of the beholder.</b>
+> <p><i>Lew Wallace</i></p>
 
 <br>
