@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I wish I had, is that I wish I was a little more Greek, in that I wish I could lose my North American driven attitude and that I could be a little bit more poetic and laissez faire.</b>
-> <p><i>Nia Vardalos</i></p>
+> <b>I didn't have any success in show business until I was 30 to 31 years of age.</b>
+> <p><i>Adam Carolla</i></p>
 
 <br>
