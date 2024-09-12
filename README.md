@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Many individuals are doing what they can. But real success can only come if there is a change in our societies and in our economics and in our politics.</b>
-> <p><i>David Attenborough</i></p>
+> <b>Aging seems to be the only available way to live a long life.</b>
+> <p><i>Kitty O'Neill Collins</i></p>
 
 <br>
