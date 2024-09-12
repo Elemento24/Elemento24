@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart. There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart.</b>
-> <p><i>Kenzo Tange</i></p>
+> <b>I'm not angry, I'm not an angry person, but I do sometimes like playing with the perception of anger, as in pretending that I'm more angry than I actually am, and sometimes it works quite well.</b>
+> <p><i>Calvin Harris</i></p>
 
 <br>
