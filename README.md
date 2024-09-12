@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Example is the best precept.</b>
-> <p><i>Aesop</i></p>
+> <b>The art of being sick is not the same as the art of getting well.</b>
+> <p><i>Tony Snow</i></p>
 
 <br>
