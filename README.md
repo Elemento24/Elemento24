@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I haven't got the slightest idea how to change people, but still I keep a long list of prospective candidates just in case I should ever figure it out.</b>
-> <p><i>David Sedaris</i></p>
+> <b>No matter how good you are at planning, the pressure never goes away. So I don't fight it. I feed off it. I turn pressure into motivation to do my best.</b>
+> <p><i>Benjamin Carson</i></p>
 
 <br>
