@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, 'The Golden Girls' was a very unusual show to start on. I was young, and it was a show about old people, and it was a very traditional show, but it was also an amazing training ground for a joke-writer. It forced me to learn those skills.</b>
-> <p><i>Mitchell Hurwitz</i></p>
+> <b>What I wish I had, is that I wish I was a little more Greek, in that I wish I could lose my North American driven attitude and that I could be a little bit more poetic and laissez faire.</b>
+> <p><i>Nia Vardalos</i></p>
 
 <br>
