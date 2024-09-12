@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The one thing that unites all human beings, regardless of age, gender, religion or ethnic background, is that we all believe we are above-average drivers.</b>
-> <p><i>Dave Barry</i></p>
+> <b>Write in recollection and amazement for yourself.</b>
+> <p><i>Jack Kerouac</i></p>
 
 <br>
