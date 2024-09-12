@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wouldn't change anything. I've made mistakes, but thanks to those mistakes, I've learned.</b>
-> <p><i>Enrique Iglesias</i></p>
+> <b>I haven't got the slightest idea how to change people, but still I keep a long list of prospective candidates just in case I should ever figure it out.</b>
+> <p><i>David Sedaris</i></p>
 
 <br>
