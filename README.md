@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not drunk is he who from the floor - Can rise alone and still drink more But drunk is They, who prostrate lies, Without the power to drink or rise.</b>
-> <p><i>Thomas Love Peacock</i></p>
+> <b>Do not have evil-doers for friends, do not have low people for friends: have virtuous people for friends, have for friends the best of men.</b>
+> <p><i>George Santayana</i></p>
 
 <br>
