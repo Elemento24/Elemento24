@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People naturally change a lot during their 20s, so my songs reflect that progression.</b>
-> <p><i>Miranda Lambert</i></p>
+> <b>You know, 'The Golden Girls' was a very unusual show to start on. I was young, and it was a show about old people, and it was a very traditional show, but it was also an amazing training ground for a joke-writer. It forced me to learn those skills.</b>
+> <p><i>Mitchell Hurwitz</i></p>
 
 <br>
