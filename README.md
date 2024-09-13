@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There was a great complexity to my father. He was a devoted family man. But, in the same breath, he simply was not suited to an anchored life. He should have been somebody who had a backpack, an old map, a bit of change in his pocket and that was it - roaming the world.</b>
-> <p><i>Christian Bale</i></p>
+> <b>I grew up loving horses. I was relatively obsessed, starting with my rocking horse at age 2, all the way through my painting and drawing phase.</b>
+> <p><i>Diane Lane</i></p>
 
 <br>
