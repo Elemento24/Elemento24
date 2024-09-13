@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No one can avoid aging, but aging productively is something else.</b>
-> <p><i>Katharine Graham</i></p>
+> <b>There was a great complexity to my father. He was a devoted family man. But, in the same breath, he simply was not suited to an anchored life. He should have been somebody who had a backpack, an old map, a bit of change in his pocket and that was it - roaming the world.</b>
+> <p><i>Christian Bale</i></p>
 
 <br>
