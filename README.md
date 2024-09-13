@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ultimately, who you choose to be in a relationship with and what you do in your bedroom is your business.</b>
-> <p><i>Eminem</i></p>
+> <b>Of course, there is no question that Libya - and the world - will be better off with Gaddafi out of power. I, along with many other world leaders, have embraced that goal, and will actively pursue it through non-military means. But broadening our military mission to include regime change would be a mistake.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
