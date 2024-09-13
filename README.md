@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up loving horses. I was relatively obsessed, starting with my rocking horse at age 2, all the way through my painting and drawing phase.</b>
-> <p><i>Diane Lane</i></p>
+> <b>I wasn't looking to get into TV. My family was in the movie business, so I was never interested in that world.</b>
+> <p><i>Giada De Laurentiis</i></p>
 
 <br>
