@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If art is to nourish the roots of our culture, society must set the artist free to follow his vision wherever it takes him.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>Traveling to Russia and Germany and being able to see the world at a young age was really cool for me, and I really liked that.</b>
+> <p><i>Mia Wasikowska</i></p>
 
 <br>
