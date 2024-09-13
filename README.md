@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter how good you are at planning, the pressure never goes away. So I don't fight it. I feed off it. I turn pressure into motivation to do my best.</b>
-> <p><i>Benjamin Carson</i></p>
+> <b>If you love somebody, you love them. My parents had a 25-year age gap between them and my mum was the breadwinner, my dad the house husband. I'm a strong believer that a good relationship can work, whatever the situation.</b>
+> <p><i>Katherine Jenkins</i></p>
 
 <br>
