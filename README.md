@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course, there is no question that Libya - and the world - will be better off with Gaddafi out of power. I, along with many other world leaders, have embraced that goal, and will actively pursue it through non-military means. But broadening our military mission to include regime change would be a mistake.</b>
-> <p><i>Barack Obama</i></p>
+> <b>There was a great complexity to my father. He was a devoted family man. But, in the same breath, he simply was not suited to an anchored life. He should have been somebody who had a backpack, an old map, a bit of change in his pocket and that was it - roaming the world.</b>
+> <p><i>Christian Bale</i></p>
 
 <br>
