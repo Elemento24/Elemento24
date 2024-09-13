@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There was a great complexity to my father. He was a devoted family man. But, in the same breath, he simply was not suited to an anchored life. He should have been somebody who had a backpack, an old map, a bit of change in his pocket and that was it - roaming the world.</b>
-> <p><i>Christian Bale</i></p>
+> <b>President Obama clearly cannot run on his record. All he's offering is more of the same. That's not good. Look at the economy. It's stagnating. And so, what they're now going to try and do is bring this campaign down to little things, distractions, distortions, smear, fear, anger, frustration.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
