@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unless we love and are loved, each of us is alone, each of us is deeply lonely.</b>
-> <p><i>Mortimer Adler</i></p>
+> <b>Ultimately, who you choose to be in a relationship with and what you do in your bedroom is your business.</b>
+> <p><i>Eminem</i></p>
 
 <br>
