@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Traveling to Russia and Germany and being able to see the world at a young age was really cool for me, and I really liked that.</b>
-> <p><i>Mia Wasikowska</i></p>
+> <b>It's a lot of work to keep reinventing yourself and coming up with new stuff, but that's what it takes to be in show business.</b>
+> <p><i>Donny Osmond</i></p>
 
 <br>
