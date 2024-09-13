@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The real beauty of it - key to my life was playing key chords on a banjo. For somebody else it may be a golf club that mom and dad put in their hands or a baseball or ballet lessons. Real gift to give to me and put it in writing.</b>
-> <p><i>Vince Gill</i></p>
+> <b>It's the golden age of French cinema again but it's because Sarkozy had the guts to push through copyright law.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
