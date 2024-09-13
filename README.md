@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you love somebody, you love them. My parents had a 25-year age gap between them and my mum was the breadwinner, my dad the house husband. I'm a strong believer that a good relationship can work, whatever the situation.</b>
-> <p><i>Katherine Jenkins</i></p>
+> <b>What We want is to make it possible for our unfortunate people to live a life of industry for it is by steady work alone that we hope for our physical and moral rehabilitation. For this reason above all we have undertaken to rally our people around our ideal.</b>
+> <p><i>Theodor Herzl</i></p>
 
 <br>
