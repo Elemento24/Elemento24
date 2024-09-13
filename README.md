@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Go for a business that any idiot can run - because sooner or later, any idiot probably is going to run it.</b>
-> <p><i>Peter Lynch</i></p>
+> <b>Art produces ugly things which frequently become more beautiful with time. Fashion, on the other hand, produces beautiful things which always become ugly with time.</b>
+> <p><i>Jean Cocteau</i></p>
 
 <br>
