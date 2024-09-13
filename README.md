@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To look and feel my best, I watch my calories and exercise.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>I just had that conversation this morning with my doctor. I just got back from the hospital a half-hour ago, and nothing will make me happier than to replicate the DNA of my amazing husband. I'm optimistic.</b>
+> <p><i>Karen Duffy</i></p>
 
 <br>
