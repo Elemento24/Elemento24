@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>President Obama clearly cannot run on his record. All he's offering is more of the same. That's not good. Look at the economy. It's stagnating. And so, what they're now going to try and do is bring this campaign down to little things, distractions, distortions, smear, fear, anger, frustration.</b>
-> <p><i>Paul Ryan</i></p>
+> <b>Only in men's imagination does every truth find an effective and undeniable existence. Imagination, not invention, is the supreme master of art as of life.</b>
+> <p><i>Joseph Conrad</i></p>
 
 <br>
