@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art produces ugly things which frequently become more beautiful with time. Fashion, on the other hand, produces beautiful things which always become ugly with time.</b>
-> <p><i>Jean Cocteau</i></p>
+> <b>No real social change has ever been brought about without a revolution... revolution is but thought carried into action.</b>
+> <p><i>Emma Goldman</i></p>
 
 <br>
