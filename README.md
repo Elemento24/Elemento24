@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went to art school actually when I was sixteen years old.</b>
-> <p><i>David Hockney</i></p>
+> <b>I propose that the government should get out of the business of marrying people and, instead, only give legal status to civil unions.</b>
+> <p><i>Tony Campolo</i></p>
 
 <br>
