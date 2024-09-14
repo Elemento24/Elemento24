@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For years, I never knowingly went on a holiday. When I travelled, it was for work. Now I am a huge advocate, particularly to places which have amazing wildlife, such as Antarctica, India and Patagonia.</b>
-> <p><i>Miranda Richardson</i></p>
+> <b>That song is a story that shows how easily you could get slipped into being labeled as the bad guy, even though what you really trying to do is tell the bad guy to leave you alone.</b>
+> <p><i>Slick Rick</i></p>
 
 <br>
