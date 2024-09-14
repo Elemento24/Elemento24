@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't possibly fathom the ins and outs of a prepubescent beauty treatment until you've felt the strange but exhilarating tingle of a cottage-cheese-and-Pop-Rocks facial.</b>
-> <p><i>Sloane Crosley</i></p>
+> <b>If GM had kept up with technology like the computer industry has, we would all be driving $25 cars that got 1,000 MPG.</b>
+> <p><i>Bill Gates</i></p>
 
 <br>
