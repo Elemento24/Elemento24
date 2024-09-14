@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I propose that the government should get out of the business of marrying people and, instead, only give legal status to civil unions.</b>
-> <p><i>Tony Campolo</i></p>
+> <b>If you get a diagnosis, get on a therapy, keep a good attitude and keep your sense of humor.</b>
+> <p><i>Teri Garr</i></p>
 
 <br>
