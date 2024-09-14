@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I live in a kind of gay bubble. I live in a gay house, I drive a gay car. I eat gay food.</b>
-> <p><i>Julian Clary</i></p>
+> <b>And you can't complain about kissing Emma Watson. Isn't that what everyone in the world wants to do? I've known Emma for a few years. She's this amazing capacity of young and vibrant and brilliant, but also a bright, intelligent old soul.</b>
+> <p><i>Eddie Redmayne</i></p>
 
 <br>
