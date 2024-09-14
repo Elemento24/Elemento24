@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If GM had kept up with technology like the computer industry has, we would all be driving $25 cars that got 1,000 MPG.</b>
-> <p><i>Bill Gates</i></p>
+> <b>For years, I never knowingly went on a holiday. When I travelled, it was for work. Now I am a huge advocate, particularly to places which have amazing wildlife, such as Antarctica, India and Patagonia.</b>
+> <p><i>Miranda Richardson</i></p>
 
 <br>
