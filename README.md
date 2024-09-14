@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old friends are best.</b>
-> <p><i>John Selden</i></p>
+> <b>I went to art school actually when I was sixteen years old.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
