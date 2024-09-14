@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reba McEntire came through town when I lived in Texas. She had this amazing theatrical show with, like, 13 different wardrobe changes. I was eight and I was like, Wow, I wanna do that!</b>
-> <p><i>LeAnn Rimes</i></p>
+> <b>There's a side to this industry that nurtures divas who can't write. It's a big business.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
