@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Faith goes out through the window when beauty comes in at the door.</b>
-> <p><i>George Edward Moore</i></p>
+> <b>Intelligence is the ability to adapt to change.</b>
+> <p><i>Stephen Hawking</i></p>
 
 <br>
