@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That song is a story that shows how easily you could get slipped into being labeled as the bad guy, even though what you really trying to do is tell the bad guy to leave you alone.</b>
-> <p><i>Slick Rick</i></p>
+> <b>Reba McEntire came through town when I lived in Texas. She had this amazing theatrical show with, like, 13 different wardrobe changes. I was eight and I was like, Wow, I wanna do that!</b>
+> <p><i>LeAnn Rimes</i></p>
 
 <br>
