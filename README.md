@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rhetoric is the art of ruling the minds of men.</b>
-> <p><i>Plato</i></p>
+> <b>Later, my father died up in Marysville. So, my mother and I got in the car and came down to Hollywood.</b>
+> <p><i>Marc Davis</i></p>
 
 <br>
