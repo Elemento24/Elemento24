@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even truth needs to be clad in new garments if it is to appeal to a new age.</b>
-> <p><i>Georg C. Lichtenberg</i></p>
+> <b>Age gives you a great sense of proportion. You can be very hard on yourself when you're younger but now I just think 'well everybody's absolutely mad and I'm doing quite well'.</b>
+> <p><i>Steven Morrissey</i></p>
 
 <br>
