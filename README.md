@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The sad truth is that without complex business partnerships between African elites and European traders and commercial agents, the slave trade to the New World would have been impossible, at least on the scale it occurred.</b>
-> <p><i>Henry Louis Gates</i></p>
+> <b>An Army is a collection of armed men obliged to obey one man. Every change in the rules which impairs the principle weakens the army.</b>
+> <p><i>William Tecumseh Sherman</i></p>
 
 <br>
