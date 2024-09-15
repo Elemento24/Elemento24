@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I have to change my lifestyle, I don't want to live.</b>
-> <p><i>Robert Mapplethorpe</i></p>
+> <b>Religion is the possibility of the removal of every ground of confidence except confidence in God alone.</b>
+> <p><i>Karl Barth</i></p>
 
 <br>
