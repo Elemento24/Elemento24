@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wasim and Waqar were amazing bowlers. I would put them right up there with the best in the world.</b>
-> <p><i>Sachin Tendulkar</i></p>
+> <b>Yesterday we obeyed kings and bent our necks before emperors. But today we kneel only to truth, follow only beauty, and obey only love.</b>
+> <p><i>Khalil Gibran</i></p>
 
 <br>
