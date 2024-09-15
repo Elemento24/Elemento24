@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Later, my father died up in Marysville. So, my mother and I got in the car and came down to Hollywood.</b>
-> <p><i>Marc Davis</i></p>
+> <b>If I have to change my lifestyle, I don't want to live.</b>
+> <p><i>Robert Mapplethorpe</i></p>
 
 <br>
