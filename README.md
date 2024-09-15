@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't be as old as I am without waking up with a surprised look on your face every morning: 'Holy Christ, whaddya know - I'm still around!' It's absolutely amazing that I survived all the booze and smoking and the cars and the career.</b>
-> <p><i>Paul Newman</i></p>
+> <b>Art is good, bad, boring, ugly, useful to us or not.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
