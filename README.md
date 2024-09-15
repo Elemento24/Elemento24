@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been all over the world. I love New York, I love Paris, San Francisco, so many places. But there's no place like New Orleans. It's got the best food. It's got the best music. It's got the best people. It's got the most fun stuff to do.</b>
-> <p><i>Harry Connick, Jr.</i></p>
+> <b>Americans chose a free enterprise system designed to provide a quality of opportunity, not compel a quality of results. And that is why this is only place in the world where you can open up a business in the spare bedroom of your home.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
