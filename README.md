@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is good, bad, boring, ugly, useful to us or not.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Wasim and Waqar were amazing bowlers. I would put them right up there with the best in the world.</b>
+> <p><i>Sachin Tendulkar</i></p>
 
 <br>
