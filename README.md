@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yesterday we obeyed kings and bent our necks before emperors. But today we kneel only to truth, follow only beauty, and obey only love.</b>
-> <p><i>Khalil Gibran</i></p>
+> <b>Inflation is when you pay fifteen dollars for the ten-dollar haircut you used to get for five dollars when you had hair.</b>
+> <p><i>Sam Ewing</i></p>
 
 <br>
