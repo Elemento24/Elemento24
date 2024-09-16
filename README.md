@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being forced to work, and forced to do your best, will breed in you temperance and self-control, diligence and strength of will, cheerfulness and content, and a hundred virtues which the idle will never know.</b>
-> <p><i>Charles Kingsley</i></p>
+> <b>We would all like to vote for the best man but he is never a candidate.</b>
+> <p><i>Kin Hubbard</i></p>
 
 <br>
