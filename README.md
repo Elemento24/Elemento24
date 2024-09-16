@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without this spirit, Modernist architecture cannot fully exist. Since there is often a mismatch between the logic and the spirit of Modernism, I use architecture to reconcile the two.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>Beauty is the still birth of suffering, every woman knows that.</b>
+> <p><i>Emily Prager</i></p>
 
 <br>
