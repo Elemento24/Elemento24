@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are pros and cons of experience. A con is that you can't look at the business with a fresh pair of eyes and as objectively as if you were a new CEO. Fire yourself on a Friday night and come in on Monday morning as if a search firm put you there as a turn-around leader. Can you be objective and make the bold change?</b>
-> <p><i>Andrea Jung</i></p>
+> <b>You know, Johnny Depp has always been a massive inspiration for me and he's somebody who has produced an incredible amount of work, and every single piece that he does is amazing.</b>
+> <p><i>Jamie Campbell Bower</i></p>
 
 <br>
