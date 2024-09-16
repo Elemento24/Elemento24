@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like Mr. Gorbachev, we can do business together.</b>
-> <p><i>Margaret Thatcher</i></p>
+> <b>Wherever the art of medicine is loved, there is also a love of humanity.</b>
+> <p><i>Hippocrates</i></p>
 
 <br>
