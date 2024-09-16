@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you look good, you feel good. Confidence with what you're wearing is very important. If you feel good, you will always perform your best without worrying about anything.</b>
-> <p><i>Maria Sharapova</i></p>
+> <b>Without this spirit, Modernist architecture cannot fully exist. Since there is often a mismatch between the logic and the spirit of Modernism, I use architecture to reconcile the two.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
