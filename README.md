@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was 15, my parents left town for a month. They hid the keys to the car, but I found them. That month, I drove my stepdad's Thunderbird Super Coupe into Manhattan every day, and I would crank Cypress Hill as I flew around the city, racing the taxis.</b>
-> <p><i>Danny Masterson</i></p>
+> <b>It is the glory and good of Art, That Art remains the one way possible Of speaking truth, to mouths like mine at least.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
