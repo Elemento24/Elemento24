@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All species capable of grasping this fact manage better in the struggle for existence than those which rely upon their own strength alone: the wolf, which hunts in a pack, has a greater chance of survival than the lion, which hunts alone.</b>
-> <p><i>Christian Lous Lange</i></p>
+> <b>The time you spend alone with God will transform your character and increase your devotion. Then your integrity and godly behavior in an unbelieving world will make others long to know the Lord.</b>
+> <p><i>Charles Stanley</i></p>
 
 <br>
