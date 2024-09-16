@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We would all like to vote for the best man but he is never a candidate.</b>
-> <p><i>Kin Hubbard</i></p>
+> <b>Great effort springs naturally from great attitude.</b>
+> <p><i>Pat Riley</i></p>
 
 <br>
