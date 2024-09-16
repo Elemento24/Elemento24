@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wherever the art of medicine is loved, there is also a love of humanity.</b>
-> <p><i>Hippocrates</i></p>
+> <b>When you look good, you feel good. Confidence with what you're wearing is very important. If you feel good, you will always perform your best without worrying about anything.</b>
+> <p><i>Maria Sharapova</i></p>
 
 <br>
