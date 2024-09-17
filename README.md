@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life could be wonderful if people would leave you alone.</b>
-> <p><i>Charlie Chaplin</i></p>
+> <b>The Lord had the wonderful advantage of being able to work alone.</b>
+> <p><i>Kofi Annan</i></p>
 
 <br>
