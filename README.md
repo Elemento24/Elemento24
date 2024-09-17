@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fail I alone, in words and deeds? Why, all men strive and who succeeds?</b>
-> <p><i>Robert Browning</i></p>
+> <b>You put high heels on and you change.</b>
+> <p><i>Manolo Blahnik</i></p>
 
 <br>
