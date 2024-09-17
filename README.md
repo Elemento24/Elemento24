@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Lord had the wonderful advantage of being able to work alone.</b>
-> <p><i>Kofi Annan</i></p>
+> <b>Wisdom comes alone through suffering.</b>
+> <p><i>Aeschylus</i></p>
 
 <br>
