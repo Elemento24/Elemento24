@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You put high heels on and you change.</b>
-> <p><i>Manolo Blahnik</i></p>
+> <b>Turbulence is life force. It is opportunity. Let's love turbulence and use it for change.</b>
+> <p><i>Ramsey Clark</i></p>
 
 <br>
