@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love is the beauty of the soul.</b>
-> <p><i>Saint Augustine</i></p>
+> <b>Revived in this country the long forgotten beauties of Gothic architecture.</b>
+> <p><i>James Wyatt</i></p>
 
 <br>
