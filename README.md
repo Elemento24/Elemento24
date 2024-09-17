@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Los Angeles is such a town of show business, and I'm a terrible celebrity. I find it difficult - it's the beast that must be fed. There's this big wheel of pictures and articles that goes around, and you get pinned on it.</b>
-> <p><i>Julia Roberts</i></p>
+> <b>Life could be wonderful if people would leave you alone.</b>
+> <p><i>Charlie Chaplin</i></p>
 
 <br>
