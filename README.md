@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a dad, and I no longer see a way for my kids to even inherit the money that I'm making, let alone go out there, have an idea, and create it in their own lifetime.</b>
-> <p><i>Glenn Beck</i></p>
+> <b>Los Angeles is such a town of show business, and I'm a terrible celebrity. I find it difficult - it's the beast that must be fed. There's this big wheel of pictures and articles that goes around, and you get pinned on it.</b>
+> <p><i>Julia Roberts</i></p>
 
 <br>
