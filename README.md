@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that history has shape, order, and meaning that exceptional men, as much as economic forces, produce change and that passe abstractions like beauty, nobility, and greatness have a shifting but continuing validity.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>Wise anger is like fire from a flint: there is great ado to get it out and when it does come, it is out again immediately.</b>
+> <p><i>Edward Everett Hale</i></p>
 
 <br>
