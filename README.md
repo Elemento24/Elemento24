@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Punk was defined by an attitude rather than a musical style.</b>
-> <p><i>David Byrne</i></p>
+> <b>Old age has deformities enough of its own. It should never add to them the deformity of vice.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
