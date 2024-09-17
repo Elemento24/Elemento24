@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a kid. You don't get in this business for anonymity. It's not like I have posters of myself on the wall, but at the same time, I'm kind of ready for a little bit of it, but I worry for my little one, and my family - their privacy. That's what I'm more protective of.</b>
-> <p><i>Hugh Jackman</i></p>
+> <b>The future is not Big Government. Self-serving politicians. Powerful bureaucrats. This has been tried, tested throughout history. The result has always been disaster. President Obama, your agenda is not new. It's not change, and it's not hope.</b>
+> <p><i>Rush Limbaugh</i></p>
 
 <br>
