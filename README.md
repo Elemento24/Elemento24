@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What matters poverty? What matters anything to him who is enamoured of our art? Does he not carry in himself every joy and every beauty?</b>
-> <p><i>Sarah Bernhardt</i></p>
+> <b>But I absolutely believe that architecture is a social activity that has to do with some sort of communication or places of interaction, and that to change the environment is to change behaviour.</b>
+> <p><i>Thom Mayne</i></p>
 
 <br>
