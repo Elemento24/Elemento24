@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I drive an electric car.</b>
-> <p><i>David Duchovny</i></p>
+> <b>Al Gore, the former vice-president of the United States, lives in a mansion that uses more electricity than the average family's bungalow! David Suzuki rides on a bus that uses more fuel than a Smart car to get across Canada! Oh my God! And this is just the tip of the vanishing iceberg!</b>
+> <p><i>Linwood Barclay</i></p>
 
 <br>
