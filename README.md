@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The travel, the amazing work I have had the chance to do, the meetings with different people are all very inspiring and give me lots of positive energy.</b>
-> <p><i>Saskia de Brauw</i></p>
+> <b>I have always had a sense that we are all pretty much alone in life, particularly in adolescence.</b>
+> <p><i>Robert Cormier</i></p>
 
 <br>
