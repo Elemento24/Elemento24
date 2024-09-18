@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People can inhabit anything. And they can be miserable in anything and ecstatic in anything. More and more I think that architecture has nothing to do with it. Of course, that's both liberating and alarming.</b>
-> <p><i>Rem Koolhaas</i></p>
+> <b>Summer is a great time to visit art museums, which offer the refreshing rinse of swimming pools - only instead of cool water, you immerse yourself in art.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
