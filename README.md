@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love the art in yourself and not yourself in the art.</b>
-> <p><i>Constantin Stanislavski</i></p>
+> <b>The art of healing comes from nature, not from the physician. Therefore the physician must start from nature, with an open mind.</b>
+> <p><i>Paracelsus</i></p>
 
 <br>
