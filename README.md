@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Much good art got made while money ruled I like a lot of it, and hardship and poverty aren't virtues. The good news is that, since almost no one will be selling art, artists - especially emerging ones - won't have to think about turning out a consistent style or creating a brand. They'll be able to experiment as much as they want.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>To me, photography is an art of observation. It's about finding something interesting in an ordinary place... I've found it has little to do with the things you see and everything to do with the way you see them.</b>
+> <p><i>Elliott Erwitt</i></p>
 
 <br>
