@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anything that's different from your own realm of experience as a human being, whether it's driving a car or a boat, or using guns, anything that separates you from yourself and leads you more towards this character's existence is a big help.</b>
-> <p><i>Colin Farrell</i></p>
+> <b>Much good art got made while money ruled I like a lot of it, and hardship and poverty aren't virtues. The good news is that, since almost no one will be selling art, artists - especially emerging ones - won't have to think about turning out a consistent style or creating a brand. They'll be able to experiment as much as they want.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
