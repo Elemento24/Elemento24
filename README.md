@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The GTO is such an important car because it's a racing car and a touring car and that's pretty unusual.</b>
-> <p><i>Nick Mason</i></p>
+> <b>Aging has a wonderful beauty and we should have respect for that.</b>
+> <p><i>Eartha Kitt</i></p>
 
 <br>
