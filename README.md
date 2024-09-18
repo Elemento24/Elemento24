@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>John was the smartest and most amazing comedian I've ever worked with. I think more than teaching me about acting or comedy, he taught me about life and the love of people and respect of people.</b>
-> <p><i>Kaley Cuoco</i></p>
+> <b>It seems that when you get to a certain age you almost give yourself permission to misbehave and say what you think. People allow it, with very old people.</b>
+> <p><i>Julie Walters</i></p>
 
 <br>
