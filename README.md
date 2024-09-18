@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To understand the intensity of driving an F1 car, you have to be in it. When you're driving a 750hp machine at 200mph, the noise and the vibrations are incredible. The G-force when you take big corners is like someone trying to rip your head off. You hit the brakes, and it feels as if the skin is being pulled off your body.</b>
-> <p><i>Jenson Button</i></p>
+> <b>What matters poverty? What matters anything to him who is enamoured of our art? Does he not carry in himself every joy and every beauty?</b>
+> <p><i>Sarah Bernhardt</i></p>
 
 <br>
