@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A positive attitude is something everyone can work on, and everyone can learn how to employ it.</b>
-> <p><i>Joan Lunden</i></p>
+> <b>I drive an electric car.</b>
+> <p><i>David Duchovny</i></p>
 
 <br>
