@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A special kind of beauty exists which is born in language, of language, and for language.</b>
-> <p><i>Gaston Bachelard</i></p>
+> <b>The travel, the amazing work I have had the chance to do, the meetings with different people are all very inspiring and give me lots of positive energy.</b>
+> <p><i>Saskia de Brauw</i></p>
 
 <br>
