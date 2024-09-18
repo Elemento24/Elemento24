@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Al Gore, the former vice-president of the United States, lives in a mansion that uses more electricity than the average family's bungalow! David Suzuki rides on a bus that uses more fuel than a Smart car to get across Canada! Oh my God! And this is just the tip of the vanishing iceberg!</b>
-> <p><i>Linwood Barclay</i></p>
+> <b>Anything that's different from your own realm of experience as a human being, whether it's driving a car or a boat, or using guns, anything that separates you from yourself and leads you more towards this character's existence is a big help.</b>
+> <p><i>Colin Farrell</i></p>
 
 <br>
