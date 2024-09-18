@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I absolutely believe that architecture is a social activity that has to do with some sort of communication or places of interaction, and that to change the environment is to change behaviour.</b>
-> <p><i>Thom Mayne</i></p>
+> <b>People can inhabit anything. And they can be miserable in anything and ecstatic in anything. More and more I think that architecture has nothing to do with it. Of course, that's both liberating and alarming.</b>
+> <p><i>Rem Koolhaas</i></p>
 
 <br>
