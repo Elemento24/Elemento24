@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As we grow old, the beauty steals inward.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>The best smell in the world is that man that you love.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
