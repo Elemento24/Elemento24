@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to try and change the landscape, whatever it is.</b>
-> <p><i>Robert Plant</i></p>
+> <b>What is an adult? A child blown up by age.</b>
+> <p><i>Simone de Beauvoir</i></p>
 
 <br>
