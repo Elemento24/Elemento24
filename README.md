@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We were racing at circuits where there were no crash barriers in front of the pits, and fuel was lying about in churns in the pit lane. A car could easily crash into the pits at any time. It was ridiculous.</b>
-> <p><i>Jackie Stewart</i></p>
+> <b>I have to try and change the landscape, whatever it is.</b>
+> <p><i>Robert Plant</i></p>
 
 <br>
