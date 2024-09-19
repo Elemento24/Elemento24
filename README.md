@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Highly educated young people are tutored, taught and monitored in all aspects of their lives, except the most important, which is character building. When it comes to this, most universities leave them alone.</b>
-> <p><i>David Brooks</i></p>
+> <b>My public image is so low-key, but I get to travel the world and still have an audience and it's really amazing. I don't take that for granted.</b>
+> <p><i>K. D. Lang</i></p>
 
 <br>
