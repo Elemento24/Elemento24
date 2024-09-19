@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Lord had the wonderful advantage of being able to work alone.</b>
-> <p><i>Kofi Annan</i></p>
+> <b>Britain, relative to the U.S., is a highly secular society. Philanthropy alone cannot fill the gap left by government cutbacks. And the sources of altruism go deep into our evolutionary past.</b>
+> <p><i>Jonathan Sacks</i></p>
 
 <br>
