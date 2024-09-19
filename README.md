@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work of art assumes the existence of the perfect spectator, and is indifferent to the fact that no such person exists.</b>
-> <p><i>E. M. Forster</i></p>
+> <b>The best way to get a bad law repealed is to enforce it strictly.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
