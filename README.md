@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I'm afraid, in this day and age, trust, which I count so, you know, I love loyalty. I love trust.</b>
-> <p><i>Elton John</i></p>
+> <b>You change with the guys you date.</b>
+> <p><i>Jessica Simpson</i></p>
 
 <br>
