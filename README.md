@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let us be true: this is the highest maxim of art and of life, the secret of eloquence and of virtue, and of all moral authority.</b>
-> <p><i>Henri Frederic Amiel</i></p>
+> <b>Good humor is one of the best articles of dress one can wear in society.</b>
+> <p><i>William Makepeace Thackeray</i></p>
 
 <br>
