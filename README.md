@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just wanna give a big shout out to all the fans out there who have followed my work up until now. You guys are amazing!! Hearing from fans is the best feeling in the world.</b>
-> <p><i>Lindsey Shaw</i></p>
+> <b>Highly educated young people are tutored, taught and monitored in all aspects of their lives, except the most important, which is character building. When it comes to this, most universities leave them alone.</b>
+> <p><i>David Brooks</i></p>
 
 <br>
