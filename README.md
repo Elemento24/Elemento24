@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A group or an artist shouldn't get his money until his boss gets his.</b>
-> <p><i>Bobby Darin</i></p>
+> <b>And I'm afraid, in this day and age, trust, which I count so, you know, I love loyalty. I love trust.</b>
+> <p><i>Elton John</i></p>
 
 <br>
