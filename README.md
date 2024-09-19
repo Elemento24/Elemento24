@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The expression of beauty is in direct ratio to the power of conception the artist has acquired.</b>
-> <p><i>Gustave Courbet</i></p>
+> <b>We were racing at circuits where there were no crash barriers in front of the pits, and fuel was lying about in churns in the pit lane. A car could easily crash into the pits at any time. It was ridiculous.</b>
+> <p><i>Jackie Stewart</i></p>
 
 <br>
