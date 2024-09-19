@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ours is an excessively conscious age. We know so much, we feel so little.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>A group or an artist shouldn't get his money until his boss gets his.</b>
+> <p><i>Bobby Darin</i></p>
 
 <br>
