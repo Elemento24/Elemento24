@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You change with the guys you date.</b>
-> <p><i>Jessica Simpson</i></p>
+> <b>On July 18, we will mark the 12th anniversary of the senseless loss of 85 lives in the bombing of the Jewish Cultural Center in Buenos Aires, Argentina.</b>
+> <p><i>Tom Lantos</i></p>
 
 <br>
