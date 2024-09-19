@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When we can lay down our fear and anger and choose responses other than aggression, we create the conditions for bringing out the best in us humans.</b>
-> <p><i>Margaret J. Wheatley</i></p>
+> <b>The Lord had the wonderful advantage of being able to work alone.</b>
+> <p><i>Kofi Annan</i></p>
 
 <br>
