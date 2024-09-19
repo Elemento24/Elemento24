@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good humor is one of the best articles of dress one can wear in society.</b>
-> <p><i>William Makepeace Thackeray</i></p>
+> <b>As we grow old, the beauty steals inward.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
