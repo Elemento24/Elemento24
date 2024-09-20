@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even at the United Nations, where legend has it that the building was designed so that there could be no corner offices, the expanse of glass in individual offices is said to be a dead giveaway as to rank. Five windows are excellent, one window not so great.</b>
-> <p><i>Enid Nemy</i></p>
+> <b>The great thing about celebrity culture is that they can't seem to stop themselves from displaying their ridiculous behaviour. I feel it's my job as a serious investigative journalist to witness all kinds of behaviour and then report back to the audience through the prism of my own anger and bitterness.</b>
+> <p><i>Kathy Griffin</i></p>
 
 <br>
