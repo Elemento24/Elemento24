@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Journalists do not live by words alone, although sometimes they have to eat them.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>To talk about a relationship trivializes something that's nobody's business.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
