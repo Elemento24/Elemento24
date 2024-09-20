@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Does it follow that the house has nothing in common with art and is architecture not to be included in the arts? Only a very small part of architecture belongs to art: the tomb and the monument. Everything else that fulfils a function is to be excluded from the domain of art.</b>
-> <p><i>Adolf Loos</i></p>
+> <b>As a restaurateur, my job is to basically control the chaos and the drama. There's always going to be chaos in the restaurant business.</b>
+> <p><i>Rocco DiSpirito</i></p>
 
 <br>
