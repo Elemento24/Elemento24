@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To talk about a relationship trivializes something that's nobody's business.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>I knew I'd just done one of the most amazing things that I will ever get a chance to do. Just to be part of a musical that's not your background and to pull it off and to think that we've done something that's really special.</b>
+> <p><i>Gerard Butler</i></p>
 
 <br>
