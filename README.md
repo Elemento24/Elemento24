@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Can anyone understand how it is to have lived in the White House and then, suddenly, to be living alone as the President's widow?</b>
-> <p><i>Jackie Kennedy</i></p>
+> <b>Journalists do not live by words alone, although sometimes they have to eat them.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
