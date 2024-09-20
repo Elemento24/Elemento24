@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought, after the Pulitzer, at least nothing will surprise me quite that much in my life. And another one happened. It was quite amazing.</b>
-> <p><i>Rita Dove</i></p>
+> <b>I like to find the beauty in the ugly. When I'm in a thrift store, I gravitate toward pieces I know I'll wear a ton, and insane pieces that I'm sure most people would consider gross. But I find them inspiring. Our van is currently stocked with some of my random findings from this tour. Maybe I'll call my aesthetic 'van fashion.'</b>
+> <p><i>Victoria Legrand</i></p>
 
 <br>
