@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hatred is settled anger.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>Beauty doesn't matter because in the end, we all lose our looks and all we have is our heart.</b>
+> <p><i>Ann Curry</i></p>
 
 <br>
