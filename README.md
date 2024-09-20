@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mr. Janet Reno? I think Mr. Janet Reno... I think he's one of the best hunting dogs in the world.</b>
-> <p><i>Ted Nugent</i></p>
+> <b>Art is not merely an imitation of the reality of nature, but in truth a metaphysical supplement to the reality of nature, placed alongside thereof for its conquest.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
