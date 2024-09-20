@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Staid middle age loves the hurricane passions of opera.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>In fact, it will be very easy to climb the building because of its shape and architecture.</b>
+> <p><i>Alain Robert</i></p>
 
 <br>
