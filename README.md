@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't know a time when there wasn't a war because I spent all my time from the age of two or three to eight in a coal cellar really.</b>
-> <p><i>David Bailey</i></p>
+> <b>Does it follow that the house has nothing in common with art and is architecture not to be included in the arts? Only a very small part of architecture belongs to art: the tomb and the monument. Everything else that fulfils a function is to be excluded from the domain of art.</b>
+> <p><i>Adolf Loos</i></p>
 
 <br>
