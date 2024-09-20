@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The downfall of the industry seems to actually be good for art. I think the industry will find their way once the focus shifts from its greed-based origins, downsizes, and begins to support creative visions that speak to our times and shifting ideals.</b>
-> <p><i>Saul Williams</i></p>
+> <b>Staid middle age loves the hurricane passions of opera.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
