@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty doesn't matter because in the end, we all lose our looks and all we have is our heart.</b>
-> <p><i>Ann Curry</i></p>
+> <b>I thought, after the Pulitzer, at least nothing will surprise me quite that much in my life. And another one happened. It was quite amazing.</b>
+> <p><i>Rita Dove</i></p>
 
 <br>
