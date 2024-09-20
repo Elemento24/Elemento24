@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a restaurateur, my job is to basically control the chaos and the drama. There's always going to be chaos in the restaurant business.</b>
-> <p><i>Rocco DiSpirito</i></p>
+> <b>He who possesses art and science has religion he who does not possess them, needs religion.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
