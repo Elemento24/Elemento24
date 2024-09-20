@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In fact, it will be very easy to climb the building because of its shape and architecture.</b>
-> <p><i>Alain Robert</i></p>
+> <b>Even at the United Nations, where legend has it that the building was designed so that there could be no corner offices, the expanse of glass in individual offices is said to be a dead giveaway as to rank. Five windows are excellent, one window not so great.</b>
+> <p><i>Enid Nemy</i></p>
 
 <br>
