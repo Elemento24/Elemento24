@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>America... just a nation of two hundred million used car salesmen with all the money we need to buy guns and no qualms about killing anybody else in the world who tries to make us uncomfortable.</b>
-> <p><i>Hunter S. Thompson</i></p>
+> <b>We learn about life not from plusses alone, but from minuses as well.</b>
+> <p><i>Anton Chekhov</i></p>
 
 <br>
