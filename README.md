@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Although I'm a business major out of McGill University, I know nothing... but then I found out much later in life, nobody knows anything.</b>
-> <p><i>William Shatner</i></p>
+> <b>Married people from my generation are like an endangered species!</b>
+> <p><i>Patrice Leconte</i></p>
 
 <br>
