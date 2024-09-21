@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are no rules of architecture for a castle in the clouds.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>I don't find Hollywood interesting, so I'm thinking of studying architecture instead.</b>
+> <p><i>Hayden Christensen</i></p>
 
 <br>
