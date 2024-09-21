@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since graduation, I have measured time in 4-by-5-inch pieces of paper, four days on the left and three on the right. Every social engagement, interview, reading, flight, doctor's appointment, birthday and dry-cleaning reminder has been handwritten between metal loops.</b>
-> <p><i>Sloane Crosley</i></p>
+> <b>Bruce Lee was very famous. I watched his movies and he is amazing. He is a martial arts master, his philosophy, his movement, both physically and mentally, were very strong.</b>
+> <p><i>Jet Li</i></p>
 
 <br>
