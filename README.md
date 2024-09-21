@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe God is managing affairs and that He doesn't need any advice from me. With God in charge, I believe everything will work out for the best in the end. So what is there to worry about.</b>
-> <p><i>Henry Ford</i></p>
+> <b>No matter what age you are, or what your circumstances might be, you are special, and you still have something unique to offer. Your life, because of who you are, has meaning.</b>
+> <p><i>Barbara de Angelis</i></p>
 
 <br>
