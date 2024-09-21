@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On the dance floor, as much as you say, 'Ladies, you are the car. He is the driver. You can only go where he takes you,' they still try to be in control.</b>
-> <p><i>Len Goodman</i></p>
+> <b>I really feel like life will dictate itself. You should allow it to unfold as naturally as possible. Just go with the flow. When you're really desperate, you say a few prayers and hope for the best. That's the way I've always lived my life.</b>
+> <p><i>Shania Twain</i></p>
 
 <br>
