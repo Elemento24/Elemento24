@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On some campuses, change is effected through nonviolent or even violent means.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>On the dance floor, as much as you say, 'Ladies, you are the car. He is the driver. You can only go where he takes you,' they still try to be in control.</b>
+> <p><i>Len Goodman</i></p>
 
 <br>
