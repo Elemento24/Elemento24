@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Married people from my generation are like an endangered species!</b>
-> <p><i>Patrice Leconte</i></p>
+> <b>After you have exhausted what there is in business, politics, conviviality, and so on - have found that none of these finally satisfy, or permanently wear - what remains? Nature remains.</b>
+> <p><i>Walt Whitman</i></p>
 
 <br>
