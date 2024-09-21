@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We learn about life not from plusses alone, but from minuses as well.</b>
-> <p><i>Anton Chekhov</i></p>
+> <b>On some campuses, change is effected through nonviolent or even violent means.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
