@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who possesses art and science has religion he who does not possess them, needs religion.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>It depends on the situation. I mean, on one hand there's the argument that people should be left alone on the other hand, there's the argument to wade in a stop slaughters in places like Bosnia and Kosovo and what we probably should have done in Rwanda.</b>
+> <p><i>Jello Biafra</i></p>
 
 <br>
