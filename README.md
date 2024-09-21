@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never did anything alone. Whatever was accomplished in this country was accomplished collectively.</b>
-> <p><i>Golda Meir</i></p>
+> <b>In Genesis, it says that it is not good for a man to be alone but sometimes it is a great relief.</b>
+> <p><i>John Barrymore</i></p>
 
 <br>
