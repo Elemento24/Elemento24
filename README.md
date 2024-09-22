@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very concerned for the future of the earth and its amazing creatures. We've got to be careful and make sure we don't foul our own nest.</b>
-> <p><i>John Lithgow</i></p>
+> <b>Anyone who's lost someone to cancer will say this, that you have to struggle to try to remember the person before the diagnosis happened, because they really do change - as anyone would change.</b>
+> <p><i>Mindy Kaling</i></p>
 
 <br>
