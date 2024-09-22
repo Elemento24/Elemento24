@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What we achieve inwardly will change outer reality.</b>
-> <p><i>Plutarch</i></p>
+> <b>I went to an amazing school in Brooklyn called St. Anne's that's a really kind of creative hot bed.</b>
+> <p><i>Lena Dunham</i></p>
 
 <br>
