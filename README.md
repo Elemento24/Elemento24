@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Britain, relative to the U.S., is a highly secular society. Philanthropy alone cannot fill the gap left by government cutbacks. And the sources of altruism go deep into our evolutionary past.</b>
-> <p><i>Jonathan Sacks</i></p>
+> <b>Art is the beautiful way of doing things. Science is the effective way of doing things. Business is the economic way of doing things.</b>
+> <p><i>Elbert Hubbard</i></p>
 
 <br>
