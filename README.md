@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It could be fun to sing with Prince or Michael Jackson. Justin Timberlake has an amazing new sound now.</b>
-> <p><i>Taryn Manning</i></p>
+> <b>What garlic is to salad, insanity is to art.</b>
+> <p><i>Augustus Saint-Gaudens</i></p>
 
 <br>
