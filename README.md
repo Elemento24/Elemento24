@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We must advertise to U.S. business that we are there, that our attitude has changed, and that we care. When we are asked to help, we have to perform and provide the right advice.</b>
-> <p><i>Lawrence Eagleburger</i></p>
+> <b>The attitude is very important. Because, your behavior radiates how you feel.</b>
+> <p><i>Lou Ferrigno</i></p>
 
 <br>
