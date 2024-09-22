@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People tend to become more emotionally intelligent as they age and mature.</b>
-> <p><i>Daniel Goleman</i></p>
+> <b>I like singer-songwriters, and I find sad songs comforting rather than depressing. It makes you realise you're not alone in the world.</b>
+> <p><i>Natalie Imbruglia</i></p>
 
 <br>
