@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went to an amazing school in Brooklyn called St. Anne's that's a really kind of creative hot bed.</b>
-> <p><i>Lena Dunham</i></p>
+> <b>I don't think we should be about the business of denying voters in Michigan and Florida the right to be heard.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
