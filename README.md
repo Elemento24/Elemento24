@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What garlic is to salad, insanity is to art.</b>
-> <p><i>Augustus Saint-Gaudens</i></p>
+> <b>Beauty magazines make my girlfriend feel ugly.</b>
+> <p><i>James De La Vega</i></p>
 
 <br>
