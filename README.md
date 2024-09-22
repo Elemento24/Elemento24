@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude is very important. Because, your behavior radiates how you feel.</b>
-> <p><i>Lou Ferrigno</i></p>
+> <b>In Turkey, you're not allowed to be left alone in the hospital. The nurse teaches the family how to do things, and somebody is always there with the patient.</b>
+> <p><i>Mehmet Oz</i></p>
 
 <br>
