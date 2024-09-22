@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Turkey, you're not allowed to be left alone in the hospital. The nurse teaches the family how to do things, and somebody is always there with the patient.</b>
-> <p><i>Mehmet Oz</i></p>
+> <b>It could be fun to sing with Prince or Michael Jackson. Justin Timberlake has an amazing new sound now.</b>
+> <p><i>Taryn Manning</i></p>
 
 <br>
