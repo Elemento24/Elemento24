@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We should tell our kids to just have fun, participate and not get bent on winning or losing. But every coach, when they say that, they say it tongue in cheek, 'Don't worry about winning': If you win I'll get you ice cream, but if you lose I'm going to pout in the car.</b>
-> <p><i>Bode Miller</i></p>
+> <b>We must advertise to U.S. business that we are there, that our attitude has changed, and that we care. When we are asked to help, we have to perform and provide the right advice.</b>
+> <p><i>Lawrence Eagleburger</i></p>
 
 <br>
