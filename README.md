@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Holding on to anger, resentment and hurt only gives you tense muscles, a headache and a sore jaw from clenching your teeth. Forgiveness gives you back the laughter and the lightness in your life.</b>
-> <p><i>Joan Lunden</i></p>
+> <b>What we achieve inwardly will change outer reality.</b>
+> <p><i>Plutarch</i></p>
 
 <br>
