@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am convinced that living in an enclave shapes the personality, and living alone shapes the personality too.</b>
-> <p><i>Mary Douglas</i></p>
+> <b>The strong man is strongest when alone.</b>
+> <p><i>Friedrich Schiller</i></p>
 
 <br>
