@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I personally love to run outdoor fitness trails. I love the meditative value I get when out alone, challenging myself to run faster and higher.</b>
-> <p><i>Laurieann Gibson</i></p>
+> <b>Everyone enjoys doing the kind of work for which he is best suited.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
