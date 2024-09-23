@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone enjoys doing the kind of work for which he is best suited.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>I don't want to be perfect, but I do want to be a role model. My mom always tells me that imperfections equal beauty. All of us are imperfect.</b>
+> <p><i>Miley Cyrus</i></p>
 
 <br>
