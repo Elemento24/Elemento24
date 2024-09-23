@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I search for surprise in my architecture. A work of art should cause the emotion of newness.</b>
-> <p><i>Oscar Niemeyer</i></p>
+> <b>Now, personally, I like a car with some sort of character.</b>
+> <p><i>Richard Hammond</i></p>
 
 <br>
