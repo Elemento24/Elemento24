@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You're not going to say anything about me that I'm not going to say about myself. There's so many things that I think about myself if someone really wanted to get at me, they could say this and this and this. So I'm going to say it before they can. It's the best policy for me.</b>
-> <p><i>Eminem</i></p>
+> <b>We all have to find beauty within us, as opposed to just our exterior.</b>
+> <p><i>Shay Mitchell</i></p>
 
 <br>
