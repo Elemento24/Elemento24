@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Read the best books first, or you may not have a chance to read them at all.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Nature scarcely ever gives us the very best for that we must have recourse to art.</b>
+> <p><i>Baltasar Gracian</i></p>
 
 <br>
