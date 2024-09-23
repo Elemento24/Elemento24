@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Publishing is in a kind of Jurassic age.</b>
-> <p><i>Paulo Coelho</i></p>
+> <b>Read the best books first, or you may not have a chance to read them at all.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
