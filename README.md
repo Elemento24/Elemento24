@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a ridiculous fear of sharks but I'd jump in the water in a second for an amazing role.</b>
-> <p><i>Kate Mara</i></p>
+> <b>The days when a car aficionado could repair his or her own car are long past, due primarily to the high software content.</b>
+> <p><i>Marc Andreessen</i></p>
 
 <br>
