@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He never is alone that is accompanied with noble thoughts.</b>
-> <p><i>John Fletcher</i></p>
+> <b>I have a ridiculous fear of sharks but I'd jump in the water in a second for an amazing role.</b>
+> <p><i>Kate Mara</i></p>
 
 <br>
