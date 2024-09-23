@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The purpose of art is washing the dust of daily life off our souls.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>You're not going to say anything about me that I'm not going to say about myself. There's so many things that I think about myself if someone really wanted to get at me, they could say this and this and this. So I'm going to say it before they can. It's the best policy for me.</b>
+> <p><i>Eminem</i></p>
 
 <br>
