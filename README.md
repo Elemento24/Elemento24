@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cynical realism is the intelligent man's best excuse for doing nothing in an intolerable situation.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>Publishing is in a kind of Jurassic age.</b>
+> <p><i>Paulo Coelho</i></p>
 
 <br>
