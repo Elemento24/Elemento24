@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm like, 'Would you be the person in the room that would boo when Dylan went electric? I know I wouldn't. Or are you the person that left The Beatles after 'She Loves You,' or 'Drive My Car?' You weren't on board for 'Revolution 9' or 'Day In The Life,' were you?'</b>
-> <p><i>Regina Spektor</i></p>
+> <b>The purpose of art is washing the dust of daily life off our souls.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
