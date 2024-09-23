@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Make the best use of what is in your power, and take the rest as it happens.</b>
-> <p><i>Epictetus</i></p>
+> <b>It behooves every man who values liberty of conscience for himself, to resist invasions of it in the case of others: or their case may, by change of circumstances, become his own.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
