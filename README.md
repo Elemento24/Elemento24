@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All we need, really, is a change from a near frigid to a tropical attitude of mind.</b>
-> <p><i>Marjory Stoneman Douglas</i></p>
+> <b>A diplomat is a man who always remembers a woman's birthday but never remembers her age.</b>
+> <p><i>Robert Frost</i></p>
 
 <br>
