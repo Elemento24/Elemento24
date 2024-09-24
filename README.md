@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Younger women have no problem in reconciling beauty with ambitions as a professional woman.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>A tart temper never mellows with age, and a sharp tongue is the only edged tool that grows keener with constant use.</b>
+> <p><i>Washington Irving</i></p>
 
 <br>
