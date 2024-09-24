@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A diplomat is a man who always remembers a woman's birthday but never remembers her age.</b>
-> <p><i>Robert Frost</i></p>
+> <b>This is the curse of our age, even the strangest aberrations are no cure for boredom.</b>
+> <p><i>Stendhal</i></p>
 
 <br>
