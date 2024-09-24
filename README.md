@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought, well, you might see curves there, but that's just a bone - so even if I lose weight that's not going to change anything. That's how I look. That's my shape. Do the math.</b>
-> <p><i>Christina Hendricks</i></p>
+> <b>We accumulate our opinions at an age when our understanding is at its weakest.</b>
+> <p><i>Georg C. Lichtenberg</i></p>
 
 <br>
