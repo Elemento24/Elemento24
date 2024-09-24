@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whatever poet, orator or sage may say of it, old age is still old age.</b>
-> <p><i>Sinclair Lewis</i></p>
+> <b>One of the best things for a woman to hear is that she is sexy.</b>
+> <p><i>Scarlett Johansson</i></p>
 
 <br>
