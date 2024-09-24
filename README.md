@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems that when you get to a certain age you almost give yourself permission to misbehave and say what you think. People allow it, with very old people.</b>
-> <p><i>Julie Walters</i></p>
+> <b>I think I can change the game.</b>
+> <p><i>Venus Williams</i></p>
 
 <br>
