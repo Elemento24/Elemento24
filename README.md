@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The TV business is like the produce section of the market. Today everything is fresh and glistening and firm. And tomorrow, when they find a bruise on you, they toss you out.</b>
-> <p><i>Bryan Cranston</i></p>
+> <b>Real education should consist of drawing the goodness and the best out of our own students. What better books can there be than the book of humanity?</b>
+> <p><i>Cesar Chavez</i></p>
 
 <br>
