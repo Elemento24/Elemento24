@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the best things for a woman to hear is that she is sexy.</b>
-> <p><i>Scarlett Johansson</i></p>
+> <b>I thought, well, you might see curves there, but that's just a bone - so even if I lose weight that's not going to change anything. That's how I look. That's my shape. Do the math.</b>
+> <p><i>Christina Hendricks</i></p>
 
 <br>
