@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This band has never had an argument. It's just amazing.</b>
-> <p><i>Dave Edmunds</i></p>
+> <b>All we need, really, is a change from a near frigid to a tropical attitude of mind.</b>
+> <p><i>Marjory Stoneman Douglas</i></p>
 
 <br>
