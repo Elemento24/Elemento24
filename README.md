@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The comic book world is a tough business.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>I've found the best way is to not be scared of the attention but to be grateful for it and open to it. It makes my days better rather than being annoyed that people want my attention.</b>
+> <p><i>Brandon Routh</i></p>
 
 <br>
