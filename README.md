@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A tart temper never mellows with age, and a sharp tongue is the only edged tool that grows keener with constant use.</b>
-> <p><i>Washington Irving</i></p>
+> <b>Mom and Dad were married 64 years. And if you wondered what their secret was, you could have asked the local florist - because every day Dad gave Mom a rose, which he put on her bedside table. That's how she found out what happened on the day my father died - she went looking for him because that morning, there was no rose.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
