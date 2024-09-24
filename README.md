@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nature scarcely ever gives us the very best for that we must have recourse to art.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>Our hearts were drunk with a beauty Our eyes could never see.</b>
+> <p><i>George William Russell</i></p>
 
 <br>
