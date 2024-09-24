@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went to Zimbabwe. I know how white people feel in America now relaxed! Cause when I heard the police car I knew they weren't coming after me!</b>
-> <p><i>Richard Pryor</i></p>
+> <b>When you think of what Americans accomplished, building these amazing cities and all the good it's done in the world, it's kind of disheartening to hear so much hatred of America, not just from abroad, but internally.</b>
+> <p><i>Frank Miller</i></p>
 
 <br>
