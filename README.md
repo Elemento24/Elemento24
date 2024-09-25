@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think about my work every minute of the day.</b>
-> <p><i>Jeff Koons</i></p>
+> <b>Advertising is the art of convincing people to spend money they don't have for something they don't need.</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
