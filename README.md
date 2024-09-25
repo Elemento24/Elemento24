@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't go away. I don't want to be alone. I can't stand being alone.</b>
-> <p><i>Arnold Rothstein</i></p>
+> <b>The real killers in the business world aren't the ones who aim for the top, it's the ones who aim for two notches below the top.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
