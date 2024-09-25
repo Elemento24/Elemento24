@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing the relationships you forge in a kitchen. When you cooperate in an environment that's hot. Where there's a lot of knives. You're trusting your well-being with someone you've never before met or known.</b>
-> <p><i>Alexandra Guarnaschelli</i></p>
+> <b>Writers may be disreputable, incorrigible, early to decay or late to bloom but they dare to go it alone.</b>
+> <p><i>John Updike</i></p>
 
 <br>
