@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can only do your best. That's all you can do. And if it isn't good enough, it isn't good enough.</b>
-> <p><i>Imelda Staunton</i></p>
+> <b>Don't go away. I don't want to be alone. I can't stand being alone.</b>
+> <p><i>Arnold Rothstein</i></p>
 
 <br>
