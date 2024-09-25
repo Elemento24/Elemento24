@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People don't associate red hair, pale skin, and freckles with beauty.</b>
-> <p><i>Shirley Manson</i></p>
+> <b>The ideal beauty is a fugitive which is never found.</b>
+> <p><i>Joan Rivers</i></p>
 
 <br>
