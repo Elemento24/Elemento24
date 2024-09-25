@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Advertising is the art of convincing people to spend money they don't have for something they don't need.</b>
-> <p><i>Will Rogers</i></p>
+> <b>Let me alone: I have yet my legs and one arm. Tell the surgeon to make haste and his instruments. I know I must lose my right arm, so the sooner it's off the better.</b>
+> <p><i>Horatio Nelson</i></p>
 
 <br>
