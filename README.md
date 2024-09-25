@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The real killers in the business world aren't the ones who aim for the top, it's the ones who aim for two notches below the top.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>It's amazing the relationships you forge in a kitchen. When you cooperate in an environment that's hot. Where there's a lot of knives. You're trusting your well-being with someone you've never before met or known.</b>
+> <p><i>Alexandra Guarnaschelli</i></p>
 
 <br>
