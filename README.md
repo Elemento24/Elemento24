@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think more and more people want to live alone. You can be a couple without being in each other's pockets. I don't see why you have to share the same bathroom.</b>
-> <p><i>Jeanne Moreau</i></p>
+> <b>Beyonce is the most amazing woman in the world.</b>
+> <p><i>Chris O'Dowd</i></p>
 
 <br>
