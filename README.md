@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The message I take all round the world is Britain is open for business.</b>
-> <p><i>William Hague</i></p>
+> <b>Cynical realism is the intelligent man's best excuse for doing nothing in an intolerable situation.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
