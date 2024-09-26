@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the first time in my adult lifetime, I am really proud of my country. And not just because Barack has done well, but because I think people are hungry for change. And I have been desperate to see our country moving in that direction.</b>
-> <p><i>Michelle Obama</i></p>
+> <b>I think 'Game of Thrones' was extraordinary. I want to do some period pieces. It would be lovely to tell great stories, that is my main ambition. And to be working with amazing creators.</b>
+> <p><i>Stana Katic</i></p>
 
 <br>
