@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most urgently, women's identity must be premised upon our 'beauty' so that we will remain vulnerable to outside approval, carrying the vital sensitive organ of self-esteem exposed to the air.</b>
-> <p><i>Naomi Wolf</i></p>
+> <b>I have the best husband in the world. He's very involved.</b>
+> <p><i>Heidi Klum</i></p>
 
 <br>
