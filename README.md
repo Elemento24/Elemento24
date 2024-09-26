@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had an amazing professional life, personal life, but at 64 to have a son who gives us that much love and enjoyment is, wow!</b>
-> <p><i>Elton John</i></p>
+> <b>I sing in the car if I'm in LA, because you're like soundproofed.</b>
+> <p><i>Jimmy Fallon</i></p>
 
 <br>
