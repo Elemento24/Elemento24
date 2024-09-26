@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got some incredible fans actually - so loyal and they make me birthday cards and Christmas cards. I got this package of poems and artwork based around the songs. They've got this thing called 'Floetry' where they all have to put in artwork. They've set up their own competitions and stuff which is kind of amazing.</b>
-> <p><i>Florence Welch</i></p>
+> <b>'Aladdin' was probably my favorite Disney animation when I was a kid. The animation was great and Robin Williams was unbelievable as the Genie. 'Aladdin' was an amazing adventure and the lead character was a hero for guys, which I loved. It wasn't a princess or a girl beating the odds it was a street rat. That seemed really cool to me.</b>
+> <p><i>Zachary Levi</i></p>
 
 <br>
