@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not by age but by capacity is wisdom acquired.</b>
-> <p><i>Plautus</i></p>
+> <b>In art, all who have done something other than their predecessors have merited the epithet of revolutionary and it is they alone who are masters.</b>
+> <p><i>Paul Gauguin</i></p>
 
 <br>
