@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I sing in the car if I'm in LA, because you're like soundproofed.</b>
-> <p><i>Jimmy Fallon</i></p>
+> <b>It is ironic that the one thing that all religions recognize as separating us from our creator, our very self-consciousness, is also the one thing that divides us from our fellow creatures. It was a bitter birthday present from evolution.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
