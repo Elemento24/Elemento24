@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This generation... they have a different attitude. Instead of sitting and watching something, they want to be a part of it - they're very hedonistic and sensual.</b>
-> <p><i>Steve Wynn</i></p>
+> <b>Not by age but by capacity is wisdom acquired.</b>
+> <p><i>Plautus</i></p>
 
 <br>
