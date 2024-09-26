@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success and the art of making music are two different things for me.</b>
-> <p><i>Norah Jones</i></p>
+> <b>I've had an amazing professional life, personal life, but at 64 to have a son who gives us that much love and enjoyment is, wow!</b>
+> <p><i>Elton John</i></p>
 
 <br>
