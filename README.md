@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All conservatism is based upon the idea that if you leave things alone you leave them as they are. But you do not. If you leave a thing alone you leave it to a torrent of change.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>I hope this will help new moms not feel alone or desperate, and that there is no shame in their feelings. PPD is out of their control, but the treatment and healing process is not.</b>
+> <p><i>Brooke Shields</i></p>
 
 <br>
