@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cigarettes and coffee: an alcoholic's best friend!</b>
-> <p><i>Gerard Way</i></p>
+> <b>Everything has combined to make my life in New York an amazing experience. I told my manager a few years ago that I wanted to move here and try acting in the theater.</b>
+> <p><i>Mariska Hargitay</i></p>
 
 <br>
