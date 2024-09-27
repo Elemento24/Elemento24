@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For students today, only 10 percent of children from working-class families graduate from college by the age of 24 as compared to 58 percent of upper-middle-class and wealthy families.</b>
-> <p><i>Patrick J. Kennedy</i></p>
+> <b>The next thing I wrote was in a writing class at night school. It was about a poor woman who worked at a dime store and who was all alone for Christmas in Laurel, Mississippi.</b>
+> <p><i>Beth Henley</i></p>
 
 <br>
