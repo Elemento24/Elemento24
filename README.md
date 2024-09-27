@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the past few years, we've been doing amazing stuff with desserts. Pastry chefs have been using herbs and spices in their desserts. So vanilla cake doesn't have to be just vanilla, it can have a little thyme. Or you could have a custard with a little lavender in it, which is just amazing.</b>
-> <p><i>Ron Ben-Israel</i></p>
+> <b>I have to say, you know, I've seen so many people go through the cycle and become famous and not famous anymore and, you know, want - have their priorities change and want different things.</b>
+> <p><i>Rashida Jones</i></p>
 
 <br>
