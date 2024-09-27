@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you love somebody, you love them. My parents had a 25-year age gap between them and my mum was the breadwinner, my dad the house husband. I'm a strong believer that a good relationship can work, whatever the situation.</b>
-> <p><i>Katherine Jenkins</i></p>
+> <b>For students today, only 10 percent of children from working-class families graduate from college by the age of 24 as compared to 58 percent of upper-middle-class and wealthy families.</b>
+> <p><i>Patrick J. Kennedy</i></p>
 
 <br>
