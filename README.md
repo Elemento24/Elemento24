@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing how nice people are to you when they know you're going away.</b>
-> <p><i>Michael Arlen</i></p>
+> <b>I have a wonderful husband. I have three amazing kids.</b>
+> <p><i>Celine Dion</i></p>
 
 <br>
