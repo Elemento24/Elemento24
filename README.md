@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't believe it. I'm speechless. It is amazing to see where I've come from the last two years.</b>
-> <p><i>Libby Trickett</i></p>
+> <b>Associate yourself with people of good quality, for it is better to be alone than in bad company.</b>
+> <p><i>Booker T. Washington</i></p>
 
 <br>
