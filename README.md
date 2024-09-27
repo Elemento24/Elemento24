@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The next thing I wrote was in a writing class at night school. It was about a poor woman who worked at a dime store and who was all alone for Christmas in Laurel, Mississippi.</b>
-> <p><i>Beth Henley</i></p>
+> <b>I can't believe it. I'm speechless. It is amazing to see where I've come from the last two years.</b>
+> <p><i>Libby Trickett</i></p>
 
 <br>
