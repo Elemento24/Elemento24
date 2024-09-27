@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now, on nights that I can't sleep, I play video games alone until the morning.</b>
-> <p><i>Namie Amuro</i></p>
+> <b>Soap and water and common sense are the best disinfectants.</b>
+> <p><i>William Osler</i></p>
 
 <br>
