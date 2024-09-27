@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to say, you know, I've seen so many people go through the cycle and become famous and not famous anymore and, you know, want - have their priorities change and want different things.</b>
-> <p><i>Rashida Jones</i></p>
+> <b>When I was 15, my parents left town for a month. They hid the keys to the car, but I found them. That month, I drove my stepdad's Thunderbird Super Coupe into Manhattan every day, and I would crank Cypress Hill as I flew around the city, racing the taxis.</b>
+> <p><i>Danny Masterson</i></p>
 
 <br>
