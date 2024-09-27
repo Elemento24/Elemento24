@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of communication is the language of leadership.</b>
-> <p><i>James Humes</i></p>
+> <b>There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else.</b>
+> <p><i>Sam Walton</i></p>
 
 <br>
