@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art requires philosophy, just as philosophy requires art. Otherwise, what would become of beauty?</b>
-> <p><i>Paul Gauguin</i></p>
+> <b>The superior man understands what is right the inferior man understands what will sell.</b>
+> <p><i>Confucius</i></p>
 
 <br>
