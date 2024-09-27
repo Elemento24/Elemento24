@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Truth is a thing immortal and perpetual, and it gives to us a beauty that fades not away in time.</b>
-> <p><i>Frank Norris</i></p>
+> <b>Coming in solemn beauty like slow old tunes of Spain.</b>
+> <p><i>John Masefield</i></p>
 
 <br>
