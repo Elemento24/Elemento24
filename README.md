@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By far my most perilous assignment was covering a tank car explosion.</b>
-> <p><i>Jessica Savitch</i></p>
+> <b>What makes the most money for this business? Dead rock stars.</b>
+> <p><i>Courtney Love</i></p>
 
 <br>
