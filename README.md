@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I've discovered is that in art, as in music, there's a lot of truth-and then there's a lie. The artist is essentially creating his work to make this lie a truth, but he slides it in amongst all the others. The tiny little lie is the moment I live for, my moment. It's the moment that the audience falls in love.</b>
-> <p><i>Lady Gaga</i></p>
+> <b>The real beauty of it - key to my life was playing key chords on a banjo. For somebody else it may be a golf club that mom and dad put in their hands or a baseball or ballet lessons. Real gift to give to me and put it in writing.</b>
+> <p><i>Vince Gill</i></p>
 
 <br>
