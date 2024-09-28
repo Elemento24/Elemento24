@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What makes the most money for this business? Dead rock stars.</b>
-> <p><i>Courtney Love</i></p>
+> <b>Forget the damned motor car and build the cities for lovers and friends.</b>
+> <p><i>Lewis Mumford</i></p>
 
 <br>
