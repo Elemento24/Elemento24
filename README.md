@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As an actor you have to wait for someone to cast you, so you're relying on the business.</b>
-> <p><i>Mia Wasikowska</i></p>
+> <b>A good painting to me has always been like a friend. It keeps me company, comforts and inspires.</b>
+> <p><i>Hedy Lamarr</i></p>
 
 <br>
