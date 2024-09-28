@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The car has become the carapace, the protective and aggressive shell, of urban and suburban man.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>I grew up on a farm in a small town where you do or say one thing and everybody knows about it. You see it happen, there's always the town gossip - 'Oh did you hear about so and so, or did you hear what went on in this household?' So I learned at a very young age just to keep my mouth shut.</b>
+> <p><i>Garrett Hedlund</i></p>
 
 <br>
