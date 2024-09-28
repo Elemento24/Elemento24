@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A satisfied customer is the best business strategy of all.</b>
-> <p><i>Michael LeBoeuf</i></p>
+> <b>We're just into toys, whether it's motorcycles or race cars or computers. I've got the Palm Pilot right here with me, I've got the world's smallest phone. Maybe it's just because I'm still a big little kid and I just love toys, you know?</b>
+> <p><i>Catherine Bell</i></p>
 
 <br>
