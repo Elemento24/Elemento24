@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's the Hollywood sign there's Griffith Observatory there's the great, amazing Los Angeles Basin. It's 465 square miles of insanity and the best food on the planet.</b>
-> <p><i>Robert Crais</i></p>
+> <b>The anger of a person who is strong, can always bide its time.</b>
+> <p><i>James Whitcomb Riley</i></p>
 
 <br>
