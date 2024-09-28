@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To say that a work of art is good, but incomprehensible to the majority of men, is the same as saying of some kind of food that it is very good but that most people can't eat it.</b>
-> <p><i>Leo Tolstoy</i></p>
+> <b>I try as much as possible to give you a great basic product and what comes out, I feel, is really amazing.</b>
+> <p><i>Jil Sander</i></p>
 
 <br>
