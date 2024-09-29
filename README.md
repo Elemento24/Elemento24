@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to be a Catholic. I left because I object to conversion by concussion. If you don't agree with what they teach, you get clobbered over the head until you do. All that does is change the shape of the head.</b>
-> <p><i>Alan Alda</i></p>
+> <b>The longer one is alone, the easier it is to hear the song of the earth.</b>
+> <p><i>Robert Anton Wilson</i></p>
 
 <br>
