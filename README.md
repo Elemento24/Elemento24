@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How do you nurture a positive attitude when all the statistics say you're a dead man? You go to work.</b>
-> <p><i>Patrick Swayze</i></p>
+> <b>Children rarely want to know who their parents were before they were parents, and when age finally stirs their curiosity, there is no parent left to tell them.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
