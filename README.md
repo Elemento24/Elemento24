@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music and the music business are two different things.</b>
-> <p><i>Erykah Badu</i></p>
+> <b>To engage with art, we have to be willing to be wrong, venture outside our psychic comfort zones, suspend disbelief, and remember that art explores and alters consciousness simultaneously.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
