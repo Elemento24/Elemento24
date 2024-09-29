@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men are like wine - some turn to vinegar, but the best improve with age.</b>
-> <p><i>Pope John XXIII</i></p>
+> <b>Designed by architects with honorable intentions but hands of palsy.</b>
+> <p><i>Jimmy Breslin</i></p>
 
 <br>
