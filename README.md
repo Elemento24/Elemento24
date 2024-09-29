@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With most British actors, it's amazing. I think they start with the character on the outside and work in.</b>
-> <p><i>Norman Jewison</i></p>
+> <b>How do you nurture a positive attitude when all the statistics say you're a dead man? You go to work.</b>
+> <p><i>Patrick Swayze</i></p>
 
 <br>
