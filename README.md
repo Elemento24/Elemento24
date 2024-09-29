@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children rarely want to know who their parents were before they were parents, and when age finally stirs their curiosity, there is no parent left to tell them.</b>
-> <p><i>Russell Baker</i></p>
+> <b>Some people think my father was a spy, because of working for that government agency in Vietnam, but he can't find his car keys, much less keep a national secret.</b>
+> <p><i>Lauren Graham</i></p>
 
 <br>
