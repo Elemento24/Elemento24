@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty in things exists in the mind which contemplates them.</b>
-> <p><i>David Hume</i></p>
+> <b>The most terrifying thing I can think of is being alone - and I mean utterly alone, like no one else in the world alone - at night. That's the nucleus of the first story in my collection and it's also where the title came from for the book.</b>
+> <p><i>Paul Kane</i></p>
 
 <br>
