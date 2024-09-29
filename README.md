@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The longer one is alone, the easier it is to hear the song of the earth.</b>
-> <p><i>Robert Anton Wilson</i></p>
+> <b>Come to West Virginia and we'll show you how to live... how to treat people. We're open for business. West Virginia is truly on the move.</b>
+> <p><i>Joe Manchin</i></p>
 
 <br>
