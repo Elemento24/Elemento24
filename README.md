@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we all have blocks between us and the best version of ourselves, whether it's shyness, insecurity, anxiety, whether it's a physical block, and the story of a person overcoming that block to their best self. It's truly inspiring because I think all of us are engaged in that every day.</b>
-> <p><i>Tom Hooper</i></p>
+> <b>I used to be a Catholic. I left because I object to conversion by concussion. If you don't agree with what they teach, you get clobbered over the head until you do. All that does is change the shape of the head.</b>
+> <p><i>Alan Alda</i></p>
 
 <br>
