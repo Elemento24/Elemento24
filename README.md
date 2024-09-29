@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One good teacher in a lifetime may sometimes change a delinquent into a solid citizen.</b>
-> <p><i>Philip Wylie</i></p>
+> <b>I was born at the age of twelve on a Metro-Goldwyn-Mayer lot.</b>
+> <p><i>Edward Koch</i></p>
 
 <br>
