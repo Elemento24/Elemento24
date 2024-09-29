@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was born at the age of twelve on a Metro-Goldwyn-Mayer lot.</b>
-> <p><i>Edward Koch</i></p>
+> <b>Directing is a really kind of amazing thing, because you're helping others and, in the middle of that, you have to worry about yourself.</b>
+> <p><i>Philip Seymour Hoffman</i></p>
 
 <br>
