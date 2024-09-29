@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Liberalism is an attitude rather than a set of dogmas - an attitude that insists upon questioning all plausible and self-evident propositions, seeking not to reject them but to find out what evidence there is to support them rather than their possible alternatives.</b>
-> <p><i>Morris Raphael Cohen</i></p>
+> <b>Men are like wine - some turn to vinegar, but the best improve with age.</b>
+> <p><i>Pope John XXIII</i></p>
 
 <br>
