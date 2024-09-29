@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once you grow past Mommy and Daddy coming running when you're hurt, you're really on your own. You're alone, and there's no one to help you.</b>
-> <p><i>Octavia Butler</i></p>
+> <b>With most British actors, it's amazing. I think they start with the character on the outside and work in.</b>
+> <p><i>Norman Jewison</i></p>
 
 <br>
