@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I came on to the film with a very happy-go-lucky attitude which I think my character, Charlie, did when she went into the house. I expected it to be good, and then slowly things started to change for us all.</b>
-> <p><i>Jennifer Sky</i></p>
+> <b>There is an infinite difference between a little wrong and just right, between fairly good and the best, between mediocrity and superiority.</b>
+> <p><i>Orison Swett Marden</i></p>
 
 <br>
