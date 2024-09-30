@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is an infinite difference between a little wrong and just right, between fairly good and the best, between mediocrity and superiority.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>Nothing we do, however virtuous, can be accomplished alone therefore we are saved by love.</b>
+> <p><i>Reinhold Niebuhr</i></p>
 
 <br>
