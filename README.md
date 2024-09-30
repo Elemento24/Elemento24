@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My personal view is that such total planning by the state is an absolute good and not simply a relative good... I do not myself think of the attitude I take as deriving from Marx - though this undoubtedly will be suggested - but from Fichte and Hegel.</b>
-> <p><i>John Grierson</i></p>
+> <b>Mournful and yet grand is the destiny of the artist.</b>
+> <p><i>Franz Liszt</i></p>
 
 <br>
