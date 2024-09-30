@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our company is built on people - those who work for us, and those we do business with.</b>
-> <p><i>Harvey S. Firestone</i></p>
+> <b>Hope and change? We're not doing that anymore. They're doing attack and blame. And so, I just think people are going to see through this. They want real leadership. They want us to get this country on the right track.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
