@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm more like my father, personality-wise. But my mom and I get alone really well - obviously, because my mom and my dad get along so well.</b>
-> <p><i>Jenna Bush</i></p>
+> <b>As a standup, I try to change the world. As an entertainer, I try to entertain. And as a lesbian, I try to pick up the prettiest girl in the room.</b>
+> <p><i>Lea DeLaria</i></p>
 
 <br>
