@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is rare to find a business partner who is selfless. If you are lucky it happens once in a lifetime.</b>
-> <p><i>Michael Eisner</i></p>
+> <b>We were probably the last people in the country to get a VCR and we didn't have cable. There wasn't any admiration of glamour, no, 'I want to look like them or have that lifestyle', because everyone in my town had the same lifestyle. So I didn't think, 'Ooh, a movie star's birthday!' I just thought, 'What?'</b>
+> <p><i>Christina Hendricks</i></p>
 
 <br>
