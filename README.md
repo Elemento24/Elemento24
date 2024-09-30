@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went to school for engineering, I studied jazz. So I always had this kind of creative side and technical side, and I thought architecture might be the way to combine them, so I went to architecture school in New York.</b>
-> <p><i>Joseph Kosinski</i></p>
+> <b>Women are smart in business and dumb in love. They won't date outside their zip code, let alone outside the city. They are city snobs.</b>
+> <p><i>Patti Stanger</i></p>
 
 <br>
