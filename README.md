@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Italians know about human nature - they understand human nature perhaps better than anyone else does. They know that people are weak and greedy and lazy and dishonest and they just try to make the best of it to work around it.</b>
-> <p><i>Donna Leon</i></p>
+> <b>I went to school for engineering, I studied jazz. So I always had this kind of creative side and technical side, and I thought architecture might be the way to combine them, so I went to architecture school in New York.</b>
+> <p><i>Joseph Kosinski</i></p>
 
 <br>
