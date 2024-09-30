@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hope and change? We're not doing that anymore. They're doing attack and blame. And so, I just think people are going to see through this. They want real leadership. They want us to get this country on the right track.</b>
-> <p><i>Paul Ryan</i></p>
+> <b>I don't think people change. I think they definitely mature. But I think the essence of what I am today is the same as when I was five years old. It's just maturity. I've become a healthier, fuller expression of that essence.</b>
+> <p><i>Ricky Williams</i></p>
 
 <br>
