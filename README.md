@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is produced by the pleasing appearance and good taste of the whole, and by the dimensions of all the parts being duly proportioned to each other.</b>
-> <p><i>Marcus V. Pollio</i></p>
+> <b>Our company is built on people - those who work for us, and those we do business with.</b>
+> <p><i>Harvey S. Firestone</i></p>
 
 <br>
