@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think about art when I'm working. I try to think about life.</b>
-> <p><i>Jean-Michel Basquiat</i></p>
+> <b>I believe that the fight against crime starts in the home. Parents must take responsibility for their children and show them love and guidance from an early age so they learn to respect the rights of others.</b>
+> <p><i>Blanche Lincoln</i></p>
 
 <br>
