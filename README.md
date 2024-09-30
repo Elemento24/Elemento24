@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man fails who does his best.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>I cannot stress enough that the answer to life's questions is often in people's faces. Try putting your iPhones down once in a while, and look in people's faces. People's faces will tell you amazing things. Like if they are angry, or nauseous or asleep.</b>
+> <p><i>Amy Poehler</i></p>
 
 <br>
