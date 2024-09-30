@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think people change. I think they definitely mature. But I think the essence of what I am today is the same as when I was five years old. It's just maturity. I've become a healthier, fuller expression of that essence.</b>
-> <p><i>Ricky Williams</i></p>
+> <b>I came on to the film with a very happy-go-lucky attitude which I think my character, Charlie, did when she went into the house. I expected it to be good, and then slowly things started to change for us all.</b>
+> <p><i>Jennifer Sky</i></p>
 
 <br>
