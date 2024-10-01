@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first rule of business is: Do other men for they would do you.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>In this age of media and Internet access, we are much more talkative than ever before.</b>
+> <p><i>David Duchovny</i></p>
 
 <br>
