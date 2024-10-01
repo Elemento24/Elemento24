@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me, 'revolution' simply means radical change.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>Never doubt that you can change history. You already have.</b>
+> <p><i>Marge Piercy</i></p>
 
 <br>
