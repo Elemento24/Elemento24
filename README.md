@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are welcome to your intellectual pastimes and books and art and newspapers welcome, too, to your bars and your whisky that only makes me ill. Here am I in the forest, quite content.</b>
-> <p><i>Knut Hamsun</i></p>
+> <b>I think people are used to seeing actors be wide open and desperately giving of themselves, and while I do that on a movie set as much as I can, it's so unnatural for me to do it on television, in interviews, in anything like that. I also don't find that my process as an actor is really anyone else's business.</b>
+> <p><i>Kristen Stewart</i></p>
 
 <br>
