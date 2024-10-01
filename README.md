@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But there's not enough time in life to go sit at a party, have a drink, and make idle conversation. There's too many important things to do. Just being together with my husband, spending time alone, which I have very little of.</b>
-> <p><i>Pia Zadora</i></p>
+> <b>The mother art is architecture. Without an architecture of our own we have no soul of our own civilization.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
