@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I dream of is an art of balance, of purity and serenity devoid of troubling or depressing subject matter - a soothing, calming influence on the mind, rather like a good armchair which provides relaxation from physical fatigue.</b>
-> <p><i>Henri Matisse</i></p>
+> <b>I mean, language fascinates me anyway, and different words have different energies and you can change the whole drive of a sentence.</b>
+> <p><i>Alan Rickman</i></p>
 
 <br>
