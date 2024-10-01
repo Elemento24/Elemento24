@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My business doesn't keep me warm at night.</b>
-> <p><i>Bethenny Frankel</i></p>
+> <b>The best mind-altering drug is the truth.</b>
+> <p><i>Lily Tomlin</i></p>
 
 <br>
