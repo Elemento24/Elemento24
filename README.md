@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have played on many teams throughout my career, and I know when a team has the tools, and the right positive attitude towards winning.</b>
-> <p><i>Boomer Esiason</i></p>
+> <b>At my age the only problem is with remembering names. When I call everyone darling, it has damn all to do with passionately adoring them, but I know I'm safe calling them that. Although, of course, I adore them too.</b>
+> <p><i>Richard Attenborough</i></p>
 
 <br>
