@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cannot stress enough that the answer to life's questions is often in people's faces. Try putting your iPhones down once in a while, and look in people's faces. People's faces will tell you amazing things. Like if they are angry, or nauseous or asleep.</b>
-> <p><i>Amy Poehler</i></p>
+> <b>I don't want to be perfect, but I do want to be a role model. My mom always tells me that imperfections equal beauty. All of us are imperfect.</b>
+> <p><i>Miley Cyrus</i></p>
 
 <br>
