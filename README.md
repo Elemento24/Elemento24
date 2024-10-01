@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, language fascinates me anyway, and different words have different energies and you can change the whole drive of a sentence.</b>
-> <p><i>Alan Rickman</i></p>
+> <b>President Clinton signed a $10 million deal to write a book by 2003. Isn't that amazing? Yes, and get this, not only that, President Bush signed a $10 million deal to read a book by 2003.</b>
+> <p><i>Conan O'Brien</i></p>
 
 <br>
