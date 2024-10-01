@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Happiness must be cultivated. It is like character. It is not a thing to be safely let alone for a moment, or it will run to weeds.</b>
-> <p><i>Elizabeth Stuart Phelps</i></p>
+> <b>I like making pies. I have a bunch of fruit trees in my backyard. My loquat tree sprouted, and I like making loquat pie. They're really hard to peel and everything, and it took me forever, but they make the best pies. They're amazing.</b>
+> <p><i>Kristen Stewart</i></p>
 
 <br>
