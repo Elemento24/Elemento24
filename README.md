@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In this age of media and Internet access, we are much more talkative than ever before.</b>
-> <p><i>David Duchovny</i></p>
+> <b>Happiness must be cultivated. It is like character. It is not a thing to be safely let alone for a moment, or it will run to weeds.</b>
+> <p><i>Elizabeth Stuart Phelps</i></p>
 
 <br>
