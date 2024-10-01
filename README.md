@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The mother art is architecture. Without an architecture of our own we have no soul of our own civilization.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>For me, 'revolution' simply means radical change.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
