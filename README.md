@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>President Clinton signed a $10 million deal to write a book by 2003. Isn't that amazing? Yes, and get this, not only that, President Bush signed a $10 million deal to read a book by 2003.</b>
-> <p><i>Conan O'Brien</i></p>
+> <b>But there's not enough time in life to go sit at a party, have a drink, and make idle conversation. There's too many important things to do. Just being together with my husband, spending time alone, which I have very little of.</b>
+> <p><i>Pia Zadora</i></p>
 
 <br>
