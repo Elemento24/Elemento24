@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to respect your audience. Without them, you're essentially standing alone, singing to yourself.</b>
-> <p><i>K. D. Lang</i></p>
+> <b>First gain the victory and then make the best use of it you can.</b>
+> <p><i>Horatio Nelson</i></p>
 
 <br>
