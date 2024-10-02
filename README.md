@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ford used to come to work in a big car with two Admiral's flags, on each side of the car. His assistant would be there with his accordion, playing, Hail to the Chief.</b>
-> <p><i>Richard Widmark</i></p>
+> <b>We prefer world law in the age of self-determination to world war in the age of mass extermination.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
