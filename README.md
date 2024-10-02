@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I was a woman, I would be dressed in the same thing for a month and just change my hat and gloves. Maybe my shoes too yes, I see what you mean but, really, it's jewels that change an outfit.</b>
-> <p><i>Manolo Blahnik</i></p>
+> <b>Revived in this country the long forgotten beauties of Gothic architecture.</b>
+> <p><i>James Wyatt</i></p>
 
 <br>
