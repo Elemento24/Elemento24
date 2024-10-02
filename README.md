@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My wife wants sex in the back of the car and she wants me to drive.</b>
-> <p><i>Rodney Dangerfield</i></p>
+> <b>I'm not gonna ride home in the car. I'll wait for Randy. I think I'll get home quicker.</b>
+> <p><i>Patsy Cline</i></p>
 
 <br>
