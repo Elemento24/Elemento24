@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The message I take all round the world is Britain is open for business.</b>
-> <p><i>William Hague</i></p>
+> <b>But Socialism, alone, can bring self-determination of their peoples.</b>
+> <p><i>Karl Liebknecht</i></p>
 
 <br>
