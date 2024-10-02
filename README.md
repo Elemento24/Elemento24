@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It begins and ends with money. It's absurd in this day and age when we need so much money for education, health, for people, that a $100 million dollars can be spent on a film. It's obscene.</b>
-> <p><i>Kathleen Turner</i></p>
+> <b>The percentage you're paying is too high priced While you're living beyond all your means And the man in the suit has just bought a new car From the profit he's made on your dreams.</b>
+> <p><i>Steve Winwood</i></p>
 
 <br>
