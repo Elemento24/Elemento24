@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You want to balance the budget in this country? We change the salary structure for Congress and the President. Every year they don't balance the budget, we don't pay them.</b>
-> <p><i>Daniel Keys Moran</i></p>
+> <b>It's amazing to me that young people will still pick up a cigarette.</b>
+> <p><i>Loni Anderson</i></p>
 
 <br>
