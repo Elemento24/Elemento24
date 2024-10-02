@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We prefer world law in the age of self-determination to world war in the age of mass extermination.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>If I was a woman, I would be dressed in the same thing for a month and just change my hat and gloves. Maybe my shoes too yes, I see what you mean but, really, it's jewels that change an outfit.</b>
+> <p><i>Manolo Blahnik</i></p>
 
 <br>
