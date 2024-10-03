@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was dating my first boyfriend in high school for a long time, and we broke up before prom. I hadn't met anyone else that I really wanted to go with, and my friends have always been amazing. So I went with my friends and got a million photos with them!</b>
-> <p><i>Shay Mitchell</i></p>
+> <b>Even if I know I shall never change the masses, never transform anything permanent, all I ask is that the good things also have their place, their refuge.</b>
+> <p><i>Richard Wagner</i></p>
 
 <br>
