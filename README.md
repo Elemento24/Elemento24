@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change of fashion is the tax levied by the industry of the poor on the vanity of the rich.</b>
-> <p><i>Nicolas Chamfort</i></p>
+> <b>'Summer of Love: Art of the Psychedelic Era,' the Whitney Museum's 40th-anniversary trip down counterculture memory lane, provides moments of buzzy fun, but it'll leave you only comfortably numb. For starters, it may be the whitest, straightest, most conservative show seen in a New York museum since psychedelia was new.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
