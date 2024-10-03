@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really would love to do a piece like Julia Roberts or Charlize Theron in 'Erin Brockovich' or 'North Country.' They were both so amazing and so inspiring. I would love to touch someone in the way their performances touched me.</b>
-> <p><i>Ashley Greene</i></p>
+> <b>I was dating my first boyfriend in high school for a long time, and we broke up before prom. I hadn't met anyone else that I really wanted to go with, and my friends have always been amazing. So I went with my friends and got a million photos with them!</b>
+> <p><i>Shay Mitchell</i></p>
 
 <br>
