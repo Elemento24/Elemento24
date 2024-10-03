@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who writes knows that ultimately the majority of your time is spent alone in a room with a piano or a guitar, no matter what the project is.</b>
-> <p><i>Trey Anastasio</i></p>
+> <b>I really would love to do a piece like Julia Roberts or Charlize Theron in 'Erin Brockovich' or 'North Country.' They were both so amazing and so inspiring. I would love to touch someone in the way their performances touched me.</b>
+> <p><i>Ashley Greene</i></p>
 
 <br>
