@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be successful in real estate, you must always and consistently put your clients' best interests first. When you do, your personal needs will be realized beyond your greatest expectations.</b>
-> <p><i>Anthony Hitt</i></p>
+> <b>I believe that Gandhi was correct. Non-violent civil disobedience is the only way to bring about change that allows people to enjoy the change and not get killed in the process.</b>
+> <p><i>Edward James Olmos</i></p>
 
 <br>
