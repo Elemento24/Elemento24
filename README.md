@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But the age of chivalry is gone. That of sophisters, economists, and calculators has succeeded and the glory of Europe is extinguished forever.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>Change of fashion is the tax levied by the industry of the poor on the vanity of the rich.</b>
+> <p><i>Nicolas Chamfort</i></p>
 
 <br>
