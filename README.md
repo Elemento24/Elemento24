@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I shall not change my course because those who assume to be better than I desire it.</b>
-> <p><i>Victoria Woodhull</i></p>
+> <b>The best executive is one who has sense enough to pick good people to do what he wants done, and self-restraint enough to keep from meddling with them while they do it.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
