@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I need some isolation, it's necessary to me, that's just who I am. I need to be left alone.</b>
-> <p><i>Laura Marling</i></p>
+> <b>I believe that being successful means having a balance of success stories across the many areas of your life. You can't truly be considered successful in your business life if your home life is in shambles.</b>
+> <p><i>Zig Ziglar</i></p>
 
 <br>
