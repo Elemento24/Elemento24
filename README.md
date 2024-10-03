@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best executive is one who has sense enough to pick good people to do what he wants done, and self-restraint enough to keep from meddling with them while they do it.</b>
-> <p><i>Theodore Roosevelt</i></p>
+> <b>I need some isolation, it's necessary to me, that's just who I am. I need to be left alone.</b>
+> <p><i>Laura Marling</i></p>
 
 <br>
