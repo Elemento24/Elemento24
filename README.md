@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Here's a proposal, offered only partly in jest: no resident of the United States, whether born here or abroad, should get to be a citizen until age 18, at which time each such resident has to take a test.</b>
-> <p><i>Eric Liu</i></p>
+> <b>When taxidermy is done well it's an amazing piece of art.</b>
+> <p><i>Amanda Seyfried</i></p>
 
 <br>
