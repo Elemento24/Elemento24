@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that being successful means having a balance of success stories across the many areas of your life. You can't truly be considered successful in your business life if your home life is in shambles.</b>
-> <p><i>Zig Ziglar</i></p>
+> <b>There is something about the South that accepts the supernatural. If you don't accept it and you're having a conversation with someone who does, it's just one of those polite things where you don't question their belief in ghosts. You just go, 'Oh, yeah, okay.' It's amazing to be able to have conversations like that.</b>
+> <p><i>Alice Englert</i></p>
 
 <br>
