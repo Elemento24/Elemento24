@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I see architecture not as Gropius did, as a moral venture, as truth, but as invention, in the same way that poetry or music or painting is invention.</b>
-> <p><i>Michael Graves</i></p>
+> <b>But the age of chivalry is gone. That of sophisters, economists, and calculators has succeeded and the glory of Europe is extinguished forever.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
