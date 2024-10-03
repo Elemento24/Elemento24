@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is something about the South that accepts the supernatural. If you don't accept it and you're having a conversation with someone who does, it's just one of those polite things where you don't question their belief in ghosts. You just go, 'Oh, yeah, okay.' It's amazing to be able to have conversations like that.</b>
-> <p><i>Alice Englert</i></p>
+> <b>While the river of life glides along smoothly, it remains the same river only the landscape on either bank seems to change.</b>
+> <p><i>Max Muller</i></p>
 
 <br>
