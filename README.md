@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once you take yourself too seriously the art will suffer.</b>
-> <p><i>Maynard James Keenan</i></p>
+> <b>Some people are born with a brain that has this weird, magical mathematical thing that makes them an amazing jazz musician.</b>
+> <p><i>Andy Richter</i></p>
 
 <br>
