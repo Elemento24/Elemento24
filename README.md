@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Doctrines provide an architecture for both Republican and Democrat presidents to carry out policies.</b>
-> <p><i>Malcolm Wallop</i></p>
+> <b>If I don't make the team out of spring training, I'll keep a good attitude. I'll just go polish up the parts of my game that made me not stay in the big leagues.</b>
+> <p><i>Cory Lidle</i></p>
 
 <br>
