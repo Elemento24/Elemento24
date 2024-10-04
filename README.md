@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Who knows better than artists how much ugliness there is on the way to beauty, how many ghastly, mortifying missteps, how many days of granitic blockheadedness and dismaying ineptitude there is on the way to accomplishment, how partial all accomplishment is, how incomplete?</b>
-> <p><i>Tony Kushner</i></p>
+> <b>Doctrines provide an architecture for both Republican and Democrat presidents to carry out policies.</b>
+> <p><i>Malcolm Wallop</i></p>
 
 <br>
