@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was never jailed. The fact is that I was arrested, but I went into a diversion programme, and by that time I'd already begun working in what was called anger management. It was a painful and awful moment.</b>
-> <p><i>David Soul</i></p>
+> <b>The young people have MTV and rock and roll. Why would they go to read poetry? Poetry belongs to the Stone Age. It awakens in us perceptions that go back to those times.</b>
+> <p><i>Robert Morgan</i></p>
 
 <br>
