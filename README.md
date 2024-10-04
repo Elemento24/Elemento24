@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I don't make the team out of spring training, I'll keep a good attitude. I'll just go polish up the parts of my game that made me not stay in the big leagues.</b>
-> <p><i>Cory Lidle</i></p>
+> <b>We accumulate our opinions at an age when our understanding is at its weakest.</b>
+> <p><i>Georg C. Lichtenberg</i></p>
 
 <br>
