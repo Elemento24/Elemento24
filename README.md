@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be with those who know secret things or else alone.</b>
-> <p><i>Rainer Maria Rilke</i></p>
+> <b>Man is unique not because he does science, and his is unique not because he does art, but because science and art equally are expressions of his marvelous plasticity of mind.</b>
+> <p><i>Jacob Bronowski</i></p>
 
 <br>
