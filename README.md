@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes, when my wife and I were going out to dinner, I would take my laptop with me and work in the car, so as to take advantage of the half hour going and coming.</b>
-> <p><i>Thomas Friedman</i></p>
+> <b>Who knows better than artists how much ugliness there is on the way to beauty, how many ghastly, mortifying missteps, how many days of granitic blockheadedness and dismaying ineptitude there is on the way to accomplishment, how partial all accomplishment is, how incomplete?</b>
+> <p><i>Tony Kushner</i></p>
 
 <br>
