@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If one's honest about it, spending time in a car with children is pretty ghastly.</b>
-> <p><i>Arabella Weir</i></p>
+> <b>Do right. Do your best. Treat others as you want to be treated.</b>
+> <p><i>Lou Holtz</i></p>
 
 <br>
