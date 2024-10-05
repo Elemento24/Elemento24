@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After I left the White House, I kept a foothold in the business of American politics as a talk-show host, analyst, commentator, speechmaker, and occasional writer. I was no longer a practitioner, but I was still a partisan, a Democrat, a blue-stater through and through.</b>
-> <p><i>Dee Dee Myers</i></p>
+> <b>It was amazing that a play that seems dated in this world... A man whose best friend is a six-foot white rabbit... But it caught on, especially with young people - they surprised me most of all.</b>
+> <p><i>James Stewart</i></p>
 
 <br>
