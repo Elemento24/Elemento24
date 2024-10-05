@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think having children is the most amazing thing.</b>
-> <p><i>Rachel Stevens</i></p>
+> <b>Anyone who thinks there's safety in numbers hasn't looked at the stock market pages.</b>
+> <p><i>Irene Peter</i></p>
 
 <br>
