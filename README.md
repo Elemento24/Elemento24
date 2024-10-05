@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do right. Do your best. Treat others as you want to be treated.</b>
-> <p><i>Lou Holtz</i></p>
+> <b>The Bible was a consolation to a fellow alone in the old cell. The lovely thin paper with a bit of matress stuffing in it, if you could get a match, was as good a smoke as I ever tasted.</b>
+> <p><i>Brendan Behan</i></p>
 
 <br>
