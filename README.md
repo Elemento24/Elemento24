@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The trouble with movies as a business is that it's an art, and the trouble with movies as art is that it's a business.</b>
-> <p><i>Charlton Heston</i></p>
+> <b>I've got volumes on how not to behave. I've got more information now than a guy should have at my age.</b>
+> <p><i>Charlie Sheen</i></p>
 
 <br>
