@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Science shows us truth and beauty and fills each day with a fresh wonder of the exquisite order which governs our world.</b>
-> <p><i>Polykarp Kusch</i></p>
+> <b>We say we want to create beauty, identity, quality, singularity. And yet, maybe in truth these cities that we have are desired. Maybe their very characterlessness provides the best context for living.</b>
+> <p><i>Rem Koolhaas</i></p>
 
 <br>
