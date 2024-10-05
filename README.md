@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Young people in the business have grown up and made the wrong decisions, or bad decisions, and haven't been good role models. To be someone that people look up to is important to me.</b>
-> <p><i>Justin Bieber</i></p>
+> <b>Well, Jeff Buckley for me is one of the greatest singers I've ever heard. And the reason why is he has an amazing range, amazing emotional power in his voice. And the music he put around it also just had this passion and this soul to it and this spirit to it that very few artists have, and he passed at a very young age.</b>
+> <p><i>John Legend</i></p>
 
 <br>
