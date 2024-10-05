@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think if you look at people, whether in business or government, who haven't had any moral compass, who've just changed to say whatever they thought the popular thing was, in the end they're losers.</b>
-> <p><i>Michael Bloomberg</i></p>
+> <b>It's so amazing to hear a crowd of people singing one of your songs. It's the best feeling.</b>
+> <p><i>Liam Payne</i></p>
 
 <br>
