@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And we turned off and 30 miles south they're standing in the middle of our road blocking our way, stopped the car, got out, took us through the path in the woods, where the craft was on the ground.</b>
-> <p><i>Betty Hill</i></p>
+> <b>Well, when you're the youngest of five, parents kind of lose interest more and more through the children. I think my eldest brother was under loads of pressure to do something amazing with his life, but by the time I came around they were like, 'Well, let's hope he doesn't kill a guy.'</b>
+> <p><i>Chris O'Dowd</i></p>
 
 <br>
