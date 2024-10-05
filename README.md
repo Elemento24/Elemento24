@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We say we want to create beauty, identity, quality, singularity. And yet, maybe in truth these cities that we have are desired. Maybe their very characterlessness provides the best context for living.</b>
-> <p><i>Rem Koolhaas</i></p>
+> <b>And we turned off and 30 miles south they're standing in the middle of our road blocking our way, stopped the car, got out, took us through the path in the woods, where the craft was on the ground.</b>
+> <p><i>Betty Hill</i></p>
 
 <br>
