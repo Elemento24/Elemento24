@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who thinks there's safety in numbers hasn't looked at the stock market pages.</b>
-> <p><i>Irene Peter</i></p>
+> <b>Prescription: A physician's guess at what will best prolong the situation with least harm to the patient.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
