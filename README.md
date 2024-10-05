@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a terrific marriage, but unlike a lot of relationships where they ebb and flow, no matter what happens you fall deeper and deeper in love every day. It's kind of the best thing that can happen to you. It's thrilling.</b>
-> <p><i>Hugh Jackman</i></p>
+> <b>Science shows us truth and beauty and fills each day with a fresh wonder of the exquisite order which governs our world.</b>
+> <p><i>Polykarp Kusch</i></p>
 
 <br>
