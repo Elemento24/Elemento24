@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to know the taste of a pear, you must change the pear by eating it yourself. If you want to know the theory and methods of revolution, you must take part in revolution. All genuine knowledge originates in direct experience.</b>
-> <p><i>Mao Zedong</i></p>
+> <b>Organisations are now confronted with two sources of change: the traditional type that is initiated and managed and external changes over which no one has control.</b>
+> <p><i>Margaret J. Wheatley</i></p>
 
 <br>
