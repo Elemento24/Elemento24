@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You hear the best stories from ordinary people. That sense of immediacy is more real to me than a lot of writerly, literary-type crafted stories. I want that immediacy when I read a novel.</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>I am married to the most amazing, generous and beautiful human being and it has been hard on him because from the outside if you look at it it's just all about me.</b>
+> <p><i>Emily Watson</i></p>
 
 <br>
