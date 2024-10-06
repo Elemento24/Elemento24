@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best argument against democracy is a five-minute conversation with the average voter.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>Wushu is a move in Chinese, a physical move. An attack. Wushu is like an art.</b>
+> <p><i>Jet Li</i></p>
 
 <br>
