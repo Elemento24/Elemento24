@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would rather be alone and a loud voice for action than be silent.</b>
-> <p><i>Susan Rice</i></p>
+> <b>When I speak of the beauty of a game of chess, then naturally this is subjective. Beauty can be found in a very technical, mathematical game for example. That is the beauty of clarity.</b>
+> <p><i>Vladimir Kramnik</i></p>
 
 <br>
