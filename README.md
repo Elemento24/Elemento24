@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most high courts in other nations do not have discretion, such as we enjoy, in selecting the cases that the high court reviews. Our court is virtually alone in the amount of discretion it has.</b>
-> <p><i>Sandra Day O'Connor</i></p>
+> <b>That's an amazing feeling, to walk onstage, and you're not thinking about anything, you're not thinking about your lines or what you're supposed to do - your body, your brain knows, so there's freedom. There's not fear, there's not nerves.</b>
+> <p><i>Eric McCormack</i></p>
 
 <br>
