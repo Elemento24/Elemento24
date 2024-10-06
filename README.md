@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think the Palestinian people or Afghan children or some other things I'm concerned about are at the top of other people's agendas - not right now, when America is going through such a recession and people are suffering across the board financially. But I think all that will change.</b>
-> <p><i>Patti Smith</i></p>
+> <b>When the Exxon Valdez spilled in 1989, I was angry. I even wrote on the back of my car, Boycott Exxon!</b>
+> <p><i>Alexandra Paul</i></p>
 
 <br>
