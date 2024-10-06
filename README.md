@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cannot go to Montreal without going to Beauty's, my favorite place for breakfast, where I have the Mish-Mash omelet with hot dogs, salami, eggs, green peppers, and onions, and the best banana bread in the world. It's legendary!</b>
-> <p><i>Gail Simmons</i></p>
+> <b>When you're doing the traditional musicals, singing songs that are 40 and 50 years old, you realize there's a reason why those musicals are hits. These are amazing songs!</b>
+> <p><i>Tom Wopat</i></p>
 
 <br>
