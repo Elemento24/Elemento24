@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When the Exxon Valdez spilled in 1989, I was angry. I even wrote on the back of my car, Boycott Exxon!</b>
-> <p><i>Alexandra Paul</i></p>
+> <b>I know that I've got big ears and a big forehead and that my hair sticks up. But I'm happy with myself. I'm not necessarily trying to win a beauty pageant here.</b>
+> <p><i>Clay Aiken</i></p>
 
 <br>
