@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that people don't know how to do anything anymore. My father was a janitor. He could take a car apart and put it back together. He could build a house in the back yard. Today, if you ask people what they know, they say, 'I know how to hire someone.'</b>
-> <p><i>Walter Mosley</i></p>
+> <b>Most high courts in other nations do not have discretion, such as we enjoy, in selecting the cases that the high court reviews. Our court is virtually alone in the amount of discretion it has.</b>
+> <p><i>Sandra Day O'Connor</i></p>
 
 <br>
