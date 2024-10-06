@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to lose weight is to close your mouth - something very difficult for a politician. Or watch your food - just watch it, don't eat it.</b>
-> <p><i>Edward Koch</i></p>
+> <b>What is being called the UN 'gender architecture' is more like a shack. Women need a bigger global house if equality is ever to become a reality.</b>
+> <p><i>Charlotte Bunch</i></p>
 
 <br>
