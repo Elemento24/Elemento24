@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let there be no mistake. A gay man alone could never begin to replicate the inner workings of the female mind.</b>
-> <p><i>Michael Patrick King</i></p>
+> <b>You hear the best stories from ordinary people. That sense of immediacy is more real to me than a lot of writerly, literary-type crafted stories. I want that immediacy when I read a novel.</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
