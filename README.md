@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know that I've got big ears and a big forehead and that my hair sticks up. But I'm happy with myself. I'm not necessarily trying to win a beauty pageant here.</b>
-> <p><i>Clay Aiken</i></p>
+> <b>In the practical art of war, the best thing of all is to take the enemy's country whole and intact to shatter and destroy it is not so good.</b>
+> <p><i>Sun Tzu</i></p>
 
 <br>
