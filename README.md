@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am married to the most amazing, generous and beautiful human being and it has been hard on him because from the outside if you look at it it's just all about me.</b>
-> <p><i>Emily Watson</i></p>
+> <b>Mom and Dad were married 64 years. And if you wondered what their secret was, you could have asked the local florist - because every day Dad gave Mom a rose, which he put on her bedside table. That's how she found out what happened on the day my father died - she went looking for him because that morning, there was no rose.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
