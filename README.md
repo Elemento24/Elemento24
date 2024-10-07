@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am but an architectural composer.</b>
-> <p><i>Alexander Jackson Davis</i></p>
+> <b>In an era ruled by materialism and unstable geopolitics, art must be restored to the center of public education.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
