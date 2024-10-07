@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not just in commerce but in the world of ideas too our age is putting on a veritable clearance sale. Everything can be had so dirt cheap that one begins to wonder whether in the end anyone will want to make a bid.</b>
-> <p><i>Soren Kierkegaard</i></p>
+> <b>I was a student at Columbia College, actually, in the Architecture school. Paul would drive in from Queens, showing me these new songs. I can't remember us working it out.</b>
+> <p><i>Art Garfunkel</i></p>
 
 <br>
