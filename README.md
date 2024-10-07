@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most terrifying thing I can think of is being alone - and I mean utterly alone, like no one else in the world alone - at night. That's the nucleus of the first story in my collection and it's also where the title came from for the book.</b>
-> <p><i>Paul Kane</i></p>
+> <b>I recognize in thieves, traitors and murderers, in the ruthless and the cunning, a deep beauty - a sunken beauty.</b>
+> <p><i>Jean Genet</i></p>
 
 <br>
