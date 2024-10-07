@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.</b>
-> <p><i>Mark Twain</i></p>
+> <b>Having my first number one single and being able to travel to places I've never been before has been amazing. The tour was also fantastic. There are so many things which I've experienced this year which I never even dreamed of.</b>
+> <p><i>Gareth Gates</i></p>
 
 <br>
