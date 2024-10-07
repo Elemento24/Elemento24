@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The British political system and the whole clapped out Westminster architecture, and the language that we use about politics, it's completely unsustainable. You either decide to be part of that transition to do something different. Or you cling to old certainties.</b>
-> <p><i>Nick Clegg</i></p>
+> <b>I've learned that life is very tricky business: Each person needs to find what they want to do in life and not be dissuaded when people question them.</b>
+> <p><i>Eli Wallach</i></p>
 
 <br>
