@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've learned that life is very tricky business: Each person needs to find what they want to do in life and not be dissuaded when people question them.</b>
-> <p><i>Eli Wallach</i></p>
+> <b>What strikes me is the fact that in our society, art has become something which is only related to objects, and not to individuals, or to life.</b>
+> <p><i>Michel Foucault</i></p>
 
 <br>
