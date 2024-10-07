@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is veneer, rouge, aestheticism, art museums, new theaters, etc. that make America impotent. The good things are football, kindness, and jazz bands.</b>
-> <p><i>George Santayana</i></p>
+> <b>I was quite a shy child. I would get terribly nervous and throw up before my birthday party. And then I would be fine. I feel the same now. I get nervous, then it's fine.</b>
+> <p><i>Matthew Macfadyen</i></p>
 
 <br>
