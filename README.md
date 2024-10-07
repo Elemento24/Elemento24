@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What strikes me is the fact that in our society, art has become something which is only related to objects, and not to individuals, or to life.</b>
-> <p><i>Michel Foucault</i></p>
+> <b>Not just in commerce but in the world of ideas too our age is putting on a veritable clearance sale. Everything can be had so dirt cheap that one begins to wonder whether in the end anyone will want to make a bid.</b>
+> <p><i>Soren Kierkegaard</i></p>
 
 <br>
