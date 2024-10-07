@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was quite a shy child. I would get terribly nervous and throw up before my birthday party. And then I would be fine. I feel the same now. I get nervous, then it's fine.</b>
-> <p><i>Matthew Macfadyen</i></p>
+> <b>The British political system and the whole clapped out Westminster architecture, and the language that we use about politics, it's completely unsustainable. You either decide to be part of that transition to do something different. Or you cling to old certainties.</b>
+> <p><i>Nick Clegg</i></p>
 
 <br>
