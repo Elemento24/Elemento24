@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Far from creating a new formalism, what these can yield is something far transcending surface values since they not only embody form as beauty, but also form in which intuitions or ideas or conjectures have taken visible substance.</b>
-> <p><i>Max Bill</i></p>
+> <b>I think the 1970s will always be the decade for me. Obviously, I grew up in that era, but the beauty standard was touchable, kissable.</b>
+> <p><i>Tom Ford</i></p>
 
 <br>
