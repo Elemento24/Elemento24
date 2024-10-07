@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In an era ruled by materialism and unstable geopolitics, art must be restored to the center of public education.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>Anger is an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
