@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was a student at Columbia College, actually, in the Architecture school. Paul would drive in from Queens, showing me these new songs. I can't remember us working it out.</b>
-> <p><i>Art Garfunkel</i></p>
+> <b>He who studies books alone will know how things ought to be, and he who studies men will know how they are.</b>
+> <p><i>Charles Caleb Colton</i></p>
 
 <br>
