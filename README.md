@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will never do another TV series. It couldn't top I Love Lucy, and I'd be foolish to try. In this business, you have to know when to get off.</b>
-> <p><i>Lucille Ball</i></p>
+> <b>You go through at least the first two years of Star Trek and you find some amazing stuff. Everything that was going on Gene put into the series. He just put strange costumes on the actors and painted them funny colours and left the same situation in.</b>
+> <p><i>Majel Barrett</i></p>
 
 <br>
