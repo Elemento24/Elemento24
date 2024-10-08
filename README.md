@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As an inspiration to the author, I do not think the cat can be over-estimated. He suggests so much grace, power, beauty, motion, mysticism. I do not wonder that many writers love cats I am only surprised that all do not.</b>
-> <p><i>Carl Van Vechten</i></p>
+> <b>It was just like a dream. I could have ended up with an album that's not all that different from anything else coming out of Nashville. Mutt made the difference. He took these songs, my attitude, my creativity, and colored them in a way that is unique.</b>
+> <p><i>Shania Twain</i></p>
 
 <br>
