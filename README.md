@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was just like a dream. I could have ended up with an album that's not all that different from anything else coming out of Nashville. Mutt made the difference. He took these songs, my attitude, my creativity, and colored them in a way that is unique.</b>
-> <p><i>Shania Twain</i></p>
+> <b>I'm a car fanatic and each morning I wake up with a smile on my face, whether I'm commentating on the Formula One or at Silver Hatch racetrack in Roary the Racing Car.</b>
+> <p><i>Murray Walker</i></p>
 
 <br>
