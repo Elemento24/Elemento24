@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men are amazing. I love the way they are. They're consistently little boys, and they need to be nurtured and loved. But at the same time, they need to feel like men.</b>
-> <p><i>Krista Allen</i></p>
+> <b>Sometimes movie-making happens like clockwork other times, like a car accident.</b>
+> <p><i>Eric Roberts</i></p>
 
 <br>
