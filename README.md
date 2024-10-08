@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We enter the world alone, we leave the world alone.</b>
-> <p><i>James Anthony Froude</i></p>
+> <b>Among all the tests President Obama faced in his first term, his biggest failure was climate change.</b>
+> <p><i>Jeff Goodell</i></p>
 
 <br>
