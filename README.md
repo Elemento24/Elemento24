@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you think spreading money around by force seems like an odd definition of fairness, you're not alone.</b>
-> <p><i>Arthur C. Brooks</i></p>
+> <b>Beyond the beauty, the sex, the titillation, the surface, there is a human being. And that has to emerge.</b>
+> <p><i>Jeanne Moreau</i></p>
 
 <br>
