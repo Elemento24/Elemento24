@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a car fanatic and each morning I wake up with a smile on my face, whether I'm commentating on the Formula One or at Silver Hatch racetrack in Roary the Racing Car.</b>
-> <p><i>Murray Walker</i></p>
+> <b>We enter the world alone, we leave the world alone.</b>
+> <p><i>James Anthony Froude</i></p>
 
 <br>
