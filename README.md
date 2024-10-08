@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes movie-making happens like clockwork other times, like a car accident.</b>
-> <p><i>Eric Roberts</i></p>
+> <b>As an inspiration to the author, I do not think the cat can be over-estimated. He suggests so much grace, power, beauty, motion, mysticism. I do not wonder that many writers love cats I am only surprised that all do not.</b>
+> <p><i>Carl Van Vechten</i></p>
 
 <br>
