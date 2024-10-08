@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Can anyone understand how it is to have lived in the White House and then, suddenly, to be living alone as the President's widow?</b>
-> <p><i>Jackie Kennedy</i></p>
+> <b>Men are amazing. I love the way they are. They're consistently little boys, and they need to be nurtured and loved. But at the same time, they need to feel like men.</b>
+> <p><i>Krista Allen</i></p>
 
 <br>
