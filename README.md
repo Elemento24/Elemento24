@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have made some of the best friends that I've got in this business.</b>
-> <p><i>Kate Moss</i></p>
+> <b>Painting is easy when you don't know how, but very difficult when you do.</b>
+> <p><i>Edgar Degas</i></p>
 
 <br>
