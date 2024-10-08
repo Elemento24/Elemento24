@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Certainly, travel is more than the seeing of sights it is a change that goes on, deep and permanent, in the ideas of living.</b>
-> <p><i>Miriam Beard</i></p>
+> <b>Education alone can conduct us to that enjoyment which is, at once, best in quality and infinite in quantity.</b>
+> <p><i>Horace Mann</i></p>
 
 <br>
