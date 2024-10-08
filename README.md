@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The perfection of art is to conceal art.</b>
-> <p><i>Quintilian</i></p>
+> <b>You talk about German technocracy and you get automobiles.</b>
+> <p><i>Gordon Sinclair</i></p>
 
 <br>
