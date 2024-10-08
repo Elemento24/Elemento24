@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beyond the beauty, the sex, the titillation, the surface, there is a human being. And that has to emerge.</b>
-> <p><i>Jeanne Moreau</i></p>
+> <b>Can anyone understand how it is to have lived in the White House and then, suddenly, to be living alone as the President's widow?</b>
+> <p><i>Jackie Kennedy</i></p>
 
 <br>
