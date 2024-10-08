@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ideal man bears the accidents of life with dignity and grace, making the best of circumstances.</b>
-> <p><i>Aristotle</i></p>
+> <b>Attitudes are more important than facts.</b>
+> <p><i>George MacDonald</i></p>
 
 <br>
