@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Among all the tests President Obama faced in his first term, his biggest failure was climate change.</b>
-> <p><i>Jeff Goodell</i></p>
+> <b>Certainly, travel is more than the seeing of sights it is a change that goes on, deep and permanent, in the ideas of living.</b>
+> <p><i>Miriam Beard</i></p>
 
 <br>
