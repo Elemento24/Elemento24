@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't believe in art. I believe in artists.</b>
-> <p><i>Marcel Duchamp</i></p>
+> <b>Reason and judgment are the qualities of a leader.</b>
+> <p><i>Tacitus</i></p>
 
 <br>
