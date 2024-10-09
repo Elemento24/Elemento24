@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing what ordinary people can do if they set out without preconceived notions.</b>
-> <p><i>Ben Stein</i></p>
+> <b>Let age, not envy, draw wrinkles on thy cheeks.</b>
+> <p><i>Thomas Browne</i></p>
 
 <br>
