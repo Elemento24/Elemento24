@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For his heart was in his work, and the heart giveth grace unto every art.</b>
-> <p><i>Henry Wadsworth Longfellow</i></p>
+> <b>I mean, I'm in the business of storytelling, not message making.</b>
+> <p><i>John le Carre</i></p>
 
 <br>
