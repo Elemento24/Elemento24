@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only change is that baseball has turned Paige from a second class citizen to a second class immortal.</b>
-> <p><i>Satchel Paige</i></p>
+> <b>There's another way we are getting behind business - by sorting out the banks. Taxpayers bailed you out. Now it's time for you to repay the favour and start lending to Britain's small businesses.</b>
+> <p><i>David Cameron</i></p>
 
 <br>
