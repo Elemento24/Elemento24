@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I enjoy trying to develop a car and Mercedes are one of the biggest car manufacturers in the world.</b>
-> <p><i>Lewis Hamilton</i></p>
+> <b>The amazing thing now is that most of those so-called critics who were telling me to find my own voice seem to have lost theirs.</b>
+> <p><i>Brian Lumley</i></p>
 
 <br>
