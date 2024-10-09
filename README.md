@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reason and judgment are the qualities of a leader.</b>
-> <p><i>Tacitus</i></p>
+> <b>Sometimes I have these fantasies of just moving to a foreign country and coming back with a full head of hair. Or not even come back! Make a new life there with hair... Change my name, just see what happens.</b>
+> <p><i>Larry David</i></p>
 
 <br>
