@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Leave the President's family business to him. You will have plenty to do without trying to manage the First Family. They are likely to do fine without your help.</b>
-> <p><i>Donald Rumsfeld</i></p>
+> <b>I enjoy trying to develop a car and Mercedes are one of the biggest car manufacturers in the world.</b>
+> <p><i>Lewis Hamilton</i></p>
 
 <br>
