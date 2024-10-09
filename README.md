@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's another way we are getting behind business - by sorting out the banks. Taxpayers bailed you out. Now it's time for you to repay the favour and start lending to Britain's small businesses.</b>
-> <p><i>David Cameron</i></p>
+> <b>That's the beauty of being a comedian - it's the one job you're allowed to do that. We're lucky. We're really lucky.</b>
+> <p><i>Colin Quinn</i></p>
 
 <br>
