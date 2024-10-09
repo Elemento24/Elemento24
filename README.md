@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, I'm in the business of storytelling, not message making.</b>
-> <p><i>John le Carre</i></p>
+> <b>There is no definition of beauty, but when you can see someone's spirit coming through, something unexplainable, that's beautiful to me.</b>
+> <p><i>Liv Tyler</i></p>
 
 <br>
