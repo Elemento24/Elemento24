@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The amazing thing now is that most of those so-called critics who were telling me to find my own voice seem to have lost theirs.</b>
-> <p><i>Brian Lumley</i></p>
+> <b>Without a family, man, alone in the world, trembles with the cold.</b>
+> <p><i>Andre Maurois</i></p>
 
 <br>
