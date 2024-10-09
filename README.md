@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No one should be left to suffer alone.</b>
-> <p><i>Daisaku Ikeda</i></p>
+> <b>Writing fiction has become a priestly business in countries that have lost their faith.</b>
+> <p><i>Gore Vidal</i></p>
 
 <br>
