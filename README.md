@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let age, not envy, draw wrinkles on thy cheeks.</b>
-> <p><i>Thomas Browne</i></p>
+> <b>For his heart was in his work, and the heart giveth grace unto every art.</b>
+> <p><i>Henry Wadsworth Longfellow</i></p>
 
 <br>
