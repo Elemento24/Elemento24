@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is changing. Again. Here. Now. Opportunities to witness this are rare, so attend and observe.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>No community values entrepreneurship and small business more than the Hispanic community.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
