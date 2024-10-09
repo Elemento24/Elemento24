@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No community values entrepreneurship and small business more than the Hispanic community.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>The body is like a car: the older you become the more care you have to take care of it - and you don't leave a Ferrari out in the sun.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
