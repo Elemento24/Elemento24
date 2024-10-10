@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty in things exists in the mind which contemplates them.</b>
-> <p><i>David Hume</i></p>
+> <b>By all but the pathologically romantic, it is now recognized that this is not the age of the small man.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
