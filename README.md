@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, out-of-touch liberals like Barack Obama say they want a strong economy, but in everything they do, they show they don't like business very much. But the economy, of course, is simply the product of all the businesses of the nation added together. So it's a bit like saying you like an omelet, but you don't like eggs.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>It's good for everyone to understand that they are to love their enemies, simply because your enemies show you things about yourself you need to change. So in actuality enemies are friends in reverse.</b>
+> <p><i>Gary Busey</i></p>
 
 <br>
