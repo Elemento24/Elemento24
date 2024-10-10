@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It would be difficult for me not to conclude that the most perfect type of masculine beauty is Satan, as portrayed by Milton.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>I have a fine level of recognition in the business and among the acting community now, so I consider myself one of the lucky ones. If I didn't think that, there would be something wrong with me. I'm grateful and thankful for what I've got.</b>
+> <p><i>Philip Seymour Hoffman</i></p>
 
 <br>
