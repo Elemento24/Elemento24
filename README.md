@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always had an affinity and a passion for cars and that whole car culture.</b>
-> <p><i>Ludacris</i></p>
+> <b>Do not follow vain desires for verily he who prospers is preserved from lust, greed and anger.</b>
+> <p><i>Abu Bakr</i></p>
 
 <br>
