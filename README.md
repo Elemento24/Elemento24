@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no definition of beauty, but when you can see someone's spirit coming through, something unexplainable, that's beautiful to me.</b>
-> <p><i>Liv Tyler</i></p>
+> <b>I've found the best way is to not be scared of the attention but to be grateful for it and open to it. It makes my days better rather than being annoyed that people want my attention.</b>
+> <p><i>Brandon Routh</i></p>
 
 <br>
