@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is inhabited sculpture.</b>
-> <p><i>Constantin Brancusi</i></p>
+> <b>Who knows what true loneliness is - not the conventional word but the naked terror? To the lonely themselves it wears a mask. The most miserable outcast hugs some memory or some illusion.</b>
+> <p><i>Joseph Conrad</i></p>
 
 <br>
