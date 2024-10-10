@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not follow vain desires for verily he who prospers is preserved from lust, greed and anger.</b>
-> <p><i>Abu Bakr</i></p>
+> <b>It would be difficult for me not to conclude that the most perfect type of masculine beauty is Satan, as portrayed by Milton.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
