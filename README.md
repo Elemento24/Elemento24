@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Who knows what true loneliness is - not the conventional word but the naked terror? To the lonely themselves it wears a mask. The most miserable outcast hugs some memory or some illusion.</b>
-> <p><i>Joseph Conrad</i></p>
+> <b>I want to apologize to all of the people I have let down because of my behavior which has reflected badly on my family, friends, co-workers, business associates and others.</b>
+> <p><i>Kate Moss</i></p>
 
 <br>
