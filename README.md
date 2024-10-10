@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Skill without imagination is craftsmanship and gives us many useful objects such as wickerwork picnic baskets. Imagination without skill gives us modern art.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>I just want to be a part of great stories, whether I'm part of an amazing ensemble cast or I'm leading it or the antagonist or whatever.</b>
+> <p><i>Zoe Saldana</i></p>
 
 <br>
