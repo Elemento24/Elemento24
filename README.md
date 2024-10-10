@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are as many kinds of beauty as there are habitual ways of seeking happiness.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>Architecture is inhabited sculpture.</b>
+> <p><i>Constantin Brancusi</i></p>
 
 <br>
