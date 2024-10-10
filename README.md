@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's good for everyone to understand that they are to love their enemies, simply because your enemies show you things about yourself you need to change. So in actuality enemies are friends in reverse.</b>
-> <p><i>Gary Busey</i></p>
+> <b>I never want to change so much that people can't recognize me.</b>
+> <p><i>Taylor Swift</i></p>
 
 <br>
