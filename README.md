@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not a handicraft, it is the transmission of feeling the artist has experienced.</b>
-> <p><i>Leo Tolstoy</i></p>
+> <b>That's when it really came together for me that I was in a Bond film, to have my own spy car!</b>
+> <p><i>Rick Yune</i></p>
 
 <br>
