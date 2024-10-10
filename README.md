@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love her attitude, but as much as I'd like to bring my medals to a speech or appearance, I never do.</b>
-> <p><i>Mary Lou Retton</i></p>
+> <b>I've made movies that cost less than one car chase.</b>
+> <p><i>Sam Mendes</i></p>
 
 <br>
