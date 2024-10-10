@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's when it really came together for me that I was in a Bond film, to have my own spy car!</b>
-> <p><i>Rick Yune</i></p>
+> <b>I've always had an affinity and a passion for cars and that whole car culture.</b>
+> <p><i>Ludacris</i></p>
 
 <br>
