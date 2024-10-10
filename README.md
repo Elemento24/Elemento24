@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've made movies that cost less than one car chase.</b>
-> <p><i>Sam Mendes</i></p>
+> <b>Art is not a handicraft, it is the transmission of feeling the artist has experienced.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
