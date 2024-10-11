@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is there some risk every day we walk out our front door? Every time we get in our car? Yeah. Are we materially less safe now than we were 10 years ago? Whatever delta there is, it's very small.</b>
-> <p><i>John Hickenlooper</i></p>
+> <b>Fame and stuff like that is all very cool, but at the end of the day, we're all human beings. Although what I do is incredibly surreal and fun and amazing and I'm really grateful for it, I don't believe my own press release, do you know what I mean?</b>
+> <p><i>Tom Hardy</i></p>
 
 <br>
