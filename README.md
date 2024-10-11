@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you have a tough loss, go through it and agonize. I had one loss that I still want to change, but at the same time I realize it is an important part of who I am.</b>
-> <p><i>Andrew Shue</i></p>
+> <b>President Obama's version of America is a divided one - pitting us against each other based on our income level, gender, and social status. His policies have failed! We are not better off than we were 4 years ago, and no rhetoric, bumper sticker, or campaign ad can change that.</b>
+> <p><i>Mia Love</i></p>
 
 <br>
