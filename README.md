@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fame and stuff like that is all very cool, but at the end of the day, we're all human beings. Although what I do is incredibly surreal and fun and amazing and I'm really grateful for it, I don't believe my own press release, do you know what I mean?</b>
-> <p><i>Tom Hardy</i></p>
+> <b>It seems to me there is a change in what audiences want to see. I can only hope that's correct, because there's an awful lot of people of my age around now and we outnumber the others.</b>
+> <p><i>Maggie Smith</i></p>
 
 <br>
