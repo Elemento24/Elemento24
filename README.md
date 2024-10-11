@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm one of those people that thinks the Internet is amazing, and I can't believe it exists.</b>
-> <p><i>Mayim Bialik</i></p>
+> <b>I worked hard in gymnastics since the time I was six years old until I retired at 23 years of age.</b>
+> <p><i>Nadia Comaneci</i></p>
 
 <br>
