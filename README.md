@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody has wrestled everybody in the business like I have, especially not Bret Hart.</b>
-> <p><i>Ric Flair</i></p>
+> <b>Beer, it's the best damn drink in the world.</b>
+> <p><i>Jack Nicholson</i></p>
 
 <br>
