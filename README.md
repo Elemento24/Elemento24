@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Many people would no more think of entering journalism than the sewage business - which at least does us all some good.</b>
-> <p><i>Stephen Fry</i></p>
+> <b>Tramping is too easy with all this money. My days were more exciting when I was penniless and had to forage around for my next meal... I've decided that I'm going to live this life for some time to come. The freedom and simple beauty of it is just too good to pass up.</b>
+> <p><i>Christopher McCandless</i></p>
 
 <br>
