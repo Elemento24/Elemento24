@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My best moment? I have a lot of good moments but the one I prefer is when I kicked the hooligan.</b>
-> <p><i>Eric Cantona</i></p>
+> <b>Beauty awakens the soul to act.</b>
+> <p><i>Dante Alighieri</i></p>
 
 <br>
