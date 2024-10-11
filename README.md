@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm afraid that if you look at a thing long enough, it loses all of its meaning.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>For me, 'revolution' simply means radical change.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
