@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business of the advertiser is to see that we go about our business with some magic spell or tune or slogan throbbing quietly in the background of our minds.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>Many people would no more think of entering journalism than the sewage business - which at least does us all some good.</b>
+> <p><i>Stephen Fry</i></p>
 
 <br>
