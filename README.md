@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beer, it's the best damn drink in the world.</b>
-> <p><i>Jack Nicholson</i></p>
+> <b>Art in Nature is rhythmic and has a horror of constraint.</b>
+> <p><i>Robert Delaunay</i></p>
 
 <br>
