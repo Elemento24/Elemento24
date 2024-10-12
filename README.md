@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A great building must begin with the unmeasurable, must go through measurable means when it is being designed and in the end must be unmeasurable.</b>
-> <p><i>Louis Kahn</i></p>
+> <b>I did a cake for the 60th birthday of Elton John, for Britney Spears' 27th birthday and for the 'Circus' album she put out - the cake had circus themes. I prepared a cake for a surprise 82nd birthday event for the architect Frank Gehry the cake was comprised of mini-replicas of his buildings.</b>
+> <p><i>Ron Ben-Israel</i></p>
 
 <br>
