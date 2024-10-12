@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up on a farm in a small town where you do or say one thing and everybody knows about it. You see it happen, there's always the town gossip - 'Oh did you hear about so and so, or did you hear what went on in this household?' So I learned at a very young age just to keep my mouth shut.</b>
-> <p><i>Garrett Hedlund</i></p>
+> <b>As a standup, I try to change the world. As an entertainer, I try to entertain. And as a lesbian, I try to pick up the prettiest girl in the room.</b>
+> <p><i>Lea DeLaria</i></p>
 
 <br>
