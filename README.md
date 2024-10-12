@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I could go away tomorrow. I've already accomplished something. It's such a selfish business that sometimes I get sick of myself.</b>
-> <p><i>Jim Carrey</i></p>
+> <b>For students today, only 10 percent of children from working-class families graduate from college by the age of 24 as compared to 58 percent of upper-middle-class and wealthy families.</b>
+> <p><i>Patrick J. Kennedy</i></p>
 
 <br>
