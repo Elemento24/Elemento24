@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people say it might be good for your career to die and then come back again. I have died many ways, car crashes, motorcycle crashes, etc. But, I am still alive.</b>
-> <p><i>Mark-Paul Gosselaar</i></p>
+> <b>Speak the truth, do not yield to anger give, if thou art asked for little by these three steps thou wilt go near the gods.</b>
+> <p><i>Confucius</i></p>
 
 <br>
