@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art in Nature is rhythmic and has a horror of constraint.</b>
-> <p><i>Robert Delaunay</i></p>
+> <b>The thing that lies at the foundation of positive change, the way I see it, is service to a fellow human being.</b>
+> <p><i>Lech Walesa</i></p>
 
 <br>
