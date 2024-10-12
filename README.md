@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Speak the truth, do not yield to anger give, if thou art asked for little by these three steps thou wilt go near the gods.</b>
-> <p><i>Confucius</i></p>
+> <b>A great building must begin with the unmeasurable, must go through measurable means when it is being designed and in the end must be unmeasurable.</b>
+> <p><i>Louis Kahn</i></p>
 
 <br>
