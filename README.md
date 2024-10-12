@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always had the attitude that I wanted to throw a no-hitter every game.</b>
-> <p><i>Dennis Eckersley</i></p>
+> <b>People can try to reinvent themselves. I don't think you can really change who you are, though, because who you are is pretty much where you came from and what you've done up to now.</b>
+> <p><i>Eminem</i></p>
 
 <br>
