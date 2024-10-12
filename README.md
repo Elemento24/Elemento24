@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like to work with assistants. I'm already one too many the camera alone would be enough.</b>
-> <p><i>Alfred Eisenstaedt</i></p>
+> <b>I've always felt that sexuality is a really slippery thing. In this day and age, it tends to get categorized and labeled, and I think labels are for food. Canned food.</b>
+> <p><i>Michael Stipe</i></p>
 
 <br>
