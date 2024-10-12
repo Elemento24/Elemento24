@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For success, attitude is equally as important as ability.</b>
-> <p><i>Walter Scott</i></p>
+> <b>I love my wife and I know she loves me. We're best friends. We're just lucky to have found each other. It takes a lot of work but I just feel very blessed that I found the right person. It's a very fortunate situation and not everyone has that.</b>
+> <p><i>Harry Connick, Jr.</i></p>
 
 <br>
