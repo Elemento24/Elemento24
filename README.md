@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The incestuous relationship between government and big business thrives in the dark.</b>
-> <p><i>Jack Anderson</i></p>
+> <b>People criticized me for my photography. They said it's not art.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
