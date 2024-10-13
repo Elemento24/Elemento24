@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dad was my best friend and greatest role model. He was an amazing dad, coach, mentor, soldier, husband and friend.</b>
-> <p><i>Tiger Woods</i></p>
+> <b>It seems almost backwards to me that my music seems the more emotional outlet, and the art stuff seems more about ideas.</b>
+> <p><i>David Byrne</i></p>
 
 <br>
