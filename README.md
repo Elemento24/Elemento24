@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For students today, only 10 percent of children from working-class families graduate from college by the age of 24 as compared to 58 percent of upper-middle-class and wealthy families.</b>
-> <p><i>Patrick J. Kennedy</i></p>
+> <b>I'm not good at normal things. I can't drive a car. I couldn't read till I was 10.</b>
+> <p><i>Michael Lindsay-Hogg</i></p>
 
 <br>
