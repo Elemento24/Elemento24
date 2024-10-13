@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But my passion is racing cars. It's what I like to do in my off time.</b>
-> <p><i>Mark-Paul Gosselaar</i></p>
+> <b>My dad had this philosophy that if you tell children they're beautiful and wonderful then they believe it, and they will be. So I never thought I was unattractive. But I was never one of the girls at school who had lots of boyfriends.</b>
+> <p><i>Emily Mortimer</i></p>
 
 <br>
