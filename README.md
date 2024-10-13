@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Legend: A lie that has attained the dignity of age.</b>
-> <p><i>H. L. Mencken</i></p>
+> <b>I mean the beauty of being a writer is it's not like being a swimmer. When they were talking about our Olympic swimmers and they'd say, 'Oh she's so old,' and she's all of 25 or something. So the beauty for a writer is that you can keep doing it right into your dotage, and I hope to be able to keep doing it as long as I can get away with it, yeah.</b>
+> <p><i>Geraldine Brooks</i></p>
 
 <br>
