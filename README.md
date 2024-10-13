@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do like to write nasty songs. It's a useful weapon to have, and it's cathartic as well, because I create art out of anger, something positive out of something negative.</b>
-> <p><i>Lisa Marie Presley</i></p>
+> <b>The incestuous relationship between government and big business thrives in the dark.</b>
+> <p><i>Jack Anderson</i></p>
 
 <br>
