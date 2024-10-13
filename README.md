@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In life, you need a house and a car. After that, you have a choice.</b>
-> <p><i>Xavier Niel</i></p>
+> <b>Every time I hear, Cut. Print, something cold and electrical goes off in my head, because I'm never going to change that film.</b>
+> <p><i>David Ogden Stiers</i></p>
 
 <br>
