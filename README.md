@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The lonely become either thoughtful or empty.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>But my passion is racing cars. It's what I like to do in my off time.</b>
+> <p><i>Mark-Paul Gosselaar</i></p>
 
 <br>
