@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, I'd love to work with Kate Winslet - she's amazing.</b>
-> <p><i>Elizabeth Olsen</i></p>
+> <b>In life, you need a house and a car. After that, you have a choice.</b>
+> <p><i>Xavier Niel</i></p>
 
 <br>
