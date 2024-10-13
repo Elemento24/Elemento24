@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every business and every product has risks. You can't get around it.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>Well, I'd love to work with Kate Winslet - she's amazing.</b>
+> <p><i>Elizabeth Olsen</i></p>
 
 <br>
