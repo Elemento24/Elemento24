@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone enjoys doing the kind of work for which he is best suited.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>I find that a man is as old as his work. If his work keeps him from moving forward, he will look forward with the work.</b>
+> <p><i>William Ernest Hocking</i></p>
 
 <br>
