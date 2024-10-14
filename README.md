@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People like eccentrics. Therefore they will leave me alone, saying that I am a mad clown.</b>
-> <p><i>Vaslav Nijinsky</i></p>
+> <b>The racing driver's mind has to have the ability to have amazing anticipation, coordination, and reflex. Because of the speed the car goes.</b>
+> <p><i>Emerson Fittipaldi</i></p>
 
 <br>
