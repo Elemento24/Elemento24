@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I read and walked for miles at night along the beach, writing bad blank verse and searching endlessly for someone wonderful who would step out of the darkness and change my life. It never crossed my mind that that person could be me.</b>
-> <p><i>Anna Quindlen</i></p>
+> <b>To some extent, Seattle remains a frontier metropolis, a place where people can experiment with their lives, and change and grow and make things happen.</b>
+> <p><i>Tom Robbins</i></p>
 
 <br>
