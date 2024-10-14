@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The sole art that suits me is that which, rising from unrest, tends toward serenity.</b>
-> <p><i>Andre Gide</i></p>
+> <b>When you are balanced and when you listen and attend to the needs of your body, mind, and spirit, your natural beauty comes out.</b>
+> <p><i>Christy Turlington</i></p>
 
 <br>
