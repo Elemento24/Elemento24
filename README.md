@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Really I don't like human nature unless all candied over with art.</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>I've chosen my wedding ring large and heavy to continue forever. But exactly because of that all the time that Dave and I have an argument I feel it like handcuffs, and on anger time I throw it in a basket. Poor Dave, he bought me three wedding rings already!</b>
+> <p><i>Carmen Miranda</i></p>
 
 <br>
