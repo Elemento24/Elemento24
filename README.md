@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To some extent, Seattle remains a frontier metropolis, a place where people can experiment with their lives, and change and grow and make things happen.</b>
-> <p><i>Tom Robbins</i></p>
+> <b>To live alone is the fate of all great souls.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
