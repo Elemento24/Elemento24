@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Jealousy is no more than feeling alone against smiling enemies.</b>
-> <p><i>Elizabeth Bowen</i></p>
+> <b>Everyone enjoys doing the kind of work for which he is best suited.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
