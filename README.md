@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents were amazing people who had no business being together - and they knew it.</b>
-> <p><i>James Denton</i></p>
+> <b>When I say that human beings are just gene machines, one shouldn't put too much emphasis on the word 'just.' There is a very great deal of complication, and indeed beauty in being a gene machine.</b>
+> <p><i>Richard Dawkins</i></p>
 
 <br>
