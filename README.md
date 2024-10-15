@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything great in the world comes from neurotics. They alone have founded our religions and composed our masterpieces.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>Working on the 'Ice Age' movies, I'm really proud to be in them.</b>
+> <p><i>Seann William Scott</i></p>
 
 <br>
