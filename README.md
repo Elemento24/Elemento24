@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always anti-marriage. I didn't understand monogamy. I couldn't figure out how that could last. And then I met Bryn and I started to understand the beauty of constancy and history and change and going on the roller coaster with someone - of having a partner in life.</b>
-> <p><i>Maria Bello</i></p>
+> <b>Environmentalists have a very conflicted relationship with their cars.</b>
+> <p><i>Tom Arnold</i></p>
 
 <br>
