@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What reader wants to be told what attitude to strike?</b>
-> <p><i>Ian Mcewan</i></p>
+> <b>Change your opinions, keep to your principles change your leaves, keep intact your roots.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
