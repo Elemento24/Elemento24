@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Environmentalists have a very conflicted relationship with their cars.</b>
-> <p><i>Tom Arnold</i></p>
+> <b>The best argument I know for an immortal life is the existence of a man who deserves one.</b>
+> <p><i>William James</i></p>
 
 <br>
