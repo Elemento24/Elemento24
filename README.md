@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes the best lighting of all is a power failure.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>When I performed at 'Open Mic U.K.' I had this connection with the audience that I'd never felt before, and I loved it. It was my first big thing, and looking out into the crowd... was just amazing.</b>
+> <p><i>Birdy</i></p>
 
 <br>
