@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reason that the all-American boy prefers beauty to brains is that he can see better than he can think.</b>
-> <p><i>Farrah Fawcett</i></p>
+> <b>People criticized me for my photography. They said it's not art.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
