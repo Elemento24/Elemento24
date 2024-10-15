@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The camera fails to capture the 'business' in show business! We typically will give 10 percent of our salary to the agent, 10 percent to the manager, and 5 percent to the lawyer, plus the publicist gets a flat fee, which needs to be budgeted for.</b>
-> <p><i>Danica McKellar</i></p>
+> <b>We should meet abuse by forbearance. Human nature is so constituted that if we take absolutely no notice of anger or abuse, the person indulging in it will soon weary of it and stop.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
