@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change your opinions, keep to your principles change your leaves, keep intact your roots.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>Everything great in the world comes from neurotics. They alone have founded our religions and composed our masterpieces.</b>
+> <p><i>Marcel Proust</i></p>
 
 <br>
