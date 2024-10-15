@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best argument I know for an immortal life is the existence of a man who deserves one.</b>
-> <p><i>William James</i></p>
+> <b>You are always free to change your mind and choose a different future, or a different past.</b>
+> <p><i>Richard Bach</i></p>
 
 <br>
