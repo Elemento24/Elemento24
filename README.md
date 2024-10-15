@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people who live in a golden age usually go around complaining how yellow everything looks.</b>
-> <p><i>Randall Jarrell</i></p>
+> <b>My parents were amazing people who had no business being together - and they knew it.</b>
+> <p><i>James Denton</i></p>
 
 <br>
