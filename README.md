@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Working on the 'Ice Age' movies, I'm really proud to be in them.</b>
-> <p><i>Seann William Scott</i></p>
+> <b>Never go to bed angry, stay up and fight.</b>
+> <p><i>William Congreve</i></p>
 
 <br>
