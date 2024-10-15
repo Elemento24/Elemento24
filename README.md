@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Advertising is a racket, like the movies and the brokerage business. You cannot be honest without admitting that its constructive contribution to humanity is exactly minus zero.</b>
-> <p><i>F. Scott Fitzgerald</i></p>
+> <b>Sometimes the best lighting of all is a power failure.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
