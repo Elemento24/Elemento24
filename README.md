@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People criticized me for my photography. They said it's not art.</b>
-> <p><i>David Hockney</i></p>
+> <b>The people who live in a golden age usually go around complaining how yellow everything looks.</b>
+> <p><i>Randall Jarrell</i></p>
 
 <br>
