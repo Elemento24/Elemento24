@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't get me wrong, I admire elegance and have an appreciation of the finer things in life. But to me, beauty lies in simplicity.</b>
-> <p><i>Mark Hyman</i></p>
+> <b>If a man does his best, what else is there?</b>
+> <p><i>George S. Patton</i></p>
 
 <br>
