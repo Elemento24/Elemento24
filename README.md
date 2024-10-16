@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't change, then what's the point of anything happening to you?</b>
-> <p><i>Doug Coupland</i></p>
+> <b>My acting career began at age three and my parents got me into it. I was in a McDonald's commercial.</b>
+> <p><i>Corey Feldman</i></p>
 
 <br>
