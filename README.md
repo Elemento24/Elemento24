@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The writer, when he is also an artist, is someone who admits what others don't dare reveal.</b>
-> <p><i>Elia Kazan</i></p>
+> <b>I've been left alone, even by the paparazzi, because what sells is sex and scandal. Absent that, they really don't have much interest in you. I'm still married, still working, still happy.</b>
+> <p><i>Matt Damon</i></p>
 
 <br>
