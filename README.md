@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To stand up on a stage alone with an acoustic guitar requires bravery bordering on heroism. Bordering on insanity.</b>
-> <p><i>Richard Thompson</i></p>
+> <b>I used to be good with kids, but as I get older, I'm grumpy and terrible with them. As for doing a gig at a 6-year old's birthday party, you couldn't pay me enough.</b>
+> <p><i>Johnny Vegas</i></p>
 
 <br>
