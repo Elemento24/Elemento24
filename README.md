@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My acting career began at age three and my parents got me into it. I was in a McDonald's commercial.</b>
-> <p><i>Corey Feldman</i></p>
+> <b>I always carry lip balm and lipstick. Lipstick is a very important beauty product because I find that lips are the most beautiful feature of anyone's face.</b>
+> <p><i>Fan Binbing</i></p>
 
 <br>
