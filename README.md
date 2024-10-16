@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The secret of long life is double careers. One to about age sixty, then another for the next thirty years.</b>
-> <p><i>David Ogilvy</i></p>
+> <b>People can inhabit anything. And they can be miserable in anything and ecstatic in anything. More and more I think that architecture has nothing to do with it. Of course, that's both liberating and alarming.</b>
+> <p><i>Rem Koolhaas</i></p>
 
 <br>
