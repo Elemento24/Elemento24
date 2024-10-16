@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He has a profound respect for old age. Especially when it's bottled.</b>
-> <p><i>Gene Fowler</i></p>
+> <b>I conceived in art college at the age of 20, near the end of term.</b>
+> <p><i>Joni Mitchell</i></p>
 
 <br>
