@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used the music kind of as therapy, and it's just amazing that I feel so free after doing that. I feel like I had it trapped inside of me and now I feel free. So it's been a very good therapy session for me as well.</b>
-> <p><i>Vanilla Ice</i></p>
+> <b>He has a profound respect for old age. Especially when it's bottled.</b>
+> <p><i>Gene Fowler</i></p>
 
 <br>
