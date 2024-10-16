@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Goodness is beauty in the best estate.</b>
-> <p><i>Christopher Marlowe</i></p>
+> <b>When a man's best friend is his dog, that dog has a problem.</b>
+> <p><i>Edward Abbey</i></p>
 
 <br>
