@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are always free to change your mind and choose a different future, or a different past.</b>
-> <p><i>Richard Bach</i></p>
+> <b>The amazing thing is that I'm sane. I'm not bitter. I'm not drugged out. I'm not broke. I'm still married to the same guy. My children don't hate me.</b>
+> <p><i>Brenda Lee</i></p>
 
 <br>
