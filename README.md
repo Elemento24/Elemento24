@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a punk-rock attitude, clearly, to 'Hated.' There's even a punk-rock attitude to 'The Hangover,' I think. We start the movie with a Glenn Danzig song.</b>
-> <p><i>Todd Phillips</i></p>
+> <b>The secret of long life is double careers. One to about age sixty, then another for the next thirty years.</b>
+> <p><i>David Ogilvy</i></p>
 
 <br>
