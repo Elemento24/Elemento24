@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People can inhabit anything. And they can be miserable in anything and ecstatic in anything. More and more I think that architecture has nothing to do with it. Of course, that's both liberating and alarming.</b>
-> <p><i>Rem Koolhaas</i></p>
+> <b>We are all revolutionaries now, addicts of change.</b>
+> <p><i>Christopher Lasch</i></p>
 
 <br>
