@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been left alone, even by the paparazzi, because what sells is sex and scandal. Absent that, they really don't have much interest in you. I'm still married, still working, still happy.</b>
-> <p><i>Matt Damon</i></p>
+> <b>The best way to remember your wife's birthday is to remember it once.</b>
+> <p><i>E. Joseph Cossman</i></p>
 
 <br>
