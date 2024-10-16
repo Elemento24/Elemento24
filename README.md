@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is not caused. It is.</b>
-> <p><i>Emily Dickinson</i></p>
+> <b>Goodness is beauty in the best estate.</b>
+> <p><i>Christopher Marlowe</i></p>
 
 <br>
