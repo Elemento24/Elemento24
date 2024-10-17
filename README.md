@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never hurt nobody but myself and that's nobody's business but my own.</b>
-> <p><i>Billie Holiday</i></p>
+> <b>I can't change overnight into a serious literary author. You can't compare apples to oranges. William Faulkner was a great literary genius. I am not.</b>
+> <p><i>John Grisham</i></p>
 
 <br>
