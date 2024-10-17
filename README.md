@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man of eighty has outlived probably three new schools of painting, two of architecture and poetry and a hundred in dress.</b>
-> <p><i>Lord Byron</i></p>
+> <b>Justice means minding one's own business and not meddling with other men's concerns.</b>
+> <p><i>Plato</i></p>
 
 <br>
