@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't change overnight into a serious literary author. You can't compare apples to oranges. William Faulkner was a great literary genius. I am not.</b>
-> <p><i>John Grisham</i></p>
+> <b>Growing up going to Christian school and the concept that you're born a sinner and you don't really have a choice to change who you are has been hammered into my head and created the entire reason why I made art and made a band and made records called 'Antichrist Superstar.'</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
