@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Justice means minding one's own business and not meddling with other men's concerns.</b>
-> <p><i>Plato</i></p>
+> <b>A moment comes, which comes but rarely in history, when we step out from the old to the new when an age ends and when the soul of a nation long suppressed finds utterance.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
