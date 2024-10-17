@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you are going to break a Law of Art, make the crime interesting.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>I do believe very much in the idea of unexpected or 'convulsive' beauty - beauty in the service of liberty.</b>
+> <p><i>Jeff Vandermeer</i></p>
 
 <br>
