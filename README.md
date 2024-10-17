@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another belief of mine that everyone else my age is an adult, whereas I am merely in disguise.</b>
-> <p><i>Margaret Atwood</i></p>
+> <b>I never hurt nobody but myself and that's nobody's business but my own.</b>
+> <p><i>Billie Holiday</i></p>
 
 <br>
