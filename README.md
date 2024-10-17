@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have never had trouble with any actor being able to visualise things. They are amazing. As long as you have your monster head on a long stick, so you can hold it up there and you can wave it around and let them see it and explain it to them, they are just great.</b>
-> <p><i>Dennis Muren</i></p>
+> <b>I try to give people a different way of looking at their surroundings. That's art to me.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
