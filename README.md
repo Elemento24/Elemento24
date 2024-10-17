@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The artist belongs to his work, not the work to the artist.</b>
-> <p><i>Novalis</i></p>
+> <b>Another belief of mine that everyone else my age is an adult, whereas I am merely in disguise.</b>
+> <p><i>Margaret Atwood</i></p>
 
 <br>
