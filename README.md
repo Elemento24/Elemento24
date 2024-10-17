@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think if there's something one needs to change with oneself, it doesn't have to happen in the New Year. You can do that any time you please - not that it's not a good inspirational tactic for the people that it works for.</b>
-> <p><i>Brittany Murphy</i></p>
+> <b>I think art is the only thing that's spiritual in the world. And I refuse to forced to believe in other people's interpretations of God. I don't think anybody should be. No one person can own the copyright to what God means.</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
