@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is the will of an epoch translated into space.</b>
-> <p><i>Ludwig Mies van der Rohe</i></p>
+> <b>People lose people, we lose things in our life as we're constantly growing and changing. That's what life is is change, and a lot of that is loss. It's what you gain from that loss that makes life.</b>
+> <p><i>Thomas Jane</i></p>
 
 <br>
