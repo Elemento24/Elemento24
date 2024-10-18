@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Outside museums, in noisy public squares, people look at people. Inside museums, we leave that realm and enter what might be called the group-mind, getting quiet to look at art.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Death be not proud, though some have called thee Mighty and dreadful, for thou art not so. For, those, whom thou think'st thou dost overthrow. Die not, poor death, nor yet canst thou kill me.</b>
+> <p><i>John Donne</i></p>
 
 <br>
