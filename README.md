@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was really cool going to Sea World. We had an amazing time. They were amazing to us. We got to swim with the dolphins, and it was really special.</b>
-> <p><i>Sarah Chalke</i></p>
+> <b>The moment you cheat for the sake of beauty, you know you're an artist.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
