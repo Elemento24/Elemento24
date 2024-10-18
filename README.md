@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no reason to change what you are, but if you're not being you, then you need to acknowledge that.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>Every happening, great and small, is a parable whereby God speaks to us, and the art of life is to get the message.</b>
+> <p><i>Malcolm Muggeridge</i></p>
 
 <br>
