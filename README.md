@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reading, after a certain age, diverts the mind too much from its creative pursuits. Any man who reads too much and uses his own brain too little falls into lazy habits of thinking.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>Great designers seldom make great advertising men, because they get overcome by the beauty of the picture - and forget that merchandise must be sold.</b>
+> <p><i>James Randolph Adams</i></p>
 
 <br>
