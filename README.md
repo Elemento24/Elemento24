@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We need to stop apologizing for celebrating life. We need to stop apologizing for wanting to protect an individual's right to build a business.</b>
-> <p><i>Rick Perry</i></p>
+> <b>It's like, no matter what I do, I always feel like I'm five years old, and I end up in the back of my father's car looking out the window, and nothing has changed in 25 years.</b>
+> <p><i>Dylan McDermott</i></p>
 
 <br>
