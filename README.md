@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My wife, a schoolteacher, very disciplined. If you think I'm tough, trust me, and wait till you see when the children are on the naughty step. It's hilarious. So we decided that I'm going to work like a donkey and provide amazing support for the family.</b>
-> <p><i>Gordon Ramsay</i></p>
+> <b>Outside museums, in noisy public squares, people look at people. Inside museums, we leave that realm and enter what might be called the group-mind, getting quiet to look at art.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
