@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great designers seldom make great advertising men, because they get overcome by the beauty of the picture - and forget that merchandise must be sold.</b>
-> <p><i>James Randolph Adams</i></p>
+> <b>Rule of art: Cant kills creativity!</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
