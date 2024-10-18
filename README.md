@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is quite annoying that we have to change the sound we invented just to avoid sounding like people who simply copy us, but... it is flattering and of course challenging.</b>
-> <p><i>Jonathan Davis</i></p>
+> <b>I propose that the government should get out of the business of marrying people and, instead, only give legal status to civil unions.</b>
+> <p><i>Tony Campolo</i></p>
 
 <br>
