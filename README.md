@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I propose that the government should get out of the business of marrying people and, instead, only give legal status to civil unions.</b>
-> <p><i>Tony Campolo</i></p>
+> <b>We need to stop apologizing for celebrating life. We need to stop apologizing for wanting to protect an individual's right to build a business.</b>
+> <p><i>Rick Perry</i></p>
 
 <br>
