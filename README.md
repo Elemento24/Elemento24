@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rule of art: Cant kills creativity!</b>
-> <p><i>Camille Paglia</i></p>
+> <b>I don't think of all the misery but of the beauty that still remains.</b>
+> <p><i>Anne Frank</i></p>
 
 <br>
