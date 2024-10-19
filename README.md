@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh literature, oh the glorious Art, how it preys upon the marrow in our bones. It scoops the stuffing out of us, and chucks us aside. Alas!</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>You can hype a questionable product for a little while, but you'll never build an enduring business.</b>
+> <p><i>Victor Kiam</i></p>
 
 <br>
