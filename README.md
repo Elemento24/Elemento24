@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let there be no mistake. A gay man alone could never begin to replicate the inner workings of the female mind.</b>
-> <p><i>Michael Patrick King</i></p>
+> <b>But an old age serene and bright, and lovely as a Lapland night, shall lead thee to thy grave.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
