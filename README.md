@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prescription: A physician's guess at what will best prolong the situation with least harm to the patient.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>It goes without saying that the Jewish people can have no other goal than Palestine and that, whatever the fate of the proposition may be, our attitude toward the land of our fathers is and shall remain unchangeable.</b>
+> <p><i>Theodor Herzl</i></p>
 
 <br>
