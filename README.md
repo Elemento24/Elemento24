@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wanted to be a teacher. I love children, so I wanted to deal with children. Then I wanted to be a veterinarian. But by the age of ten or eleven, when I opened my mouth and said, 'Oh, God, what's this?' I kind of knew teaching and being a veterinarian were gonna have to wait.</b>
-> <p><i>Whitney Houston</i></p>
+> <b>The problems that the world faces - from nuclear proliferation to climate change - can't be tackled by the West alone. They need a coalition of not just West and East, but they need a coalition of Christian and Jew and Muslim.</b>
+> <p><i>David Miliband</i></p>
 
 <br>
