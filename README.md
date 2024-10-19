@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great art is the contempt of a great man for small art.</b>
-> <p><i>F. Scott Fitzgerald</i></p>
+> <b>In a secular age, an authentic miracle must purport to be a hoax, in order to gain credit in the world.</b>
+> <p><i>Angela Carter</i></p>
 
 <br>
