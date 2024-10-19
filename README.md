@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember things that happened sixty years ago, but if you ask me where I left my car keys five minutes ago, that's sometimes a problem.</b>
-> <p><i>Lou Thesz</i></p>
+> <b>Great art is the contempt of a great man for small art.</b>
+> <p><i>F. Scott Fitzgerald</i></p>
 
 <br>
