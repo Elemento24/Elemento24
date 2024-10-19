@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a secular age, an authentic miracle must purport to be a hoax, in order to gain credit in the world.</b>
-> <p><i>Angela Carter</i></p>
+> <b>Let there be no mistake. A gay man alone could never begin to replicate the inner workings of the female mind.</b>
+> <p><i>Michael Patrick King</i></p>
 
 <br>
