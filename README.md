@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The problems that the world faces - from nuclear proliferation to climate change - can't be tackled by the West alone. They need a coalition of not just West and East, but they need a coalition of Christian and Jew and Muslim.</b>
-> <p><i>David Miliband</i></p>
+> <b>It's amazing how, age after age, in country after country, and in all languages, Shakespeare emerges as incomparable.</b>
+> <p><i>M. H. Abrams</i></p>
 
 <br>
