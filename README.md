@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It goes without saying that the Jewish people can have no other goal than Palestine and that, whatever the fate of the proposition may be, our attitude toward the land of our fathers is and shall remain unchangeable.</b>
-> <p><i>Theodor Herzl</i></p>
+> <b>In our so-called democracy we are accustomed to give the majority what they want rather than educate them to understand what is best for them.</b>
+> <p><i>Carter G. Woodson</i></p>
 
 <br>
