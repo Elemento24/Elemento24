@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nonsense and beauty have close connections.</b>
-> <p><i>E. M. Forster</i></p>
+> <b>I wanted to be a teacher. I love children, so I wanted to deal with children. Then I wanted to be a veterinarian. But by the age of ten or eleven, when I opened my mouth and said, 'Oh, God, what's this?' I kind of knew teaching and being a veterinarian were gonna have to wait.</b>
+> <p><i>Whitney Houston</i></p>
 
 <br>
