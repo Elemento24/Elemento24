@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is science made clear.</b>
-> <p><i>Wilson Mizner</i></p>
+> <b>When it comes to cars, only two varieties of people are possible - cowards and fools.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
