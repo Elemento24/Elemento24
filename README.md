@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the beauty of working with young people is they remind you of the spirit of acting and it's just a big play.</b>
-> <p><i>Eric Bana</i></p>
+> <b>To write a story about New York that only deals with people in your age and socioeconomic bracket, that feels dishonest to me. So much of New York comes from everyone bumping into each other.</b>
+> <p><i>Josh Radnor</i></p>
 
 <br>
