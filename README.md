@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On a royal birthday every house must fly a flag, or the owner would be dragged to a police station and be fined twenty-five rubles.</b>
-> <p><i>Mary Antin</i></p>
+> <b>I remember things that happened sixty years ago, but if you ask me where I left my car keys five minutes ago, that's sometimes a problem.</b>
+> <p><i>Lou Thesz</i></p>
 
 <br>
