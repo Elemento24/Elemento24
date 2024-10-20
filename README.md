@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We pay when old for the excesses of youth.</b>
-> <p><i>J. B. Priestley</i></p>
+> <b>I'm from Canada, and New Zealand feels like you took all the best bits of Canada and squished them onto a tiny island like Hawaii. I was absolutely blown away by the beauty of the South Island.</b>
+> <p><i>Evangeline Lilly</i></p>
 
 <br>
