@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While a large segment of the art world has obsessed over a tiny number of stars and their prices, an aesthetic shift has been occurring. It's not a movement - movements are more sure of themselves. It's a change of mood or expectation, a desire for art to be more than showy effects, big numbers, and gamesmanship.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Men's magazines often feature pictures of naked ladies. Women's magazines also often feature pictures of naked ladies. This is because the female body is a beautiful work of art, while the male body is hairy and lumpy and should not be seen by the light of day.</b>
+> <p><i>Richard Roeper</i></p>
 
 <br>
