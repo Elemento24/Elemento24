@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yeah, I left Idaho at 17. You know, I graduated high school a year early and just, you know, the typical story, packed up my car and moved out.</b>
-> <p><i>Aaron Paul</i></p>
+> <b>Just because something doesn't do what you planned it to do doesn't mean it's useless.</b>
+> <p><i>Thomas A. Edison</i></p>
 
 <br>
