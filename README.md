@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When one is trying to do something beyond his known powers it is useless to seek the approval of friends. Friends are at their best in moments of defeat.</b>
-> <p><i>Henry Miller</i></p>
+> <b>We pay when old for the excesses of youth.</b>
+> <p><i>J. B. Priestley</i></p>
 
 <br>
