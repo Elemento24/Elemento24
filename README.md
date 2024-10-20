@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fairest and best adorned is she Whose clothing is humility.</b>
-> <p><i>James Montgomery</i></p>
+> <b>When you create art, the world has to wait.</b>
+> <p><i>Will Smith</i></p>
 
 <br>
