@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just because something doesn't do what you planned it to do doesn't mean it's useless.</b>
-> <p><i>Thomas A. Edison</i></p>
+> <b>I just wanted to see every single musical I could. The very first one I saw was 'Beauty and the Beast,' the only one I could get tickets for, and then 'Les Miserables' and then 'Chicago.'</b>
+> <p><i>America Ferrera</i></p>
 
 <br>
