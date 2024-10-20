@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men's magazines often feature pictures of naked ladies. Women's magazines also often feature pictures of naked ladies. This is because the female body is a beautiful work of art, while the male body is hairy and lumpy and should not be seen by the light of day.</b>
-> <p><i>Richard Roeper</i></p>
+> <b>Yeah, I left Idaho at 17. You know, I graduated high school a year early and just, you know, the typical story, packed up my car and moved out.</b>
+> <p><i>Aaron Paul</i></p>
 
 <br>
