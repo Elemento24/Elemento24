@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the business world, the rearview mirror is always clearer than the windshield.</b>
-> <p><i>Warren Buffett</i></p>
+> <b>And my first film was Carnal Knowledge, another amazing experience, largely because of Mike Nichols, who would tell me you can't do anything wrong because you're doing everything right.</b>
+> <p><i>Carol Kane</i></p>
 
 <br>
