@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just wanted to see every single musical I could. The very first one I saw was 'Beauty and the Beast,' the only one I could get tickets for, and then 'Les Miserables' and then 'Chicago.'</b>
-> <p><i>America Ferrera</i></p>
+> <b>The earth was made so various, that the mind Of desultory man, studious of change, And pleased with novelty, might be indulged.</b>
+> <p><i>William Cowper</i></p>
 
 <br>
