@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The man who has done his best has done everything.</b>
-> <p><i>Charles M. Schwab</i></p>
+> <b>Man has a limited biological capacity for change. When this capacity is overwhelmed, the capacity is in future shock.</b>
+> <p><i>Alvin Toffler</i></p>
 
 <br>
