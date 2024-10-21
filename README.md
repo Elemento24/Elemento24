@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age shouldn't affect you. It's just like the size of your shoes - they don't determine how you live your life! You're either marvellous or you're boring, regardless of your age.</b>
-> <p><i>Steven Morrissey</i></p>
+> <b>It were a real increase of human happiness, could all young men from the age of nineteen be covered under barrels, or rendered otherwise invisible and there left to follow their lawful studies and callings, till they emerged, sadder and wiser, at the age of twenty-five.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
