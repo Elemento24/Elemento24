@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a Gemini, so I change my mind every day.</b>
-> <p><i>Natalie Portman</i></p>
+> <b>You change with the guys you date.</b>
+> <p><i>Jessica Simpson</i></p>
 
 <br>
