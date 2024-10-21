@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just when I think I have learned the way to live, life changes.</b>
-> <p><i>Hugh Prather</i></p>
+> <b>The man who has done his best has done everything.</b>
+> <p><i>Charles M. Schwab</i></p>
 
 <br>
