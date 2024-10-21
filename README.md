@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life doesn't imitate art, it imitates bad television.</b>
-> <p><i>Woody Allen</i></p>
+> <b>Every happening, great and small, is a parable whereby God speaks to us, and the art of life is to get the message.</b>
+> <p><i>Malcolm Muggeridge</i></p>
 
 <br>
