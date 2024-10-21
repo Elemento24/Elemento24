@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I recorded a song called, I Fall to Pieces, and I was in a car wreck. Now I'm worried because I have a brand-new record, and it's called Crazy!</b>
-> <p><i>Patsy Cline</i></p>
+> <b>I'm a Gemini, so I change my mind every day.</b>
+> <p><i>Natalie Portman</i></p>
 
 <br>
