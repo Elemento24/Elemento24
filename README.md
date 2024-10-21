@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dying is an art, like everything else. I do it exceptionally well. I do it so it feels like hell. I do it so it feels real. I guess you could say I've a call.</b>
-> <p><i>Sylvia Plath</i></p>
+> <b>I recorded a song called, I Fall to Pieces, and I was in a car wreck. Now I'm worried because I have a brand-new record, and it's called Crazy!</b>
+> <p><i>Patsy Cline</i></p>
 
 <br>
