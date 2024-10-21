@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you forgive, you in no way change the past - but you sure do change the future.</b>
-> <p><i>Bernard Meltzer</i></p>
+> <b>Age shouldn't affect you. It's just like the size of your shoes - they don't determine how you live your life! You're either marvellous or you're boring, regardless of your age.</b>
+> <p><i>Steven Morrissey</i></p>
 
 <br>
