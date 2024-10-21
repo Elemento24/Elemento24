@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every happening, great and small, is a parable whereby God speaks to us, and the art of life is to get the message.</b>
-> <p><i>Malcolm Muggeridge</i></p>
+> <b>I believe that children are our future. Teach them well and let them lead the way. Show them all the beauty they possess inside.</b>
+> <p><i>Whitney Houston</i></p>
 
 <br>
