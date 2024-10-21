@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not living. It is the use of living.</b>
-> <p><i>Audre Lorde</i></p>
+> <b>I have always thought the actions of men the best interpreters of their thoughts.</b>
+> <p><i>John Locke</i></p>
 
 <br>
