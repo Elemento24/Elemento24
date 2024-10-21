@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always thought the actions of men the best interpreters of their thoughts.</b>
-> <p><i>John Locke</i></p>
+> <b>I hate the actor and audience business. An author should be in among the crowd, kicking their shins or cheering them on to some mischief or merriment.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
