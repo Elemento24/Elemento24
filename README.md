@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's nothing wrong with anger provided you use it constructively.</b>
-> <p><i>Wayne Dyer</i></p>
+> <b>Hollywood is the place to be for actors - and there's just a big rush when an Australian comes over just because there's less of them. I guess that's just how it is. Like if you pick a pink jellybean out of a jar of green ones it'd be amazing, but if you pick a green one, no one will care.</b>
+> <p><i>Callan McAuliffe</i></p>
 
 <br>
