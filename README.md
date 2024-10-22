@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A friend never defends a husband who gets his wife an electric skillet for her birthday.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>Once when I was 16 I had my car taken away from me for being past curfew. Oh, and I said a bad word once, and I actually did get my mouth washed out with soap.</b>
+> <p><i>Ashlee Simpson</i></p>
 
 <br>
