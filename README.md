@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Remember, the burden of sorrow is doubled when it is borne alone.</b>
-> <p><i>Goran Persson</i></p>
+> <b>Anger is implanted in us as sort of sting, to make us gnash with our teeth against the devil, to make us vehement against him, not to set us in array against each other.</b>
+> <p><i>Richard Savage</i></p>
 
 <br>
