@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The new dynamics between brands and consumers, driven by social media, are proving to be a powerful impetus for change.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>I never - you know also one of the things that would save me for a man my age, it was not that easy to lose that much weight and fall down and look like something draped.</b>
+> <p><i>Karl Lagerfeld</i></p>
 
 <br>
