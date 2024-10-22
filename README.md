@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have my favourite fashion decade, yes, yes, yes: '60s. It was a sort of little revolution the clothes were amazing but not too exaggerated.</b>
-> <p><i>Valentino Garavani</i></p>
+> <b>Remember, the burden of sorrow is doubled when it is borne alone.</b>
+> <p><i>Goran Persson</i></p>
 
 <br>
