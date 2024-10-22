@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're going to shoot one Polaroid per show. I'm going to sign this before it even develops because I know that once it develops with my signature on it, it's worth a fortune. I'll make this a work of magic warlock art.</b>
-> <p><i>Charlie Sheen</i></p>
+> <b>The rules of navigation never navigated a ship. The rules of architecture never built a house.</b>
+> <p><i>Thomas Reid</i></p>
 
 <br>
