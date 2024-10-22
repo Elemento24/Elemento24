@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We grew up in a very creative environment and were exposed to the arts at a very young age, so it's not a surprise that all of us are in some form of the arts.</b>
-> <p><i>Spike Lee</i></p>
+> <b>I have my favourite fashion decade, yes, yes, yes: '60s. It was a sort of little revolution the clothes were amazing but not too exaggerated.</b>
+> <p><i>Valentino Garavani</i></p>
 
 <br>
