@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once when I was 16 I had my car taken away from me for being past curfew. Oh, and I said a bad word once, and I actually did get my mouth washed out with soap.</b>
-> <p><i>Ashlee Simpson</i></p>
+> <b>A gift, with a kind countenance, is a double present.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
