@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is invention.</b>
-> <p><i>Oscar Niemeyer</i></p>
+> <b>Israel is no longer a people that dwells alone, and has to join the global journey toward peace, reconciliation and international cooperation.</b>
+> <p><i>Yitzhak Rabin</i></p>
 
 <br>
