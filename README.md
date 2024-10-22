@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing amazes me anymore.</b>
-> <p><i>David Beckham</i></p>
+> <b>Whether you're winning or losing, it is important to always be yourself. You can't change because of the circumstances around you.</b>
+> <p><i>Cotton Fitzsimmons</i></p>
 
 <br>
