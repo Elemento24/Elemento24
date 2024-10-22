@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Word of fire burns today On the lips of our prophets in an evil age.</b>
-> <p><i>Margaret Walker</i></p>
+> <b>Architecture is invention.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
