@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Israel is no longer a people that dwells alone, and has to join the global journey toward peace, reconciliation and international cooperation.</b>
-> <p><i>Yitzhak Rabin</i></p>
+> <b>Qualifying is all about putting everything that you have and that the car has in one lap. It's like a rush, I really enjoy that.</b>
+> <p><i>Sebastian Vettel</i></p>
 
 <br>
