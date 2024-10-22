@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Remember, man does not live on bread alone: sometimes he needs a little buttering up.</b>
-> <p><i>John C. Maxwell</i></p>
+> <b>Nothing amazes me anymore.</b>
+> <p><i>David Beckham</i></p>
 
 <br>
