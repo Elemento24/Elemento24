@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whether you're winning or losing, it is important to always be yourself. You can't change because of the circumstances around you.</b>
-> <p><i>Cotton Fitzsimmons</i></p>
+> <b>When you start suppressing feelings at an early age, it hurts you down the road. Full expression of anger and pain is very important.</b>
+> <p><i>Andrew Shue</i></p>
 
 <br>
