@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Words empty as the wind are best left unsaid.</b>
-> <p><i>Homer</i></p>
+> <b>After the first miscarriage, I tried to take the attitude that it was my body's way of telling me that this pregnancy wasn't meant to be.</b>
+> <p><i>Christie Brinkley</i></p>
 
 <br>
