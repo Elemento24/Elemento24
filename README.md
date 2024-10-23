@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Twenty years ago, I was living in a lovely cottage on the edge of Dartmoor but I couldn't afford to run a car.</b>
-> <p><i>Mary Wesley</i></p>
+> <b>What I learned in jail is that I can't change. I can't live a different lifestyle-this is it. This is the life that they gave and this is the life that I made.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
