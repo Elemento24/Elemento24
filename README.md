@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grow old with me! The best is yet to be.</b>
-> <p><i>Robert Browning</i></p>
+> <b>I believe that the rights of women and girls is the unfinished business of the 21st century.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
