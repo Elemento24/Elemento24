@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't allow anybody to change me. I still walk outta my house in rollers and I take walks. I do not care what people think.</b>
-> <p><i>Britney Spears</i></p>
+> <b>Your experiences will be yours alone. But truth and best friendship will rarely if ever disappoint you.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
