@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I am working on a problem, I never think about beauty but when I have finished, if the solution is not beautiful, I know it is wrong.</b>
-> <p><i>R. Buckminster Fuller</i></p>
+> <b>I believe entertainment can aspire to be art, and can become art, but if you set out to make art you're an idiot.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
