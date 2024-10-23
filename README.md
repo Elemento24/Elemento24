@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For my birthday I got a humidifier and a de-humidifier... I put them in the same room and let them fight it out.</b>
-> <p><i>Steven Wright</i></p>
+> <b>When from our better selves we have too long been parted by the hurrying world, and droop. Sick of its business, of its pleasures tired, how gracious, how benign is solitude.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
