@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We like to think about how smart we are. But I think talent as a writer is hard-wired in, it's all there, at least the basic elements of it. You can't change it any more than you can choose whether to be right handed or left handed.</b>
-> <p><i>Stephen King</i></p>
+> <b>I don't allow anybody to change me. I still walk outta my house in rollers and I take walks. I do not care what people think.</b>
+> <p><i>Britney Spears</i></p>
 
 <br>
