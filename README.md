@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As for everything else, so for a mathematical theory: beauty can be perceived but not explained.</b>
-> <p><i>Arthur Cayley</i></p>
+> <b>The really amazing part, to me, was when Florida made it into the Final Four, the Democrats didn't demand a recount.</b>
+> <p><i>Ann Coulter</i></p>
 
 <br>
