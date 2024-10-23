@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diversity: the art of thinking independently together.</b>
-> <p><i>Malcolm Forbes</i></p>
+> <b>I had amazing stuff happen right off the top. I thought this was how it worked. Hollywood is awesome! Cut to three years later: What happened?</b>
+> <p><i>Dana Fox</i></p>
 
 <br>
