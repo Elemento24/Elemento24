@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do business managers have a commitment to anything more than the success of their company and to making money? It would be hard to say that they do. Indeed, many business leaders deny that there is any conflict between self-interest and the interests of all.</b>
-> <p><i>Peter Singer</i></p>
+> <b>Age becomes reality when you hear someone refer to that attractive young woman standing next to the woman in the green dress, and you find that you're the one in the green dress.</b>
+> <p><i>Lois Wyse</i></p>
 
 <br>
