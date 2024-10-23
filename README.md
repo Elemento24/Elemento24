@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every good painter paints what he is.</b>
-> <p><i>Jackson Pollock</i></p>
+> <b>What is necessary to change a person is to change his awareness of himself.</b>
+> <p><i>Abraham Maslow</i></p>
 
 <br>
