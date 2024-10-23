@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I owe my success to having listened respectfully to the very best advice, and then going away and doing the exact opposite.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>The New York art world readily proves people wrong. Just when folks say that things stink and flibbertigibbet critics wish the worst on us all because we're not pure enough, good omens appear.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
