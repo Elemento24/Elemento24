@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that the rights of women and girls is the unfinished business of the 21st century.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>Do business managers have a commitment to anything more than the success of their company and to making money? It would be hard to say that they do. Indeed, many business leaders deny that there is any conflict between self-interest and the interests of all.</b>
+> <p><i>Peter Singer</i></p>
 
 <br>
