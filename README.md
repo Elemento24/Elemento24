@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When from our better selves we have too long been parted by the hurrying world, and droop. Sick of its business, of its pleasures tired, how gracious, how benign is solitude.</b>
-> <p><i>William Wordsworth</i></p>
+> <b>I owe my success to having listened respectfully to the very best advice, and then going away and doing the exact opposite.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
