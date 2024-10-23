@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The really amazing part, to me, was when Florida made it into the Final Four, the Democrats didn't demand a recount.</b>
-> <p><i>Ann Coulter</i></p>
+> <b>Diversity: the art of thinking independently together.</b>
+> <p><i>Malcolm Forbes</i></p>
 
 <br>
