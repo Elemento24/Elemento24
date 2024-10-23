@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After the first miscarriage, I tried to take the attitude that it was my body's way of telling me that this pregnancy wasn't meant to be.</b>
-> <p><i>Christie Brinkley</i></p>
+> <b>For my birthday I got a humidifier and a de-humidifier... I put them in the same room and let them fight it out.</b>
+> <p><i>Steven Wright</i></p>
 
 <br>
