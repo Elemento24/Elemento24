@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As I grew older, I realized that it was much better to insist on the genuine forms of nature, for simplicity is the greatest adornment of art.</b>
-> <p><i>Albrecht Durer</i></p>
+> <b>It will always be a battle a day between those who want maximum change and those who want to maintain the status quo.</b>
+> <p><i>Gerry Adams</i></p>
 
 <br>
