@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty without grace is the hook without the bait.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>The thought came to me that all one loves in art becomes beautiful. Beauty is nothing but the expression of the fact that something is being loved. Only thus could she be defined.</b>
+> <p><i>Robert Musil</i></p>
 
 <br>
