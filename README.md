@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I started Netscape I was brand new out of college and all the aspects of building a business, like balance sheets and hiring people, were new to me.</b>
-> <p><i>Marc Andreessen</i></p>
+> <b>Find beauty not only in the thing itself but in the pattern of the shadows, the light and dark which that thing provides.</b>
+> <p><i>Junichiro Tanizaki</i></p>
 
 <br>
