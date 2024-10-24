@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It will always be a battle a day between those who want maximum change and those who want to maintain the status quo.</b>
-> <p><i>Gerry Adams</i></p>
+> <b>Baseball is almost the only orderly thing in a very unorderly world. If you get three strikes, even the best lawyer in the world can't get you off.</b>
+> <p><i>Bill Veeck</i></p>
 
 <br>
