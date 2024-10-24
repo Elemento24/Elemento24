@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Find beauty not only in the thing itself but in the pattern of the shadows, the light and dark which that thing provides.</b>
-> <p><i>Junichiro Tanizaki</i></p>
+> <b>A picture is worth a thousand words.</b>
+> <p><i>Napoleon Bonaparte</i></p>
 
 <br>
