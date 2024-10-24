@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My theory of characterization is basically this: Put some dirt on a hero, and put some sunshine on the villain, one brush stroke of beauty on the villain.</b>
-> <p><i>Justin Cronin</i></p>
+> <b>I have two children and it's amazing how in tune they are with nature, with light, with smells, with time.</b>
+> <p><i>Hugh Jackman</i></p>
 
 <br>
