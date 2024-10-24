@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The key to education is the experience of beauty.</b>
-> <p><i>Friedrich Schiller</i></p>
+> <b>It was Public Art, defined as art that is purchased by experts who are not spending their own personal money.</b>
+> <p><i>Dave Barry</i></p>
 
 <br>
