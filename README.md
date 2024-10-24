@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never had a policy I have just tried to do my very best each and every day.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>When grace is joined with wrinkles, it is adorable. There is an unspeakable dawn in happy old age.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
