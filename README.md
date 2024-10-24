@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had some movies that have been ridiculed, but that's OK with me. I don't feel that really defines me. Should I change who I am to be popular?</b>
-> <p><i>Kevin Costner</i></p>
+> <b>There are amazingly wonderful people in all walks of life some familiar to us and others not. Stretch yourself and really get to know people. People are in many ways one of our greatest treasures.</b>
+> <p><i>Bryant H. McGill</i></p>
 
 <br>
