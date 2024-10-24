@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thought came to me that all one loves in art becomes beautiful. Beauty is nothing but the expression of the fact that something is being loved. Only thus could she be defined.</b>
-> <p><i>Robert Musil</i></p>
+> <b>I am very puzzled by the fact that young people are getting infected again. They don't take precautions despite an enormous amount of information. It's like riding a race car at 200 kilometers an hour. Some people like the risk.</b>
+> <p><i>Luc Montagnier</i></p>
 
 <br>
