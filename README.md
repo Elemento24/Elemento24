@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am very puzzled by the fact that young people are getting infected again. They don't take precautions despite an enormous amount of information. It's like riding a race car at 200 kilometers an hour. Some people like the risk.</b>
-> <p><i>Luc Montagnier</i></p>
+> <b>As I grew older, I realized that it was much better to insist on the genuine forms of nature, for simplicity is the greatest adornment of art.</b>
+> <p><i>Albrecht Durer</i></p>
 
 <br>
