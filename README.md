@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Baseball is almost the only orderly thing in a very unorderly world. If you get three strikes, even the best lawyer in the world can't get you off.</b>
-> <p><i>Bill Veeck</i></p>
+> <b>It is an immutable law in business that words are words, explanations are explanations, promises are promises-but only performance is reality.</b>
+> <p><i>Harold S. Geneen</i></p>
 
 <br>
