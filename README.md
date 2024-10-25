@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Childhood obesity is best tackled at home through improved parental involvement, increased physical exercise, better diet and restraint from eating.</b>
-> <p><i>Bob Filner</i></p>
+> <b>Yeah, I try to be the best example I can be for young girls just as far as my person goes - just to uphold a good image.</b>
+> <p><i>Miranda Lambert</i></p>
 
 <br>
