@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is an immutable law in business that words are words, explanations are explanations, promises are promises-but only performance is reality.</b>
-> <p><i>Harold S. Geneen</i></p>
+> <b>The great thing about celebrity culture is that they can't seem to stop themselves from displaying their ridiculous behaviour. I feel it's my job as a serious investigative journalist to witness all kinds of behaviour and then report back to the audience through the prism of my own anger and bitterness.</b>
+> <p><i>Kathy Griffin</i></p>
 
 <br>
