@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think in art, but especially in films, people are trying to confirm their own existences.</b>
-> <p><i>Jim Morrison</i></p>
+> <b>A woman whose smile is open and whose expression is glad has a kind of beauty no matter what she wears.</b>
+> <p><i>Anne Roiphe</i></p>
 
 <br>
