@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Desperation is the raw material of drastic change. Only those who can leave behind everything they have ever believed in can hope to escape.</b>
-> <p><i>William S. Burroughs</i></p>
+> <b>My revenue was $4 million my first year in business, off of one $20 item.</b>
+> <p><i>Sara Blakely</i></p>
 
 <br>
