@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a car singer, in fact sometimes I pretend to take my dog out for a walk, and I'll just drive him around and start singin'.</b>
-> <p><i>Casey Abrams</i></p>
+> <b>Man can certainly flee from God... but he cannot escape him. He can certainly hate God and be hateful to God, but he cannot change into its opposite the eternal love of God which triumphs even in his hate.</b>
+> <p><i>Karl Barth</i></p>
 
 <br>
