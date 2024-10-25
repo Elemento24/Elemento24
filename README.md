@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People say I'm extravagant because I want to be surrounded by beauty. But tell me, who wants to be surrounded by garbage?</b>
-> <p><i>Imelda Marcos</i></p>
+> <b>Art is the signature of civilizations.</b>
+> <p><i>Beverly Sills</i></p>
 
 <br>
