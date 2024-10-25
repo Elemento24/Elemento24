@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman whose smile is open and whose expression is glad has a kind of beauty no matter what she wears.</b>
-> <p><i>Anne Roiphe</i></p>
+> <b>Desperation is the raw material of drastic change. Only those who can leave behind everything they have ever believed in can hope to escape.</b>
+> <p><i>William S. Burroughs</i></p>
 
 <br>
