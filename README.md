@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude determines the altitude of life.</b>
-> <p><i>Edwin Louis Cole</i></p>
+> <b>Life could be wonderful if people would leave you alone.</b>
+> <p><i>Charlie Chaplin</i></p>
 
 <br>
