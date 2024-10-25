@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We do not look in our great cities for our best morality.</b>
-> <p><i>Jane Austen</i></p>
+> <b>At least 50 times. I've jumped off a building, jumped off a cliff in a car. I've been in bedrooms when women came in with knives and guns.</b>
+> <p><i>Dennis Rodman</i></p>
 
 <br>
