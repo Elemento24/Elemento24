@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Working on such a big film was amazing. I learned a lot. There weren't too many stunts, just some doubling.</b>
-> <p><i>Christopher Parker</i></p>
+> <b>We've put more effort into helping folks reach old age than into helping them enjoy it.</b>
+> <p><i>Frank A. Clark</i></p>
 
 <br>
