@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I am a legend, then why am I so lonely?</b>
-> <p><i>Judy Garland</i></p>
+> <b>Attitude is your acceptance of the natural laws, or your rejection of the natural laws.</b>
+> <p><i>Stuart Chase</i></p>
 
 <br>
