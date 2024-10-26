@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whatever good things we build end up building us.</b>
-> <p><i>Jim Rohn</i></p>
+> <b>Aging has a wonderful beauty and we should have respect for that.</b>
+> <p><i>Eartha Kitt</i></p>
 
 <br>
