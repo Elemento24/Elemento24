@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yeah, I try to be the best example I can be for young girls just as far as my person goes - just to uphold a good image.</b>
-> <p><i>Miranda Lambert</i></p>
+> <b>There's a beauty in being part of a band, when there's equality and trust.</b>
+> <p><i>Scott Weiland</i></p>
 
 <br>
