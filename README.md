@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The preparation, commitment and desire to win will be no less than the last time I drove a grand prix car in anger.</b>
-> <p><i>Nigel Mansell</i></p>
+> <b>There's a lot of stress... but once you get in the car, all that goes out the window.</b>
+> <p><i>Dan Brown</i></p>
 
 <br>
