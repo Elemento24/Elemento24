@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul.</b>
-> <p><i>John Muir</i></p>
+> <b>First of all, plain and simple, you have no real idea of what it means to be famous until you become famous. It's a double-edged sword. Obviously there are a lot of amazing things about fame, but there are also a lot of challenging things about it.</b>
+> <p><i>Michelle Pfeiffer</i></p>
 
 <br>
