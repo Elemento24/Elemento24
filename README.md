@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone at home is so supportive. People recognise me, say how proud they are of me. It's awesome to hear, it's amazing to know I can touch so many people in a positive way.</b>
-> <p><i>Kirsty Coventry</i></p>
+> <b>Mom was 50 when my Dad died. She got on a bus every weekday for years, and rode 40 miles each morning to Madison. She earned a new degree and learned new skills to start her small business. It wasn't just a new livelihood. It was a new life.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
