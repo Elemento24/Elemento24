@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A great building must begin with the unmeasurable, must go through measurable means when it is being designed and in the end must be unmeasurable.</b>
-> <p><i>Louis Kahn</i></p>
+> <b>If I am a legend, then why am I so lonely?</b>
+> <p><i>Judy Garland</i></p>
 
 <br>
