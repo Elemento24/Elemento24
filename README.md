@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good humor is a tonic for mind and body. It is the best antidote for anxiety and depression. It is a business asset. It attracts and keeps friends. It lightens human burdens. It is the direct route to serenity and contentment.</b>
-> <p><i>Grenville Kleiser</i></p>
+> <b>Heat of blood makes young people change their inclinations often, and habit makes old ones keep to theirs a great while.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
