@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a lot of stress... but once you get in the car, all that goes out the window.</b>
-> <p><i>Dan Brown</i></p>
+> <b>Youth cannot know how age thinks and feels. But old men are guilty if they forget what it was to be young.</b>
+> <p><i>J. K. Rowling</i></p>
 
 <br>
