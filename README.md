@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth cannot know how age thinks and feels. But old men are guilty if they forget what it was to be young.</b>
-> <p><i>J. K. Rowling</i></p>
+> <b>Those who improve with age embrace the power of personal growth and personal achievement and begin to replace youth with wisdom, innocence with understanding, and lack of purpose with self-actualization.</b>
+> <p><i>Bo Bennett</i></p>
 
 <br>
