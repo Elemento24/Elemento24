@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I own stock, and I also insure my car with Geico.</b>
-> <p><i>Ernie Banks</i></p>
+> <b>People talk about the conscience, but it seems to me one must just bring it up to a certain point and leave it there. You can let your conscience alone if you're nice to the second housemaid.</b>
+> <p><i>Henry James</i></p>
 
 <br>
