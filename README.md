@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is no great art to say something briefly when, like Tacitus, one has something to say when one has nothing to say, however, and none the less writes a whole book and makes truth into a liar - that I call an achievement.</b>
-> <p><i>Horace</i></p>
+> <b>When someone says that I'm angry it's actually a compliment. I have not always been direct with my anger in my relationships, which is part of why I'd write about it in my songs because I had such fear around expressing anger as a woman.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
