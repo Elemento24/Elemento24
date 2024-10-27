@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man can think clearly when his fists are clenched.</b>
-> <p><i>George Jean Nathan</i></p>
+> <b>Loss is nothing else but change, and change is Nature's delight.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
