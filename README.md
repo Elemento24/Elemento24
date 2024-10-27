@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Civilization exists by geological consent, subject to change without notice.</b>
-> <p><i>Will Durant</i></p>
+> <b>No man can think clearly when his fists are clenched.</b>
+> <p><i>George Jean Nathan</i></p>
 
 <br>
