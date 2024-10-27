@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When someone says that I'm angry it's actually a compliment. I have not always been direct with my anger in my relationships, which is part of why I'd write about it in my songs because I had such fear around expressing anger as a woman.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>I take a lot from everywhere. I take from music, architecture, novels, and plays. Anywhere that hits you.</b>
+> <p><i>Alex Winter</i></p>
 
 <br>
