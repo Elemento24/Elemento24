@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today I see beauty everywhere I go, in every face I see, in every single soul.</b>
-> <p><i>Kevyn Aucoin</i></p>
+> <b>There's a very small group of elite actresses who are my age, who people want to work with. It's not easy to get a good job with good actors.</b>
+> <p><i>Amanda Peet</i></p>
 
 <br>
