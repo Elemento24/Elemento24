@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Loss is nothing else but change, and change is Nature's delight.</b>
-> <p><i>Marcus Aurelius</i></p>
+> <b>It looks good when you see someone kicking at the age of 51 with no double. It's kinda cool for people to know that past 50 we can keep flexible.</b>
+> <p><i>Jean Claude Van Damme</i></p>
 
 <br>
