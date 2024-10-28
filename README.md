@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first car was a 1976 Toyota Corolla Liftback in red, like the one in 'The Blues Brothers.' I painted a Union Jack on the roof. I was absolutely in love with it until I destroyed it, which broke my heart!</b>
-> <p><i>Richard Hammond</i></p>
+> <b>My overcoat is worn out my shirts also are worn out. And I ask to be allowed to have a lamp in the evening it is indeed wearisome sitting alone in the dark.</b>
+> <p><i>William Tyndale</i></p>
 
 <br>
