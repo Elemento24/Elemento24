@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Christ would be a national advertiser today, I am sure, as He was a great advertiser in His own day. He thought of His life as business.</b>
-> <p><i>Bruce Barton</i></p>
+> <b>Microsoft has had two goals in the last 10 years. One was to copy the Mac, and the other was to copy Lotus' success in the spreadsheet - basically, the applications business. And over the course of the last 10 years, Microsoft accomplished both of those goals. And now they are completely lost.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
