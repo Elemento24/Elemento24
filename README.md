@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once the kids are in school, it's amazing what you can do.</b>
-> <p><i>Laura Schlessinger</i></p>
+> <b>I'm lucky because my dad taught me to be frugal and save. And that's important because I want to know that I don't have to take an acting job for two or three years if I don't want to and that I'll still be able to make my house and car payments and buy food for my dogs.</b>
+> <p><i>Ashley Greene</i></p>
 
 <br>
