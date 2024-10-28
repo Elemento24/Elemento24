@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Words to me were magic. You could say a word and it could conjure up all kinds of images or feelings or a chilly sensation or whatever. It was amazing to me that words had this power.</b>
-> <p><i>Amy Tan</i></p>
+> <b>Having a clear faith, based on the creed of the church is often labeled today as fundamentalism. Whereas relativism, which is letting oneself be tossed and swept along by every wind of teaching, look like the only attitude acceptable to today's standards.</b>
+> <p><i>Joseph Ratzinger</i></p>
 
 <br>
