@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People talk about the conscience, but it seems to me one must just bring it up to a certain point and leave it there. You can let your conscience alone if you're nice to the second housemaid.</b>
-> <p><i>Henry James</i></p>
+> <b>Christ would be a national advertiser today, I am sure, as He was a great advertiser in His own day. He thought of His life as business.</b>
+> <p><i>Bruce Barton</i></p>
 
 <br>
