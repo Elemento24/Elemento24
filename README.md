@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My philosophy is not a bean-counting, accounting 'look at this.' It is a philosophy that smaller government is better government, and government that is closer to the people is best of all.</b>
-> <p><i>John Bolton</i></p>
+> <b>Bad attitudes will ruin your team.</b>
+> <p><i>Terry Bradshaw</i></p>
 
 <br>
