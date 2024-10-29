@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know. I think it's funny! I think it's funny! I go, what? It's so absurd. I'm alone.</b>
-> <p><i>Danny DeVito</i></p>
+> <b>Patience is the art of hoping.</b>
+> <p><i>Luc de Clapiers</i></p>
 
 <br>
