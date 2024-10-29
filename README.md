@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As man sows, so shall he reap. In works of fiction, such men are sometimes converted. More often, in real life, they do not change their natures until they are converted into dust.</b>
-> <p><i>Charles W. Chesnutt</i></p>
+> <b>I don't know. I think it's funny! I think it's funny! I go, what? It's so absurd. I'm alone.</b>
+> <p><i>Danny DeVito</i></p>
 
 <br>
