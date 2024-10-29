@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am especially grateful that I have been able to keep my own style over the decades, in spite of the many changes that have taken place in the world of fashion and in its business.</b>
-> <p><i>Valentino Garavani</i></p>
+> <b>The experience of being in space didn't change my perspective of myself or of the planet or of life. I had no spiritual experience.</b>
+> <p><i>Sally Ride</i></p>
 
 <br>
