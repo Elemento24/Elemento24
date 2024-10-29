@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As technology advances, it reverses the characteristics of every situation again and again. The age of automation is going to be the age of 'do it yourself.'</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>Simplicity and repose are the qualities that measure the true value of any work of art.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
