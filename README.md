@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I think it would be easier to avoid old age, to die young, but then you'd never complete your life, would you? You'd never wholly know you.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>To be able to sit in Donald Trump's apartment and talk about the future of corporate real estate was amazing.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
