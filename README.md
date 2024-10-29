@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be able to sit in Donald Trump's apartment and talk about the future of corporate real estate was amazing.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>As technology advances, it reverses the characteristics of every situation again and again. The age of automation is going to be the age of 'do it yourself.'</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
