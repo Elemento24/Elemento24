@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It really lasted the whole game, because I was really untouchable, unstoppable that game. But it was heightened on one particular play, and that was the longest run where everything completely slowed down. My awareness was so keen, it was so heightened, it was really amazing.</b>
-> <p><i>Marcus Allen</i></p>
+> <b>Old age: the crown of life, our play's last act.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
