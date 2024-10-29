@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Although all the good arts serve to draw man's mind away from vices and lead it toward better things, this function can be more fully performed by this art, which also provides extraordinary intellectual pleasure.</b>
-> <p><i>Nicolaus Copernicus</i></p>
+> <b>I am especially grateful that I have been able to keep my own style over the decades, in spite of the many changes that have taken place in the world of fashion and in its business.</b>
+> <p><i>Valentino Garavani</i></p>
 
 <br>
