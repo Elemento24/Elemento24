@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Patience is the art of hoping.</b>
-> <p><i>Luc de Clapiers</i></p>
+> <b>When angry, count to four when very angry, swear.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
