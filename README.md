@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not regret one professional enemy I have made. Any actor who doesn't dare to make an enemy should get out of the business.</b>
-> <p><i>Bette Davis</i></p>
+> <b>I really think it is amazing that people actually buy software.</b>
+> <p><i>Bill Budge</i></p>
 
 <br>
