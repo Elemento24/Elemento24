@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We cannot make events. Our business is wisely to improve them.</b>
-> <p><i>Samuel Adams</i></p>
+> <b>My dream career would be to be in things that have real heart and are telling real stories but while doing that, you're getting really big laughs. I don't necessarily love the straight crazy comedies. 'Caddyshack' is amazing, but there's not a lot of new 'Caddyshack's.</b>
+> <p><i>Jake Johnson</i></p>
 
 <br>
