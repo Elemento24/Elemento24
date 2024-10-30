@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My age and health will never allow me to realize the dream of art I've been pursuing all my life.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Relentless, repetitive self talk is what changes our self-image.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
