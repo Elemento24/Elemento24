@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's tricky. I've never been standing at the top of the tree with tons of money thrown at me. I've never really had a profile. So in a way I have this 'nothing to lose' attitude.</b>
-> <p><i>Joel Edgerton</i></p>
+> <b>My mom was always saying: 'Be whatever you want to be, but stick with it. Don't waver. Don't change who you are for anybody.'</b>
+> <p><i>Miranda Lambert</i></p>
 
 <br>
