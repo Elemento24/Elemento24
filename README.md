@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A supermodel needed to be able to be on 'Sports Illustrated,' to be able to walk runways, to be able to do beauty ads, to be on covers. And the girls now can no longer be on covers and be in the ads because your actresses have taken over all the jobs. I don't know what happened, but we want our jobs back.</b>
-> <p><i>Kim Alexis</i></p>
+> <b>What looks absolutely fabulous in rehearsal can fall flat in front of an audience. The audience dictates what you do or don't change.</b>
+> <p><i>Harvey Fierstein</i></p>
 
 <br>
