@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What looks absolutely fabulous in rehearsal can fall flat in front of an audience. The audience dictates what you do or don't change.</b>
-> <p><i>Harvey Fierstein</i></p>
+> <b>My age and health will never allow me to realize the dream of art I've been pursuing all my life.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
