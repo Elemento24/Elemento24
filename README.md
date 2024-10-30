@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It will always be a battle a day between those who want maximum change and those who want to maintain the status quo.</b>
-> <p><i>Gerry Adams</i></p>
+> <b>My mama told me in college, 'I love you, and you're God's child, but natural beauty will only take you so far.'</b>
+> <p><i>Robin Roberts</i></p>
 
 <br>
