@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mama told me in college, 'I love you, and you're God's child, but natural beauty will only take you so far.'</b>
-> <p><i>Robin Roberts</i></p>
+> <b>I love watching amazing actors and actresses that you can't take your eyes off of because everything they are doing - even if it is just twiddling their thumbs or scratching their eye - it's just interesting.</b>
+> <p><i>Sara Paxton</i></p>
 
 <br>
