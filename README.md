@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without accepting the fact that everything changes, we cannot find perfect composure. But unfortunately, although it is true, it is difficult for us to accept it. Because we cannot accept the truth of transience, we suffer.</b>
-> <p><i>Shunryu Suzuki</i></p>
+> <b>The actions of men are the best interpreters of their thoughts.</b>
+> <p><i>James Joyce</i></p>
 
 <br>
