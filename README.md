@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The true beauty of music is that it connects people. It carries a message, and we, the musicians, are the messengers.</b>
-> <p><i>Roy Ayers</i></p>
+> <b>It's better for me to play with guys because Rock 'n' Roll has such an aggressive attitude.</b>
+> <p><i>Lita Ford</i></p>
 
 <br>
