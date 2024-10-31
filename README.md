@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Customs and convictions change respectable people are the last to know, or to admit, the change, and the ones most offended by fresh reflections of the facts in the mirror of art.</b>
-> <p><i>John Updike</i></p>
+> <b>The best scientist is open to experience and begins with romance - the idea that anything is possible.</b>
+> <p><i>Ray Bradbury</i></p>
 
 <br>
