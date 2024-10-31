@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Are creeds such simple things like the clothes which a man can change at will and put on at will? Creeds are such for which people live for ages and ages.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>I don't look my age, I don't feel my age and I don't act my age. To me age is just a number.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
