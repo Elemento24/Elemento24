@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wise anger is like fire from a flint: there is great ado to get it out and when it does come, it is out again immediately.</b>
-> <p><i>Edward Everett Hale</i></p>
+> <b>The awesomeness of God is that even in the works of the Beach Boys, Beatles, etc., the beauty of the music is a mere reflection of what God does everyday. He creates music of all kinds and moods.</b>
+> <p><i>John Foster</i></p>
 
 <br>
