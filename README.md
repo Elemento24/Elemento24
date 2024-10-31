@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is much less important than life, but what a poor life without it.</b>
-> <p><i>Robert Motherwell</i></p>
+> <b>Each experience through which we pass operates ultimately for our good. This is a correct attitude to adopt and we must be able to see it in that light.</b>
+> <p><i>Henry S. Haskins</i></p>
 
 <br>
