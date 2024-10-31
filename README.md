@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's better for me to play with guys because Rock 'n' Roll has such an aggressive attitude.</b>
-> <p><i>Lita Ford</i></p>
+> <b>Customs and convictions change respectable people are the last to know, or to admit, the change, and the ones most offended by fresh reflections of the facts in the mirror of art.</b>
+> <p><i>John Updike</i></p>
 
 <br>
