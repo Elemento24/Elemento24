@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>Are creeds such simple things like the clothes which a man can change at will and put on at will? Creeds are such for which people live for ages and ages.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
