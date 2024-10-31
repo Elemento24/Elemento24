@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best defense against usurpatory government is an assertive citizenry.</b>
-> <p><i>William F. Buckley, Jr.</i></p>
+> <b>Wise anger is like fire from a flint: there is great ado to get it out and when it does come, it is out again immediately.</b>
+> <p><i>Edward Everett Hale</i></p>
 
 <br>
