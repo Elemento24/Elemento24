@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be the business never so painful, you may have it done for money.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>Sometimes it's the smallest decisions that can change your life forever.</b>
+> <p><i>Keri Russell</i></p>
 
 <br>
