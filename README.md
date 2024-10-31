@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The actions of men are the best interpreters of their thoughts.</b>
-> <p><i>James Joyce</i></p>
+> <b>Life expectancy in many parts of Africa can be something around the age of thirty five to thirty eight. I mean you're very fortunate if you live to that age. In fact when I went to Uganda for the first time one of the things that occurred to me was that I saw very few elderly people.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
