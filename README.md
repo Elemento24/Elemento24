@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even when I was a kid, I had a good thing with kids. To this day, if I go to a birthday party with one of my kids, I swear to you, I am so much happier hanging out with my kids and their friends than talking to the grown-ups.</b>
-> <p><i>Shawn Levy</i></p>
+> <b>It's time to fundamentally change the way that we do business in Washington. To help build a new foundation for the 21st century, we need to reform our government so that it is more efficient, more transparent, and more creative. That will demand new thinking and a new sense of responsibility for every dollar that is spent.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
