@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each experience through which we pass operates ultimately for our good. This is a correct attitude to adopt and we must be able to see it in that light.</b>
-> <p><i>Henry S. Haskins</i></p>
+> <b>To be successful in real estate, you must always and consistently put your clients' best interests first. When you do, your personal needs will be realized beyond your greatest expectations.</b>
+> <p><i>Anthony Hitt</i></p>
 
 <br>
