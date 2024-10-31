@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't look my age, I don't feel my age and I don't act my age. To me age is just a number.</b>
-> <p><i>Joan Collins</i></p>
+> <b>The best defense against usurpatory government is an assertive citizenry.</b>
+> <p><i>William F. Buckley, Jr.</i></p>
 
 <br>
