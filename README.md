@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes it's the smallest decisions that can change your life forever.</b>
-> <p><i>Keri Russell</i></p>
+> <b>There is no business in America that would be prevented from taking results into account when making personnel decisions.</b>
+> <p><i>Michael Bloomberg</i></p>
 
 <br>
