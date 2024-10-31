@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to put a ding in the universe.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>Sleep is the best meditation.</b>
+> <p><i>Dalai Lama</i></p>
 
 <br>
