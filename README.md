@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm most comfortable in my birthday suit.</b>
-> <p><i>Amanda Seyfried</i></p>
+> <b>Sculpture is the art of the intelligence.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
