@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Keep a good attitude and do the right thing even when it's hard. When you do that you are passing the test. And God promises you your marked moments are on their way.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>I have a new little stray dog that I've had for about a month now. His name is Mikey Mohawk - he's this little terrier with a natural Mohawk. My friend found him hit by a car on Pico Boulevard.</b>
+> <p><i>Krysten Ritter</i></p>
 
 <br>
