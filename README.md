@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most high courts in other nations do not have discretion, such as we enjoy, in selecting the cases that the high court reviews. Our court is virtually alone in the amount of discretion it has.</b>
-> <p><i>Sandra Day O'Connor</i></p>
+> <b>In writing and politicking, it's best not to think about it, just do it.</b>
+> <p><i>Gore Vidal</i></p>
 
 <br>
