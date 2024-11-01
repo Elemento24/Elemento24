@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So there is going to be that balance of understanding how to get the best out of the car that day, whether it's 15th or even if I have a shot at a top 10, protecting that car so we can bring it back when we have to.</b>
-> <p><i>Kurt Busch</i></p>
+> <b>People lose people, we lose things in our life as we're constantly growing and changing. That's what life is is change, and a lot of that is loss. It's what you gain from that loss that makes life.</b>
+> <p><i>Thomas Jane</i></p>
 
 <br>
