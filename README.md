@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The time I spent thinking about how I was better than somebody else or worrying about somebody else's attitude was time I could put to better use.</b>
-> <p><i>Charley Pride</i></p>
+> <b>Most high courts in other nations do not have discretion, such as we enjoy, in selecting the cases that the high court reviews. Our court is virtually alone in the amount of discretion it has.</b>
+> <p><i>Sandra Day O'Connor</i></p>
 
 <br>
