@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pictures deface walls more often than they decorate them.</b>
-> <p><i>William Wordsworth</i></p>
+> <b>A person however learned and qualified in his life's work in whom gratitude is absent, is devoid of that beauty of character which makes personality fragrant.</b>
+> <p><i>Hazrat Inayat Khan</i></p>
 
 <br>
