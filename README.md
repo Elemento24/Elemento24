@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who studies books alone will know how things ought to be, and he who studies men will know how they are.</b>
-> <p><i>Charles Caleb Colton</i></p>
+> <b>The time I spent thinking about how I was better than somebody else or worrying about somebody else's attitude was time I could put to better use.</b>
+> <p><i>Charley Pride</i></p>
 
 <br>
