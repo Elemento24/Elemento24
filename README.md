@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I look my best when I take my helmet off after a long motorcycle ride. I have a glow and a bit of helmet hair.</b>
-> <p><i>Eric Bana</i></p>
+> <b>I'm most comfortable in my birthday suit.</b>
+> <p><i>Amanda Seyfried</i></p>
 
 <br>
