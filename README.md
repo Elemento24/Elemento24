@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Car designers are just going to have to come up with an automobile that outlasts the payments.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>Pictures deface walls more often than they decorate them.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
