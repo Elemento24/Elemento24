@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body can do amazing things in a situation when it is really called for.</b>
-> <p><i>Suzanne Farrell</i></p>
+> <b>The fast, flowing parts, the high-speed corners, that's where a Formula One car is at its best - changes of direction, pulling high g-forces left and right.</b>
+> <p><i>Jenson Button</i></p>
 
 <br>
