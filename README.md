@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a new little stray dog that I've had for about a month now. His name is Mikey Mohawk - he's this little terrier with a natural Mohawk. My friend found him hit by a car on Pico Boulevard.</b>
-> <p><i>Krysten Ritter</i></p>
+> <b>The beauty about the D-list is that people who are on it probably don't know they are.</b>
+> <p><i>Kathy Griffin</i></p>
 
 <br>
