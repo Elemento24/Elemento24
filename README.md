@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Central banks don't have divine wisdom. They try to do the best analysis they can and must be prepared to stand or fall by the quality of that analysis.</b>
-> <p><i>Mary Kay Ash</i></p>
+> <b>I look my best when I take my helmet off after a long motorcycle ride. I have a glow and a bit of helmet hair.</b>
+> <p><i>Eric Bana</i></p>
 
 <br>
