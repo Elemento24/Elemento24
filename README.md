@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sculpture is the art of the intelligence.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>So there is going to be that balance of understanding how to get the best out of the car that day, whether it's 15th or even if I have a shot at a top 10, protecting that car so we can bring it back when we have to.</b>
+> <p><i>Kurt Busch</i></p>
 
 <br>
