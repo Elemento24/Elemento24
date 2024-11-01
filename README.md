@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the sole ambition, the exclusive goal of Taste.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>He who studies books alone will know how things ought to be, and he who studies men will know how they are.</b>
+> <p><i>Charles Caleb Colton</i></p>
 
 <br>
