@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A person however learned and qualified in his life's work in whom gratitude is absent, is devoid of that beauty of character which makes personality fragrant.</b>
-> <p><i>Hazrat Inayat Khan</i></p>
+> <b>Central banks don't have divine wisdom. They try to do the best analysis they can and must be prepared to stand or fall by the quality of that analysis.</b>
+> <p><i>Mary Kay Ash</i></p>
 
 <br>
