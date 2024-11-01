@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best scientist is open to experience and begins with romance - the idea that anything is possible.</b>
-> <p><i>Ray Bradbury</i></p>
+> <b>The body can do amazing things in a situation when it is really called for.</b>
+> <p><i>Suzanne Farrell</i></p>
 
 <br>
