@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In writing and politicking, it's best not to think about it, just do it.</b>
-> <p><i>Gore Vidal</i></p>
+> <b>An Army is a collection of armed men obliged to obey one man. Every change in the rules which impairs the principle weakens the army.</b>
+> <p><i>William Tecumseh Sherman</i></p>
 
 <br>
