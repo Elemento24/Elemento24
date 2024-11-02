@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the objectification of feeling.</b>
-> <p><i>Herman Melville</i></p>
+> <b>Learning to dislike children at an early age saves a lot of expense and aggravation later in life.</b>
+> <p><i>Robert Byrne</i></p>
 
 <br>
