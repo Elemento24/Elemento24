@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The cars we drive say a lot about us.</b>
-> <p><i>Alexandra Paul</i></p>
+> <b>The only way to get the best of an argument is to avoid it.</b>
+> <p><i>Dale Carnegie</i></p>
 
 <br>
