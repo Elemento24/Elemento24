@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Learning to dislike children at an early age saves a lot of expense and aggravation later in life.</b>
-> <p><i>Robert Byrne</i></p>
+> <b>While I relish our warm months, winter forms our character and brings out our best.</b>
+> <p><i>Tom Allen</i></p>
 
 <br>
