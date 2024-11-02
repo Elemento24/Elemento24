@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is how we determine how valuable you are.</b>
-> <p><i>Jane Elliot</i></p>
+> <b>All things are artificial, for nature is the art of God.</b>
+> <p><i>Thomas Browne</i></p>
 
 <br>
