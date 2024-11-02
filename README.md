@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An Army is a collection of armed men obliged to obey one man. Every change in the rules which impairs the principle weakens the army.</b>
-> <p><i>William Tecumseh Sherman</i></p>
+> <b>The cars we drive say a lot about us.</b>
+> <p><i>Alexandra Paul</i></p>
 
 <br>
