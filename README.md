@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To the press alone, chequered as it is with abuses, the world is indebted for all the triumphs which have been gained by reason and humanity over error and oppression.</b>
-> <p><i>James Madison</i></p>
+> <b>In order to effect great change, we need to look at how we can help those in our own communities as well as globally.</b>
+> <p><i>Christina Aguilera</i></p>
 
 <br>
