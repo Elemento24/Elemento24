@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A life can get knocked into a new orbit by a car crash, a lottery win or just a bleary-eyed consultant giving bad news in a calm voice.</b>
-> <p><i>David Mitchell</i></p>
+> <b>To the press alone, chequered as it is with abuses, the world is indebted for all the triumphs which have been gained by reason and humanity over error and oppression.</b>
+> <p><i>James Madison</i></p>
 
 <br>
