@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is far better to be alone, than to be in bad company.</b>
-> <p><i>George Washington</i></p>
+> <b>No enterprise can exist for itself alone. It ministers to some great need, it performs some great service, not for itself, but for others or failing therein, it ceases to be profitable and ceases to exist.</b>
+> <p><i>Calvin Coolidge</i></p>
 
 <br>
