@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The movie business is a big gamble.</b>
-> <p><i>Jackie Chan</i></p>
+> <b>Art is the objectification of feeling.</b>
+> <p><i>Herman Melville</i></p>
 
 <br>
