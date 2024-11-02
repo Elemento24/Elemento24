@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love what I do, and when I don't love what I do, I'll make a change.</b>
-> <p><i>Katy Perry</i></p>
+> <b>It is far better to be alone, than to be in bad company.</b>
+> <p><i>George Washington</i></p>
 
 <br>
