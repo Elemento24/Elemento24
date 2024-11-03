@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that age as a number is not nearly as important as health. You can be in poor health and be pretty miserable at 40 or 50. If you're in good health, you can enjoy things into your 80s.</b>
-> <p><i>Bob Barker</i></p>
+> <b>When I work alone, it can be like dabbling with a canvas. Maybe you paint over bits, and it starts to form its own life and lead you off in a direction. It becomes an intuitive, subconscious process.</b>
+> <p><i>Lindsey Buckingham</i></p>
 
 <br>
