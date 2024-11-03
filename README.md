@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All things are artificial, for nature is the art of God.</b>
-> <p><i>Thomas Browne</i></p>
+> <b>The thing is, I don't believe in most of what's done. The amount of financial and imaginative energy that's put into mediocrity is just amazing which I find to be fundamentally offensive as a human being.</b>
+> <p><i>William Hurt</i></p>
 
 <br>
