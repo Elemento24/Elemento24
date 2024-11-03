@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ah, mon cher, for anyone who is alone, without God and without a master, the weight of days is dreadful.</b>
-> <p><i>Albert Camus</i></p>
+> <b>Today's students can put dope in their veins or hope in their brains. If they can conceive it and believe it, they can achieve it. They must know it is not their aptitude but their attitude that will determine their altitude.</b>
+> <p><i>Jesse Jackson</i></p>
 
 <br>
