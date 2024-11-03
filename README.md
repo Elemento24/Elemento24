@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Venice is the perfect place for a phase of art to die. No other city on earth embraces entropy quite like this magical floating mall.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Ah, mon cher, for anyone who is alone, without God and without a master, the weight of days is dreadful.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
