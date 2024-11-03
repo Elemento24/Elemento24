@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thing is, I don't believe in most of what's done. The amount of financial and imaginative energy that's put into mediocrity is just amazing which I find to be fundamentally offensive as a human being.</b>
-> <p><i>William Hurt</i></p>
+> <b>My dad used to love Steely Dan, the Stones, Jethro Tull and all that. There was always Steely Dan going in my dad's car, but I remember The Royal Scam in particular because it has 'Kid Charlemagne' on it.</b>
+> <p><i>St. Vincent</i></p>
 
 <br>
