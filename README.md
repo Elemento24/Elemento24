@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When a noble life has prepared old age, it is not decline that it reveals, but the first days of immortality.</b>
-> <p><i>Muriel Spark</i></p>
+> <b>A complainer is like a Death Eater because there's a suction of negative energy. You can catch a great attitude from great people.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
