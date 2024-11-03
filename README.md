@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And often it would be a woman who was in her 70s or 80s who would win the beauty contest, because bound feet never age.</b>
-> <p><i>Lisa See</i></p>
+> <b>My learning process is by eye alone it's not at all scientific.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
