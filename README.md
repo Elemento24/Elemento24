@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That they may have a little peace, even the best dogs are compelled to snarl occasionally.</b>
-> <p><i>William Feather</i></p>
+> <b>Piano playing is a dying art. I love the fact that I can be one guy with one instrument evoking an emotional and musical experience.</b>
+> <p><i>Jon Bon Jovi</i></p>
 
 <br>
