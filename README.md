@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It doesn't matter about money having it, not having it. Or having clothes, or not having them. You're still left alone with yourself in the end.</b>
-> <p><i>Billy Idol</i></p>
+> <b>Perhaps a hundred people assembled one evening, May 15, 1876, at the time when the country was celebrating the hundredth anniversary of its political independence.</b>
+> <p><i>Felix Adler</i></p>
 
 <br>
