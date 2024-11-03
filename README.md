@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The American people are smart. They've gotten sick of the predictable hyperpartisan talking points and canned anger.</b>
-> <p><i>John Avlon</i></p>
+> <b>When a noble life has prepared old age, it is not decline that it reveals, but the first days of immortality.</b>
+> <p><i>Muriel Spark</i></p>
 
 <br>
