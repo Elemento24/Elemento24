@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A complainer is like a Death Eater because there's a suction of negative energy. You can catch a great attitude from great people.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>It doesn't matter about money having it, not having it. Or having clothes, or not having them. You're still left alone with yourself in the end.</b>
+> <p><i>Billy Idol</i></p>
 
 <br>
