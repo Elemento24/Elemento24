@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I work alone, it can be like dabbling with a canvas. Maybe you paint over bits, and it starts to form its own life and lead you off in a direction. It becomes an intuitive, subconscious process.</b>
-> <p><i>Lindsey Buckingham</i></p>
+> <b>As far as luxury goes, about the only thing I do is... I go first class all the way. I live on the road, so when I'm out there, I'm getting the nice hotel suite, I'm getting the luxury car, I'm eating the good food, and I make sure I take care of myself on the road.</b>
+> <p><i>Trish Stratus</i></p>
 
 <br>
