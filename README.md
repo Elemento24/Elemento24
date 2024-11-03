@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dad used to love Steely Dan, the Stones, Jethro Tull and all that. There was always Steely Dan going in my dad's car, but I remember The Royal Scam in particular because it has 'Kid Charlemagne' on it.</b>
-> <p><i>St. Vincent</i></p>
+> <b>I think that age as a number is not nearly as important as health. You can be in poor health and be pretty miserable at 40 or 50. If you're in good health, you can enjoy things into your 80s.</b>
+> <p><i>Bob Barker</i></p>
 
 <br>
