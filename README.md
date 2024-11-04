@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'll never forget that show season. It was completely mad. I was staying between Christy and Naomi's rooms and it was all limos and the Ritz Hotel and all that kind of business.</b>
-> <p><i>Kate Moss</i></p>
+> <b>Back in the days when the market was a kind of secular god and all the world thrilled to behold the amazing powers of private capital, the idea of privatizing highways and airports and other bits of our transportation infrastructure made a certain kind of sense.</b>
+> <p><i>Thomas Frank</i></p>
 
 <br>
