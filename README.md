@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is my work, and I've spent my whole life at a drawing board, but life is more important than architecture. What matters is to improve human beings.</b>
-> <p><i>Oscar Niemeyer</i></p>
+> <b>Just because you put higher-octane gasoline in your car doesn't mean you can break the speed limit. The speed limit's still 65.</b>
+> <p><i>Neil Sheehan</i></p>
 
 <br>
