@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom was amazing. She believed in me and we were best friends.</b>
-> <p><i>Carmen Electra</i></p>
+> <b>No one can avoid aging, but aging productively is something else.</b>
+> <p><i>Katharine Graham</i></p>
 
 <br>
