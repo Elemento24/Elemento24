@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I saw 'Taxi Driver,' and 'Taxi Driver' kind of saved my life. The scene where Robert De Niro is looking at himself in the mirror saying, 'You talkin' to me? You talkin' to me? Who the hell else are you talkin' to?' That's the scene that changed my life by changing my attitude about acting.</b>
-> <p><i>Michael Biehn</i></p>
+> <b>There is danger that we lose sight of what our friend is absolutely, while considering what she is to us alone.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
