@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are facing the wilderness on your own, you have a totally different attitude to someone who works in government or who has a monthly cheque.</b>
-> <p><i>Rick Santelli</i></p>
+> <b>Instead of focusing on that circumstances that you cannot change - focus strongly and powerfully on the circumstances that you can.</b>
+> <p><i>Joy Page</i></p>
 
 <br>
