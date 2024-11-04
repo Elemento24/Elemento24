@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An angry man opens his mouth and shuts his eyes.</b>
-> <p><i>Cato</i></p>
+> <b>When I admire the wonders of a sunset or the beauty of the moon, my soul expands in the worship of the creator.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
