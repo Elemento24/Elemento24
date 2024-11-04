@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course, the ideal scenario for parenting is obviously two parents of a mature age.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>Outstanding leaders go out of their way to boost the self-esteem of their personnel. If people believe in themselves, it's amazing what they can accomplish.</b>
+> <p><i>Sam Walton</i></p>
 
 <br>
