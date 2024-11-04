@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I admire the wonders of a sunset or the beauty of the moon, my soul expands in the worship of the creator.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>Architecture is my work, and I've spent my whole life at a drawing board, but life is more important than architecture. What matters is to improve human beings.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
