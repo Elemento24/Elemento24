@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Instead of focusing on that circumstances that you cannot change - focus strongly and powerfully on the circumstances that you can.</b>
-> <p><i>Joy Page</i></p>
+> <b>The boundaries which divide Life from Death are at best shadowy and vague. Who shall say where the one ends, and where the other begins?</b>
+> <p><i>Edgar Allan Poe</i></p>
 
 <br>
