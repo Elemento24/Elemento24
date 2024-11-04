@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Back in the days when the market was a kind of secular god and all the world thrilled to behold the amazing powers of private capital, the idea of privatizing highways and airports and other bits of our transportation infrastructure made a certain kind of sense.</b>
-> <p><i>Thomas Frank</i></p>
+> <b>To speak of morals in art is to speak of legislature in sex. Art is the sex of the imagination.</b>
+> <p><i>George Jean Nathan</i></p>
 
 <br>
