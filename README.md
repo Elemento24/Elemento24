@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dad was my best friend and greatest role model. He was an amazing dad, coach, mentor, soldier, husband and friend.</b>
-> <p><i>Tiger Woods</i></p>
+> <b>I'd like to do a lot of things - whether in design or architecture or business.</b>
+> <p><i>Caroline Wozniacki</i></p>
 
 <br>
