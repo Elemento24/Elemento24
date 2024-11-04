@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love to be alone. I never found the companion that was so companionable as solitude.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>You can have a spiritual awakening and discover a new side of you at any age. And best of all, love can happen at any age. Life can just start to get exciting when you're in your 40s and 50s. You have to believe that.</b>
+> <p><i>Salma Hayek</i></p>
 
 <br>
