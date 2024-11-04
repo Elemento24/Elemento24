@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Tis the last rose of summer Left blooming alone All her lovely companions Are faded and gone.</b>
-> <p><i>Thomas More</i></p>
+> <b>I love to be alone. I never found the companion that was so companionable as solitude.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
