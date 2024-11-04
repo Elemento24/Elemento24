@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd like to do a lot of things - whether in design or architecture or business.</b>
-> <p><i>Caroline Wozniacki</i></p>
+> <b>Of course, the ideal scenario for parenting is obviously two parents of a mature age.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
