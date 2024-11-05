@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do you remember when you were 10 or 11 years old and you really thought your folks were the best? They were completely omniscient and you took their word for everything. And then you got older and you went through this hideous age when suddenly they were the devil, they were bullies, and they didn't know anything.</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>United Artists wanted to do records with me. I had no idea, what a rare thing that was... to make an album. And they put a guy with me working on songs, and I got busy with films. I just kind of let it slide. Isn't that amazing?</b>
+> <p><i>John Astin</i></p>
 
 <br>
