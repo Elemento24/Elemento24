@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The momentous thing in human life is the art of winning the soul to good or evil.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>The best car safety device is a rear-view mirror with a cop in it.</b>
+> <p><i>Dudley Moore</i></p>
 
 <br>
