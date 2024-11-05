@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>United Artists wanted to do records with me. I had no idea, what a rare thing that was... to make an album. And they put a guy with me working on songs, and I got busy with films. I just kind of let it slide. Isn't that amazing?</b>
-> <p><i>John Astin</i></p>
+> <b>What is the worst of woes that wait on age? What stamps the wrinkle deeper on the brow? To view each loved one blotted from life's page, And be alone on earth, as I am now.</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
