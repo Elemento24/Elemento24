@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How much more grievous are the consequences of anger than the causes of it.</b>
-> <p><i>Marcus Aurelius</i></p>
+> <b>We all know that Art is not truth. Art is a lie that makes us realize the truth, at least the truth that is given to us to understand.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
