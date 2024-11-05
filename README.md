@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Younger women have no problem in reconciling beauty with ambitions as a professional woman.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>Remember, man does not live on bread alone: sometimes he needs a little buttering up.</b>
+> <p><i>John C. Maxwell</i></p>
 
 <br>
