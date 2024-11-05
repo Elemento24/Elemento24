@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I worked hard in gymnastics since the time I was six years old until I retired at 23 years of age.</b>
-> <p><i>Nadia Comaneci</i></p>
+> <b>Younger women have no problem in reconciling beauty with ambitions as a professional woman.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
