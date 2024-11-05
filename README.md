@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all know that Art is not truth. Art is a lie that makes us realize the truth, at least the truth that is given to us to understand.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>Between 1910 and 1950 approximately 350 lives of Jesus were published in the English language alone.</b>
+> <p><i>John Clayton</i></p>
 
 <br>
