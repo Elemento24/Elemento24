@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is the worst of woes that wait on age? What stamps the wrinkle deeper on the brow? To view each loved one blotted from life's page, And be alone on earth, as I am now.</b>
-> <p><i>Lord Byron</i></p>
+> <b>Just as your car runs more smoothly and requires less energy to go faster and farther when the wheels are in perfect alignment, you perform better when your thoughts, feelings, emotions, goals, and values are in balance.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
