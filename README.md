@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Between 1910 and 1950 approximately 350 lives of Jesus were published in the English language alone.</b>
-> <p><i>John Clayton</i></p>
+> <b>When thinking about companions gone, we feel ourselves doubly alone.</b>
+> <p><i>Walter Scott</i></p>
 
 <br>
