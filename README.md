@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By far my most perilous assignment was covering a tank car explosion.</b>
-> <p><i>Jessica Savitch</i></p>
+> <b>I worked hard in gymnastics since the time I was six years old until I retired at 23 years of age.</b>
+> <p><i>Nadia Comaneci</i></p>
 
 <br>
