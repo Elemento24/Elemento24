@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Study after study confirms that even when you control for variables like profession, education, hours worked, age, marital status, and children, men still are compensated substantially more - even in professions, like nursing, dominated by women. No wonder there's a gender gap.</b>
-> <p><i>Dee Dee Myers</i></p>
+> <b>The only honest art form is laughter, comedy. You can't fake it... try to fake three laughs in an hour - ha ha ha ha ha - they'll take you away, man. You can't.</b>
+> <p><i>Lenny Bruce</i></p>
 
 <br>
