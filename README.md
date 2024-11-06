@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never lend your car to anyone to whom you have given birth.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>It was an amazing performer. Very temperamental, it spent a lot of time in its trailer.</b>
+> <p><i>Tilda Swinton</i></p>
 
 <br>
