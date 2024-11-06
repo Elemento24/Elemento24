@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Remember, man does not live on bread alone: sometimes he needs a little buttering up.</b>
-> <p><i>John C. Maxwell</i></p>
+> <b>I reject the cynical view that politics is a dirty business.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
