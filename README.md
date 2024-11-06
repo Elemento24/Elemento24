@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can best help you to prevent war not by repeating your words and following your methods but by finding new words and creating new methods.</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>Change is one of my favourite words.</b>
+> <p><i>Carol Vorderman</i></p>
 
 <br>
