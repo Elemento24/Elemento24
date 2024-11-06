@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When superstition is allowed to perform the task of old age in dulling the human temperament, we can say goodbye to all excellence in poetry, in painting, and in music.</b>
-> <p><i>Denis Diderot</i></p>
+> <b>Study after study confirms that even when you control for variables like profession, education, hours worked, age, marital status, and children, men still are compensated substantially more - even in professions, like nursing, dominated by women. No wonder there's a gender gap.</b>
+> <p><i>Dee Dee Myers</i></p>
 
 <br>
