@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is one of my favourite words.</b>
-> <p><i>Carol Vorderman</i></p>
+> <b>Beauty can make you powerful in a way that isn't good for you. Being OK is better for the person I have become.</b>
+> <p><i>Felicity Huffman</i></p>
 
 <br>
