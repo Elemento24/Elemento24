@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of middle age the best that can be said is that a middle-aged person has likely learned how to have a little fun in spite of his troubles.</b>
-> <p><i>Don Marquis</i></p>
+> <b>If the Frieze Art Fair catches on, I imagine at least two great things happening. First, we will once again have a huge art fair in town that isn't too annoying to go to. More importantly, Frieze may finally show New Yorkers that we can cross our own waters for visual culture. That would change everything.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
