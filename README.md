@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the Frieze Art Fair catches on, I imagine at least two great things happening. First, we will once again have a huge art fair in town that isn't too annoying to go to. More importantly, Frieze may finally show New Yorkers that we can cross our own waters for visual culture. That would change everything.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>We can best help you to prevent war not by repeating your words and following your methods but by finding new words and creating new methods.</b>
+> <p><i>Virginia Woolf</i></p>
 
 <br>
