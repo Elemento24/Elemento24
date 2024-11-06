@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think most of the people involved in any art always secretly wonder whether they are really there because they're good or there because they're lucky.</b>
-> <p><i>Katharine Hepburn</i></p>
+> <b>The unions say 'last hired - first fired,', we say hire and fire based on merit. We want the best and brightest in the classroom.</b>
+> <p><i>Scott Walker</i></p>
 
 <br>
