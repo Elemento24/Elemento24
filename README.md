@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The unions say 'last hired - first fired,', we say hire and fire based on merit. We want the best and brightest in the classroom.</b>
-> <p><i>Scott Walker</i></p>
+> <b>I paint mostly from real life. It has to start with that. Real people, real street scenes, behind the curtain scenes, live models, paintings, photographs, staged setups, architecture, grids, graphic design. Whatever it takes to make it work.</b>
+> <p><i>Bob Dylan</i></p>
 
 <br>
