@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's just poetry, beauty and love. How hard can that be to act?</b>
-> <p><i>Robin Wright Penn</i></p>
+> <b>No community values entrepreneurship and small business more than the Hispanic community.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
