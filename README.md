@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been gone for a long time. I really want to give the fans something that they deserve to have. So, I'm working really hard on this. I really want to make it the best work I've done so far.</b>
-> <p><i>Brandy Norwood</i></p>
+> <b>I have always had a sense that we are all pretty much alone in life, particularly in adolescence.</b>
+> <p><i>Robert Cormier</i></p>
 
 <br>
