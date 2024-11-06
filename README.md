@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and the Beast became the first animated feature ever nominated for best picture.</b>
-> <p><i>Leonard Maltin</i></p>
+> <b>When superstition is allowed to perform the task of old age in dulling the human temperament, we can say goodbye to all excellence in poetry, in painting, and in music.</b>
+> <p><i>Denis Diderot</i></p>
 
 <br>
