@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I listen to KCRW in the car and Pandora radio, which I stream through the stereo from my iPhone. I've been listening to everything from Caribou to Conway Twitty. If I'm going on a longer car ride, I'll download some podcasts.</b>
-> <p><i>Sam Trammell</i></p>
+> <b>A good painting to me has always been like a friend. It keeps me company, comforts and inspires.</b>
+> <p><i>Hedy Lamarr</i></p>
 
 <br>
