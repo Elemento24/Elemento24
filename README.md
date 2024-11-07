@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bid, then, the tender light of faith to shine By which alone the mortal heart is led Unto the thinking of the thought divine.</b>
-> <p><i>George Santayana</i></p>
+> <b>Modern bodybuilding is ritual, religion, sport, art, and science, awash in Western chemistry and mathematics. Defying nature, it surpasses it.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
