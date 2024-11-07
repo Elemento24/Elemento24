@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like it or not, the world evolves, priorities change and so do you.</b>
-> <p><i>Marilu Henner</i></p>
+> <b>But the wicked passions of men's hearts alone seem strong enough to leave pictures that persist the good are ever too luke-warm.</b>
+> <p><i>Algernon H. Blackwood</i></p>
 
 <br>
