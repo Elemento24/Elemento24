@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dying is an art, like everything else. I do it exceptionally well. I do it so it feels like hell. I do it so it feels real. I guess you could say I've a call.</b>
-> <p><i>Sylvia Plath</i></p>
+> <b>If you would have your son to walk honourably through the world, you must not attempt to clear the stones from his path, but teach him to walk firmly over them - not insist upon leading him by the hand, but let him learn to go alone.</b>
+> <p><i>Anne Bronte</i></p>
 
 <br>
