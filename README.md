@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A horse is a thing of beauty... none will tire of looking at him as long as he displays himself in his splendor.</b>
-> <p><i>Xenophon</i></p>
+> <b>There's a very small group of elite actresses who are my age, who people want to work with. It's not easy to get a good job with good actors.</b>
+> <p><i>Amanda Peet</i></p>
 
 <br>
