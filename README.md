@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But the wicked passions of men's hearts alone seem strong enough to leave pictures that persist the good are ever too luke-warm.</b>
-> <p><i>Algernon H. Blackwood</i></p>
+> <b>I got a lot of problems, but I'm really good at intuiting what I need to do to be happy with whatever I create. I know when to stop myself, I know when to start, I know when to leave something alone. I guess I just kind of indulge that completely, and so I just take my time.</b>
+> <p><i>Fiona Apple</i></p>
 
 <br>
