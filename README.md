@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Modern bodybuilding is ritual, religion, sport, art, and science, awash in Western chemistry and mathematics. Defying nature, it surpasses it.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>Like it or not, the world evolves, priorities change and so do you.</b>
+> <p><i>Marilu Henner</i></p>
 
 <br>
