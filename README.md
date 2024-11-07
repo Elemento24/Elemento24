@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A good painting to me has always been like a friend. It keeps me company, comforts and inspires.</b>
-> <p><i>Hedy Lamarr</i></p>
+> <b>Never go to bed angry, stay up and fight.</b>
+> <p><i>William Congreve</i></p>
 
 <br>
