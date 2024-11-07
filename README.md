@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All good art is an indiscretion.</b>
-> <p><i>Tennessee Williams</i></p>
+> <b>Hatred is an affair of the heart contempt that of the head.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
