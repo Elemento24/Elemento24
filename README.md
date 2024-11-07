@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I find beauty in the grotesque, like most artists.</b>
-> <p><i>Alexander McQueen</i></p>
+> <b>Bid, then, the tender light of faith to shine By which alone the mortal heart is led Unto the thinking of the thought divine.</b>
+> <p><i>George Santayana</i></p>
 
 <br>
