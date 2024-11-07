@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hatred is an affair of the heart contempt that of the head.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>Teachers can change lives with just the right mix of chalk and challenges.</b>
+> <p><i>Joyce Meyer</i></p>
 
 <br>
