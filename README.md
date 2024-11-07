@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only honest art form is laughter, comedy. You can't fake it... try to fake three laughs in an hour - ha ha ha ha ha - they'll take you away, man. You can't.</b>
-> <p><i>Lenny Bruce</i></p>
+> <b>I'm very pleased to be here. Let's face it, at my age I'm very pleased to be anywhere.</b>
+> <p><i>George Burns</i></p>
 
 <br>
