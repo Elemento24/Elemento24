@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything is tennis for me, it's my career and it's entertainment, but it's also a business.</b>
-> <p><i>Venus Williams</i></p>
+> <b>It usually takes me more than three weeks to prepare a good impromptu speech.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
