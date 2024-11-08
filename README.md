@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Opera, next to Gothic architecture, is one of the strangest inventions of Western man. It could not have been foreseen by any logical process.</b>
-> <p><i>Kenneth Clark</i></p>
+> <b>I get to travel around the world and meet all of these amazing people, and they're singing my songs! And to me, that's crazy.</b>
+> <p><i>Kina Grannis</i></p>
 
 <br>
