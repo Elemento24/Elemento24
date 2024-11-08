@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It usually takes me more than three weeks to prepare a good impromptu speech.</b>
-> <p><i>Mark Twain</i></p>
+> <b>Photography, alone of the arts, seems perfected to serve the desire humans have for a moment - this very moment - to stay.</b>
+> <p><i>Sam Abell</i></p>
 
 <br>
