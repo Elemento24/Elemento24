@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not the application of a canon of beauty but what the instinct and the brain can conceive beyond any canon. When we love a woman we don't start measuring her limbs.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>The fact that I even get in Broadway shows is, to me, still amazing, but then to win a Tony was just incredible.</b>
+> <p><i>Jane Krakowski</i></p>
 
 <br>
