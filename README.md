@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be assured those will be thy worst enemies, not to whom thou hast done evil, but who have done evil to thee. And those will be thy best friends, not to whom thou hast done good, but who have done good to thee.</b>
-> <p><i>Tacitus</i></p>
+> <b>You cannot control what happens to you, but you can control your attitude toward what happens to you, and in that, you will be mastering change rather than allowing it to master you.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
