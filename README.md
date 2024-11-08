@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The fact that I even get in Broadway shows is, to me, still amazing, but then to win a Tony was just incredible.</b>
-> <p><i>Jane Krakowski</i></p>
+> <b>Just because everything is different doesn't mean anything has changed.</b>
+> <p><i>Irene Peter</i></p>
 
 <br>
