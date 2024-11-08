@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Doctrines provide an architecture for both Republican and Democrat presidents to carry out policies.</b>
-> <p><i>Malcolm Wallop</i></p>
+> <b>Opera, next to Gothic architecture, is one of the strangest inventions of Western man. It could not have been foreseen by any logical process.</b>
+> <p><i>Kenneth Clark</i></p>
 
 <br>
