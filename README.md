@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always the guy getting kicked out of my classes at school for having an attitude problem.</b>
-> <p><i>Chevy Chase</i></p>
+> <b>You'll live. Only the best get killed.</b>
+> <p><i>Charles de Gaulle</i></p>
 
 <br>
