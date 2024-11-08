@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I think bands that rolled in with a big attitude, like they were some big deal, I just found that very strange.</b>
-> <p><i>Rob Zombie</i></p>
+> <b>What looks absolutely fabulous in rehearsal can fall flat in front of an audience. The audience dictates what you do or don't change.</b>
+> <p><i>Harvey Fierstein</i></p>
 
 <br>
