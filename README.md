@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember my wife and I used to get on plane and see everybody else with their babies. They'd be putting strollers and car seats up above, and we'd think: Oh, please Lord, don't make us go through that.</b>
-> <p><i>Paul Reiser</i></p>
+> <b>My mom can't defend herself to the world. She is such an amazing woman, with such an open heart. It's a real hard line, and I crossed it. I took everyone's life story and assumed it would be a great thing to put on screen. I was being selfish and I feel so horrible about it. I feel so guilty.</b>
+> <p><i>Nikki Reed</i></p>
 
 <br>
