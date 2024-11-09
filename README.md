@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pastry is different from cooking because you have to consider the chemistry, beauty and flavor. It's not just sugar and eggs thrown together. I tell my pastry chefs to be in tune for all of this. You have to be challenged by using secret or unusual ingredients.</b>
-> <p><i>Ron Ben-Israel</i></p>
+> <b>Negroes - Sweet and docile, Meek, humble, and kind: Beware the day - They change their mind.</b>
+> <p><i>Langston Hughes</i></p>
 
 <br>
