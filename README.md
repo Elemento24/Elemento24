@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man, I hate to get depressing on you, but I don't have a game. I'm so alone, so depressed, so dark, no.</b>
-> <p><i>Jason Schwartzman</i></p>
+> <b>I was taught from a young age that I had to serve, so that turned into me thinking I had to save the planet.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
