@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work ahead will be hard. These times demand the best of us - all of us, but we can do this. Together, we can do this. We can get this country working again. We can get this economy growing again. We can make the safety net safe again. We can do this.</b>
-> <p><i>Paul Ryan</i></p>
+> <b>We aren't in an information age, we are in an entertainment age.</b>
+> <p><i>Tony Robbins</i></p>
 
 <br>
