@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once you take yourself too seriously the art will suffer.</b>
-> <p><i>Maynard James Keenan</i></p>
+> <b>Every time I hear, Cut. Print, something cold and electrical goes off in my head, because I'm never going to change that film.</b>
+> <p><i>David Ogden Stiers</i></p>
 
 <br>
