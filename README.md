@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I absolutely relate to being alone in squalor, trying to come up with something adequate. I relate to that, and I've been known to crawl out of bed and drink out of a 2-liter bottle of Diet Coke.</b>
-> <p><i>Diablo Cody</i></p>
+> <b>Once you take yourself too seriously the art will suffer.</b>
+> <p><i>Maynard James Keenan</i></p>
 
 <br>
