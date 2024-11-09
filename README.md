@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Join me in Olympic Heros for Abstinence. The best sex is no sex.</b>
-> <p><i>Kurt Angle</i></p>
+> <b>I always wanted to shave. It is a very natural process. For my birthday I got a lot of shaving stuff.</b>
+> <p><i>Chaz Bono</i></p>
 
 <br>
