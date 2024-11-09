@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is unthinkable for a Frenchman to arrive at middle age without having syphilis and the Cross of the Legion of Honor.</b>
-> <p><i>Andre Gide</i></p>
+> <b>I remember my wife and I used to get on plane and see everybody else with their babies. They'd be putting strollers and car seats up above, and we'd think: Oh, please Lord, don't make us go through that.</b>
+> <p><i>Paul Reiser</i></p>
 
 <br>
