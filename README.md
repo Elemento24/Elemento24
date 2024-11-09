@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a joke to think that anyone is one thing. We're all such complex creatures. But if I'm going to be a poster child for anything, anger's a gorgeous emotion. It gets a bad rap, but it can make great changes happen.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Let me be absolutely clear. Israel is a strong friend of Israel's. It will be a strong friend of Israel's under a McCain administration. It will be a strong friend of Israel's under an Obama administration. So that policy is not going to change.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
