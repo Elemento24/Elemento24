@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We learn about life not from plusses alone, but from minuses as well.</b>
-> <p><i>Anton Chekhov</i></p>
+> <b>It's a joke to think that anyone is one thing. We're all such complex creatures. But if I'm going to be a poster child for anything, anger's a gorgeous emotion. It gets a bad rap, but it can make great changes happen.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
