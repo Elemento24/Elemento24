@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Death is the mother of Beauty hence from her, alone, shall come fulfillment to our dreams and our desires.</b>
-> <p><i>Wallace Stevens</i></p>
+> <b>Always expect the unexpected. Right around Thanksgiving, when the new Alex Cross will be out. It's called Four Blind Mice and it's a pretty amazing story about several murders inside the military.</b>
+> <p><i>James Patterson</i></p>
 
 <br>
