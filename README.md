@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wish I'd gotten sober at a younger age.</b>
-> <p><i>Janice Dickinson</i></p>
+> <b>I learned to change my accent in England, your accent identifies you very strongly with a class, and I did not want to be held back.</b>
+> <p><i>Sting</i></p>
 
 <br>
