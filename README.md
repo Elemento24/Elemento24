@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life could be wonderful if people would leave you alone.</b>
-> <p><i>Charlie Chaplin</i></p>
+> <b>My everyday job is about superficial beauty, but when I'm not working I prefer to work on my inner beauty - I read a lot, I try to learn.</b>
+> <p><i>Bar Refaeli</i></p>
 
 <br>
