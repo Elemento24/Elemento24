@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Duty is the great business of a sea officer all private considerations must give way to it, however painful it may be.</b>
-> <p><i>Horatio Nelson</i></p>
+> <b>Death is the mother of Beauty hence from her, alone, shall come fulfillment to our dreams and our desires.</b>
+> <p><i>Wallace Stevens</i></p>
 
 <br>
