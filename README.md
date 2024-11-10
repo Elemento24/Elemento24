@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned to change my accent in England, your accent identifies you very strongly with a class, and I did not want to be held back.</b>
-> <p><i>Sting</i></p>
+> <b>The man who has done his level best... is a success, even though the world may write him down a failure.</b>
+> <p><i>B. C. Forbes</i></p>
 
 <br>
