@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bruce Lee was very famous. I watched his movies and he is amazing. He is a martial arts master, his philosophy, his movement, both physically and mentally, were very strong.</b>
-> <p><i>Jet Li</i></p>
+> <b>A critic is a man who knows the way but can't drive the car.</b>
+> <p><i>Kenneth Tynan</i></p>
 
 <br>
