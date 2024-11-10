@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every time I hear, Cut. Print, something cold and electrical goes off in my head, because I'm never going to change that film.</b>
-> <p><i>David Ogden Stiers</i></p>
+> <b>Bruce Lee was very famous. I watched his movies and he is amazing. He is a martial arts master, his philosophy, his movement, both physically and mentally, were very strong.</b>
+> <p><i>Jet Li</i></p>
 
 <br>
