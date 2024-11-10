@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A critic is a man who knows the way but can't drive the car.</b>
-> <p><i>Kenneth Tynan</i></p>
+> <b>Whatever I do, it's my business. It's not my job to parent America.</b>
+> <p><i>Christina Aguilera</i></p>
 
 <br>
