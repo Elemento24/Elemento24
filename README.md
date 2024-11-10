@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This film business, perhaps more so in America than in Europe, has always been about young sexuality. It's not true of theatre, but in America, film audiences are young. It's not an intellectual cinema in America.</b>
-> <p><i>Jacqueline Bisset</i></p>
+> <b>Beauty is a manifestation of secret natural laws, which otherwise would have been hidden from us forever.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
