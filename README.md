@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've developed into quite a swan. I'm one of those people that will probably look better and better as I get older until I drop dead of beauty.</b>
-> <p><i>Rufus Wainwright</i></p>
+> <b>The hardest part was when I was in high school not having a job and always being broke. I had to get to auditions without a car. I either took the bus or walked.</b>
+> <p><i>Cuba Gooding, Jr.</i></p>
 
 <br>
