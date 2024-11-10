@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having a positive mental attitude is asking how something can be done rather than saying it can't be done.</b>
-> <p><i>Bo Bennett</i></p>
+> <b>I've developed into quite a swan. I'm one of those people that will probably look better and better as I get older until I drop dead of beauty.</b>
+> <p><i>Rufus Wainwright</i></p>
 
 <br>
