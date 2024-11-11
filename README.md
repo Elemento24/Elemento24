@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think dance is amazing because what people don't realize is like when you dance your spirit and your soul get ignited. You're not only releasing endorphins, but also your spirit is awakening. It makes you feel good and happy.</b>
-> <p><i>Laurieann Gibson</i></p>
+> <b>The size of your accomplishments, the quality of your achievement, will depend very largely on how big a man you see in yourself, what sort of image you get of your possible self, yourself at your best.</b>
+> <p><i>Orison Swett Marden</i></p>
 
 <br>
