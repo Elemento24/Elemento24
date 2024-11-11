@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When hospitality becomes an art it loses its very soul.</b>
-> <p><i>Max Beerbohm</i></p>
+> <b>When we have done our best, we should wait the result in peace.</b>
+> <p><i>John Lubbock</i></p>
 
 <br>
