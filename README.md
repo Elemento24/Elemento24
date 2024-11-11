@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think people should be given a test much like driver's tests as to whether they're capable of being parents! It's an art form. I talk a lot. And I think a lot. And I draw a lot. But never in a million years would I have been a parent. That's just work that's too hard.</b>
-> <p><i>Maurice Sendak</i></p>
+> <b>When hospitality becomes an art it loses its very soul.</b>
+> <p><i>Max Beerbohm</i></p>
 
 <br>
