@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of a woman must be seen from in her eyes, because that is the doorway to her heart, the place where love resides.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>I think dance is amazing because what people don't realize is like when you dance your spirit and your soul get ignited. You're not only releasing endorphins, but also your spirit is awakening. It makes you feel good and happy.</b>
+> <p><i>Laurieann Gibson</i></p>
 
 <br>
