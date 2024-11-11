@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is a manifestation of secret natural laws, which otherwise would have been hidden from us forever.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>It's amazing to see places like Madison Square Garden on the schedule again.</b>
+> <p><i>Roger Andrew Taylor</i></p>
 
 <br>
