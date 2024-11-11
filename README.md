@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The size of your accomplishments, the quality of your achievement, will depend very largely on how big a man you see in yourself, what sort of image you get of your possible self, yourself at your best.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>Our favorite holding period is forever.</b>
+> <p><i>Warren Buffett</i></p>
 
 <br>
