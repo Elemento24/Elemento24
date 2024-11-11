@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You get moments all the time that kind of make you pinch yourself, some of them make you quite emotional. Winning a BRIT was a big moment because we were just so excited to be at the awards in the first place. Selling out Madison Square Garden was pretty amazing too. Then we woke to the news that our UK tour was sold out. It was crazy.</b>
-> <p><i>Harry Styles</i></p>
+> <b>Largely this is a class thing - writers tend to be cosseted little middle-class kiddies who think that the world owes them a royalty cheque. But just doing it - being in your room for years on end, locked in your head, alone with invented ghosts - it weakens and softens the body. And I know I can't just live in my head.</b>
+> <p><i>Tony Parsons</i></p>
 
 <br>
