@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom was an aesthetician and she went to beauty school back in the '60s. I just remember watching her do her makeup all the time. She always had her nails done, makeup on - her face was ready to go when she went out. I loved it.</b>
-> <p><i>Emmanuelle Chriqui</i></p>
+> <b>One's philosophy is not best expressed in words it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
