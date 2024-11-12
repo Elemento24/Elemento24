@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you look closely at a tree you'll notice it's knots and dead branches, just like our bodies. What we learn is that beauty and imperfection go together wonderfully.</b>
-> <p><i>Matthew Fox</i></p>
+> <b>The best activities for your health are pumping and humping.</b>
+> <p><i>Arnold Schwarzenegger</i></p>
 
 <br>
