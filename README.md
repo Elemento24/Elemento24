@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>True art is characterized by an irresistible urge in the creative artist.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>Never Have Your Dog Stuffed is really advice to myself, a reminder to myself not to avoid change or uncertainty, but to go with it, to surf into change.</b>
+> <p><i>Alan Alda</i></p>
 
 <br>
