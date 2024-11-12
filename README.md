@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel there should have been some recognition of the Spice Girls at this year's 25th anniversary. We flew the flag for Britain around the globe in the 1990s and we achieved a hell of a lot.</b>
-> <p><i>Melanie Chisholm</i></p>
+> <b>If you look closely at a tree you'll notice it's knots and dead branches, just like our bodies. What we learn is that beauty and imperfection go together wonderfully.</b>
+> <p><i>Matthew Fox</i></p>
 
 <br>
