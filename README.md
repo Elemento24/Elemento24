@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best activities for your health are pumping and humping.</b>
-> <p><i>Arnold Schwarzenegger</i></p>
+> <b>Change is such hard work.</b>
+> <p><i>Billy Crystal</i></p>
 
 <br>
