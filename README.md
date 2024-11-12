@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, if you didn't get it or if you didn't feel like you enjoyed it, sometimes that experience can change.</b>
-> <p><i>Keanu Reeves</i></p>
+> <b>I suppose it's amazing how quick life goes by when you have children.</b>
+> <p><i>Steffi Graf</i></p>
 
 <br>
