@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We build buildings which are terribly restless. And buildings don't go anywhere. They shouldn't be restless.</b>
-> <p><i>Minoru Yamasaki</i></p>
+> <b>These songs are old friends I have entertained myself with when I'm washing the dishes, driving to the store and walking down the aisles. The ones that you sing when you're driving in the car and as a singer you always go back to them.</b>
+> <p><i>Al Jarreau</i></p>
 
 <br>
