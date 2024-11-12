@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As far as loneliness, I feel Los Angeles and its layout, having to drive everywhere - it is a lonely place. It's an isolated city in that respect because you're driving to places alone listening to the radio.</b>
-> <p><i>Jason Schwartzman</i></p>
+> <b>There is a certain age at which a child looks at you in all earnestness and delivers a long, pleased speech in all the true inflections of spoken English, but with not one recognizable syllable.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
