@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can change a tire, but I couldn't change a fuse on the computer panel on my car.</b>
-> <p><i>Mike O'Malley</i></p>
+> <b>Turns out, I couldn't catch them - or even get close to them. I realized that sharks are amazing, beautiful animals who have absolutely no interest in checking me out.</b>
+> <p><i>Malin Akerman</i></p>
 
 <br>
