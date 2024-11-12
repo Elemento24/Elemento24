@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Her beauty didn't do her any good and she couldn't use it in any positive way or manipulative way. I just hope that people will look and see and believe in that hope of love, that hope of freedom, even if it was just for a limited time.</b>
-> <p><i>Diane Kruger</i></p>
+> <b>I feel there should have been some recognition of the Spice Girls at this year's 25th anniversary. We flew the flag for Britain around the globe in the 1990s and we achieved a hell of a lot.</b>
+> <p><i>Melanie Chisholm</i></p>
 
 <br>
