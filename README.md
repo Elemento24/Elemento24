@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One's philosophy is not best expressed in words it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>I've given it my all. I've done my best. Now, I'm ready with my family to begin the next phase of our lives.</b>
+> <p><i>Richard M. Daley</i></p>
 
 <br>
