@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is such hard work.</b>
-> <p><i>Billy Crystal</i></p>
+> <b>As far as loneliness, I feel Los Angeles and its layout, having to drive everywhere - it is a lonely place. It's an isolated city in that respect because you're driving to places alone listening to the radio.</b>
+> <p><i>Jason Schwartzman</i></p>
 
 <br>
