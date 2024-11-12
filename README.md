@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The U.S. tries to provide immigrants who grow up here with a world-class education and imbue them with the can-do attitude that has long defined American innovation.</b>
-> <p><i>Gary Locke</i></p>
+> <b>The man who has done his level best... is a success, even though the world may write him down a failure.</b>
+> <p><i>B. C. Forbes</i></p>
 
 <br>
