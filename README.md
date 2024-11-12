@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a certain age at which a child looks at you in all earnestness and delivers a long, pleased speech in all the true inflections of spoken English, but with not one recognizable syllable.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>We build buildings which are terribly restless. And buildings don't go anywhere. They shouldn't be restless.</b>
+> <p><i>Minoru Yamasaki</i></p>
 
 <br>
