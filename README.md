@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>These songs are old friends I have entertained myself with when I'm washing the dishes, driving to the store and walking down the aisles. The ones that you sing when you're driving in the car and as a singer you always go back to them.</b>
-> <p><i>Al Jarreau</i></p>
+> <b>I can change a tire, but I couldn't change a fuse on the computer panel on my car.</b>
+> <p><i>Mike O'Malley</i></p>
 
 <br>
