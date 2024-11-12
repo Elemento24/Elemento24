@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The man who has done his level best... is a success, even though the world may write him down a failure.</b>
-> <p><i>B. C. Forbes</i></p>
+> <b>I have girls who are concerned about how they look compared to models or what have you. It's my responsibility to teach them that beauty is more than superficial.</b>
+> <p><i>Martina McBride</i></p>
 
 <br>
