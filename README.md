@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have girls who are concerned about how they look compared to models or what have you. It's my responsibility to teach them that beauty is more than superficial.</b>
-> <p><i>Martina McBride</i></p>
+> <b>I mean, if you didn't get it or if you didn't feel like you enjoyed it, sometimes that experience can change.</b>
+> <p><i>Keanu Reeves</i></p>
 
 <br>
