@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Tell me thy company, and I'll tell thee what thou art.</b>
-> <p><i>Miguel de Cervantes</i></p>
+> <b>The worst part about celebrating another birthday is the shock that you're only as well as you are.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
