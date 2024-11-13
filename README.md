@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is the art of drawing sufficient conclusions from insufficient premises.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>Nearly all the best things that came to me in life have been unexpected, unplanned by me.</b>
+> <p><i>Carl Sandburg</i></p>
 
 <br>
