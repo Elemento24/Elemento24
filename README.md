@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If there is anything that a man can do well, I say let him do it. Give him a chance.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>My husband gave me a necklace. It's fake. I requested fake. Maybe I'm paranoid, but in this day and age, I don't want something around my neck that's worth more than my head.</b>
+> <p><i>Rita Rudner</i></p>
 
 <br>
