@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would always encourage people of any age not to be so quick to follow other people's truths but to search and follow your own moral code and live by your own integrity, and mostly just be brave.</b>
-> <p><i>Jewel</i></p>
+> <b>I drive an electric car.</b>
+> <p><i>David Duchovny</i></p>
 
 <br>
