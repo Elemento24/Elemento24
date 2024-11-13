@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents were dishonest people. If it was my birthday, I knew my mother took me to the K-Mart and she stole my toy. She'd put it in the shopping cart and we'd walk out. I was raised with that.</b>
-> <p><i>Vincent Gallo</i></p>
+> <b>An artist is an artist only because of his exquisite sense of beauty, a sense which shows him intoxicating pleasures, but which at the same time implies and contains an equally exquisite sense of all deformities and all disproportion.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
