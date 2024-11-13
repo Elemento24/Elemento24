@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While the resurrection promises us a new and perfect life in the future, God loves us too much to leave us alone to contend with the pain, guilt and loneliness of our present life.</b>
-> <p><i>Josh McDowell</i></p>
+> <b>I would always encourage people of any age not to be so quick to follow other people's truths but to search and follow your own moral code and live by your own integrity, and mostly just be brave.</b>
+> <p><i>Jewel</i></p>
 
 <br>
