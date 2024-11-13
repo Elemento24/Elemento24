@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>If you have only 95 minutes of material, make an only 95-minute movie. Amazing how often that's forgotten.</b>
+> <p><i>Stephen Hunter</i></p>
 
 <br>
