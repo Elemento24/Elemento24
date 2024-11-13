@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The anger of a person who is strong, can always bide its time.</b>
-> <p><i>James Whitcomb Riley</i></p>
+> <b>Tell me thy company, and I'll tell thee what thou art.</b>
+> <p><i>Miguel de Cervantes</i></p>
 
 <br>
