@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I drive an electric car.</b>
-> <p><i>David Duchovny</i></p>
+> <b>I believe the true function of age is memory. I'm recording as fast as I can.</b>
+> <p><i>Rita Mae Brown</i></p>
 
 <br>
