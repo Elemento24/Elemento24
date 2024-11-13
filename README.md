@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought it was amazing to work with authors, to get a manuscript and try to make up a cover for it.</b>
-> <p><i>Dick Bruna</i></p>
+> <b>Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
