@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you have only 95 minutes of material, make an only 95-minute movie. Amazing how often that's forgotten.</b>
-> <p><i>Stephen Hunter</i></p>
+> <b>The opportunity, number one, to work with Ang Lee is an amazing thing for me.</b>
+> <p><i>Sam Elliott</i></p>
 
 <br>
