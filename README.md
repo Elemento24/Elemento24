@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My husband gave me a necklace. It's fake. I requested fake. Maybe I'm paranoid, but in this day and age, I don't want something around my neck that's worth more than my head.</b>
-> <p><i>Rita Rudner</i></p>
+> <b>I'd love to write something for a male protagonist. That's sort of the next frontier for me. I think it'd be really amazing to write the kind of parts that I love for women but for a guy.</b>
+> <p><i>Lena Dunham</i></p>
 
 <br>
