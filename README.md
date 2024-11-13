@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reason can only be this: heroic poetry depends on an heroic age, and an age is heroic because of what it is, not because of what it does.</b>
-> <p><i>Lascelles Abercrombie</i></p>
+> <b>Fashion is quite inclusive and good at embracing different things and different forms of beauty. It's a very liberal industry. You can be yourself. Just not overweight.</b>
+> <p><i>Andrej Pejic</i></p>
 
 <br>
