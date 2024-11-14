@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What Englishman will give his mind to politics as long as he can afford to keep a motor car?</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>Why is it you feel like a dope if you laugh alone, but that's usually how you end up crying?</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
