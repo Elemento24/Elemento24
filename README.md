@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sure I played, did you think I was born at the age of 70 sitting in a dugout trying to manage guys like you?</b>
-> <p><i>Casey Stengel</i></p>
+> <b>What Englishman will give his mind to politics as long as he can afford to keep a motor car?</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
