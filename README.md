@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good manners is the art of making those people easy with whom we converse. Whoever makes the fewest people uneasy is the best bred in the room.</b>
-> <p><i>Jonathan Swift</i></p>
+> <b>I am little concerned with beauty or perfection. I don't care for the great centuries. All I care about is life, struggle, intensity.</b>
+> <p><i>Emile Zola</i></p>
 
 <br>
