@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no reason to be the richest man in the cemetery. You can't do any business from there.</b>
-> <p><i>Colonel Sanders</i></p>
+> <b>Man should forget his anger before he lies down to sleep.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
