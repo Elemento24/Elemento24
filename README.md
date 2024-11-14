@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man should forget his anger before he lies down to sleep.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>We live in a moment of history where change is so speeded up that we begin to see the present only when it is already disappearing.</b>
+> <p><i>R. D. Laing</i></p>
 
 <br>
