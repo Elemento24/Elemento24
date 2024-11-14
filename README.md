@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The optimist thinks this is the best of all possible worlds. The pessimist fears it is true.</b>
-> <p><i>J. Robert Oppenheimer</i></p>
+> <b>Enthusiasm is the best protection in any situation. Wholeheartedness is contagious. Give yourself, if you wish to get others.</b>
+> <p><i>David Seabury</i></p>
 
 <br>
