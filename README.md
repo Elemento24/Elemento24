@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With guys I revere, like Marcus Garvey or Malcolm X, their look is less about style than purpose and the expression of beauty. It wasn't just about being noticed, you know?</b>
-> <p><i>Mos Def</i></p>
+> <b>No one ever said on their deathbed, 'Gee, I wish I had spent more time alone with my computer'.</b>
+> <p><i>Danielle Berry</i></p>
 
 <br>
