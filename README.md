@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do you know the difference between a beautiful woman and a charming one? A beauty is a woman you notice, a charmer is one who notices you.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>Sure I played, did you think I was born at the age of 70 sitting in a dugout trying to manage guys like you?</b>
+> <p><i>Casey Stengel</i></p>
 
 <br>
