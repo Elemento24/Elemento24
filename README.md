@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm the one who gets called up about a problem. I'm the one who gets called up about the street lighting and the abandoned car. I'm the one who gets blamed if the police don't arrive. I'm the one they blame if a city truck is broken down.</b>
-> <p><i>Richard M. Daley</i></p>
+> <b>The optimist thinks this is the best of all possible worlds. The pessimist fears it is true.</b>
+> <p><i>J. Robert Oppenheimer</i></p>
 
 <br>
