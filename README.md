@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am little concerned with beauty or perfection. I don't care for the great centuries. All I care about is life, struggle, intensity.</b>
-> <p><i>Emile Zola</i></p>
+> <b>People quit on jobs. They quit on marriages. They quit on school. There's an immediacy of this day and age that doesn't lend itself to being committed to anything.</b>
+> <p><i>Emily Blunt</i></p>
 
 <br>
