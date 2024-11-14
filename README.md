@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Enthusiasm is the best protection in any situation. Wholeheartedness is contagious. Give yourself, if you wish to get others.</b>
-> <p><i>David Seabury</i></p>
+> <b>There are going to be little victories that we claim, even if it's finishing 15th and putting the car back in hauler without a scratch on it.</b>
+> <p><i>Kurt Busch</i></p>
 
 <br>
