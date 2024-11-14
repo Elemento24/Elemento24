@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in a moment of history where change is so speeded up that we begin to see the present only when it is already disappearing.</b>
-> <p><i>R. D. Laing</i></p>
+> <b>Good manners is the art of making those people easy with whom we converse. Whoever makes the fewest people uneasy is the best bred in the room.</b>
+> <p><i>Jonathan Swift</i></p>
 
 <br>
