@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Doing the best at this moment puts you in the best place for the next moment.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>If you think spreading money around by force seems like an odd definition of fairness, you're not alone.</b>
+> <p><i>Arthur C. Brooks</i></p>
 
 <br>
