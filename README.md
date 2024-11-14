@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I loved logic, math, computer programming. I loved systems and logic approaches. And so I just figured architecture is this perfect combination.</b>
-> <p><i>Maya Lin</i></p>
+> <b>Any change is resisted because bureaucrats have a vested interest in the chaos in which they exist.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
