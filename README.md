@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was younger, I was terrified to express anger because it would often kick-start a horrible reaction in the men in my life. So I bit my tongue. I was left to painstakingly deal with the aftermath of my avoidance later in life, in therapy or through the lyrics of my songs.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Doing the best at this moment puts you in the best place for the next moment.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
