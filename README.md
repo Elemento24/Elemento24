@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You, too, women, cast away all the cowards from your embraces they will give you only cowards for children, and you who are the daughters of the land of beauty must bear children who are noble and brave.</b>
-> <p><i>Giuseppe Garibaldi</i></p>
+> <b>Bologna is the best city in Italy for food and has the least number of tourists. With its medieval beauty, it has it all.</b>
+> <p><i>Mario Batali</i></p>
 
 <br>
