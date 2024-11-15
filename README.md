@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a real roller-coaster ride if you're lucky to have longevity in this business - you have to be able to ride those waves.</b>
-> <p><i>Jennifer Lopez</i></p>
+> <b>I want do some kind of action movie, car chases and explosions.</b>
+> <p><i>Devon Sawa</i></p>
 
 <br>
