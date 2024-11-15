@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dream car would be a Maserati. That would be amazing.</b>
-> <p><i>Jordana Brewster</i></p>
+> <b>He has only half learned the art of reading who has not added to it the more refined art of skipping and skimming.</b>
+> <p><i>Arthur Balfour</i></p>
 
 <br>
