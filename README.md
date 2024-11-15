@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Women lie about their age men lie about their income.</b>
-> <p><i>William Feather</i></p>
+> <b>Education is the best friend. An educated person is respected everywhere. Education beats the beauty and the youth.</b>
+> <p><i>Chanakya</i></p>
 
 <br>
