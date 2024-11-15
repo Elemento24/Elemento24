@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want do some kind of action movie, car chases and explosions.</b>
-> <p><i>Devon Sawa</i></p>
+> <b>Traveling to Russia and Germany and being able to see the world at a young age was really cool for me, and I really liked that.</b>
+> <p><i>Mia Wasikowska</i></p>
 
 <br>
