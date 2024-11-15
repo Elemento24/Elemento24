@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People quit on jobs. They quit on marriages. They quit on school. There's an immediacy of this day and age that doesn't lend itself to being committed to anything.</b>
-> <p><i>Emily Blunt</i></p>
+> <b>I didn't appreciate the young woman that I was, or my young beauty, because I was so obsessed with the fact that I felt fat. It's never good to add to anybody else's suffering. It's an important topic to really get the gravity and the importance of - dealing with dignity.</b>
+> <p><i>Margaret Cho</i></p>
 
 <br>
