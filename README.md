@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'll tell you one thing: Don't ever give anybody your best advice, because they're not going to follow it.</b>
-> <p><i>Jack Nicholson</i></p>
+> <b>The worst disease which can afflict business executives in their work is not, as popularly supposed, alcoholism it's egotism.</b>
+> <p><i>Harold S. Geneen</i></p>
 
 <br>
