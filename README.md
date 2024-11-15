@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I think we're alone. Sometimes I think we're not. In either case, the thought is staggering.</b>
-> <p><i>R. Buckminster Fuller</i></p>
+> <b>I was getting hot flashes and sweats on a regular basis. That's not normal, even for my age.</b>
+> <p><i>Kareem Abdul-Jabbar</i></p>
 
 <br>
