@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The worst disease which can afflict business executives in their work is not, as popularly supposed, alcoholism it's egotism.</b>
-> <p><i>Harold S. Geneen</i></p>
+> <b>Usually when people are sad, they don't do anything. They just cry over their condition. But when they get angry, they bring about a change.</b>
+> <p><i>James Russell Lowell</i></p>
 
 <br>
