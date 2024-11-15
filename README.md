@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the best friend. An educated person is respected everywhere. Education beats the beauty and the youth.</b>
-> <p><i>Chanakya</i></p>
+> <b>Of course, the ideal scenario for parenting is obviously two parents of a mature age.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
