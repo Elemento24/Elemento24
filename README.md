@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Traveling to Russia and Germany and being able to see the world at a young age was really cool for me, and I really liked that.</b>
-> <p><i>Mia Wasikowska</i></p>
+> <b>I may be alone in this, but I do sense the power of film, in that movies have the ability to literally change people's minds. That's pretty powerful stuff when you consider that.</b>
+> <p><i>Nicolas Cage</i></p>
 
 <br>
