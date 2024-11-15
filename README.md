@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is only a number, a cipher for the records. A man can't retire his experience. He must use it. Experience achieves more with less energy and time.</b>
-> <p><i>Bernard Baruch</i></p>
+> <b>Sometimes I think we're alone. Sometimes I think we're not. In either case, the thought is staggering.</b>
+> <p><i>R. Buckminster Fuller</i></p>
 
 <br>
