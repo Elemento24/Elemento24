@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A comfortable old age is the reward of a well-spent youth. Instead of its bringing sad and melancholy prospects of decay, it would give us hopes of eternal youth in a better world.</b>
-> <p><i>Maurice Chevalier</i></p>
+> <b>But, when the work was finished, the Craftsman kept wishing that there were someone to ponder the plan of so great a work, to love its beauty, and to wonder at its vastness.</b>
+> <p><i>Giovanni Pico della Mirandola</i></p>
 
 <br>
