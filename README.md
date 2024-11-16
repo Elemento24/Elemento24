@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mass transportation is doomed to failure in North America because a person's car is the only place where he can be alone and think.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>A comfortable old age is the reward of a well-spent youth. Instead of its bringing sad and melancholy prospects of decay, it would give us hopes of eternal youth in a better world.</b>
+> <p><i>Maurice Chevalier</i></p>
 
 <br>
