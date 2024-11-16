@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the first time, I lived alone... in a luxury apartment on Sunset Strip. For a few days I loved the idea, but I got lonely and restless.</b>
-> <p><i>Patty Duke</i></p>
+> <b>Real education should consist of drawing the goodness and the best out of our own students. What better books can there be than the book of humanity?</b>
+> <p><i>Cesar Chavez</i></p>
 
 <br>
