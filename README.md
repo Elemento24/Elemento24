@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Effectively, change is almost impossible without industry-wide collaboration, cooperation and consensus.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Broadly speaking, the short words are the best, and the old words best of all.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
