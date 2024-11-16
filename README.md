@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I started my last business, I didn't receive a paycheck for 13 months. The average person can't handle that pressure.</b>
-> <p><i>Robert Kiyosaki</i></p>
+> <b>Back in the 1960s, I saw Peter, Paul and Mary. I was at that age, about 14, and I was mesmerized.</b>
+> <p><i>Lucinda Williams</i></p>
 
 <br>
