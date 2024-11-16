@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Real education should consist of drawing the goodness and the best out of our own students. What better books can there be than the book of humanity?</b>
-> <p><i>Cesar Chavez</i></p>
+> <b>It is the addition of strangeness to beauty that constitutes the romantic character in art.</b>
+> <p><i>Walter Hagen</i></p>
 
 <br>
