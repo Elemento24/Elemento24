@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Broadly speaking, the short words are the best, and the old words best of all.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>I don't get a chance to do many of my own stunts on 'Buffy' - none of us do. We have amazing stunt people who make us all look really believable and really good.</b>
+> <p><i>Emma Caulfield</i></p>
 
 <br>
