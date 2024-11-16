@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the addition of strangeness to beauty that constitutes the romantic character in art.</b>
-> <p><i>Walter Hagen</i></p>
+> <b>Society in every state is a blessing, but government, even in its best stage, is but a necessary evil in its worst state an intolerable one.</b>
+> <p><i>Thomas Paine</i></p>
 
 <br>
