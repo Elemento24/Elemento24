@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's every little girl's dream to have an exact look-alike doll. It's amazing.</b>
-> <p><i>Bindi Irwin</i></p>
+> <b>There is no spot of ground, however arid, bare or ugly, that cannot be tamed into such a state as may give an impression of beauty and delight.</b>
+> <p><i>Gertrude Jekyll</i></p>
 
 <br>
