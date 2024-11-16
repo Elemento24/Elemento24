@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Society in every state is a blessing, but government, even in its best stage, is but a necessary evil in its worst state an intolerable one.</b>
-> <p><i>Thomas Paine</i></p>
+> <b>Mass transportation is doomed to failure in North America because a person's car is the only place where he can be alone and think.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
