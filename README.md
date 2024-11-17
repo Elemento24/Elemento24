@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to put on hardcore when I have to clean my apartment, which I hate to do, but it's motivational. I like old heavy metal when I'm outside working on my car. Music has definite functions for me.</b>
-> <p><i>Peter Steele</i></p>
+> <b>The history of philosophy is not, like the history of the sciences, to be studied with the intellect alone. That which is receptive in us and that which impinges upon us from history is the reality of man's being, unfolding itself in thought.</b>
+> <p><i>Karl Jaspers</i></p>
 
 <br>
