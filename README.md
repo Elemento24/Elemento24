@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is time for parents to teach young people early on that in diversity there is beauty and there is strength.</b>
-> <p><i>Maya Angelou</i></p>
+> <b>My view is pensioners don't have the one option that people of working age have. They can't really increase their income, because they are no longer able to work.</b>
+> <p><i>Iain Duncan Smith</i></p>
 
 <br>
