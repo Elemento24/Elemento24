@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>American stuntmen are smart - they think about safety. When they do a jump in a car, they calculate everything: the speed, the distance... But in Hong Kong, we don't know how to count. Everything we do is a guess. If you've got the guts, you do it. All of my stuntmen have gotten hurt.</b>
-> <p><i>Jackie Chan</i></p>
+> <b>The amazing thing is that I'm sane. I'm not bitter. I'm not drugged out. I'm not broke. I'm still married to the same guy. My children don't hate me.</b>
+> <p><i>Brenda Lee</i></p>
 
 <br>
