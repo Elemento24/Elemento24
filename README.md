@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have mentally overcome situations most of you would be terrified to ever attempt: heights, fire, needles, spiders, snakes, angry monkeys, being shot, being hit by a car, going blind - you name it, I have been in a situation where I have had to mentally overcome my inherent fears to do my job.</b>
-> <p><i>Criss Angel</i></p>
+> <b>I like to put on hardcore when I have to clean my apartment, which I hate to do, but it's motivational. I like old heavy metal when I'm outside working on my car. Music has definite functions for me.</b>
+> <p><i>Peter Steele</i></p>
 
 <br>
