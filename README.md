@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think sometimes if you are alone, you are freer because your time is your own.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>I have mentally overcome situations most of you would be terrified to ever attempt: heights, fire, needles, spiders, snakes, angry monkeys, being shot, being hit by a car, going blind - you name it, I have been in a situation where I have had to mentally overcome my inherent fears to do my job.</b>
+> <p><i>Criss Angel</i></p>
 
 <br>
