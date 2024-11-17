@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prophesy is a good line of business, but it is full of risks.</b>
-> <p><i>Mark Twain</i></p>
+> <b>Simply racing a Formula 1 car is an achievement.</b>
+> <p><i>Sebastian Vettel</i></p>
 
 <br>
