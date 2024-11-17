@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are young and healthy, it never occurs to you that in a single second your whole life could change.</b>
-> <p><i>Annette Funicello</i></p>
+> <b>The history of my life must begin by the earliest circumstance which my memory can evoke it will therefore commence when I had attained the age of eight years and four months.</b>
+> <p><i>Giacomo Casanova</i></p>
 
 <br>
