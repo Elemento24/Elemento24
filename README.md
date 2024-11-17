@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now is the age of anxiety.</b>
-> <p><i>W. H. Auden</i></p>
+> <b>What other people think of me is none of my business.</b>
+> <p><i>Gary Oldman</i></p>
 
 <br>
