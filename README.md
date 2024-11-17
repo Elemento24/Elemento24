@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is a matter of feeling, not of years.</b>
-> <p><i>Washington Irving</i></p>
+> <b>In youth we run into difficulties. In old age difficulties run into us.</b>
+> <p><i>Beverly Sills</i></p>
 
 <br>
