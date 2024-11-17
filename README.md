@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The history of philosophy is not, like the history of the sciences, to be studied with the intellect alone. That which is receptive in us and that which impinges upon us from history is the reality of man's being, unfolding itself in thought.</b>
-> <p><i>Karl Jaspers</i></p>
+> <b>I believe that I often bring out the best in somebody's talents.</b>
+> <p><i>David Bowie</i></p>
 
 <br>
