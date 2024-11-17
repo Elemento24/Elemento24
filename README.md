@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In youth we run into difficulties. In old age difficulties run into us.</b>
-> <p><i>Beverly Sills</i></p>
+> <b>I like progress but I hate change.</b>
+> <p><i>Jon Bon Jovi</i></p>
 
 <br>
