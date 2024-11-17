@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes we look for those thunderous things to happen in our life for our lives to change or go in the other direction. We seek the miracle. We seek the parting of the seas, the moving of the mountains. But no, it's a quiet thing. At least for me it was.</b>
-> <p><i>Ben Vereen</i></p>
+> <b>Every time I copy something, I can draw it for the rest of my life. But research is so painful - I mean just opening up a magazine looking for a picture of a car or looking out the window looking for a car is just hard!</b>
+> <p><i>Jaime Hernandez</i></p>
 
 <br>
