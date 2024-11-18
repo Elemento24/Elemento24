@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first guitar I ever got was for my 13th birthday.</b>
-> <p><i>Rick Springfield</i></p>
+> <b>I live in a kind of gay bubble. I live in a gay house, I drive a gay car. I eat gay food.</b>
+> <p><i>Julian Clary</i></p>
 
 <br>
