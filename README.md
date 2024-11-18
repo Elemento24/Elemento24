@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To say the word Romanticism is to say modern art - that is, intimacy, spirituality, color, aspiration towards the infinite, expressed by every means available to the arts.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>You know, it's amazing. I don't even have a car, would you believe it? I had a motorbike and it got stolen last year. So I've got to buy another one of those, I suppose. I can treat myself to that.</b>
+> <p><i>Michael Fassbender</i></p>
 
 <br>
