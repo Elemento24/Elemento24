@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That brings me to Dennis Ritchie. Our collaboration has been a thing of beauty.</b>
-> <p><i>Ken Thompson</i></p>
+> <b>The beauty that addresses itself to the eyes is only the spell of the moment the eye of the body is not always that of the soul.</b>
+> <p><i>George Sand</i></p>
 
 <br>
