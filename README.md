@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the adversity I've had in my life, all my troubles and obstacles, have strengthened me... You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you.</b>
-> <p><i>Walt Disney</i></p>
+> <b>I'm a big believer in everybody being themselves. If not doing a swimsuit calendar is yourself, that's great. But if doing a swimsuit calendar is yourself, then you should be able to do it. What I do outside the car adds to who I am and expresses a different side of me.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
