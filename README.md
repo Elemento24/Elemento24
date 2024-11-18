@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The essence of all art is to have pleasure in giving pleasure.</b>
-> <p><i>Dale Carnegie</i></p>
+> <b>That brings me to Dennis Ritchie. Our collaboration has been a thing of beauty.</b>
+> <p><i>Ken Thompson</i></p>
 
 <br>
