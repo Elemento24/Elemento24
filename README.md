@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was an amazing performer. Very temperamental, it spent a lot of time in its trailer.</b>
-> <p><i>Tilda Swinton</i></p>
+> <b>Great artists are people who find the way to be themselves in their art. Any sort of pretension induces mediocrity in art and life alike.</b>
+> <p><i>Margot Fonteyn</i></p>
 
 <br>
