@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, it's amazing. I don't even have a car, would you believe it? I had a motorbike and it got stolen last year. So I've got to buy another one of those, I suppose. I can treat myself to that.</b>
-> <p><i>Michael Fassbender</i></p>
+> <b>It was an amazing performer. Very temperamental, it spent a lot of time in its trailer.</b>
+> <p><i>Tilda Swinton</i></p>
 
 <br>
