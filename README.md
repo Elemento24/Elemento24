@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am so excited this year getting to play the 85th Anniversary Macy's Thanksgiving Day Parade. Everyone knows on Thanksgiving morning to get up, turn on the TV and watch the parade, so to be an actual participant is going to be fun and I'm looking forward to it. I am gonna have to put on my deer hunting gear, though, to stay warm!</b>
-> <p><i>Rodney Atkins</i></p>
+> <b>I don't know much about auctions. I sometimes go to previews and see art sardined into ugly rooms. I've gawked at the gaudy prices, and gaped at well-clad crowds of happy white people conspicuously spending hundreds of millions of dollars.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
