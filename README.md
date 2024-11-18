@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that I often bring out the best in somebody's talents.</b>
-> <p><i>David Bowie</i></p>
+> <b>I have made the tough decisions, always with an eye toward the bottom line. Perhaps it's time America was run like a business.</b>
+> <p><i>Donald Trump</i></p>
 
 <br>
