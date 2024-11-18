@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The amazing thing is that I'm sane. I'm not bitter. I'm not drugged out. I'm not broke. I'm still married to the same guy. My children don't hate me.</b>
-> <p><i>Brenda Lee</i></p>
+> <b>Its attitude, which it has preached and practiced, is skepticism. Now, it finds, the public is applying that skepticism to the press.</b>
+> <p><i>Thomas Griffith</i></p>
 
 <br>
