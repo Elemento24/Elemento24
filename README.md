@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a big believer in everybody being themselves. If not doing a swimsuit calendar is yourself, that's great. But if doing a swimsuit calendar is yourself, then you should be able to do it. What I do outside the car adds to who I am and expresses a different side of me.</b>
-> <p><i>Danica Patrick</i></p>
+> <b>I always believe that to be the best, you have to smell like the best, dress like the best, act like the best. When you throw your trash in the garbage can, it has to be better than anybody else who ever threw trash in the garbage can.</b>
+> <p><i>Lil Wayne</i></p>
 
 <br>
