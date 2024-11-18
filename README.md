@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Its attitude, which it has preached and practiced, is skepticism. Now, it finds, the public is applying that skepticism to the press.</b>
-> <p><i>Thomas Griffith</i></p>
+> <b>I am so excited this year getting to play the 85th Anniversary Macy's Thanksgiving Day Parade. Everyone knows on Thanksgiving morning to get up, turn on the TV and watch the parade, so to be an actual participant is going to be fun and I'm looking forward to it. I am gonna have to put on my deer hunting gear, though, to stay warm!</b>
+> <p><i>Rodney Atkins</i></p>
 
 <br>
