@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your best is going to change from moment to moment it will be different when you are healthy as opposed to sick.</b>
-> <p><i>Miguel Angel Ruiz</i></p>
+> <b>There's such an array of brilliant roles for young women. You read all these amazing young women going through different stages in their life - different stages, different fascinations, different textualities, different friendships.</b>
+> <p><i>Juno Temple</i></p>
 
 <br>
