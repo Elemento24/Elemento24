@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I ran for president in order to be able to try to change Washington D.C. from the inside. Our federal government is broken.</b>
-> <p><i>Herman Cain</i></p>
+> <b>Music is the art of the prophets and the gift of God.</b>
+> <p><i>Martin Luther</i></p>
 
 <br>
