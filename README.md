@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dressing up is a bore. At a certain age, you decorate yourself to attract the opposite sex, and at a certain age, I did that. But I'm past that age.</b>
-> <p><i>Katharine Hepburn</i></p>
+> <b>I ran for president in order to be able to try to change Washington D.C. from the inside. Our federal government is broken.</b>
+> <p><i>Herman Cain</i></p>
 
 <br>
