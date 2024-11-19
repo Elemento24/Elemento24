@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grief can't be shared. Everyone carries it alone. His own burden in his own way.</b>
-> <p><i>Anne Morrow Lindbergh</i></p>
+> <b>Your best is going to change from moment to moment it will be different when you are healthy as opposed to sick.</b>
+> <p><i>Miguel Angel Ruiz</i></p>
 
 <br>
