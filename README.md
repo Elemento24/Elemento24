@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned why 'out riding alone' is an oxymoron: An equestrian is never alone, is always sensing the other being, the mysterious but also understandable living being that is the horse.</b>
-> <p><i>Jane Smiley</i></p>
+> <b>The best advice I ever got was that knowledge is power and to keep reading.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
