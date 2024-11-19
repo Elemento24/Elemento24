@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's such an array of brilliant roles for young women. You read all these amazing young women going through different stages in their life - different stages, different fascinations, different textualities, different friendships.</b>
-> <p><i>Juno Temple</i></p>
+> <b>A city building, you experience when you walk a suburban building, you experience when you drive.</b>
+> <p><i>Helmut Jahn</i></p>
 
 <br>
