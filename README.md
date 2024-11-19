@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing about animals is that they don't talk much.</b>
-> <p><i>Thornton Wilder</i></p>
+> <b>People got insights into what was bothering them, but they hardly did a damn thing to change.</b>
+> <p><i>Albert Ellis</i></p>
 
 <br>
