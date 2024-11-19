@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a young man, even if I was going to see a play or a film by myself, I didn't feel like I was alone. There was something that was unfolding up there that brought me into it. And I recognised that. For those two hours, it made me feel like I belonged to something really good.</b>
-> <p><i>Tom Hanks</i></p>
+> <b>They keep the old business. We keep the ongoing business.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
