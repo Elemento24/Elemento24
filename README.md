@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People say women shouldn't have long hair over a certain age, but I've never done what everyone says.</b>
-> <p><i>Jane Seymour</i></p>
+> <b>Art saved me it got me through my depression and self-loathing, back to a place of innocence.</b>
+> <p><i>Jeanette Winterson</i></p>
 
 <br>
