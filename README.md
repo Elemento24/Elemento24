@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The cottage garden most for use designed, Yet not of beauty destitute.</b>
-> <p><i>Charlotte Smith</i></p>
+> <b>Grief can't be shared. Everyone carries it alone. His own burden in his own way.</b>
+> <p><i>Anne Morrow Lindbergh</i></p>
 
 <br>
