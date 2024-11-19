@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is the art of the prophets and the gift of God.</b>
-> <p><i>Martin Luther</i></p>
+> <b>I learned why 'out riding alone' is an oxymoron: An equestrian is never alone, is always sensing the other being, the mysterious but also understandable living being that is the horse.</b>
+> <p><i>Jane Smiley</i></p>
 
 <br>
