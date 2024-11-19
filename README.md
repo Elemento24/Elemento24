@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People got insights into what was bothering them, but they hardly did a damn thing to change.</b>
-> <p><i>Albert Ellis</i></p>
+> <b>I believe we are on an irreversible trend toward more freedom and democracy - but that could change.</b>
+> <p><i>Dan Quayle</i></p>
 
 <br>
