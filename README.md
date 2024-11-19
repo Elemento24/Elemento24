@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The interior of the house personifies the private world the exterior of it is part of the outside world.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>The best thing about animals is that they don't talk much.</b>
+> <p><i>Thornton Wilder</i></p>
 
 <br>
