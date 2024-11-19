@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anything that isn't opposed by about 40 percent of humanity is either an evil business or so unimportant that it simply doesn't matter.</b>
-> <p><i>Russell Baker</i></p>
+> <b>As a young man, even if I was going to see a play or a film by myself, I didn't feel like I was alone. There was something that was unfolding up there that brought me into it. And I recognised that. For those two hours, it made me feel like I belonged to something really good.</b>
+> <p><i>Tom Hanks</i></p>
 
 <br>
