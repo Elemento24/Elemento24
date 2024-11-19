@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best advice I ever got was that knowledge is power and to keep reading.</b>
-> <p><i>David Bailey</i></p>
+> <b>The interior of the house personifies the private world the exterior of it is part of the outside world.</b>
+> <p><i>Stephen Gardiner</i></p>
 
 <br>
