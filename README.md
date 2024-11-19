@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe we are on an irreversible trend toward more freedom and democracy - but that could change.</b>
-> <p><i>Dan Quayle</i></p>
+> <b>People say women shouldn't have long hair over a certain age, but I've never done what everyone says.</b>
+> <p><i>Jane Seymour</i></p>
 
 <br>
