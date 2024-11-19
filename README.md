@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not make best friends with a melancholy sad soul. They always are heavily loaded, and you must bear half.</b>
-> <p><i>Francois Fenelon</i></p>
+> <b>Probably the happiest period in life most frequently is in middle age, when the eager passions of youth are cooled, and the infirmities of age not yet begun as we see that the shadows, which are at morning and evening so large, almost entirely disappear at midday.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
