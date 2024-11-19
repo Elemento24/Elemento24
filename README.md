@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The unions say 'last hired - first fired,', we say hire and fire based on merit. We want the best and brightest in the classroom.</b>
-> <p><i>Scott Walker</i></p>
+> <b>Study until twenty-five, investigation until forty, profession until sixty, at which age I would have him retired on a double allowance.</b>
+> <p><i>Thomas Moore</i></p>
 
 <br>
