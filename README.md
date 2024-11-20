@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reason clears and plants the wilderness of the imagination to harvest the wheat of art.</b>
-> <p><i>Austin O'Malley</i></p>
+> <b>Beauty and the Beast became the first animated feature ever nominated for best picture.</b>
+> <p><i>Leonard Maltin</i></p>
 
 <br>
