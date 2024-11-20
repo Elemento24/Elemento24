@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I had done what I was programmed to do, I would now be sitting in a car factory looking at the sizes of wheels, or wondering how to get credit to start a new factory in Russia.</b>
-> <p><i>Jean Pigozzi</i></p>
+> <b>That government is best which governs least.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
