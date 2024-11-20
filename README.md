@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That government is best which governs least.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>In my youth I stressed freedom, and in my old age I stress order. I have made the great discovery that liberty is a product of order.</b>
+> <p><i>Will Durant</i></p>
 
 <br>
