@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went into the business for the money, and the art grew out of it. If people are disillusioned by that remark, I can't help it. It's the truth.</b>
-> <p><i>Charlie Chaplin</i></p>
+> <b>I think it's naive to pray for world peace if we're not going to change the form in which we live.</b>
+> <p><i>Godfrey Reggio</i></p>
 
 <br>
