@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Recessions are hard on people, but they are not hard on art.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I read murder mysteries. I exercise 40 minutes a day. I watch videotapes while I exercise. I listen to audiotapes when I am in my car. And I try to stay in three different centuries.</b>
+> <p><i>Grover Norquist</i></p>
 
 <br>
