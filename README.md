@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The very first time I was on a car in Atlanta, I saw the conductor - all conductors are white - ask a Negro woman to get up and take a seat farther back in order to make a place for a white man. I have also seen white men requested to leave the Negro section of the car.</b>
-> <p><i>Ray Stannard Baker</i></p>
+> <b>If I had done what I was programmed to do, I would now be sitting in a car factory looking at the sizes of wheels, or wondering how to get credit to start a new factory in Russia.</b>
+> <p><i>Jean Pigozzi</i></p>
 
 <br>
