@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A small group of thoughtful people could change the world. Indeed, it's the only thing that ever has.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>Recessions are hard on people, but they are not hard on art.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
