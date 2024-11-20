@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's naive to pray for world peace if we're not going to change the form in which we live.</b>
-> <p><i>Godfrey Reggio</i></p>
+> <b>I think about my work every minute of the day.</b>
+> <p><i>Jeff Koons</i></p>
 
 <br>
