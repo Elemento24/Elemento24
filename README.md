@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been a joy to be a part of other people's journey, to be able to inspire and be a part of new singers coming up in this business.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>I remember being at Greenblatt's on Sunset, and some guy just walked straight up to me, and he had some bling on and whatever, and said something about a party down in Malibu and asked if I would jump in his car and go to the party. All I could think was, 'Who are you? I don't know you, and I don't care about how good your car is.'</b>
+> <p><i>Yvonne Strahovski</i></p>
 
 <br>
