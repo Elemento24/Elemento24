@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When it comes to meat, change is almost always cast as an absolute. You are a vegetarian or you are not.</b>
-> <p><i>Jonathan Safran Foer</i></p>
+> <b>Forbidden pleasures alone are loved immoderately when lawful, they do not excite desire.</b>
+> <p><i>Quintilian</i></p>
 
 <br>
