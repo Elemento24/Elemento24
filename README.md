@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know that books I have written will still resonate in 50 years - particularly 'My Sister's Keeper.' It has sold three million copies in the States alone. I strongly feel that, as a novelist, you have a platform and the ability to change people's minds.</b>
-> <p><i>Jodi Picoult</i></p>
+> <b>I know that my grandfather is 92 years old. And he has seen this country evolve in amazing ways. He looks at South Carolina and he says, wow, what an amazing state that we have the blessing to live within because of the evolution.</b>
+> <p><i>Tim Scott</i></p>
 
 <br>
