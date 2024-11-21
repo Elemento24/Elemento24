@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Isn't it amazing the way the future succeeds in creating an appropriate past?</b>
-> <p><i>John Leonard</i></p>
+> <b>True terror is to wake up one morning and discover that your high school class is running the country.</b>
+> <p><i>Kurt Vonnegut</i></p>
 
 <br>
