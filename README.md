@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the addition of strangeness to beauty that constitutes the romantic character in art.</b>
-> <p><i>Walter Hagen</i></p>
+> <b>Isn't it amazing the way the future succeeds in creating an appropriate past?</b>
+> <p><i>John Leonard</i></p>
 
 <br>
