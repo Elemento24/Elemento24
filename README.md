@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was an amazing experience to work with Michael Jackson, who is a legend.</b>
-> <p><i>Mario Vazquez</i></p>
+> <b>The preparation, commitment and desire to win will be no less than the last time I drove a grand prix car in anger.</b>
+> <p><i>Nigel Mansell</i></p>
 
 <br>
