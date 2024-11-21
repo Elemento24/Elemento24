@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>True terror is to wake up one morning and discover that your high school class is running the country.</b>
-> <p><i>Kurt Vonnegut</i></p>
+> <b>I used to do a lot of interviews in the early '80s, when my career started, but it came to a point when I decided I didn't want to talk anymore, and people kind of understood that and left me alone.</b>
+> <p><i>George Strait</i></p>
 
 <br>
