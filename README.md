@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Treaties, agreements and organizations to help settle disputes may be necessary, but they often favor the interests of business over citizens.</b>
-> <p><i>David Suzuki</i></p>
+> <b>It is the addition of strangeness to beauty that constitutes the romantic character in art.</b>
+> <p><i>Walter Hagen</i></p>
 
 <br>
