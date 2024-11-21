@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every man is born as many men and dies as a single one.</b>
-> <p><i>Martin Heidegger</i></p>
+> <b>Our future cannot depend on the government alone. The ultimate solutions lie in the attitudes and the actions of the American people.</b>
+> <p><i>Joe Biden</i></p>
 
 <br>
