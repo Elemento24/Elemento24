@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know that I've got big ears and a big forehead and that my hair sticks up. But I'm happy with myself. I'm not necessarily trying to win a beauty pageant here.</b>
-> <p><i>Clay Aiken</i></p>
+> <b>No matter the nationality, no matter the religion, no matter the ethnic background, America brings out the best in people.</b>
+> <p><i>Arnold Schwarzenegger</i></p>
 
 <br>
