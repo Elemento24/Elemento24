@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter the nationality, no matter the religion, no matter the ethnic background, America brings out the best in people.</b>
-> <p><i>Arnold Schwarzenegger</i></p>
+> <b>I swear my car won't run unless I'm picking my nose: At least, I'm that superstitious about it, so I don't want to take any chances.</b>
+> <p><i>Adam Carolla</i></p>
 
 <br>
