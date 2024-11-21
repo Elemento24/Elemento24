@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know that my grandfather is 92 years old. And he has seen this country evolve in amazing ways. He looks at South Carolina and he says, wow, what an amazing state that we have the blessing to live within because of the evolution.</b>
-> <p><i>Tim Scott</i></p>
+> <b>As somebody who, in my second marriage, insisted on a prenuptial agreement, I can also testify that sometimes it is an act of love to chart the exit strategy before you enter the union, in order to make sure that not only you, but your partner as well, knows that there will be no World War III should hearts and minds, for any sad reason, change.</b>
+> <p><i>Elizabeth Gilbert</i></p>
 
 <br>
