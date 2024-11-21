@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I swear my car won't run unless I'm picking my nose: At least, I'm that superstitious about it, so I don't want to take any chances.</b>
-> <p><i>Adam Carolla</i></p>
+> <b>Any time I need to get a serious attitude adjustment, I put on one of their records, and there are examples there for all time to keep us honest and keep us reaching they'll never be eclipsed.</b>
+> <p><i>Benny Green</i></p>
 
 <br>
