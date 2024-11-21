@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any time I need to get a serious attitude adjustment, I put on one of their records, and there are examples there for all time to keep us honest and keep us reaching they'll never be eclipsed.</b>
-> <p><i>Benny Green</i></p>
+> <b>It was an amazing experience to work with Michael Jackson, who is a legend.</b>
+> <p><i>Mario Vazquez</i></p>
 
 <br>
