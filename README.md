@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The boundaries which divide Life from Death are at best shadowy and vague. Who shall say where the one ends, and where the other begins?</b>
-> <p><i>Edgar Allan Poe</i></p>
+> <b>Not every religion has to have St. Augustine's attitude to sex. Why even in our culture marriages are celebrated in a church, everyone present knows what is going to happen that night, but that doesn't prevent it being a religious ceremony.</b>
+> <p><i>Ludwig Wittgenstein</i></p>
 
 <br>
