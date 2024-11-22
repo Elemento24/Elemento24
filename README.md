@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People may hear your words, but they feel your attitude.</b>
-> <p><i>John C. Maxwell</i></p>
+> <b>I am incredibly thankful for the strong support I have from my peers in the industry and of course my amazing fans.</b>
+> <p><i>Miranda Lambert</i></p>
 
 <br>
