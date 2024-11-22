@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dear, never forget one little point. It's my business. You just work here.</b>
-> <p><i>Elizabeth Arden</i></p>
+> <b>How can you sing of amazing grace and all God's wonders without using your hands?</b>
+> <p><i>Mahalia Jackson</i></p>
 
 <br>
