@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not every religion has to have St. Augustine's attitude to sex. Why even in our culture marriages are celebrated in a church, everyone present knows what is going to happen that night, but that doesn't prevent it being a religious ceremony.</b>
-> <p><i>Ludwig Wittgenstein</i></p>
+> <b>When you're surrounded by all these people, it can be even lonelier than when you're by yourself. You can be in a huge crowd, but if you don't feel like you can trust anybody or talk to anybody, you feel like you're really alone.</b>
+> <p><i>Fiona Apple</i></p>
 
 <br>
