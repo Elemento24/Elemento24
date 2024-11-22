@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you're surrounded by all these people, it can be even lonelier than when you're by yourself. You can be in a huge crowd, but if you don't feel like you can trust anybody or talk to anybody, you feel like you're really alone.</b>
-> <p><i>Fiona Apple</i></p>
+> <b>People may hear your words, but they feel your attitude.</b>
+> <p><i>John C. Maxwell</i></p>
 
 <br>
