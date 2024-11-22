@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We've always described our sound as a bit more guitar driven than normal pop music. Kind of Pink in a boy band form. We've heard a few people say that so now we use it. I think Pink is amazing person to be compared to.</b>
-> <p><i>Liam Payne</i></p>
+> <b>I don't know that I spent any more time alone than any other kid, but being by myself never bothered me.</b>
+> <p><i>Joseph Barbera</i></p>
 
 <br>
