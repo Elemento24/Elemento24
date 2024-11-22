@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As long as you as an individual... can convince yourself that in order to move forward as best you can you have to be optimistic, you can be described as 'one of the faithful,' one of those people who can say, 'Well, look, something's going to happen! Let's just keep trying. Let's not give up.</b>
-> <p><i>Tom Hanks</i></p>
+> <b>Smart businesses do not look at labor costs alone anymore. They do look at market access, transportation, telecommunications infrastructure and the education and skill level of the workforce, the development of capital and the regulatory market.</b>
+> <p><i>Janet Napolitano</i></p>
 
 <br>
