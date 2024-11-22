@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is something terribly morbid in the modern sympathy with pain. One should sympathise with the colour, the beauty, the joy of life. The less said about life's sores the better.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>I just wanted to see every single musical I could. The very first one I saw was 'Beauty and the Beast,' the only one I could get tickets for, and then 'Les Miserables' and then 'Chicago.'</b>
+> <p><i>America Ferrera</i></p>
 
 <br>
