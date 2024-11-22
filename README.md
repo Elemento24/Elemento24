@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was the least Pop of all the Pop artists.</b>
-> <p><i>Robert Indiana</i></p>
+> <b>The boundaries which divide Life from Death are at best shadowy and vague. Who shall say where the one ends, and where the other begins?</b>
+> <p><i>Edgar Allan Poe</i></p>
 
 <br>
