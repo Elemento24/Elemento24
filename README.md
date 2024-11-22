@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have amazing people around me. I couldn't be in a better place. I'm grateful for my life and where I'm at. I never thought I could be in the position that I'm in.</b>
-> <p><i>Ashlee Simpson</i></p>
+> <b>What if you threw a protest and no one showed up? The lack of angst and anger and emotion is a big positive.</b>
+> <p><i>Jay Alan Sekulow</i></p>
 
 <br>
