@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not only is women's work never done, the definition keeps changing.</b>
-> <p><i>Bill Copeland</i></p>
+> <b>Hackers are breaking the systems for profit. Before, it was about intellectual curiosity and pursuit of knowledge and thrill, and now hacking is big business.</b>
+> <p><i>Kevin Mitnick</i></p>
 
 <br>
