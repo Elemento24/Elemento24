@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The philosophies of one age have become the absurdities of the next, and the foolishness of yesterday has become the wisdom of tomorrow.</b>
-> <p><i>William Osler</i></p>
+> <b>Not only is women's work never done, the definition keeps changing.</b>
+> <p><i>Bill Copeland</i></p>
 
 <br>
