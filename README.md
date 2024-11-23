@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean Buckingham Palace has never hired a professional public relations outfit let alone a Madison Avenue type and they would throw up their hands in horror at the very idea.</b>
-> <p><i>Anthony Holden</i></p>
+> <b>It is commonly supposed that the art of pleasing is a wonderful aid in the pursuit of fortune but the art of being bored is infinitely more successful.</b>
+> <p><i>Nicolas Chamfort</i></p>
 
 <br>
