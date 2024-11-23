@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is our weapon against nature by it we make objects, giving them limit, symmetry, proportion. Beauty halts and freezes the melting flux of nature.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>With love, you should go ahead and take the risk of getting hurt because love is an amazing feeling.</b>
+> <p><i>Britney Spears</i></p>
 
 <br>
