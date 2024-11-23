@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hackers are breaking the systems for profit. Before, it was about intellectual curiosity and pursuit of knowledge and thrill, and now hacking is big business.</b>
-> <p><i>Kevin Mitnick</i></p>
+> <b>Our attitude is that we want to cross over. You can't go on making records just for your own hometown.</b>
+> <p><i>Cheryl James</i></p>
 
 <br>
