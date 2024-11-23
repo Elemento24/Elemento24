@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beware of him that is slow to anger for when it is long coming, it is the stronger when it comes, and the longer kept. Abused patience turns to fury.</b>
-> <p><i>Francis Quarles</i></p>
+> <b>Beauty is our weapon against nature by it we make objects, giving them limit, symmetry, proportion. Beauty halts and freezes the melting flux of nature.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
