@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Between 1910 and 1950 approximately 350 lives of Jesus were published in the English language alone.</b>
-> <p><i>John Clayton</i></p>
+> <b>I'm vulnerable to criticism. Any artist is, because you work alone in your studio and, until recently, critics were the only way you'd get any feedback.</b>
+> <p><i>Howard Hodgkin</i></p>
 
 <br>
