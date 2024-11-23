@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The deferring of anger is the best antidote to anger.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>Between 1910 and 1950 approximately 350 lives of Jesus were published in the English language alone.</b>
+> <p><i>John Clayton</i></p>
 
 <br>
