@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When thinking about companions gone, we feel ourselves doubly alone.</b>
-> <p><i>Walter Scott</i></p>
+> <b>Beware of him that is slow to anger for when it is long coming, it is the stronger when it comes, and the longer kept. Abused patience turns to fury.</b>
+> <p><i>Francis Quarles</i></p>
 
 <br>
