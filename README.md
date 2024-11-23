@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just wanted to see every single musical I could. The very first one I saw was 'Beauty and the Beast,' the only one I could get tickets for, and then 'Les Miserables' and then 'Chicago.'</b>
-> <p><i>America Ferrera</i></p>
+> <b>There are very few dance companies in the world and you have to be phenomenal. You have to not be injured. You have to have a really strong mind to deal with the dance world. People who can do it are amazing to me. You cannot have a life outside of dance.</b>
+> <p><i>Neve Campbell</i></p>
 
 <br>
