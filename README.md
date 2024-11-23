@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With love, you should go ahead and take the risk of getting hurt because love is an amazing feeling.</b>
-> <p><i>Britney Spears</i></p>
+> <b>I've tried everything other than jumping out of a plane, but nothing gives you an adrenaline rush like racing a car.</b>
+> <p><i>Nigel Mansell</i></p>
 
 <br>
