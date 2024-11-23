@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Listen, whatever makes the movie better. That's the attitude you have to have.</b>
-> <p><i>Joseph Kosinski</i></p>
+> <b>The consumer isn't a moron she is your wife.</b>
+> <p><i>David Ogilvy</i></p>
 
 <br>
