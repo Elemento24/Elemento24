@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The comic book world is a tough business.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>Never tell a secret to a bride or a groom wait until they have been married longer.</b>
+> <p><i>E. W. Howe</i></p>
 
 <br>
