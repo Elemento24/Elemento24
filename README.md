@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Where I come from, it was a heresy to say you wanted to be in movies, leave alone American movies.</b>
-> <p><i>Daniel Day-Lewis</i></p>
+> <b>When you pray for anyone you tend to modify your personal attitude toward him.</b>
+> <p><i>Norman Vincent Peale</i></p>
 
 <br>
