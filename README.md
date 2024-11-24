@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You cannot expect to achieve new goals or move beyond your present circumstances unless you change.</b>
-> <p><i>Les Brown</i></p>
+> <b>My definition of love is being full. Complete. It makes everything lighter. Beauty is something you see. Love is something you feel.</b>
+> <p><i>Sharon Tate</i></p>
 
 <br>
