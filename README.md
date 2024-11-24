@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The price of success is hard work, dedication to the job at hand, and the determination that whether we win or lose, we have applied the best of ourselves to the task at hand.</b>
-> <p><i>Vince Lombardi</i></p>
+> <b>It is with rivers as it is with people: the greatest are not always the most agreeable nor the best to live with.</b>
+> <p><i>Henry Van Dyke</i></p>
 
 <br>
