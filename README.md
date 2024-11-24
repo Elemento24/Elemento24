@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body is your instrument in dance, but your art is outside that creature, the body.</b>
-> <p><i>Martha Graham</i></p>
+> <b>Recently I've been doing risottos. Some of them have been amazing. Some of them, not all of them.</b>
+> <p><i>Gael Garcia Bernal</i></p>
 
 <br>
