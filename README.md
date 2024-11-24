@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any fact facing us is not as important as our attitude toward it, for that determines our success or failure. The way you think about a fact may defeat you before you ever do anything about it. You are overcome by the fact because you think you are.</b>
-> <p><i>Norman Vincent Peale</i></p>
+> <b>My mother asked me what I wanted for my birthday, so I said I wanted to read poetry with her.</b>
+> <p><i>Guy Johnson</i></p>
 
 <br>
