@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother asked me what I wanted for my birthday, so I said I wanted to read poetry with her.</b>
-> <p><i>Guy Johnson</i></p>
+> <b>We are volcanoes. When we women offer our experience as our truth, as human truth, all the maps change. There are new mountains.</b>
+> <p><i>Ursula K. Le Guin</i></p>
 
 <br>
