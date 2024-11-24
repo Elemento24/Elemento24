@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fashion is quite inclusive and good at embracing different things and different forms of beauty. It's a very liberal industry. You can be yourself. Just not overweight.</b>
-> <p><i>Andrej Pejic</i></p>
+> <b>Where I come from, it was a heresy to say you wanted to be in movies, leave alone American movies.</b>
+> <p><i>Daniel Day-Lewis</i></p>
 
 <br>
