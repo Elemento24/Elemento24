@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We must all obey the great law of change. It is the most powerful law of nature.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>I'm not saying I wasn't flawed or amateurish. But you can never say I did anything to appease the music business.</b>
+> <p><i>Patti Smith</i></p>
 
 <br>
