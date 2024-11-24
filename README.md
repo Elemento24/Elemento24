@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the way to change it is to handle issues individually when it's essential to do so.</b>
-> <p><i>Stephen Harper</i></p>
+> <b>You cannot expect to achieve new goals or move beyond your present circumstances unless you change.</b>
+> <p><i>Les Brown</i></p>
 
 <br>
