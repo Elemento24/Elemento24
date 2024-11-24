@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My definition of love is being full. Complete. It makes everything lighter. Beauty is something you see. Love is something you feel.</b>
-> <p><i>Sharon Tate</i></p>
+> <b>My grandfather was one of the most amazing Baptist ministers in history, he was unbelievable. He was one of the most amazing men - the most amazing man that I ever met... He lived an amazing life.</b>
+> <p><i>Josh Henderson</i></p>
 
 <br>
