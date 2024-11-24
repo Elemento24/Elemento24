@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never tell a secret to a bride or a groom wait until they have been married longer.</b>
-> <p><i>E. W. Howe</i></p>
+> <b>Fashion is quite inclusive and good at embracing different things and different forms of beauty. It's a very liberal industry. You can be yourself. Just not overweight.</b>
+> <p><i>Andrej Pejic</i></p>
 
 <br>
