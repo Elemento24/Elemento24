@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd date someone younger or older age doesn't matter to me. Or looks, really - it's all about maturity.</b>
-> <p><i>Leona Lewis</i></p>
+> <b>We must all obey the great law of change. It is the most powerful law of nature.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
