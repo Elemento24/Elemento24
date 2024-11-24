@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm trying to build a strong business. I want to create new stars, new shows and new products for my audience and create a legacy that outlives me. There are so many other ways I want to reach women besides doing a talk show.</b>
-> <p><i>Tyra Banks</i></p>
+> <b>Any fact facing us is not as important as our attitude toward it, for that determines our success or failure. The way you think about a fact may defeat you before you ever do anything about it. You are overcome by the fact because you think you are.</b>
+> <p><i>Norman Vincent Peale</i></p>
 
 <br>
