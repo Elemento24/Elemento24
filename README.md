@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the disinterested one, without which the ancient world refused to understand itself, a word which both imperceptibly and yet unmistakably has bid farewell to our new world, a world of interests, leaving it to its own avarice and sadness.</b>
-> <p><i>Hans Urs von Balthasar</i></p>
+> <b>The body is your instrument in dance, but your art is outside that creature, the body.</b>
+> <p><i>Martha Graham</i></p>
 
 <br>
