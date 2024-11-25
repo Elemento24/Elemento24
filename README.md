@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also had a mistaken attitude towards certain comrades.</b>
-> <p><i>Bela Kun</i></p>
+> <b>I usually make up my mind about a man in ten seconds, and I very rarely change it.</b>
+> <p><i>Margaret Thatcher</i></p>
 
 <br>
