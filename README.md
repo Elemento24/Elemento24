@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't believe the pro-choicers attitude toward unborn children-to me it's the ultimate liberal cause, to defend those without a voice.</b>
-> <p><i>Michael Aston</i></p>
+> <b>To speak of morals in art is to speak of legislature in sex. Art is the sex of the imagination.</b>
+> <p><i>George Jean Nathan</i></p>
 
 <br>
