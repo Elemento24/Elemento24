@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To make pictures big is to make them more powerful.</b>
-> <p><i>Robert Mapplethorpe</i></p>
+> <b>Lord, where we are wrong, make us willing to change where we are right, make us easy to live with.</b>
+> <p><i>Peter Marshall</i></p>
 
 <br>
