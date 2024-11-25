@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To speak of morals in art is to speak of legislature in sex. Art is the sex of the imagination.</b>
-> <p><i>George Jean Nathan</i></p>
+> <b>The only business of the head in the world is to bow a ceaseless obeisance to the heart.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
