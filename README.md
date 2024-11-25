@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your best is going to change from moment to moment it will be different when you are healthy as opposed to sick.</b>
-> <p><i>Miguel Angel Ruiz</i></p>
+> <b>Before anything else, we need a new age of Enlightenment. Our present political systems must relinquish their claims on truth, justice and freedom and have to replace them with the search for truth, justice, freedom and reason.</b>
+> <p><i>Friedrich Durrenmatt</i></p>
 
 <br>
