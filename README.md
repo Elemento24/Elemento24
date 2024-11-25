@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Laughter is not a bad beginning for a friendship, and it is the best ending for one.</b>
-> <p><i>Henry Ward Beecher</i></p>
+> <b>Your best is going to change from moment to moment it will be different when you are healthy as opposed to sick.</b>
+> <p><i>Miguel Angel Ruiz</i></p>
 
 <br>
