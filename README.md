@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was the least Pop of all the Pop artists.</b>
-> <p><i>Robert Indiana</i></p>
+> <b>As strong as the United States is, we can't deal with terrorism alone.</b>
+> <p><i>Madeleine Albright</i></p>
 
 <br>
