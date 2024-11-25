@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Before anything else, we need a new age of Enlightenment. Our present political systems must relinquish their claims on truth, justice and freedom and have to replace them with the search for truth, justice, freedom and reason.</b>
-> <p><i>Friedrich Durrenmatt</i></p>
+> <b>I can't believe the pro-choicers attitude toward unborn children-to me it's the ultimate liberal cause, to defend those without a voice.</b>
+> <p><i>Michael Aston</i></p>
 
 <br>
