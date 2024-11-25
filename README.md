@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Recently I've been doing risottos. Some of them have been amazing. Some of them, not all of them.</b>
-> <p><i>Gael Garcia Bernal</i></p>
+> <b>I'm not saying that there's anything better than mated bliss at its best, but I'm saying that living alone is as good in its own way. But we haven't quite given ourselves permission to recognize that.</b>
+> <p><i>Barbara Feldon</i></p>
 
 <br>
