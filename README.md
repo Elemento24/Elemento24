@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only business of the head in the world is to bow a ceaseless obeisance to the heart.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>I felt Joyce was an influence on my fiction, but in a very general way, as a kind of inspiration and a model for the beauty of language.</b>
+> <p><i>Don DeLillo</i></p>
 
 <br>
