@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I felt Joyce was an influence on my fiction, but in a very general way, as a kind of inspiration and a model for the beauty of language.</b>
-> <p><i>Don DeLillo</i></p>
+> <b>I am convinced that living in an enclave shapes the personality, and living alone shapes the personality too.</b>
+> <p><i>Mary Douglas</i></p>
 
 <br>
