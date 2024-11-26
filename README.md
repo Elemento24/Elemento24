@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never listen to the radio unless I rent a car.</b>
-> <p><i>David Byrne</i></p>
+> <b>The art world is molting - some would say melting. Galleries are closing museums are scaling back.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
