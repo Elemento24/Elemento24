@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother asked me what I wanted for my birthday, so I said I wanted to read poetry with her.</b>
-> <p><i>Guy Johnson</i></p>
+> <b>I love fast cars... and to go too fast in them.</b>
+> <p><i>Lara Flynn Boyle</i></p>
 
 <br>
