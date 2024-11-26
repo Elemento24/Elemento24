@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are all sentenced to solitary confinement inside our own skins, for life.</b>
-> <p><i>Tennessee Williams</i></p>
+> <b>Some players you pat their butts, some players you kick their butts, some players you leave alone.</b>
+> <p><i>Pete Rose</i></p>
 
 <br>
