@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We come in many different shapes and sizes, and we need to support each other and our differences. Our beauty is in our differences.</b>
-> <p><i>Carre Otis</i></p>
+> <b>Experience is the best teacher of all. And for that, there are no guarantees that one will become an artist. Only the journey matters.</b>
+> <p><i>Harry Callahan</i></p>
 
 <br>
