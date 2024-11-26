@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love fast cars... and to go too fast in them.</b>
-> <p><i>Lara Flynn Boyle</i></p>
+> <b>I never listen to the radio unless I rent a car.</b>
+> <p><i>David Byrne</i></p>
 
 <br>
