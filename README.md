@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art world is molting - some would say melting. Galleries are closing museums are scaling back.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Ah, mon cher, for anyone who is alone, without God and without a master, the weight of days is dreadful.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
