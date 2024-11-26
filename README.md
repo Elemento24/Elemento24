@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Experience is the best teacher of all. And for that, there are no guarantees that one will become an artist. Only the journey matters.</b>
-> <p><i>Harry Callahan</i></p>
+> <b>Nearly all the powerful people of this age are unbelievers, the best of them in doubt and misery, the most in plodding hesitation, doing as well as they can, what practical work lies at hand.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
