@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe we need to attract a new generation of the best and brightest to public service and I believe that government can be a source of inspiration, not degradation.</b>
-> <p><i>Andrew Cuomo</i></p>
+> <b>But to sustain a marriage for 50 years, you have to get real a little bit and find someone who is understanding and who you can grow with. My mom always says, 'Marry the man who loves you a millimeter more.'</b>
+> <p><i>Ali Larter</i></p>
 
 <br>
