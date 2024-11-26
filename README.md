@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Get mad, then get over it.</b>
-> <p><i>Colin Powell</i></p>
+> <b>There is hope and a kind of beauty in there somewhere, if you look for it.</b>
+> <p><i>H. R. Giger</i></p>
 
 <br>
