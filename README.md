@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God's gifts put man's best dreams to shame.</b>
-> <p><i>Elizabeth Barrett Browning</i></p>
+> <b>We come in many different shapes and sizes, and we need to support each other and our differences. Our beauty is in our differences.</b>
+> <p><i>Carre Otis</i></p>
 
 <br>
