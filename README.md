@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not saying I wasn't flawed or amateurish. But you can never say I did anything to appease the music business.</b>
-> <p><i>Patti Smith</i></p>
+> <b>This is the patent age of new inventions for killing bodies, and for saving souls. All propagated with the best intentions.</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
