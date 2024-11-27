@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My grandparents got married at a very young age, and a lot of what I think about marriage is based on their relationship.</b>
-> <p><i>Kyle Chandler</i></p>
+> <b>I am alone, some people help me, but, basically, I can do what I want.</b>
+> <p><i>Sergei Bubka</i></p>
 
 <br>
