@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I'm not apolitical - I'm very specific in my politics. But a lot of the time it's nobody's business unless you're over at my house having dinner.</b>
-> <p><i>Tom Hanks</i></p>
+> <b>My revenue was $4 million my first year in business, off of one $20 item.</b>
+> <p><i>Sara Blakely</i></p>
 
 <br>
