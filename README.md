@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are a mother, you are never really alone in your thoughts. A mother always has to think twice, once for herself and once for her child.</b>
-> <p><i>Sophia Loren</i></p>
+> <b>But theater, because of its nature, both text, images, multimedia effects, has a wider base of communication with an audience. That's why I call it the most social of the various art forms.</b>
+> <p><i>Wole Soyinka</i></p>
 
 <br>
