@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nearly all the powerful people of this age are unbelievers, the best of them in doubt and misery, the most in plodding hesitation, doing as well as they can, what practical work lies at hand.</b>
-> <p><i>John Ruskin</i></p>
+> <b>A political prisoner is someone who is out fighting for his or her people's rights and freedom and is imprisoned for that alone.</b>
+> <p><i>Leonard Peltier</i></p>
 
 <br>
