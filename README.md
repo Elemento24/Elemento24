@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But theater, because of its nature, both text, images, multimedia effects, has a wider base of communication with an audience. That's why I call it the most social of the various art forms.</b>
-> <p><i>Wole Soyinka</i></p>
+> <b>There is nothing that so much gratifies an ill tongue as when it finds an angry heart.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
