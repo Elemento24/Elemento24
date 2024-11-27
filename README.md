@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty in things exists in the mind which contemplates them.</b>
-> <p><i>David Hume</i></p>
+> <b>And I'm not apolitical - I'm very specific in my politics. But a lot of the time it's nobody's business unless you're over at my house having dinner.</b>
+> <p><i>Tom Hanks</i></p>
 
 <br>
