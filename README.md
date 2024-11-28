@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have to struggle against the conservatives from all sides, not only the right-wingers, but also the left-wing conservatives who don't want to change anything.</b>
-> <p><i>Jacques Delors</i></p>
+> <b>The body is your instrument in dance, but your art is outside that creature, the body.</b>
+> <p><i>Martha Graham</i></p>
 
 <br>
