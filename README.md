@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So I won an Oscar. It's amazing. I've got that for the rest of my life for a performance I am proud of. It nearly killed me. I am really proud of the film. That's it, moving on.</b>
-> <p><i>Kate Winslet</i></p>
+> <b>To live is to change, and to be perfect is to have changed often.</b>
+> <p><i>John Henry Newman</i></p>
 
 <br>
