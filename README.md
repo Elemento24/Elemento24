@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today more than ever we need creative minds to address the issues of the age. And one of the most urgent is this: How can humanity know so much, achieve so much, and still fail so many people so badly?</b>
-> <p><i>King Abdullah II</i></p>
+> <b>This film business, perhaps more so in America than in Europe, has always been about young sexuality. It's not true of theatre, but in America, film audiences are young. It's not an intellectual cinema in America.</b>
+> <p><i>Jacqueline Bisset</i></p>
 
 <br>
