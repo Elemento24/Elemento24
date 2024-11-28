@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is a manifestation of a deeper issue... and that, for me, is based on insecurity, self-esteem and loneliness.</b>
-> <p><i>Naomi Campbell</i></p>
+> <b>Today more than ever we need creative minds to address the issues of the age. And one of the most urgent is this: How can humanity know so much, achieve so much, and still fail so many people so badly?</b>
+> <p><i>King Abdullah II</i></p>
 
 <br>
