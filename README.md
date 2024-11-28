@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems to me I spent my life in car pools, but you know, that's how I kept track of what was going on.</b>
-> <p><i>Barbara Bush</i></p>
+> <b>I think we all have a lot of darkness in our bellies. As an actor, the challenge of tapping into that, reaching down into that sadness or anger, is very therapeutic.</b>
+> <p><i>Kevin Bacon</i></p>
 
 <br>
