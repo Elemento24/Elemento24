@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Memories are like mulligatawny soup in a cheap restaurant. It is best not to stir them.</b>
-> <p><i>P. G. Wodehouse</i></p>
+> <b>I would not change my blest estate for all the world calls good or great.</b>
+> <p><i>Isaac Watts</i></p>
 
 <br>
