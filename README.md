@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body is your instrument in dance, but your art is outside that creature, the body.</b>
-> <p><i>Martha Graham</i></p>
+> <b>An excuse becomes an obstacle in your journey to success when it is made in place of your best effort or when it is used as the object of the blame.</b>
+> <p><i>Bo Bennett</i></p>
 
 <br>
