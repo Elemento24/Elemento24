@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought it might be a good move to get into a beauty contest so I tried for Miss Pennsylvania and won. I think that helped me get noticed, at least by the people of Pennsylvania.</b>
-> <p><i>Sharon Stone</i></p>
+> <b>We have to struggle against the conservatives from all sides, not only the right-wingers, but also the left-wing conservatives who don't want to change anything.</b>
+> <p><i>Jacques Delors</i></p>
 
 <br>
