@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really admire a woman for her intelligence, her personality. Beauty is not enough.</b>
-> <p><i>Roberto Cavalli</i></p>
+> <b>There's nobody in the business strong enough to scare me.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
