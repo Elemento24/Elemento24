@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An excuse becomes an obstacle in your journey to success when it is made in place of your best effort or when it is used as the object of the blame.</b>
-> <p><i>Bo Bennett</i></p>
+> <b>So I won an Oscar. It's amazing. I've got that for the rest of my life for a performance I am proud of. It nearly killed me. I am really proud of the film. That's it, moving on.</b>
+> <p><i>Kate Winslet</i></p>
 
 <br>
