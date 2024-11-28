@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To live is to change, and to be perfect is to have changed often.</b>
-> <p><i>John Henry Newman</i></p>
+> <b>I'm a drugstore beauty girl, I love going to the drugstore and buying makeup.</b>
+> <p><i>Melanie Fiona</i></p>
 
 <br>
