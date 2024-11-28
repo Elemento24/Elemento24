@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a drugstore beauty girl, I love going to the drugstore and buying makeup.</b>
-> <p><i>Melanie Fiona</i></p>
+> <b>The struggle alone pleases us, not the victory.</b>
+> <p><i>Blaise Pascal</i></p>
 
 <br>
