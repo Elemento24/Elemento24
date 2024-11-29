@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Expect the best, plan for the worst, and prepare to be surprised.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>I have to be alone very often. I'd be quite happy if I spent from Saturday night until Monday morning alone in my apartment. That's how I refuel.</b>
+> <p><i>Audrey Hepburn</i></p>
 
 <br>
