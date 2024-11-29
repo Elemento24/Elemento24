@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The days you work are the best days.</b>
-> <p><i>Georgia O'Keeffe</i></p>
+> <b>From age 16, I lived and breathed wine. I read every magazine and book about wine.</b>
+> <p><i>Gary Vaynerchuk</i></p>
 
 <br>
