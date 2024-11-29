@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In aid, the proper attitude is one omitting gratitude.</b>
-> <p><i>Marya Mannes</i></p>
+> <b>Expect the best, plan for the worst, and prepare to be surprised.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
