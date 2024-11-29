@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's great sadness and life doesn't work out like you would want, on a lot of levels, but there's no need to feel all alone. This happens to everybody, so there's no self-pity. This is the ride that humans are on, and all of it is essential for our natural part of it.</b>
-> <p><i>Mike Mills</i></p>
+> <b>Another little known fact about Amazing Tennis - the computer opponents are modeled after real people. In an odd turn of events, I joined a division 3 college tennis team at age 38.</b>
+> <p><i>David Crane</i></p>
 
 <br>
