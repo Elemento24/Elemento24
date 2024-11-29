@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Economy is the basis of society. When the economy is stable, society develops. The ideal economy combines the spiritual and the material, and the best commodities to trade in are sincerity and love.</b>
-> <p><i>Morihei Ueshiba</i></p>
+> <b>If you live to be one hundred, you've got it made. Very few people die past that age.</b>
+> <p><i>George Burns</i></p>
 
 <br>
