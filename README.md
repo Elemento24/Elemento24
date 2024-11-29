@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another little known fact about Amazing Tennis - the computer opponents are modeled after real people. In an odd turn of events, I joined a division 3 college tennis team at age 38.</b>
-> <p><i>David Crane</i></p>
+> <b>I don't think that you can fake warmth. You can fake lust, jealousy, anger those are all quite easy. But actual, genuine warmth? I don't think you can fake it.</b>
+> <p><i>Keira Knightley</i></p>
 
 <br>
