@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the fact that I made enough noise in the world that I might be remembered is an amazing achievement. You can't ask for more than that.</b>
-> <p><i>Nas</i></p>
+> <b>If you don't drive your business, you will be driven out of business.</b>
+> <p><i>B. C. Forbes</i></p>
 
 <br>
