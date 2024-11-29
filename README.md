@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you live to be one hundred, you've got it made. Very few people die past that age.</b>
-> <p><i>George Burns</i></p>
+> <b>I think the fact that I made enough noise in the world that I might be remembered is an amazing achievement. You can't ask for more than that.</b>
+> <p><i>Nas</i></p>
 
 <br>
