@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thing that is really hard, and really amazing, is giving up on being perfect and beginning the work of becoming yourself.</b>
-> <p><i>Anna Quindlen</i></p>
+> <b>Economy is the basis of society. When the economy is stable, society develops. The ideal economy combines the spiritual and the material, and the best commodities to trade in are sincerity and love.</b>
+> <p><i>Morihei Ueshiba</i></p>
 
 <br>
