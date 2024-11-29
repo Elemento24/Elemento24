@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think that you can fake warmth. You can fake lust, jealousy, anger those are all quite easy. But actual, genuine warmth? I don't think you can fake it.</b>
-> <p><i>Keira Knightley</i></p>
+> <b>A liberal knows that the only certainty in this life is change but believes that the change can be directed toward a constructive end.</b>
+> <p><i>Henry A. Wallace</i></p>
 
 <br>
