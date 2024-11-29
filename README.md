@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Chance gives rise to thoughts, and chance removes them no art can keep or acquire them.</b>
-> <p><i>Blaise Pascal</i></p>
+> <b>The days you work are the best days.</b>
+> <p><i>Georgia O'Keeffe</i></p>
 
 <br>
