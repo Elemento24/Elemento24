@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A liberal knows that the only certainty in this life is change but believes that the change can be directed toward a constructive end.</b>
-> <p><i>Henry A. Wallace</i></p>
+> <b>Time extracts various values from a painter's work. When these values are exhausted the pictures are forgotten, and the more a picture has to give, the greater it is.</b>
+> <p><i>Henri Matisse</i></p>
 
 <br>
