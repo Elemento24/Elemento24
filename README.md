@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to be alone very often. I'd be quite happy if I spent from Saturday night until Monday morning alone in my apartment. That's how I refuel.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>Being good in business is the most fascinating kind of art. Making money is art and working is art and good business is the best art.</b>
+> <p><i>Andy Warhol</i></p>
 
 <br>
