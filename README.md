@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Family farms and small businesses are the backbone of our communities.</b>
-> <p><i>Tom Allen</i></p>
+> <b>Trust him not with your secrets, who, when left alone in your room, turns over your papers.</b>
+> <p><i>Johann Kaspar Lavater</i></p>
 
 <br>
