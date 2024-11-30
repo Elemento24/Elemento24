@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The same things we've done the past couple of seasons. We've worked on the engine and clutch. We'll try and pick up the performance and consistency of the car and go back out there.</b>
-> <p><i>Larry Dixon</i></p>
+> <b>The reward of art is not fame or success but intoxication: that is why so many bad artists are unable to give it up.</b>
+> <p><i>Jean Cocteau</i></p>
 
 <br>
