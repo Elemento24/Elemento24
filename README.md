@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The excess of our youth are checks written against our age and they are payable with interest thirty years later.</b>
-> <p><i>Charles Caleb Colton</i></p>
+> <b>As a mom, I know it is my responsibility, and no one else's, to raise my kids. But we have to ask ourselves, what does it mean when so many parents are finding their best efforts undermined by an avalanche of advertisements aimed at our kids.</b>
+> <p><i>Michelle Obama</i></p>
 
 <br>
