@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude that nature is chaotic and that the artist puts order into it is a very absurd point of view, I think. All that we can hope for is to put some order into ourselves.</b>
-> <p><i>Willem de Kooning</i></p>
+> <b>Not everybody trusts paintings but people believe photographs.</b>
+> <p><i>Ansel Adams</i></p>
 
 <br>
