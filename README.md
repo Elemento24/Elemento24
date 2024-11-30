@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Trust him not with your secrets, who, when left alone in your room, turns over your papers.</b>
-> <p><i>Johann Kaspar Lavater</i></p>
+> <b>I have to live with both my selves as best I may.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
