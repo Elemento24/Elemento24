@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have nothing to hide in art. The initial force alone can bring anyone to the end he must attain.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Pretend to be dumb, that's the only way to reach old age.</b>
+> <p><i>Friedrich Durrenmatt</i></p>
 
 <br>
