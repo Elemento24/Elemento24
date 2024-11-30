@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fashion is always of the time in which you live. It is not something standing alone. But the grand problem, the most important problem, is to rejeuvenate women. To make women look young. Then their outlook changes. They feel more joyous.</b>
-> <p><i>Coco Chanel</i></p>
+> <b>Family farms and small businesses are the backbone of our communities.</b>
+> <p><i>Tom Allen</i></p>
 
 <br>
