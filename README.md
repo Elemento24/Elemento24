@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not everybody trusts paintings but people believe photographs.</b>
-> <p><i>Ansel Adams</i></p>
+> <b>The automobile engine will come, and then I will consider my life's work complete.</b>
+> <p><i>Rudolf Diesel</i></p>
 
 <br>
