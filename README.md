@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The automobile engine will come, and then I will consider my life's work complete.</b>
-> <p><i>Rudolf Diesel</i></p>
+> <b>The beauty we love is very silent. It smiles softly to itself, but never speaks.</b>
+> <p><i>Richard Le Gallienne</i></p>
 
 <br>
