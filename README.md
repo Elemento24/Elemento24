@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was an economics major in college, and every summer after school, I would drive my car from California, from Claremont men's college at the time, to New York. And I worked on Wall Street.</b>
-> <p><i>Henry Kravis</i></p>
+> <b>The excess of our youth are checks written against our age and they are payable with interest thirty years later.</b>
+> <p><i>Charles Caleb Colton</i></p>
 
 <br>
