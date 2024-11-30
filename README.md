@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reward of art is not fame or success but intoxication: that is why so many bad artists are unable to give it up.</b>
-> <p><i>Jean Cocteau</i></p>
+> <b>Do business managers have a commitment to anything more than the success of their company and to making money? It would be hard to say that they do. Indeed, many business leaders deny that there is any conflict between self-interest and the interests of all.</b>
+> <p><i>Peter Singer</i></p>
 
 <br>
