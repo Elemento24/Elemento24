@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a mom, I know it is my responsibility, and no one else's, to raise my kids. But we have to ask ourselves, what does it mean when so many parents are finding their best efforts undermined by an avalanche of advertisements aimed at our kids.</b>
-> <p><i>Michelle Obama</i></p>
+> <b>Walmart is an amazing story of entrepreneurship and, as one of the world's most powerful brands, touches millions of lives every day.</b>
+> <p><i>Marissa Mayer</i></p>
 
 <br>
