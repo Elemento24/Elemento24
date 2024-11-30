@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pretend to be dumb, that's the only way to reach old age.</b>
-> <p><i>Friedrich Durrenmatt</i></p>
+> <b>In order to fix Social Security, we must restructure it so that we continue to provide for our Nation's seniors that are approaching retirement age, but allow for younger taxpayers to invest a portion of their Social Security taxes in private accounts.</b>
+> <p><i>Herman Cain</i></p>
 
 <br>
