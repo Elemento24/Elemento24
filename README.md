@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In order to fix Social Security, we must restructure it so that we continue to provide for our Nation's seniors that are approaching retirement age, but allow for younger taxpayers to invest a portion of their Social Security taxes in private accounts.</b>
-> <p><i>Herman Cain</i></p>
+> <b>The momentum of freedom in our world is unmistakable - and it is not carried forward by our power alone. We can trust in that greater power Who guides the unfolding of the years. And in all that is to come, we can know that His purposes are just and true.</b>
+> <p><i>George W. Bush</i></p>
 
 <br>
