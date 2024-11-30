@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty we love is very silent. It smiles softly to itself, but never speaks.</b>
-> <p><i>Richard Le Gallienne</i></p>
+> <b>The best way to get a bad law repealed is to enforce it strictly.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
