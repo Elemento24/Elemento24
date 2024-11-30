@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The momentum of freedom in our world is unmistakable - and it is not carried forward by our power alone. We can trust in that greater power Who guides the unfolding of the years. And in all that is to come, we can know that His purposes are just and true.</b>
-> <p><i>George W. Bush</i></p>
+> <b>The attitude that nature is chaotic and that the artist puts order into it is a very absurd point of view, I think. All that we can hope for is to put some order into ourselves.</b>
+> <p><i>Willem de Kooning</i></p>
 
 <br>
