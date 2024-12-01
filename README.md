@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men at most differ as Heaven and Earth, but women, worst and best, as Heaven and Hell.</b>
-> <p><i>Alfred Lord Tennyson</i></p>
+> <b>The best way to make your dreams come true is to wake up.</b>
+> <p><i>Paul Valery</i></p>
 
 <br>
