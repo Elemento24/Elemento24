@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't change your beliefs, your life will be like this forever. Is that good news?</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>In the long term we can hope that religion will change the nature of man and reduce conflict. But history is not encouraging in this respect. The bloodiest wars in history have been religious wars.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
