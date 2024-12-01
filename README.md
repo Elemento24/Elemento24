@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I think we're alone in the universe, and sometimes I think we're not. In either case the idea is quite staggering.</b>
-> <p><i>Arthur C. Clarke</i></p>
+> <b>If you don't change your beliefs, your life will be like this forever. Is that good news?</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
