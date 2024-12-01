@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Traveling to Russia and Germany and being able to see the world at a young age was really cool for me, and I really liked that.</b>
-> <p><i>Mia Wasikowska</i></p>
+> <b>Men at most differ as Heaven and Earth, but women, worst and best, as Heaven and Hell.</b>
+> <p><i>Alfred Lord Tennyson</i></p>
 
 <br>
