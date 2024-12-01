@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While a large segment of the art world has obsessed over a tiny number of stars and their prices, an aesthetic shift has been occurring. It's not a movement - movements are more sure of themselves. It's a change of mood or expectation, a desire for art to be more than showy effects, big numbers, and gamesmanship.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Our business in life is not to get ahead of others, but to get ahead of ourselves.</b>
+> <p><i>E. Joseph Cossman</i></p>
 
 <br>
