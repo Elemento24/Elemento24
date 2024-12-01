@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tried to bake a cake for my mother's birthday - it took me four hours. It was terrible, and I cried for three days.</b>
-> <p><i>Rachael Ray</i></p>
+> <b>My general attitude to life is to enjoy every minute of every day. I never do anything with a feeling of, 'Oh God, I've got to do this today.'</b>
+> <p><i>Richard Branson</i></p>
 
 <br>
