@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My general attitude to life is to enjoy every minute of every day. I never do anything with a feeling of, 'Oh God, I've got to do this today.'</b>
-> <p><i>Richard Branson</i></p>
+> <b>Venice is the perfect place for a phase of art to die. No other city on earth embraces entropy quite like this magical floating mall.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
