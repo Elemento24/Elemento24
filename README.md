@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like progress but I hate change.</b>
-> <p><i>Jon Bon Jovi</i></p>
+> <b>Grace in women has more effect than beauty.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
