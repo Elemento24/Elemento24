@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would like to see more airplay for all artists, no matter what age. I think there's a lot of money being spent toward the young guys, but a lot of the older guys are the ones who blazed the trail for those young guys.</b>
-> <p><i>Willie Nelson</i></p>
+> <b>I never thought a basketball shoe would be named after a woman, let alone me.</b>
+> <p><i>Sheryl Swoopes</i></p>
 
 <br>
