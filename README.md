@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are living in the machine age. For the first time in history the comedian has been compelled to supply himself with jokes and comedy material to compete with the machine. Whether he knows it or not, the comedian is on a treadmill to oblivion.</b>
-> <p><i>Fred Allen</i></p>
+> <b>I tried to bake a cake for my mother's birthday - it took me four hours. It was terrible, and I cried for three days.</b>
+> <p><i>Rachael Ray</i></p>
 
 <br>
