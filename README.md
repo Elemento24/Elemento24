@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Venice is the perfect place for a phase of art to die. No other city on earth embraces entropy quite like this magical floating mall.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I would like to see more airplay for all artists, no matter what age. I think there's a lot of money being spent toward the young guys, but a lot of the older guys are the ones who blazed the trail for those young guys.</b>
+> <p><i>Willie Nelson</i></p>
 
 <br>
