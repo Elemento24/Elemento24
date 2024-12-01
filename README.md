@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second.</b>
-> <p><i>Jeff Bezos</i></p>
+> <b>Sometimes I think we're alone in the universe, and sometimes I think we're not. In either case the idea is quite staggering.</b>
+> <p><i>Arthur C. Clarke</i></p>
 
 <br>
