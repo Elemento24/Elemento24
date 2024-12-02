@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lila can't be a model until she's at least 21. She is already a mini-me - it is scary. She already has her own beauty kit.</b>
-> <p><i>Kate Moss</i></p>
+> <b>The best car safety device is a rear-view mirror with a cop in it.</b>
+> <p><i>Dudley Moore</i></p>
 
 <br>
