@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When two men in business always agree, one of them is unnecessary.</b>
-> <p><i>Ezra Pound</i></p>
+> <b>It is not hard to understand modern art. If it hangs on a wall it's a painting, and if you can walk around it it's a sculpture.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
