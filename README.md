@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Virtue alone has majesty in death.</b>
-> <p><i>Edward Young</i></p>
+> <b>Integrity reveals beauty.</b>
+> <p><i>Thomas Leonard</i></p>
 
 <br>
