@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger: an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>To create architecture is to put in order. Put what in order? Function and objects.</b>
+> <p><i>Le Corbusier</i></p>
 
 <br>
