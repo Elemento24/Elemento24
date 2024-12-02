@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Making money is art and working is art and good business is the best art.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>We're here to bring beauty to the world and make a difference in this planet. That's what art forms are about.</b>
+> <p><i>Charlie Haden</i></p>
 
 <br>
