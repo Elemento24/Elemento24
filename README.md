@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never thought a basketball shoe would be named after a woman, let alone me.</b>
-> <p><i>Sheryl Swoopes</i></p>
+> <b>My attitude toward graduate students was different, I must say. I used graduate students as colleagues: I gave them the best problems to work on, and I encouraged them.</b>
+> <p><i>Frank Press</i></p>
 
 <br>
