@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude toward graduate students was different, I must say. I used graduate students as colleagues: I gave them the best problems to work on, and I encouraged them.</b>
-> <p><i>Frank Press</i></p>
+> <b>Studies show that children best flourish when one mom and one dad are there to raise them.</b>
+> <p><i>John Boehner</i></p>
 
 <br>
