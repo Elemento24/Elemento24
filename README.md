@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To create architecture is to put in order. Put what in order? Function and objects.</b>
-> <p><i>Le Corbusier</i></p>
+> <b>I believe it's time that women truly owned their superpowers and used their beauty and strength to change the world around them.</b>
+> <p><i>Janelle Monae</i></p>
 
 <br>
