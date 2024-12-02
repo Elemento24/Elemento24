@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not a handicraft, it is the transmission of feeling the artist has experienced.</b>
-> <p><i>Leo Tolstoy</i></p>
+> <b>When two men in business always agree, one of them is unnecessary.</b>
+> <p><i>Ezra Pound</i></p>
 
 <br>
