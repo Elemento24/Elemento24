@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had some amazing people in my life. Look at my father - he came from a small fishing village of five hundred people and at six foot four with giant ears and a kind of very odd expression, thought he could be a movie star. So go figure, you know?</b>
-> <p><i>Kiefer Sutherland</i></p>
+> <b>Raising children is an incredibly hard and risky business in which no cumulative wisdom is gained: each generation repeats the mistakes the previous one made.</b>
+> <p><i>Bill Cosby</i></p>
 
 <br>
