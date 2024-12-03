@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The enemy of society is middle class and the enemy of life is middle age.</b>
-> <p><i>Orson Welles</i></p>
+> <b>If you don't drive your business, you will be driven out of business.</b>
+> <p><i>B. C. Forbes</i></p>
 
 <br>
