@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're here to bring beauty to the world and make a difference in this planet. That's what art forms are about.</b>
-> <p><i>Charlie Haden</i></p>
+> <b>I find the business world hard.</b>
+> <p><i>Haile Gebrselassie</i></p>
 
 <br>
