@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The difference between utility and utility plus beauty is the difference between telephone wires and the spider web.</b>
-> <p><i>Edwin Way Teale</i></p>
+> <b>What do you mean by faith? Is faith enough for Man? Should he be satisfied with faith alone? Is there no way of finding out the truth? Is the attitude of faith, of believing in something for which there can be no more than philosophic proof, the true mark of a Christian?</b>
+> <p><i>Clifford D. Simak</i></p>
 
 <br>
