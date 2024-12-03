@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Deliver me from writers who say the way they live doesn't matter. I'm not sure a bad person can write a good book, If art doesn't make us better, then what on earth is it for.</b>
-> <p><i>Alice Walker</i></p>
+> <b>Language... has created the word 'loneliness' to express the pain of being alone. And it has created the word 'solitude' to express the glory of being alone.</b>
+> <p><i>Paul Tillich</i></p>
 
 <br>
