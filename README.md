@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is a tyrant, who forbids, under pain of death, the pleasures of youth.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>If you're feeling insecure and you need to feel special, the best place to go is somewhere foreign where people treat you as special because you're different.</b>
+> <p><i>Kristin Scott Thomas</i></p>
 
 <br>
