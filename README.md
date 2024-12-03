@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Language... has created the word 'loneliness' to express the pain of being alone. And it has created the word 'solitude' to express the glory of being alone.</b>
-> <p><i>Paul Tillich</i></p>
+> <b>If you want to change the culture, you will have to start by changing the organization.</b>
+> <p><i>Mary Douglas</i></p>
 
 <br>
