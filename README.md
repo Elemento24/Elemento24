@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture starts when you carefully put two bricks together. There it begins.</b>
-> <p><i>Ludwig Mies van der Rohe</i></p>
+> <b>The enemy of society is middle class and the enemy of life is middle age.</b>
+> <p><i>Orson Welles</i></p>
 
 <br>
