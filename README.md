@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're feeling insecure and you need to feel special, the best place to go is somewhere foreign where people treat you as special because you're different.</b>
-> <p><i>Kristin Scott Thomas</i></p>
+> <b>Deliver me from writers who say the way they live doesn't matter. I'm not sure a bad person can write a good book, If art doesn't make us better, then what on earth is it for.</b>
+> <p><i>Alice Walker</i></p>
 
 <br>
