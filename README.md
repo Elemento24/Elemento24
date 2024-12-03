@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude of the people proves that not only do we want to, but that we can succeed in pulling our country out of the difficult position it finds itself in. The banking system of our country will survive and grow.</b>
-> <p><i>Nicos Anastasiades</i></p>
+> <b>Comics are so full of amazing work. And I can't look at a drawing of a woman without thinking of, for instance, Wallace Wood and his amazing way of capturing beauty.</b>
+> <p><i>Frank Miller</i></p>
 
 <br>
