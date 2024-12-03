@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I find the business world hard.</b>
-> <p><i>Haile Gebrselassie</i></p>
+> <b>The attitude of the people proves that not only do we want to, but that we can succeed in pulling our country out of the difficult position it finds itself in. The banking system of our country will survive and grow.</b>
+> <p><i>Nicos Anastasiades</i></p>
 
 <br>
