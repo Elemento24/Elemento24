@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to change the culture, you will have to start by changing the organization.</b>
-> <p><i>Mary Douglas</i></p>
+> <b>First, there is the bare beauty of the logs themselves with their long lines and firm curves. Then there is the open charm felt of the structural features which are not hidden under plaster and ornament, but are clearly revealed, a charm felt in Japanese architecture.</b>
+> <p><i>Gustav Stickley</i></p>
 
 <br>
