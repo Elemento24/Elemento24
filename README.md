@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I want to be alone, some place I can write, I can read, I can pray, I can cry, I can do whatever I want - I go to the bathroom.</b>
-> <p><i>Alicia Keys</i></p>
+> <b>No great art has ever been made without the artist having known danger.</b>
+> <p><i>Rainer Maria Rilke</i></p>
 
 <br>
