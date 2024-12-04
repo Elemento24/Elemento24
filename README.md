@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had no idea that he was going to write that, but I've always believed that insecurity was what would keep you always in your innocence, no matter what the business did.</b>
-> <p><i>Sally Kirkland</i></p>
+> <b>You cannot control what happens to you, but you can control your attitude toward what happens to you, and in that, you will be mastering change rather than allowing it to master you.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
