@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You cannot control what happens to you, but you can control your attitude toward what happens to you, and in that, you will be mastering change rather than allowing it to master you.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>Many people and governments share the mistaken belief that science, with new, ingenious devices and techniques, can rescue us from the troubles we face without our having to mend our ways and change our patterns of activity. This is not so.</b>
+> <p><i>Henry W. Kendall</i></p>
 
 <br>
