@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of being happy lies in the power of extracting happiness from common things.</b>
-> <p><i>Henry Ward Beecher</i></p>
+> <b>I had no idea that he was going to write that, but I've always believed that insecurity was what would keep you always in your innocence, no matter what the business did.</b>
+> <p><i>Sally Kirkland</i></p>
 
 <br>
