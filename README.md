@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wasn't afraid of getting old, because I was never a great beauty.</b>
-> <p><i>Shirley MacLaine</i></p>
+> <b>To the man who loves art for its own sake, it is frequently in its least important and lowliest manifestations that the keenest pleasure is to be derived.</b>
+> <p><i>Arthur Conan Doyle</i></p>
 
 <br>
