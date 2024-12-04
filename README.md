@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Amazing that the human race has taken enough time out from thinking about food or sex to create the arts and sciences.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>A work of art has no importance whatever to society. It is only important to the individual.</b>
+> <p><i>Vladimir Nabokov</i></p>
 
 <br>
