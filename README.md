@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A work of art has no importance whatever to society. It is only important to the individual.</b>
-> <p><i>Vladimir Nabokov</i></p>
+> <b>Italians know about human nature - they understand human nature perhaps better than anyone else does. They know that people are weak and greedy and lazy and dishonest and they just try to make the best of it to work around it.</b>
+> <p><i>Donna Leon</i></p>
 
 <br>
