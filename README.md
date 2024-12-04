@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm in the car and somebody comes on the radio singing the high notes, I try to sing along.</b>
-> <p><i>Burton Cummings</i></p>
+> <b>I like the idea of being alone. I like the idea of often being alone in all aspects of my life. I like to feel lonely. I like to need things.</b>
+> <p><i>Robert Plant</i></p>
 
 <br>
