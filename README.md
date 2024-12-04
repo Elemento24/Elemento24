@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Many people and governments share the mistaken belief that science, with new, ingenious devices and techniques, can rescue us from the troubles we face without our having to mend our ways and change our patterns of activity. This is not so.</b>
-> <p><i>Henry W. Kendall</i></p>
+> <b>The reality is sobering: in the United States one in three girls will become pregnant before age 20, totaling more than 750,000 girls per year.</b>
+> <p><i>Jane Fonda</i></p>
 
 <br>
