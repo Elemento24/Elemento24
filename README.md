@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No great art has ever been made without the artist having known danger.</b>
-> <p><i>Rainer Maria Rilke</i></p>
+> <b>Elle MacPherson is absolutely amazing she is just so beautiful.</b>
+> <p><i>Carol Alt</i></p>
 
 <br>
