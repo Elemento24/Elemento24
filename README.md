@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part of the art of living is to know how to grow old gracefully.</b>
-> <p><i>Eric Hoffer</i></p>
+> <b>I wasn't afraid of getting old, because I was never a great beauty.</b>
+> <p><i>Shirley MacLaine</i></p>
 
 <br>
