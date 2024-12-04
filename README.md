@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pride is still aiming at the best houses: Men would be angels, angels would be gods. Aspiring to be gods, if angels fell aspiring to be angels men rebel.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>I'm proud that today, at 43 years old, I've come to value the aging process and focus on inner rather than outer beauty.</b>
+> <p><i>Carre Otis</i></p>
 
 <br>
