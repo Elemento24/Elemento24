@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To the man who loves art for its own sake, it is frequently in its least important and lowliest manifestations that the keenest pleasure is to be derived.</b>
-> <p><i>Arthur Conan Doyle</i></p>
+> <b>When I'm in the car and somebody comes on the radio singing the high notes, I try to sing along.</b>
+> <p><i>Burton Cummings</i></p>
 
 <br>
