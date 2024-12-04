@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm proud that today, at 43 years old, I've come to value the aging process and focus on inner rather than outer beauty.</b>
-> <p><i>Carre Otis</i></p>
+> <b>The art of being happy lies in the power of extracting happiness from common things.</b>
+> <p><i>Henry Ward Beecher</i></p>
 
 <br>
