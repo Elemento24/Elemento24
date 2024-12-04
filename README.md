@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nature is the art of God.</b>
-> <p><i>Dante Alighieri</i></p>
+> <b>Pride is still aiming at the best houses: Men would be angels, angels would be gods. Aspiring to be gods, if angels fell aspiring to be angels men rebel.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
