@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I became a larger than life figure for one reason only. When you're quoted in the 'Wall Street Journal,' the 'New York Times,' constantly as the expert in the business people assume you're a lot bigger than you are. And then I had to run like hell to catch up with my own image.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>It's like, no matter what I do, I always feel like I'm five years old, and I end up in the back of my father's car looking out the window, and nothing has changed in 25 years.</b>
+> <p><i>Dylan McDermott</i></p>
 
 <br>
