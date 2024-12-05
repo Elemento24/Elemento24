@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love to go shopping at Target. They have so much stuff there, you can buy almost anything, it's really amazing.</b>
-> <p><i>Liv Tyler</i></p>
+> <b>In true dialogue, both sides are willing to change.</b>
+> <p><i>Nhat Hanh</i></p>
 
 <br>
