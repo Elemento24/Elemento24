@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, maybe I was just born in the wrong time, but I love all things romantic. Puffy understands that. For my last birthday, he covered my hotel room floor with rose petals and had flowers and candles all over the room.</b>
-> <p><i>Jennifer Lopez</i></p>
+> <b>He that would be angry and sin not, must not be angry with anything but sin.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
