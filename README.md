@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The problem with being sure that God is on your side is that you can't change your mind, because God sure isn't going to change His.</b>
-> <p><i>Roger Ebert</i></p>
+> <b>In architecture the idea degenerated. Design allows a more direct and pleasurable route.</b>
+> <p><i>Charles Eames</i></p>
 
 <br>
