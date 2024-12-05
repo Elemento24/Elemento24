@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With guys I revere, like Marcus Garvey or Malcolm X, their look is less about style than purpose and the expression of beauty. It wasn't just about being noticed, you know?</b>
-> <p><i>Mos Def</i></p>
+> <b>To be honest, I sort of feel like 'movie actor' isn't of this time. I love it. But it's a 20th-century art form.</b>
+> <p><i>Joseph Gordon-Levitt</i></p>
 
 <br>
