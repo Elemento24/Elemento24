@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In true dialogue, both sides are willing to change.</b>
-> <p><i>Nhat Hanh</i></p>
+> <b>Let your Discourse with Men of Business be Short and Comprehensive.</b>
+> <p><i>George Washington</i></p>
 
 <br>
