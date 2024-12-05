@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There was an age, however, when the transition from savagery to civilization, with all its impressive outward manifestations in art and architecture, took place for the first time.</b>
-> <p><i>James H. Breasted</i></p>
+> <b>I think that the U.S. does have this very much more open attitude, and I admire it very much and I think it's very important to the world. But the information and the discussion sometimes come too late, after the effective decision has been made.</b>
+> <p><i>E. P. Thompson</i></p>
 
 <br>
