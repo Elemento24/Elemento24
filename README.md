@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The denunciation of the young is a necessary part of the hygiene of older people, and greatly assists the circulation of the blood.</b>
-> <p><i>Logan P. Smith</i></p>
+> <b>If I can help and influence girls who are going through body-image issues then I think that's amazing.</b>
+> <p><i>Kate Upton</i></p>
 
 <br>
