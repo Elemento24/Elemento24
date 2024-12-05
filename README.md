@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm at the age now where just putting my cigar in its holder is a thrill.</b>
-> <p><i>George Burns</i></p>
+> <b>I love to go shopping at Target. They have so much stuff there, you can buy almost anything, it's really amazing.</b>
+> <p><i>Liv Tyler</i></p>
 
 <br>
