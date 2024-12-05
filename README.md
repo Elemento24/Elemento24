@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In architecture the idea degenerated. Design allows a more direct and pleasurable route.</b>
-> <p><i>Charles Eames</i></p>
+> <b>You know, maybe I was just born in the wrong time, but I love all things romantic. Puffy understands that. For my last birthday, he covered my hotel room floor with rose petals and had flowers and candles all over the room.</b>
+> <p><i>Jennifer Lopez</i></p>
 
 <br>
