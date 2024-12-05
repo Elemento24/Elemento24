@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He that would be angry and sin not, must not be angry with anything but sin.</b>
-> <p><i>John Ruskin</i></p>
+> <b>There was an age, however, when the transition from savagery to civilization, with all its impressive outward manifestations in art and architecture, took place for the first time.</b>
+> <p><i>James H. Breasted</i></p>
 
 <br>
