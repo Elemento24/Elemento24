@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just think that people take me a little more seriously as a brunette. I don't know if that's just because of a societal preconceived notion that all blondes are stupid, but it's a different kind of attitude.</b>
-> <p><i>Kate Bosworth</i></p>
+> <b>The final test of a leader is that he leaves behind him in other men the conviction and the will to carry on.</b>
+> <p><i>Walter Lippmann</i></p>
 
 <br>
