@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that the U.S. does have this very much more open attitude, and I admire it very much and I think it's very important to the world. But the information and the discussion sometimes come too late, after the effective decision has been made.</b>
-> <p><i>E. P. Thompson</i></p>
+> <b>Meditation is all about the pursuit of nothingness. It's like the ultimate rest. It's better than the best sleep you've ever had. It's a quieting of the mind. It sharpens everything, especially your appreciation of your surroundings. It keeps life fresh.</b>
+> <p><i>Hugh Jackman</i></p>
 
 <br>
