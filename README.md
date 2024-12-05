@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Boys, they can't take my refrigerator now. They'll never get my car now. I paid cash for 'em and they're mine, and I'm keepin' 'em!</b>
-> <p><i>Patsy Cline</i></p>
+> <b>The problem with being sure that God is on your side is that you can't change your mind, because God sure isn't going to change His.</b>
+> <p><i>Roger Ebert</i></p>
 
 <br>
