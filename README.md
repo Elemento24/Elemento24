@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know. I think it's funny! I think it's funny! I go, what? It's so absurd. I'm alone.</b>
-> <p><i>Danny DeVito</i></p>
+> <b>Things turn out best for the people who make the best of the way things turn out.</b>
+> <p><i>John Wooden</i></p>
 
 <br>
