@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel I'd like to share my luck and my life. Being in love is the best thing in the world.</b>
-> <p><i>Susannah York</i></p>
+> <b>To refrain from imitation is the best revenge.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
