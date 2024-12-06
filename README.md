@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think this is the biggest win in my career. To beat Venus in Wimbledon is just something amazing.</b>
-> <p><i>Elena Vesnina</i></p>
+> <b>It is best to live however one can be.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
