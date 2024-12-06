@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We virtually never feel our age, but thinking that we should can lead to disaster.</b>
-> <p><i>Martha Beck</i></p>
+> <b>Resistance is thought transformed into feeling. Change the thought that creates the resistance, and there is no more resistance.</b>
+> <p><i>Robert Conklin</i></p>
 
 <br>
