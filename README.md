@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wasn't afraid of getting old, because I was never a great beauty.</b>
-> <p><i>Shirley MacLaine</i></p>
+> <b>For a long time I thought I could deal with my anger and hostility on my own. But I couldn't. I denied that it had affected me, and yet I was so frantic on the inside with other people: I needed to be constantly reassured.</b>
+> <p><i>Kelly McGillis</i></p>
 
 <br>
