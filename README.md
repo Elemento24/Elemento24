@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I can help and influence girls who are going through body-image issues then I think that's amazing.</b>
-> <p><i>Kate Upton</i></p>
+> <b>Every time I get into a Nationwide car after being in a Cup car, I feel so much more comfortable than I did previously.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
