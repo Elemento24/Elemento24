@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But there is a discomfort that surrounds grief. It makes even the most well-intentioned people unsure of what to say. And so many of the freshly bereaved end up feeling even more alone.</b>
-> <p><i>Meghan O'Rourke</i></p>
+> <b>I hate to mention age, but I come from an era when we weren't consumed by technology and television.</b>
+> <p><i>Jimmy Buffett</i></p>
 
 <br>
