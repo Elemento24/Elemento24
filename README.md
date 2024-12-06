@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Things turn out best for the people who make the best of the way things turn out.</b>
-> <p><i>John Wooden</i></p>
+> <b>I feel I'd like to share my luck and my life. Being in love is the best thing in the world.</b>
+> <p><i>Susannah York</i></p>
 
 <br>
