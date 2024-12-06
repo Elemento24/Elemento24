@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To my mind the old masters are not art their value is in their scarcity.</b>
-> <p><i>Thomas A. Edison</i></p>
+> <b>Being a mother is the most amazing thing that has ever happened to me in my life.</b>
+> <p><i>Cindy Margolis</i></p>
 
 <br>
