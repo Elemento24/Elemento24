@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the business of war, and indeed all the business of life, is to endeavour to find out what you don't know by what you do that's what I called 'guess what was at the other side of the hill'.</b>
-> <p><i>Duke of Wellington</i></p>
+> <b>I'm a pretty big dork. It's crazy. I'm one of those people who grew up with all kinds of musicals, but I was right at that age where 'Rent' was a big deal for me and for my friends.</b>
+> <p><i>Anna Kendrick</i></p>
 
 <br>
