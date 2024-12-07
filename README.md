@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best time to plan a book is while you're doing the dishes.</b>
-> <p><i>Agatha Christie</i></p>
+> <b>Those who love deeply never grow old they may die of old age, but they die young.</b>
+> <p><i>Dorothy Canfield Fisher</i></p>
 
 <br>
