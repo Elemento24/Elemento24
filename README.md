@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My wife is amazing. She had to know she was getting into a heap of trouble when we met.</b>
-> <p><i>Taylor Hanson</i></p>
+> <b>What is uttered from the heart alone, Will win the hearts of others to your own.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
