@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to say, you know, I've seen so many people go through the cycle and become famous and not famous anymore and, you know, want - have their priorities change and want different things.</b>
-> <p><i>Rashida Jones</i></p>
+> <b>Married couples who work together to build and maintain a business assume broad responsibilities. Not only is their work important to our local and national economies, but their success is central to the well-being of their families.</b>
+> <p><i>Melissa Bean</i></p>
 
 <br>
