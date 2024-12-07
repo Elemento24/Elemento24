@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>John Candy knew he was going to die. He told me on his 40th birthday. He said, well, Maureen, I'm on borrowed time.</b>
-> <p><i>Maureen O'Hara</i></p>
+> <b>The greatest discovery of all time is that a person can change his future by merely changing his attitude.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
