@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to destroy the capitalist system is to debauch the currency.</b>
-> <p><i>Vladimir Lenin</i></p>
+> <b>My wife is amazing. She had to know she was getting into a heap of trouble when we met.</b>
+> <p><i>Taylor Hanson</i></p>
 
 <br>
