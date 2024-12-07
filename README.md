@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mama always used to tell me: 'If you can't find somethin' to live for, you best find somethin' to die for.'</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>So I did in fact spend two and a half years in the Middlesbrough car park practising skills. But if you spend four or five or six hours a day practising, you get better.</b>
+> <p><i>Craig Johnston</i></p>
 
 <br>
