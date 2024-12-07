@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Married couples who work together to build and maintain a business assume broad responsibilities. Not only is their work important to our local and national economies, but their success is central to the well-being of their families.</b>
-> <p><i>Melissa Bean</i></p>
+> <b>I may be a living legend, but that sure don't help when I've got to change a flat tire.</b>
+> <p><i>Roy Orbison</i></p>
 
 <br>
