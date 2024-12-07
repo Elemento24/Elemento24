@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So I did in fact spend two and a half years in the Middlesbrough car park practising skills. But if you spend four or five or six hours a day practising, you get better.</b>
-> <p><i>Craig Johnston</i></p>
+> <b>There are a lot of people using technology that are playing to a click with backing vocals already stuck in there on some computerized thing that runs along in time to the show so they have these amazing vocals that are only partly the guys on stage producing them at the time.</b>
+> <p><i>James Young</i></p>
 
 <br>
