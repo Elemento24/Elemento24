@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a pretty big dork. It's crazy. I'm one of those people who grew up with all kinds of musicals, but I was right at that age where 'Rent' was a big deal for me and for my friends.</b>
-> <p><i>Anna Kendrick</i></p>
+> <b>The best way to destroy the capitalist system is to debauch the currency.</b>
+> <p><i>Vladimir Lenin</i></p>
 
 <br>
