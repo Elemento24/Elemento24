@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Turns out, I couldn't catch them - or even get close to them. I realized that sharks are amazing, beautiful animals who have absolutely no interest in checking me out.</b>
-> <p><i>Malin Akerman</i></p>
+> <b>There is no time for cut-and-dried monotony. There is time for work. And time for love. That leaves no other time!</b>
+> <p><i>Coco Chanel</i></p>
 
 <br>
