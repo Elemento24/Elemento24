@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a busy working mom I'm always pressed for time, so a quick and easy beauty routine is key!</b>
-> <p><i>Angela Kinsey</i></p>
+> <b>The Golden Rule finds no limit of application in business.</b>
+> <p><i>James Cash Penney</i></p>
 
 <br>
