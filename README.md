@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember at the age of five travelling on a trolley car with my mother past a group of women on a picket line at a textile plant, seeing them being viciously beaten by security people. So that kind of thing stayed with me.</b>
-> <p><i>Noam Chomsky</i></p>
+> <b>Mild autism can give you a genius like Einstein. If you have severe autism, you could remain nonverbal. You don't want people to be on the severe end of the spectrum. But if you got rid of all the autism genetics, you wouldn't have science or art. All you would have is a bunch of social 'yak yaks.'</b>
+> <p><i>Temple Grandin</i></p>
 
 <br>
