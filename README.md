@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We had common interests in the beauty of the French language. We both had a tremendous love of jazz. We shared dreams of getting married and having a family, living in the country, leading an idyllic life.</b>
-> <p><i>David Amram</i></p>
+> <b>Your best friend and worst enemy are both in this room right now. It's not your neighbor right or left - and it's not God or the devil - it's you.</b>
+> <p><i>Edwin Louis Cole</i></p>
 
 <br>
