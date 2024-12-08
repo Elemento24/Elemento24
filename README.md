@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mild autism can give you a genius like Einstein. If you have severe autism, you could remain nonverbal. You don't want people to be on the severe end of the spectrum. But if you got rid of all the autism genetics, you wouldn't have science or art. All you would have is a bunch of social 'yak yaks.'</b>
-> <p><i>Temple Grandin</i></p>
+> <b>Surely these women won't lose any more of their beauty and charm by putting a ballot in a ballot box once a year than they are likely to lose standing in foundries or laundries all year round. There is no harder contest than the contest for bread, let me tell you that.</b>
+> <p><i>Rose Schneiderman</i></p>
 
 <br>
