@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Surely these women won't lose any more of their beauty and charm by putting a ballot in a ballot box once a year than they are likely to lose standing in foundries or laundries all year round. There is no harder contest than the contest for bread, let me tell you that.</b>
-> <p><i>Rose Schneiderman</i></p>
+> <b>Having George W. Bush giving a lecture on business ethics is like having a leper give you a facial, it just doesn't work!</b>
+> <p><i>Robin Williams</i></p>
 
 <br>
