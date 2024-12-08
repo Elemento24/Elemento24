@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Holy Spirit alone can do this, the Holy Spirit alone can establish this link with one's neighbor.</b>
-> <p><i>Jacques Ellul</i></p>
+> <b>I love what I do, and when I don't love what I do, I'll make a change.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
