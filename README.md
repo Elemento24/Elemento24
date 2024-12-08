@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't get the impression that you arouse my anger. You see, one can only be angry with those he respects.</b>
-> <p><i>Richard M. Nixon</i></p>
+> <b>As a busy working mom I'm always pressed for time, so a quick and easy beauty routine is key!</b>
+> <p><i>Angela Kinsey</i></p>
 
 <br>
