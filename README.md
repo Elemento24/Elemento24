@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Golden Rule finds no limit of application in business.</b>
-> <p><i>James Cash Penney</i></p>
+> <b>I'm happy to report that my inner child is still ageless.</b>
+> <p><i>James Broughton</i></p>
 
 <br>
