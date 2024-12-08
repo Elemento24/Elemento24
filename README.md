@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is better to be alone than in bad company.</b>
-> <p><i>George Washington</i></p>
+> <b>Fashion is architecture: it is a matter of proportions.</b>
+> <p><i>Coco Chanel</i></p>
 
 <br>
