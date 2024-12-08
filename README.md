@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fashion is architecture: it is a matter of proportions.</b>
-> <p><i>Coco Chanel</i></p>
+> <b>As much as I long for a sort of security and consistency sometimes, I do enjoy sort of being busted around. I really don't know what's happening sometimes next week, let alone this year.</b>
+> <p><i>Matthew Macfadyen</i></p>
 
 <br>
