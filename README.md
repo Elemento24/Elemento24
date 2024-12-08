@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The deferring of anger is the best antidote to anger.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>The Holy Spirit alone can do this, the Holy Spirit alone can establish this link with one's neighbor.</b>
+> <p><i>Jacques Ellul</i></p>
 
 <br>
