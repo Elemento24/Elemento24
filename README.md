@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As much as I long for a sort of security and consistency sometimes, I do enjoy sort of being busted around. I really don't know what's happening sometimes next week, let alone this year.</b>
-> <p><i>Matthew Macfadyen</i></p>
+> <b>Being a child at home alone in the summer is a high-risk occupation. If you call your mother at work thirteen times an hour, she can hurt you.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
