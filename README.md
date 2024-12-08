@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best effort of a fine person is felt after we have left their presence.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>It's clever, but is it Art?</b>
+> <p><i>Rudyard Kipling</i></p>
 
 <br>
