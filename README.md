@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Positive thinking is the key to success in business, education, pro football, anything that you can mention. I go out there thinking that I'm going to complete every pass.</b>
-> <p><i>Ron Jaworski</i></p>
+> <b>As you get older, things conk out. It's a bit like a car. As long as it's something the mechanics can fix, you can chug on for a few more thousand miles.</b>
+> <p><i>Len Goodman</i></p>
 
 <br>
