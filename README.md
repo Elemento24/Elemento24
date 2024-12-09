@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The social business marketplace is effectively forcing brands to engage with consumers on the basis of something that is meaningful to them. More often than not, this takes the form of some core value that finds expression in a non-profit cause.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Mom was 50 when my Dad died. She got on a bus every weekday for years, and rode 40 miles each morning to Madison. She earned a new degree and learned new skills to start her small business. It wasn't just a new livelihood. It was a new life.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
