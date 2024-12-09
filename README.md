@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think, if you put a camera in anyone's life and document it daily from the age of 21 to 27, there are going to be things that aren't always pretty.</b>
-> <p><i>Sienna Miller</i></p>
+> <b>The social business marketplace is effectively forcing brands to engage with consumers on the basis of something that is meaningful to them. More often than not, this takes the form of some core value that finds expression in a non-profit cause.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
