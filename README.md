@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's hard, the fact that there's a certain age that we can't have kids anymore.</b>
-> <p><i>Courteney Cox</i></p>
+> <b>Photography is more than a medium for factual communication of ideas. It is a creative art.</b>
+> <p><i>Ansel Adams</i></p>
 
 <br>
