@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Too small is our world to allow discrimination, bigotry and intolerance to thrive in any corner of it, let alone in the United States of America.</b>
-> <p><i>Eliot Engel</i></p>
+> <b>If there's ever an example that military power alone cannot be successful in Afghanistan, I think it was the Soviet experience.</b>
+> <p><i>Robert M. Gates</i></p>
 
 <br>
