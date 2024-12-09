@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom was amazing. She believed in me and we were best friends.</b>
-> <p><i>Carmen Electra</i></p>
+> <b>I think your whole life shows in your face and you should be proud of that.</b>
+> <p><i>Lauren Bacall</i></p>
 
 <br>
