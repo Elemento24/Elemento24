@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If there's ever an example that military power alone cannot be successful in Afghanistan, I think it was the Soviet experience.</b>
-> <p><i>Robert M. Gates</i></p>
+> <b>My mom was amazing. She believed in me and we were best friends.</b>
+> <p><i>Carmen Electra</i></p>
 
 <br>
