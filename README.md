@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get appalled when I see good drivers being left on the sidelines because they haven't come up with the half million to a million to put themselves in a competitive car.</b>
-> <p><i>John Surtees</i></p>
+> <b>One irreducible residual of 38 years in the business is the number of lasting, loving friendships I have made.</b>
+> <p><i>Carroll O'Connor</i></p>
 
 <br>
