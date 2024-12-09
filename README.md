@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Photography is more than a medium for factual communication of ideas. It is a creative art.</b>
-> <p><i>Ansel Adams</i></p>
+> <b>Too small is our world to allow discrimination, bigotry and intolerance to thrive in any corner of it, let alone in the United States of America.</b>
+> <p><i>Eliot Engel</i></p>
 
 <br>
