@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't go away. I don't want to be alone. I can't stand being alone.</b>
-> <p><i>Arnold Rothstein</i></p>
+> <b>Positive thinking is the key to success in business, education, pro football, anything that you can mention. I go out there thinking that I'm going to complete every pass.</b>
+> <p><i>Ron Jaworski</i></p>
 
 <br>
