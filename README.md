@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love what I do, and when I don't love what I do, I'll make a change.</b>
-> <p><i>Katy Perry</i></p>
+> <b>Throughout the centuries, man has considered himself beautiful. I rather suppose that man only believes in his own beauty out of pride that he is not really beautiful and he suspects this himself for why does he look on the face of his fellow-man with such scorn?</b>
+> <p><i>Isidore Ducasse Lautreamont</i></p>
 
 <br>
