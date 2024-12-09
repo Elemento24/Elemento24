@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As you get older, things conk out. It's a bit like a car. As long as it's something the mechanics can fix, you can chug on for a few more thousand miles.</b>
-> <p><i>Len Goodman</i></p>
+> <b>In art as in love, instinct is enough.</b>
+> <p><i>Anatole France</i></p>
 
 <br>
