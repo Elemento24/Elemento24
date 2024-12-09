@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is in the mind and the heart where we meet. It's not the body-the body will change.</b>
-> <p><i>Amber Valletta</i></p>
+> <b>Sales are contingent upon the attitude of the salesman - not the attitude of the prospect.</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
