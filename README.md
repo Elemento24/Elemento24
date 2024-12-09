@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sales are contingent upon the attitude of the salesman - not the attitude of the prospect.</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>I love what I do, and when I don't love what I do, I'll make a change.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
