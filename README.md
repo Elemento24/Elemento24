@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is like a plane flying through a storm. Once you're aboard, there's nothing you can do.</b>
-> <p><i>Golda Meir</i></p>
+> <b>A work of art is above all an adventure of the mind.</b>
+> <p><i>Eugene Ionesco</i></p>
 
 <br>
