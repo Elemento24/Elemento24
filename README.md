@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love Prince Harry. Good looking and a bit of a rebel. Me and his dad are as thick as thieves and I knew Harry before I knew his dad so we've met a few times. I think he's amazing. And I think you can relate to him because he's made mistakes. He's cool.</b>
-> <p><i>Cheryl Cole</i></p>
+> <b>We're not trying to change the world just music.</b>
+> <p><i>Jonathan Davis</i></p>
 
 <br>
