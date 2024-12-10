@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So much has been said and sung of beautiful young girls, why doesn't somebody wake up to the beauty of old women.</b>
-> <p><i>Harriet Beecher Stowe</i></p>
+> <b>You're only as young as the last time you changed your mind.</b>
+> <p><i>Timothy Leary</i></p>
 
 <br>
