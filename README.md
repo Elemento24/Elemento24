@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Excellence is not a skill. It is an attitude.</b>
-> <p><i>Ralph Marston</i></p>
+> <b>Old age is like a plane flying through a storm. Once you're aboard, there's nothing you can do.</b>
+> <p><i>Golda Meir</i></p>
 
 <br>
