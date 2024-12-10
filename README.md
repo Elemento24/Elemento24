@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm at the age now where just putting my cigar in its holder is a thrill.</b>
-> <p><i>George Burns</i></p>
+> <b>I had used eclectic therapy and behavior therapy on myself at the age of 19 to get over my fear of public speaking and of approaching young women in public.</b>
+> <p><i>Albert Ellis</i></p>
 
 <br>
