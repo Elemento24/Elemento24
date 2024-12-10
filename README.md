@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Los Angeles is a very magical place when you take the entertainment industry out of it. You have beautiful beaches and amazing mountains here. I'm a big rock climber. I head out into the mountains whenever I have free time. It's amazing.</b>
-> <p><i>Alex Pettyfer</i></p>
+> <b>The best way to obtain truth and wisdom is not to ask from books, but to go to God in prayer, and obtain divine teaching.</b>
+> <p><i>Joseph Smith, Jr.</i></p>
 
 <br>
