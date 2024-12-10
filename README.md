@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to obtain truth and wisdom is not to ask from books, but to go to God in prayer, and obtain divine teaching.</b>
-> <p><i>Joseph Smith, Jr.</i></p>
+> <b>That government is best which governs least.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
