@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best plan now is to have as many bosses as possible. I call it boss diversity. If you work for a company and you have one boss and that boss doesn't like you or wants to get rid of you, you're in trouble. But if you work for yourself, you have lots of bosses, who are your customers, and if a few of them decide they don't like you, that's okay.</b>
-> <p><i>Scott Adams</i></p>
+> <b>With so many amazing artists on one bill, we expect this concert to be incredibly powerful in its ability to raise both money and awareness for the long-term rebuilding effort we must all support.</b>
+> <p><i>Brad Delson</i></p>
 
 <br>
