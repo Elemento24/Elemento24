@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're not trying to change the world just music.</b>
-> <p><i>Jonathan Davis</i></p>
+> <b>It is your business when the wall next door catches fire.</b>
+> <p><i>Horace</i></p>
 
 <br>
