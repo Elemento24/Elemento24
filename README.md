@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The books that help you most are those which make you think that most. The hardest way of learning is that of easy reading but a great book that comes from a great thinker is a ship of thought, deep freighted with truth and beauty.</b>
-> <p><i>Pablo Neruda</i></p>
+> <b>I love Prince Harry. Good looking and a bit of a rebel. Me and his dad are as thick as thieves and I knew Harry before I knew his dad so we've met a few times. I think he's amazing. And I think you can relate to him because he's made mistakes. He's cool.</b>
+> <p><i>Cheryl Cole</i></p>
 
 <br>
