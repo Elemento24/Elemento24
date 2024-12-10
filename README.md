@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That government is best which governs least.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>The team architecture means setting up an organization that helps people produce that great work in teams.</b>
+> <p><i>Jay Chiat</i></p>
 
 <br>
