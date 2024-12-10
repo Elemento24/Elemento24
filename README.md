@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My very best friend died in a car accident when I was 16 years old. That was the hardest blow emotionally that I have ever had to endure. Suddenly, you realize tomorrow might not come. Now I live by the motto, 'Today is what I have.'</b>
-> <p><i>Amber Heard</i></p>
+> <b>That feeds anger, and I mean when we went and at last thank heavens got towards peace in Northern Ireland we went for justice within Northern Ireland as well as using security well, as well as a political settlement, but surely that is the lesson.</b>
+> <p><i>Clare Short</i></p>
 
 <br>
