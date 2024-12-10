@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A work of art is above all an adventure of the mind.</b>
-> <p><i>Eugene Ionesco</i></p>
+> <b>My very best friend died in a car accident when I was 16 years old. That was the hardest blow emotionally that I have ever had to endure. Suddenly, you realize tomorrow might not come. Now I live by the motto, 'Today is what I have.'</b>
+> <p><i>Amber Heard</i></p>
 
 <br>
