@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With so many amazing artists on one bill, we expect this concert to be incredibly powerful in its ability to raise both money and awareness for the long-term rebuilding effort we must all support.</b>
-> <p><i>Brad Delson</i></p>
+> <b>Los Angeles is a very magical place when you take the entertainment industry out of it. You have beautiful beaches and amazing mountains here. I'm a big rock climber. I head out into the mountains whenever I have free time. It's amazing.</b>
+> <p><i>Alex Pettyfer</i></p>
 
 <br>
