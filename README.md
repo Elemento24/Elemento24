@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I spend a good portion of my dinner-party conversation defending America because no matter what the political agenda, it's still a fantastic, amazing place.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>I know that my grandfather is 92 years old. And he has seen this country evolve in amazing ways. He looks at South Carolina and he says, wow, what an amazing state that we have the blessing to live within because of the evolution.</b>
+> <p><i>Tim Scott</i></p>
 
 <br>
