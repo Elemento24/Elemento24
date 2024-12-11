@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age shouldn't affect you. It's just like the size of your shoes - they don't determine how you live your life! You're either marvellous or you're boring, regardless of your age.</b>
-> <p><i>Steven Morrissey</i></p>
+> <b>If you get a diagnosis, get on a therapy, keep a good attitude and keep your sense of humor.</b>
+> <p><i>Teri Garr</i></p>
 
 <br>
