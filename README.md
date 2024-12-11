@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was a fairly good amateur musician, and I was an average professional. But the one thing I saw was that the big band business was fading.</b>
-> <p><i>Alan Greenspan</i></p>
+> <b>Man, being reasonable, must get drunk the best of life is but intoxication.</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
