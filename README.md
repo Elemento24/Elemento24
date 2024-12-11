@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every day, every birthday candle I blow out, every penny I throw over my shoulder in a wishing well, every time my daughter says, 'Let's make a wish on a star,' there's one thing I wish for: wisdom.</b>
-> <p><i>Rene Russo</i></p>
+> <b>In science the important thing is to modify and change one's ideas as science advances.</b>
+> <p><i>Herbert Spencer</i></p>
 
 <br>
