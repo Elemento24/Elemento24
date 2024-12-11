@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is a short-lived tyranny.</b>
-> <p><i>Socrates</i></p>
+> <b>Your anger is a gift.</b>
+> <p><i>Zack de la Rocha</i></p>
 
 <br>
