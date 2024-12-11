@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man, being reasonable, must get drunk the best of life is but intoxication.</b>
-> <p><i>Lord Byron</i></p>
+> <b>The waste basket is the writer's best friend.</b>
+> <p><i>Isaac Bashevis Singer</i></p>
 
 <br>
