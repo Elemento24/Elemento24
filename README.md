@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On stage, I make love to 25,000 different people, then I go home alone.</b>
-> <p><i>Janis Joplin</i></p>
+> <b>There must be something solemn, serious, and tender about any attitude which we denominate religious. If glad, it must not grin or snicker if sad, it must not scream or curse.</b>
+> <p><i>William James</i></p>
 
 <br>
