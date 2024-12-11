@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Utility is the great idol of the age, to which all powers must do service and all talents swear allegiance.</b>
-> <p><i>Friedrich Schiller</i></p>
+> <b>I was never an ambitious girl, or even a self-confident one. I never went in for beauty pageants or wore a stitch of make-up until I went to Los Angeles.</b>
+> <p><i>Pamela Anderson</i></p>
 
 <br>
