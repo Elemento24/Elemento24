@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I thought, when I have kids, that's the sort of well told, silly, and fun fairy tale that I would want to take them to. But it was an amazing experience. And I think Shrek is a real classic, a fairy tale classic.</b>
-> <p><i>Mike Myers</i></p>
+> <b>I was a fairly good amateur musician, and I was an average professional. But the one thing I saw was that the big band business was fading.</b>
+> <p><i>Alan Greenspan</i></p>
 
 <br>
