@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm glad I was born when I was. My time was the golden age of variety. If I were starting out again now, maybe things would happen for me, but it certainly would not be on a variety show with 28 musicians, 12 dancers, two major guest stars, 50 costumes a week by Bob Mackie. The networks just wouldn't spend the money today.</b>
-> <p><i>Carol Burnett</i></p>
+> <b>I had a friend whose family had dinner together. The mother would tuck you in at night and make breakfast in the morning. They even had a spare bike for a friend. It just seemed so amazing to me.</b>
+> <p><i>Moon Unit Zappa</i></p>
 
 <br>
