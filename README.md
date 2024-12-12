@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most important quality in a leader is that of being acknowledged as such. All leaders whose fitness is questioned are clearly lacking in force.</b>
-> <p><i>Andre Maurois</i></p>
+> <b>I don't really count myself as a very sophisticated businessperson. I'm a creative artist. All I know from business I've picked up along the way.</b>
+> <p><i>Mick Jagger</i></p>
 
 <br>
