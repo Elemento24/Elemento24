@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My heart has been heavy and I have deliberated within my own conscience, knowing that my decision should not come out of my initial emotion of anger toward the President for such reckless behavior, but should be based on the facts.</b>
-> <p><i>Blanche Lincoln</i></p>
+> <b>Education is the best friend. An educated person is respected everywhere. Education beats the beauty and the youth.</b>
+> <p><i>Chanakya</i></p>
 
 <br>
