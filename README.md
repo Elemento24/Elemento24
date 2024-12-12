@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Buddhism notes that it is always a mistake to think your soul can go it alone.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>People often say that 'beauty is in the eye of the beholder,' and I say that the most liberating thing about beauty is realizing that you are the beholder. This empowers us to find beauty in places where others have not dared to look, including inside ourselves.</b>
+> <p><i>Salma Hayek</i></p>
 
 <br>
