@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do seem to like to combine the dramatic emotional warmth of strings with the grooves and body business of drums and bass.</b>
-> <p><i>David Byrne</i></p>
+> <b>The atmosphere seems to change once the sun goes down and the race fans get to watch a good show.</b>
+> <p><i>Dale Earnhardt</i></p>
 
 <br>
