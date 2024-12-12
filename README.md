@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything that has happened to me has been amazing and surprising.</b>
-> <p><i>R. L. Stine</i></p>
+> <b>The love of beauty in its multiple forms is the noblest gift of the human cerebrum.</b>
+> <p><i>Alexis Carrel</i></p>
 
 <br>
