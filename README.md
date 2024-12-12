@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Noble life demands a noble architecture for noble uses of noble men. Lack of culture means what it has always meant: ignoble civilization and therefore imminent downfall.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>As long as you as an individual... can convince yourself that in order to move forward as best you can you have to be optimistic, you can be described as 'one of the faithful,' one of those people who can say, 'Well, look, something's going to happen! Let's just keep trying. Let's not give up.</b>
+> <p><i>Tom Hanks</i></p>
 
 <br>
