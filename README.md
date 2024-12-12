@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's an unseen force which lets birds know when you've just washed your car.</b>
-> <p><i>Denis Norden</i></p>
+> <b>The most important quality in a leader is that of being acknowledged as such. All leaders whose fitness is questioned are clearly lacking in force.</b>
+> <p><i>Andre Maurois</i></p>
 
 <br>
