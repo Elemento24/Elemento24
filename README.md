@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The love of beauty in its multiple forms is the noblest gift of the human cerebrum.</b>
-> <p><i>Alexis Carrel</i></p>
+> <b>Middle age is the awkward period when Father Time starts catching up with Mother Nature.</b>
+> <p><i>Harold Coffin</i></p>
 
 <br>
