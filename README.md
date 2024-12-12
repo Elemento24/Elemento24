@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not possible to live in this age if you don't have a sense of many contradictory forces.</b>
-> <p><i>Rem Koolhaas</i></p>
+> <b>We are always the same age inside.</b>
+> <p><i>Gertrude Stein</i></p>
 
 <br>
