@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I get in the car I love my wife and kids more than anything, but I'm not thinking about that side of things. I'm thinking about the car, I'm thinking about the race and I'm thinking about how to make the car faster.</b>
-> <p><i>Scott Dixon</i></p>
+> <b>I think that in itself is kind of an amazing achievement to be able to say that your full-time career is in any creative arts, let alone a show that has kept people interested for coming on four seasons and hopefully more.</b>
+> <p><i>Anna Paquin</i></p>
 
 <br>
