@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think you can work on feelings in politics, apart from anything else, political change can come very unexpectedly, sometimes overnight when you least expect it.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>I have never once regretted missing a business opportunity so that I could be with my children and grandchildren.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
