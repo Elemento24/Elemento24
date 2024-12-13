@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother and stepfather were married 43 years, so I have watched a long marriage. I feel like I had a very good role model for that. And, you know, it's just a number.</b>
-> <p><i>Jamie Lee Curtis</i></p>
+> <b>If you look over the years, the styles have changed - the clothes, the hair, the production, the approach to the songs. The icing to the cake has changed flavors. But if you really look at the cake itself, it's really the same.</b>
+> <p><i>John Oates</i></p>
 
 <br>
