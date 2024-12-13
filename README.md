@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>President Obama clearly cannot run on his record. All he's offering is more of the same. That's not good. Look at the economy. It's stagnating. And so, what they're now going to try and do is bring this campaign down to little things, distractions, distortions, smear, fear, anger, frustration.</b>
-> <p><i>Paul Ryan</i></p>
+> <b>I have to hit the gym. I have beauty appointments. I have to work toward my next job and maintaining my image, just like an athlete.</b>
+> <p><i>Linda Evangelista</i></p>
 
 <br>
