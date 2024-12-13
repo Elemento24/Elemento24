@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only through art can we emerge from ourselves and know what another person sees.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>Some people work hard in this business and become really popular, really big stars but they never receive an award from within the business. Somehow, when your colleagues and friends believe in you to the point of handing you an award it means so much more.</b>
+> <p><i>Sharon Stone</i></p>
 
 <br>
