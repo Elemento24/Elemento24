@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is the awkward period when Father Time starts catching up with Mother Nature.</b>
-> <p><i>Harold Coffin</i></p>
+> <b>Only through art can we emerge from ourselves and know what another person sees.</b>
+> <p><i>Marcel Proust</i></p>
 
 <br>
