@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is so cliche, but my beauty icon would have to be Angelina Jolie. She looks like she wears natural makeup, but she's still beautiful.</b>
-> <p><i>Tila Tequila</i></p>
+> <b>Even before he came to power in 1997, Gordon Brown promised to change the accounts to parliament from simple litanies of cash in and cash out, to a more commercial system that took notice of the public property the departments were using. This system is known as resource accounting.</b>
+> <p><i>James Buchan</i></p>
 
 <br>
