@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But the age of chivalry is gone. That of sophisters, economists, and calculators has succeeded and the glory of Europe is extinguished forever.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>It's amazing when you're playing to a crowd who barely understands English but they're singing parts of your song back to you.</b>
+> <p><i>Jason Derulo</i></p>
 
 <br>
