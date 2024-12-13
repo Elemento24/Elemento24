@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you look over the years, the styles have changed - the clothes, the hair, the production, the approach to the songs. The icing to the cake has changed flavors. But if you really look at the cake itself, it's really the same.</b>
-> <p><i>John Oates</i></p>
+> <b>I don't think you can work on feelings in politics, apart from anything else, political change can come very unexpectedly, sometimes overnight when you least expect it.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
