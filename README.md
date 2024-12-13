@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best security for civilization is the dwelling, and upon properly appointed and becoming dwellings depends, more than anything else, the improvement of mankind.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>There's nobody in the business strong enough to scare me.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
