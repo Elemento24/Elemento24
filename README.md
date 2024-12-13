@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, I was sort of a jack-of-all-trades in show business for a long time. I was a singer and a dancer and then I got a job as an actor.</b>
-> <p><i>Christopher Walken</i></p>
+> <b>This is so cliche, but my beauty icon would have to be Angelina Jolie. She looks like she wears natural makeup, but she's still beautiful.</b>
+> <p><i>Tila Tequila</i></p>
 
 <br>
