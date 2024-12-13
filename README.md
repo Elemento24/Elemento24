@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing when you're playing to a crowd who barely understands English but they're singing parts of your song back to you.</b>
-> <p><i>Jason Derulo</i></p>
+> <b>The rules of navigation never navigated a ship. The rules of architecture never built a house.</b>
+> <p><i>Thomas Reid</i></p>
 
 <br>
