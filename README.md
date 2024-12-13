@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is ready to undertake tasks that youth shirked because they would take too long.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>Well, I was sort of a jack-of-all-trades in show business for a long time. I was a singer and a dancer and then I got a job as an actor.</b>
+> <p><i>Christopher Walken</i></p>
 
 <br>
