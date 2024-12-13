@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>But the age of chivalry is gone. That of sophisters, economists, and calculators has succeeded and the glory of Europe is extinguished forever.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
