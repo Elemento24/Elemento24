@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh yeah, I mean every fighter has got be dedicated, learn how to sacrifice, know what the devotion is all about, make sure you're paying attention and studying your art.</b>
-> <p><i>Marvin Hagler</i></p>
+> <b>How many times have you been out for a beer or dinner and people are coming up with business ideas? Everybody wants to think they've got that great business idea.</b>
+> <p><i>Mark Burnett</i></p>
 
 <br>
