@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An art whose medium is language will always show a high degree of critical creativeness, for speech is itself a critique of life: it names, it characterizes, it passes judgment, in that it creates.</b>
-> <p><i>Thomas Mann</i></p>
+> <b>I got a phone call from Fearne Cotton. It was amazing! I literally couldn't believe it. It was so cool. It was the night before I was going on her show to sing on the 'Live Lounge.' She was so lovely.</b>
+> <p><i>Birdy</i></p>
 
 <br>
