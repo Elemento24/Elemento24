@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The real beauty of it - key to my life was playing key chords on a banjo. For somebody else it may be a golf club that mom and dad put in their hands or a baseball or ballet lessons. Real gift to give to me and put it in writing.</b>
-> <p><i>Vince Gill</i></p>
+> <b>Oh yeah, I mean every fighter has got be dedicated, learn how to sacrifice, know what the devotion is all about, make sure you're paying attention and studying your art.</b>
+> <p><i>Marvin Hagler</i></p>
 
 <br>
