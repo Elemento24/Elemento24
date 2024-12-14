@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have never once regretted missing a business opportunity so that I could be with my children and grandchildren.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>My biggest hero, Gregory Peck, was my birthday present on April 14, 1973. I just sat and stared at him.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
