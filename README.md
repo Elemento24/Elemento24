@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How many times have you been out for a beer or dinner and people are coming up with business ideas? Everybody wants to think they've got that great business idea.</b>
-> <p><i>Mark Burnett</i></p>
+> <b>Architecture tends to consume everything else, it has become one's entire life.</b>
+> <p><i>Arne Jacobsen</i></p>
 
 <br>
