@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Married people from my generation are like an endangered species!</b>
-> <p><i>Patrice Leconte</i></p>
+> <b>But men are men the best sometimes forget.</b>
+> <p><i>William Shakespeare</i></p>
 
 <br>
