@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I started the business, I hardly went home. I became very driven about work and about my career.</b>
-> <p><i>Calvin Klein</i></p>
+> <b>Hiking is the best workout!... You can hike for three hours and not even realize you're working out. And, hiking alone lets me have some time to myself.</b>
+> <p><i>Jamie Luner</i></p>
 
 <br>
