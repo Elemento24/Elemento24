@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Beauty' is a currency system like the gold standard. Like any economy, it is determined by politics, and in the modern age in the West is is the last, best belief system that keeps male dominance intact.</b>
-> <p><i>Naomi Wolf</i></p>
+> <b>If you die you're completely happy and your soul somewhere lives on. I'm not afraid of dying. Total peace after death, becoming someone else is the best hope I've got.</b>
+> <p><i>Kurt Cobain</i></p>
 
 <br>
