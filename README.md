@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you die you're completely happy and your soul somewhere lives on. I'm not afraid of dying. Total peace after death, becoming someone else is the best hope I've got.</b>
-> <p><i>Kurt Cobain</i></p>
+> <b>The real beauty of it - key to my life was playing key chords on a banjo. For somebody else it may be a golf club that mom and dad put in their hands or a baseball or ballet lessons. Real gift to give to me and put it in writing.</b>
+> <p><i>Vince Gill</i></p>
 
 <br>
