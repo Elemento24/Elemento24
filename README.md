@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hiking is the best workout!... You can hike for three hours and not even realize you're working out. And, hiking alone lets me have some time to myself.</b>
-> <p><i>Jamie Luner</i></p>
+> <b>An art whose medium is language will always show a high degree of critical creativeness, for speech is itself a critique of life: it names, it characterizes, it passes judgment, in that it creates.</b>
+> <p><i>Thomas Mann</i></p>
 
 <br>
