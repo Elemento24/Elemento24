@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a kind of beauty in imperfection.</b>
-> <p><i>Conrad Hall</i></p>
+> <b>When I started the business, I hardly went home. I became very driven about work and about my career.</b>
+> <p><i>Calvin Klein</i></p>
 
 <br>
