@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's getting better generally, daily, especially in TV, for women in acting and age and looks count less. As more women come into the business. Change of any sort takes a long time to happen.</b>
-> <p><i>Julie Walters</i></p>
+> <b>I was hit by a car once on my bike, but I still rode home.</b>
+> <p><i>Amy Winehouse</i></p>
 
 <br>
