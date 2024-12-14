@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture tends to consume everything else, it has become one's entire life.</b>
-> <p><i>Arne Jacobsen</i></p>
+> <b>Our generation has an incredible amount of realism, yet at the same time it loves to complain and not really change. Because, if it does change, then it won't have anything to complain about.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
