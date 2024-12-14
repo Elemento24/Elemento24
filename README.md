@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I got a phone call from Fearne Cotton. It was amazing! I literally couldn't believe it. It was so cool. It was the night before I was going on her show to sing on the 'Live Lounge.' She was so lovely.</b>
-> <p><i>Birdy</i></p>
+> <b>'Beauty' is a currency system like the gold standard. Like any economy, it is determined by politics, and in the modern age in the West is is the last, best belief system that keeps male dominance intact.</b>
+> <p><i>Naomi Wolf</i></p>
 
 <br>
