@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My biggest hero, Gregory Peck, was my birthday present on April 14, 1973. I just sat and stared at him.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>A fanatic is one who can't change his mind and won't change the subject.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
