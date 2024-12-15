@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always amazed about how much I could finally squeeze into a thirty second commercial.</b>
-> <p><i>Ridley Scott</i></p>
+> <b>The way to get things done is not to mind who gets the credit for doing them.</b>
+> <p><i>Benjamin Jowett</i></p>
 
 <br>
