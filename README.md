@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Then stirs the feeling infinite, so felt In solitude, where we are least alone.</b>
-> <p><i>Lord Byron</i></p>
+> <b>In our so-called democracy we are accustomed to give the majority what they want rather than educate them to understand what is best for them.</b>
+> <p><i>Carter G. Woodson</i></p>
 
 <br>
