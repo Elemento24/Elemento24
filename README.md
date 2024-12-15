@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look at growth, look at how much time people spend on the Net and look at the variety of things that they are doing. It's all really good, so I am actually encouraged by the fundamentals that underlie usage growth on the Net.</b>
-> <p><i>Meg Whitman</i></p>
+> <b>It's an amazing luxury to say I'm 31 years old and I'm gonna take a year off. That's pretty amazing.</b>
+> <p><i>Sarah McLachlan</i></p>
 
 <br>
