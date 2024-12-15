@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We'll try to include Iraqi officers in our staffs. We will do everything we can to empower Iraqi security forces to stand up on their own and operate where they can alone.</b>
-> <p><i>John Abizaid</i></p>
+> <b>Pictures deface walls more often than they decorate them.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
