@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are no rules of architecture for a castle in the clouds.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>Work hard, be kind, and amazing things will happen.</b>
+> <p><i>Conan O'Brien</i></p>
 
 <br>
