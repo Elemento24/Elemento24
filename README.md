@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did a lot of gasoline commercials - Hess, Texaco. I was part of the family in the car, the little brat in the back.</b>
-> <p><i>Ricky Schroder</i></p>
+> <b>I was always amazed about how much I could finally squeeze into a thirty second commercial.</b>
+> <p><i>Ridley Scott</i></p>
 
 <br>
