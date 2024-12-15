@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In our so-called democracy we are accustomed to give the majority what they want rather than educate them to understand what is best for them.</b>
-> <p><i>Carter G. Woodson</i></p>
+> <b>Rather than saying, 'My checking account is a wreck,' change it to 'I will learn how to track my spending and balance my checkbook.'</b>
+> <p><i>Suze Orman</i></p>
 
 <br>
