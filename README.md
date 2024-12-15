@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a very small group of elite actresses who are my age, who people want to work with. It's not easy to get a good job with good actors.</b>
-> <p><i>Amanda Peet</i></p>
+> <b>Youngsters of the age of two and three are endowed with extraordinary strength. They can lift a dog twice their own weight and dump him into the bathtub.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
