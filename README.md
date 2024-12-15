@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pictures deface walls more often than they decorate them.</b>
-> <p><i>William Wordsworth</i></p>
+> <b>At twenty years of age the will reigns at thirty, the wit and at forty, the judgment.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
