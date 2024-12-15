@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's an amazing luxury to say I'm 31 years old and I'm gonna take a year off. That's pretty amazing.</b>
-> <p><i>Sarah McLachlan</i></p>
+> <b>We'll try to include Iraqi officers in our staffs. We will do everything we can to empower Iraqi security forces to stand up on their own and operate where they can alone.</b>
+> <p><i>John Abizaid</i></p>
 
 <br>
