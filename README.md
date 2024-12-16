@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a desire to create more film, more beauty, more art, more love, but I don't feel desperate. It's not about creating or building a career.</b>
-> <p><i>Lisa Bonet</i></p>
+> <b>People who have car collections - I never understood that. I always thought that was unnecessary. It's not beautiful, it's not creative. It's just showing how much money you've got.</b>
+> <p><i>Daniel Radcliffe</i></p>
 
 <br>
