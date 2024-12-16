@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We were alone. Where, I could not say, hardly imagine. All was black, and such a dense black that, after some minutes, my eyes had not been able to discern even the faintest glimmer.</b>
-> <p><i>Jules Verne</i></p>
+> <b>You just can't get too focused on worrying about what's going to happen in the next quarter. You have to worry about where the business is headed long-term.</b>
+> <p><i>James Sinegal</i></p>
 
 <br>
