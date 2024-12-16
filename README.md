@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But no nation can base its survival and development on luck and prayers alone while its leadership fritters away every available opportunity for success and concrete achievement.</b>
-> <p><i>Ibrahim Babangida</i></p>
+> <b>I would say, 'I'm alone, but I'm not lonely.' But I was just kidding myself.</b>
+> <p><i>Bruce Willis</i></p>
 
 <br>
