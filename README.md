@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's necessary to start most work alone. But I'm tickled to death when I can pull somebody in or join someone, whether it's borrowing poetry or traveling with an associate.</b>
-> <p><i>Jenny Holzer</i></p>
+> <b>Education doesn't change life much. It just lifts trouble to a higher plane of regard.</b>
+> <p><i>Robert Frost</i></p>
 
 <br>
