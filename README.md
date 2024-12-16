@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would say, 'I'm alone, but I'm not lonely.' But I was just kidding myself.</b>
-> <p><i>Bruce Willis</i></p>
+> <b>It's necessary to start most work alone. But I'm tickled to death when I can pull somebody in or join someone, whether it's borrowing poetry or traveling with an associate.</b>
+> <p><i>Jenny Holzer</i></p>
 
 <br>
