@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education doesn't change life much. It just lifts trouble to a higher plane of regard.</b>
-> <p><i>Robert Frost</i></p>
+> <b>Reason is not automatic. Those who deny it cannot be conquered by it. Do not count on them. Leave them alone.</b>
+> <p><i>Ayn Rand</i></p>
 
 <br>
