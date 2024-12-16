@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like many women my age, I am 28 years old.</b>
-> <p><i>Mary Schmich</i></p>
+> <b>Anger is a killing thing: it kills the man who angers, for each rage leaves him less than he had been before - it takes something from him.</b>
+> <p><i>Louis L'Amour</i></p>
 
 <br>
