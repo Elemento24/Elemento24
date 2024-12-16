@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is a killing thing: it kills the man who angers, for each rage leaves him less than he had been before - it takes something from him.</b>
-> <p><i>Louis L'Amour</i></p>
+> <b>I worked hard in gymnastics since the time I was six years old until I retired at 23 years of age.</b>
+> <p><i>Nadia Comaneci</i></p>
 
 <br>
