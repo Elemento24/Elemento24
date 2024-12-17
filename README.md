@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you say, 'I'm going to cut this song because I know the teenagers are going to love it,' well, then you're going to alienate everybody else. When I cut my record, I'm just going to cut the things that I like, and whoever likes it, likes it. That's too much work to try to figure out the demographic. That's too much like a business.</b>
-> <p><i>Jason Aldean</i></p>
+> <b>The world in general doesn't know what to make of originality it is startled out of its comfortable habits of thought, and its first reaction is one of anger.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
