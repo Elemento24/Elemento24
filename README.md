@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People who have tried it, tell me that a clear conscience makes you very happy and contented but a full stomach does the business quite as well, and is cheaper, and more easily obtained.</b>
-> <p><i>Jerome K. Jerome</i></p>
+> <b>I sailboat raced, I love to go out on my motorcycle alone, but I also love my family dearly. I love that aspect of my life as well.</b>
+> <p><i>Bob Seger</i></p>
 
 <br>
