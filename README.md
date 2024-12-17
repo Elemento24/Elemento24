@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The unconditional love for you child, it's truly amazing.</b>
-> <p><i>Jourdan Dunn</i></p>
+> <b>My character had been in the chair for seven years. He had gone through his anger, depression, drug and alcohol abuse. He had gone through everything, now he was up, he was happy, he was filled with his dream.</b>
+> <p><i>Gregory Hines</i></p>
 
 <br>
