@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One's philosophy is not best expressed in words it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>People who have tried it, tell me that a clear conscience makes you very happy and contented but a full stomach does the business quite as well, and is cheaper, and more easily obtained.</b>
+> <p><i>Jerome K. Jerome</i></p>
 
 <br>
