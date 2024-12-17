@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Work and struggle and never accept an evil that you can change.</b>
-> <p><i>Andre Gide</i></p>
+> <b>Leave the President's family business to him. You will have plenty to do without trying to manage the First Family. They are likely to do fine without your help.</b>
+> <p><i>Donald Rumsfeld</i></p>
 
 <br>
