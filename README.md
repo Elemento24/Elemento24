@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not afraid of aging.</b>
-> <p><i>Shelley Duvall</i></p>
+> <b>Work and struggle and never accept an evil that you can change.</b>
+> <p><i>Andre Gide</i></p>
 
 <br>
