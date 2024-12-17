@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger makes dull men witty, but it keeps them poor.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>Because most people are not sufficiently employed in themselves, they run about loose, hungering for employment, and satisfy themselves in various supererogatory occupations. The easiest of these occupations, which have all to do with making things already made, is the making of people: it is called the art of friendship.</b>
+> <p><i>Laura Riding</i></p>
 
 <br>
