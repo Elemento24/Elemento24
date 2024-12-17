@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Leave the President's family business to him. You will have plenty to do without trying to manage the First Family. They are likely to do fine without your help.</b>
-> <p><i>Donald Rumsfeld</i></p>
+> <b>I can't understand why the Democratic parties seem so hostile to economic growth and business.</b>
+> <p><i>Jack Kemp</i></p>
 
 <br>
