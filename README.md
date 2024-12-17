@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been ambitious since I was nine years old and that was never going to change.</b>
-> <p><i>Katy Perry</i></p>
+> <b>Working with amazing people, you continue to learn and develop yourself, as an actor and as a person.</b>
+> <p><i>Josh Hutcherson</i></p>
 
 <br>
