@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I sailboat raced, I love to go out on my motorcycle alone, but I also love my family dearly. I love that aspect of my life as well.</b>
-> <p><i>Bob Seger</i></p>
+> <b>But Jesus changes your attitude towards yourself and towards other people.</b>
+> <p><i>Cliff Richard</i></p>
 
 <br>
