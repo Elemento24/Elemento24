@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is proof of a base and low mind for one to wish to think with the masses or majority, merely because the majority is the majority. Truth does not change because it is, or is not, believed by a majority of the people.</b>
-> <p><i>Giordano Bruno</i></p>
+> <b>The unconditional love for you child, it's truly amazing.</b>
+> <p><i>Jourdan Dunn</i></p>
 
 <br>
