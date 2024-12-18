@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm lucky that most of the time I'm on location in amazing places. Most of the time, I don't need holidays, I just stop working.</b>
-> <p><i>Stephanie Beacham</i></p>
+> <b>He was afflicted by the thought that where Beauty was, nothing ever ran quite straight, which no doubt, was why so many people looked on it as immoral.</b>
+> <p><i>John Galsworthy</i></p>
 
 <br>
