@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Epic poetry exhibits life in some great symbolic attitude. It cannot strictly be said to symbolize life itself, but always some manner of life.</b>
-> <p><i>Lascelles Abercrombie</i></p>
+> <b>In a decaying society, art, if it is truthful, must also reflect decay. And unless it wants to break faith with its social function, art must show the world as changeable. And help to change it.</b>
+> <p><i>Ernst Fischer</i></p>
 
 <br>
