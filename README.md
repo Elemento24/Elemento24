@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He was afflicted by the thought that where Beauty was, nothing ever ran quite straight, which no doubt, was why so many people looked on it as immoral.</b>
-> <p><i>John Galsworthy</i></p>
+> <b>And I'm not apolitical - I'm very specific in my politics. But a lot of the time it's nobody's business unless you're over at my house having dinner.</b>
+> <p><i>Tom Hanks</i></p>
 
 <br>
