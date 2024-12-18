@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I rate enthusiasm even above professional skill.</b>
-> <p><i>Edward Appleton</i></p>
+> <b>Know then this truth, enough for man to know virtue alone is happiness below.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
