@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Modern art is what happens when painters stop looking at girls and persuade themselves that they have a better idea.</b>
-> <p><i>John Ciardi</i></p>
+> <b>Epic poetry exhibits life in some great symbolic attitude. It cannot strictly be said to symbolize life itself, but always some manner of life.</b>
+> <p><i>Lascelles Abercrombie</i></p>
 
 <br>
