@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The stars shall fade away, the sun himself Grow dim with age, and nature sink in years, But thou shalt flourish in immortal youth, Unhurt amidst the wars of elements, The wrecks of matter, and the crush of worlds.</b>
-> <p><i>Joseph Addison</i></p>
+> <b>What an artist is trying to do for people is bring them closer to something, because of course art is about sharing. You wouldn't be an artist unless you wanted to share an experience, a thought.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
