@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The true beauty of music is that it connects people. It carries a message, and we, the musicians, are the messengers.</b>
-> <p><i>Roy Ayers</i></p>
+> <b>Endurance is nobler than strength, and patience than beauty.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
