@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is only with burning anger that we can speak of this attack by counter-revolutionary reactionary elements against the capital of our country, against our people's democratic order and the power of the working class.</b>
-> <p><i>Janos Kadar</i></p>
+> <b>Set up another case bartender! The best thing for a case of nerves is a case of Scotch.</b>
+> <p><i>W. C. Fields</i></p>
 
 <br>
