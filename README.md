@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Al Gore, the former vice-president of the United States, lives in a mansion that uses more electricity than the average family's bungalow! David Suzuki rides on a bus that uses more fuel than a Smart car to get across Canada! Oh my God! And this is just the tip of the vanishing iceberg!</b>
-> <p><i>Linwood Barclay</i></p>
+> <b>The true beauty of music is that it connects people. It carries a message, and we, the musicians, are the messengers.</b>
+> <p><i>Roy Ayers</i></p>
 
 <br>
