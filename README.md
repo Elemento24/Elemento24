@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you are going to break a Law of Art, make the crime interesting.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>Modern art is what happens when painters stop looking at girls and persuade themselves that they have a better idea.</b>
+> <p><i>John Ciardi</i></p>
 
 <br>
