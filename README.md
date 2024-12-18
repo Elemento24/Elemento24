@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My best birth control now is just to leave the lights on.</b>
-> <p><i>Joan Rivers</i></p>
+> <b>Dear, never forget one little point. It's my business. You just work here.</b>
+> <p><i>Elizabeth Arden</i></p>
 
 <br>
