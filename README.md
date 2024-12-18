@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Endurance is nobler than strength, and patience than beauty.</b>
-> <p><i>John Ruskin</i></p>
+> <b>The real sadness of fifty is not that you change so much but that you change so little.</b>
+> <p><i>Max Lerner</i></p>
 
 <br>
