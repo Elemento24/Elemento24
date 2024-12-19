@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I'm not apolitical - I'm very specific in my politics. But a lot of the time it's nobody's business unless you're over at my house having dinner.</b>
-> <p><i>Tom Hanks</i></p>
+> <b>I don't know much about auctions. I sometimes go to previews and see art sardined into ugly rooms. I've gawked at the gaudy prices, and gaped at well-clad crowds of happy white people conspicuously spending hundreds of millions of dollars.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
