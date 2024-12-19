@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have found the best way to give advice to your children is to find out what they want and then advise them to do it.</b>
-> <p><i>Harry S. Truman</i></p>
+> <b>Sooner or later, those who win are those who think they can.</b>
+> <p><i>Paul Tournier</i></p>
 
 <br>
