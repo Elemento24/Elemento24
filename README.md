@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dad was working abroad, in Iraq, and he was a doctor. We used to go and visit him, in Baghdad, off and on. For the first ten years of my life, we used to go backwards and forwards to Baghdad, so that was quite amazing. I spent a lot of time traveling around the Middle East.</b>
-> <p><i>Andy Serkis</i></p>
+> <b>We have the best government that money can buy.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
