@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even in decline, a virtuous man increases the beauty of his behavior. A burning stick, though turned to the ground, has its flame drawn upwards.</b>
-> <p><i>Saskya Pandita</i></p>
+> <b>Music should probably provide answers in terms of lyrical content, and giving people a sense of togetherness and oneness, as opposed to being alone in their thoughts and dilemmas or regrets or happiness or whatever.</b>
+> <p><i>Peabo Bryson</i></p>
 
 <br>
