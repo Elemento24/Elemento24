@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is when the liver spots show through your gloves.</b>
-> <p><i>Phyllis Diller</i></p>
+> <b>Swearing is industry language. For as long as we're alive it's not going to change. You've got to be boisterous to get results.</b>
+> <p><i>Gordon Ramsay</i></p>
 
 <br>
