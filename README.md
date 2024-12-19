@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Excuses change nothing, but make everyone feel better.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>It was amazing that a play that seems dated in this world... A man whose best friend is a six-foot white rabbit... But it caught on, especially with young people - they surprised me most of all.</b>
+> <p><i>James Stewart</i></p>
 
 <br>
