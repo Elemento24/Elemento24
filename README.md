@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Does it follow that the house has nothing in common with art and is architecture not to be included in the arts? Only a very small part of architecture belongs to art: the tomb and the monument. Everything else that fulfils a function is to be excluded from the domain of art.</b>
-> <p><i>Adolf Loos</i></p>
+> <b>Even in decline, a virtuous man increases the beauty of his behavior. A burning stick, though turned to the ground, has its flame drawn upwards.</b>
+> <p><i>Saskya Pandita</i></p>
 
 <br>
