@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's nice because success has allowed me to have a blast on stage, to be in the studio with amazing people, but I find it all a bit bizarre.</b>
-> <p><i>David Guetta</i></p>
+> <b>When one by one our ties are torn, and friend from friend is snatched forlorn when man is left alone to mourn, oh! then how sweet it is to die!</b>
+> <p><i>Anna Letitia Barbauld</i></p>
 
 <br>
