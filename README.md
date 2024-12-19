@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music should probably provide answers in terms of lyrical content, and giving people a sense of togetherness and oneness, as opposed to being alone in their thoughts and dilemmas or regrets or happiness or whatever.</b>
-> <p><i>Peabo Bryson</i></p>
+> <b>I have found the best way to give advice to your children is to find out what they want and then advise them to do it.</b>
+> <p><i>Harry S. Truman</i></p>
 
 <br>
