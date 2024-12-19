@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is in the eye of the beholder.</b>
-> <p><i>Oliver Platt</i></p>
+> <b>Art requires neither complaisance nor politeness nothing but faith, faith and freedom.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
