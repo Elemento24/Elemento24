@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was amazing that a play that seems dated in this world... A man whose best friend is a six-foot white rabbit... But it caught on, especially with young people - they surprised me most of all.</b>
-> <p><i>James Stewart</i></p>
+> <b>It's nice because success has allowed me to have a blast on stage, to be in the studio with amazing people, but I find it all a bit bizarre.</b>
+> <p><i>David Guetta</i></p>
 
 <br>
