@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Swearing is industry language. For as long as we're alive it's not going to change. You've got to be boisterous to get results.</b>
-> <p><i>Gordon Ramsay</i></p>
+> <b>My objection to Liberalism is this that it is the introduction into the practical business of life of the highest kind namely, politics of philosophical ideas instead of political principles.</b>
+> <p><i>Benjamin Disraeli</i></p>
 
 <br>
