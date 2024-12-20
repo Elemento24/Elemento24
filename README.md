@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every bit of me is devoted to love and art. And I aspire to try to be a teacher to my young fans who feel just like I felt when I was younger. I just felt like a freak. I guess what I'm trying to say is I'm trying to liberate them, I want to free them of their fears and make them feel that they can make their own space in the world.</b>
-> <p><i>Lady Gaga</i></p>
+> <b>Only when inspired to go beyond consciousness by some extraordinary insight does beauty manifest unexpectedly.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
