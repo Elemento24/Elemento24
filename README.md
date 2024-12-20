@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had some movies that have been ridiculed, but that's OK with me. I don't feel that really defines me. Should I change who I am to be popular?</b>
-> <p><i>Kevin Costner</i></p>
+> <b>I was always concerned with writing to my age at a particular moment. That was the way I would keep faith with the audience that supported me as I went along.</b>
+> <p><i>Bruce Springsteen</i></p>
 
 <br>
