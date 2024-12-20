@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was planning to go into architecture. But when I arrived, architecture was filled up. Acting was right next to it, so I signed up for acting instead.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>Thanks to my mother, not a single cardboard box has found its way back into society. We receive gifts in boxes from stores that went out of business twenty years ago.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
