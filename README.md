@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love insects. They are amazing.</b>
-> <p><i>Andrea Arnold</i></p>
+> <b>The Metropolitan Museum of Art is unsurpassed at presenting more than 50 centuries of work. I go there constantly, seeing things over and over, better than I've ever seen them before.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
