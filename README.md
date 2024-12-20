@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Light and funny has a more compelling quality when you're younger. But I haven't abandoned the genre: I love falling down I love Lucille Ball. It's just that a lot of those stories revolve around problems that I can't convincingly portray at this age.</b>
-> <p><i>Julia Roberts</i></p>
+> <b>My age and health will never allow me to realize the dream of art I've been pursuing all my life.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
