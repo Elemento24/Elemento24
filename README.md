@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always concerned with writing to my age at a particular moment. That was the way I would keep faith with the audience that supported me as I went along.</b>
-> <p><i>Bruce Springsteen</i></p>
+> <b>Light and funny has a more compelling quality when you're younger. But I haven't abandoned the genre: I love falling down I love Lucille Ball. It's just that a lot of those stories revolve around problems that I can't convincingly portray at this age.</b>
+> <p><i>Julia Roberts</i></p>
 
 <br>
