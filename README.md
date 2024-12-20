@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My stepdad provided me with an amazing childhood. I played outside like a normal kid, I rode my bike, I walked to school, but the happiest times were when I was acting.</b>
-> <p><i>Demi Lovato</i></p>
+> <b>I love insects. They are amazing.</b>
+> <p><i>Andrea Arnold</i></p>
 
 <br>
