@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art attracts us only by what it reveals of our most secret self.</b>
-> <p><i>Alfred North Whitehead</i></p>
+> <b>So much of 'Jaws' was amazing because the mind filled in what was missing.</b>
+> <p><i>Bill Sienkiewicz</i></p>
 
 <br>
