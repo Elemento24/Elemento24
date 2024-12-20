@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An educated person is one who has learned that information almost always turns out to be at best incomplete and very often false, misleading, fictitious, mendacious - just dead wrong.</b>
-> <p><i>Russell Baker</i></p>
+> <b>I've had some movies that have been ridiculed, but that's OK with me. I don't feel that really defines me. Should I change who I am to be popular?</b>
+> <p><i>Kevin Costner</i></p>
 
 <br>
