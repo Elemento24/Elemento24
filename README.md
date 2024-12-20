@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Thanks to my mother, not a single cardboard box has found its way back into society. We receive gifts in boxes from stores that went out of business twenty years ago.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>When I was a kid I got busted for throwing a rock through a car window and egging a house on halloween.</b>
+> <p><i>Gavin DeGraw</i></p>
 
 <br>
