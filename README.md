@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't look in the mirror and look at fake things. I just can't. I'd rather age.</b>
-> <p><i>Heidi Klum</i></p>
+> <b>The struggle alone pleases us, not the victory.</b>
+> <p><i>Blaise Pascal</i></p>
 
 <br>
