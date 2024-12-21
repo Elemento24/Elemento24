@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Americans are the only people in the world known to me whose status anxiety prompts them to advertise their college and university affiliations in the rear window of their automobiles.</b>
-> <p><i>Paul Fussell</i></p>
+> <b>So, we just kind of created our own thing and that's part of the beauty of Athens: is that it's so off the map and there's no way you could ever be the East Village or an L.A. scene or a San Francisco scene, that it just became its own thing.</b>
+> <p><i>Michael Stipe</i></p>
 
 <br>
