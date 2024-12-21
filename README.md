@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you read back in the Bible, the letter of the apostle Paul to the church of Thessalonia, he said that in the latter days before the end of the age that the Earth would be caught up in what he called the birth pangs of a new order.</b>
-> <p><i>Pat Robertson</i></p>
+> <b>Americans are the only people in the world known to me whose status anxiety prompts them to advertise their college and university affiliations in the rear window of their automobiles.</b>
+> <p><i>Paul Fussell</i></p>
 
 <br>
