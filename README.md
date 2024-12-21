@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Energy and environmental regulation, transportation, and broadband policy all benefit when legislators have a basic grounding in the technical concepts behind business models, products, and innovation.</b>
-> <p><i>John Sununu</i></p>
+> <b>Beauty set up distance between other people and me. It warped their behavior.</b>
+> <p><i>Candice Bergen</i></p>
 
 <br>
