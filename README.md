@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When anything goes digital, let alone something as immaterial as a book, there is a tendency to see it as just in the air to be taken, and to lose the sense that somebody once made it.</b>
-> <p><i>Graham Swift</i></p>
+> <b>Thinking well to be wise: planning well, wiser: doing well wisest and best of all.</b>
+> <p><i>Malcolm Forbes</i></p>
 
 <br>
