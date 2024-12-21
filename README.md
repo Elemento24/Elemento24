@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes we look for those thunderous things to happen in our life for our lives to change or go in the other direction. We seek the miracle. We seek the parting of the seas, the moving of the mountains. But no, it's a quiet thing. At least for me it was.</b>
-> <p><i>Ben Vereen</i></p>
+> <b>An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage.</b>
+> <p><i>Jack Welch</i></p>
 
 <br>
