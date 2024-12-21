@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who writes knows that ultimately the majority of your time is spent alone in a room with a piano or a guitar, no matter what the project is.</b>
-> <p><i>Trey Anastasio</i></p>
+> <b>Freedom in art, freedom in society, this is the double goal towards which all consistent and logical minds must strive.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
