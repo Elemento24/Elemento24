@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage.</b>
-> <p><i>Jack Welch</i></p>
+> <b>I'm doing it because I choose it. And if it's not working, I can make a change.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
