@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty set up distance between other people and me. It warped their behavior.</b>
-> <p><i>Candice Bergen</i></p>
+> <b>Do not trust people. They are capable of greatness.</b>
+> <p><i>Stanislaw Lem</i></p>
 
 <br>
