@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The 150th anniversary of Penn State will highlight what is important and good about this distinguished institution and the fine people and research that it produces.</b>
-> <p><i>Don Sherwood</i></p>
+> <b>Anger may be kindled in the noblest breasts: but in these slow droppings of an unforgiving temper never takes the shape of consistency of enduring hatred.</b>
+> <p><i>M. Kathleen Casey</i></p>
 
 <br>
