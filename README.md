@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A million words were going through my head and honestly I didn't say one of them. I wanted to let it sit, simmer, you know I wanted to soak it all in - the moment was amazing.</b>
-> <p><i>Stefano Langone</i></p>
+> <b>Art raises its head where creeds relax.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
