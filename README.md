@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm doing it because I choose it. And if it's not working, I can make a change.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>The 150th anniversary of Penn State will highlight what is important and good about this distinguished institution and the fine people and research that it produces.</b>
+> <p><i>Don Sherwood</i></p>
 
 <br>
