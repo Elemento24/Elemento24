@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your performance depends on your people. Select the best, train them and back them. When errors occur, give sharper guidance. If errors persist or if the fit feels wrong, help them move on. The country cannot afford amateur hour in the White House.</b>
-> <p><i>Donald Rumsfeld</i></p>
+> <b>I am of a healthy long lived race, and our minds improve with age.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
