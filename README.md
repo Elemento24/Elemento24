@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is error alone which needs the support of government. Truth can stand by itself.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>It was amazing and inspiring to see so many people come together through music to aid the great state of Vermont.</b>
+> <p><i>Trey Anastasio</i></p>
 
 <br>
