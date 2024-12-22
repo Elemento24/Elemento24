@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The 1st period is won by the best technician. The 2nd period is won by the kid in the best shape. The 3rd period is won by the kid with the biggest heart.</b>
-> <p><i>Dan Gable</i></p>
+> <b>It is error alone which needs the support of government. Truth can stand by itself.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
