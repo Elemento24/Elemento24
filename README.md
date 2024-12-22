@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What a man does for pay is of little significance. What he is, as a sensitive instrument responsive to the world's beauty, is everything!</b>
-> <p><i>H. P. Lovecraft</i></p>
+> <b>The game of history is usually played by the best and the worst over the heads of the majority in the middle.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
