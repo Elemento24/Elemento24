@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Thinking well to be wise: planning well, wiser: doing well wisest and best of all.</b>
-> <p><i>Malcolm Forbes</i></p>
+> <b>The 1st period is won by the best technician. The 2nd period is won by the kid in the best shape. The 3rd period is won by the kid with the biggest heart.</b>
+> <p><i>Dan Gable</i></p>
 
 <br>
