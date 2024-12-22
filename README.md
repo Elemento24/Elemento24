@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best place to find God is in a garden. You can dig for him there.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>Quit while you're ahead. All the best gamblers do.</b>
+> <p><i>Baltasar Gracian</i></p>
 
 <br>
