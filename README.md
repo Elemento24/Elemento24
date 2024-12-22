@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's when it really came together for me that I was in a Bond film, to have my own spy car!</b>
-> <p><i>Rick Yune</i></p>
+> <b>Man cannot live by bread alone he must have peanut butter.</b>
+> <p><i>James A. Garfield</i></p>
 
 <br>
