@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did that Dior Couture 60th anniversary show in July. It took so long to get ready, I think I would have rather been watching.</b>
-> <p><i>Linda Evangelista</i></p>
+> <b>Seems to me that this business, for actors anyway, is not so much about whether or not you do good work. It's about whether or not you get the chance to do good work.</b>
+> <p><i>Hugh Laurie</i></p>
 
 <br>
