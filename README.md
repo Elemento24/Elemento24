@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Forbidden pleasures alone are loved immoderately when lawful, they do not excite desire.</b>
-> <p><i>Quintilian</i></p>
+> <b>Search for beauty without features, something deeper than any signs.</b>
+> <p><i>Francesca da Rimini</i></p>
 
 <br>
