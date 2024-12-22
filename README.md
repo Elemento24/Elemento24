@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If children are not introduced to music at an early age, I believe something fundamental is actually being taken from them.</b>
-> <p><i>Luciano Pavarotti</i></p>
+> <b>That's when it really came together for me that I was in a Bond film, to have my own spy car!</b>
+> <p><i>Rick Yune</i></p>
 
 <br>
