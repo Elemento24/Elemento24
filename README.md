@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Seems to me that this business, for actors anyway, is not so much about whether or not you do good work. It's about whether or not you get the chance to do good work.</b>
-> <p><i>Hugh Laurie</i></p>
+> <b>What a man does for pay is of little significance. What he is, as a sensitive instrument responsive to the world's beauty, is everything!</b>
+> <p><i>H. P. Lovecraft</i></p>
 
 <br>
