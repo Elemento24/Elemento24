@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A house is a machine for living in.</b>
-> <p><i>Le Corbusier</i></p>
+> <b>If children are not introduced to music at an early age, I believe something fundamental is actually being taken from them.</b>
+> <p><i>Luciano Pavarotti</i></p>
 
 <br>
