@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been given an amazing opportunity and I could not be more grateful. But I also know that all this will eventually die off. It's not real. It will go away and then you'll go away and then, I don't know, I'll be left sitting in some English hotel room.</b>
-> <p><i>Josh Brolin</i></p>
+> <b>The world is a crazy, beautiful, ugly complicated place, and it keeps moving on from crisis to strangeness to beauty to weirdness to tragedy. The caravan keeps moving on, and the job of the longform writer or filmmaker or radio broadcaster is to stop - is to pause - and when the caravan goes away, that's when this stuff comes.</b>
+> <p><i>David Remnick</i></p>
 
 <br>
