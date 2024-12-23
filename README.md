@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bitterness is like cancer. It eats upon the host. But anger is like fire. It burns it all clean.</b>
-> <p><i>Maya Angelou</i></p>
+> <b>Those who love deeply never grow old they may die of old age, but they die young.</b>
+> <p><i>Dorothy Canfield Fisher</i></p>
 
 <br>
