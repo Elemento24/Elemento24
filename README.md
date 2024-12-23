@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have an obligation and a responsibility to be investing in our students and our schools. We must make sure that people who have the grades, the desire and the will, but not the money, can still get the best education possible.</b>
-> <p><i>Barack Obama</i></p>
+> <b>Any form of art is a form of power it has impact, it can affect change - it can not only move us, it makes us move.</b>
+> <p><i>Ossie Davis</i></p>
 
 <br>
