@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first car was a motorcycle.</b>
-> <p><i>Adam Carolla</i></p>
+> <b>People naturally change a lot during their 20s, so my songs reflect that progression.</b>
+> <p><i>Miranda Lambert</i></p>
 
 <br>
