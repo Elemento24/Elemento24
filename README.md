@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude that nature is chaotic and that the artist puts order into it is a very absurd point of view, I think. All that we can hope for is to put some order into ourselves.</b>
-> <p><i>Willem de Kooning</i></p>
+> <b>We have an obligation and a responsibility to be investing in our students and our schools. We must make sure that people who have the grades, the desire and the will, but not the money, can still get the best education possible.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
