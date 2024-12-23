@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pebble Beach. It is tough and the lay out is amazing.</b>
-> <p><i>Natalie Gulbis</i></p>
+> <b>My first car was a motorcycle.</b>
+> <p><i>Adam Carolla</i></p>
 
 <br>
