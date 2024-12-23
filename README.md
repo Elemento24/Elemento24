@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am more a friend of art than a producer of painting.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Live your life and forget your age.</b>
+> <p><i>Jean Paul</i></p>
 
 <br>
