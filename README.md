@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Five enemies of peace inhabit with us - avarice, ambition, envy, anger, and pride if these were to be banished, we should infallibly enjoy perpetual peace.</b>
-> <p><i>Petrarch</i></p>
+> <b>Photograph: a picture painted by the sun without instruction in art.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
