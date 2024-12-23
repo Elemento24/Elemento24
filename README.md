@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Live your life and forget your age.</b>
-> <p><i>Jean Paul</i></p>
+> <b>Rashness belongs to youth prudence to old age.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
