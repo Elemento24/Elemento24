@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just think we're living in a time of massive, amazing change, like the Industrial Revolution on acid.</b>
-> <p><i>Kelly Lynch</i></p>
+> <b>I remember the first time I felt that I was sharing the stage with someone spectacular was dancing with Beyonce. It was the dancers, the band, Beyonce and me in front of thousands of people. That was sick. It was pretty amazing that I got to travel the world with someone like her.</b>
+> <p><i>Harry Shum, Jr.</i></p>
 
 <br>
