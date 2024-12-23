@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Death be not proud, though some have called thee Mighty and dreadful, for thou art not so. For, those, whom thou think'st thou dost overthrow. Die not, poor death, nor yet canst thou kill me.</b>
-> <p><i>John Donne</i></p>
+> <b>The attitude that nature is chaotic and that the artist puts order into it is a very absurd point of view, I think. All that we can hope for is to put some order into ourselves.</b>
+> <p><i>Willem de Kooning</i></p>
 
 <br>
