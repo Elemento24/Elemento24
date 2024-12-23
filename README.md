@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man fails who does his best.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>We talked about many issues, like welfare, is it the way of life or hand up? Talked about size of government, how much should it tax families and small businesses? And when we left that lunch, we got in the car and I looked over at Chuck and said, 'I'll be damned. we're Republicans.'</b>
+> <p><i>Susana Martinez</i></p>
 
 <br>
