@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every age can be enchanting, provided you live within it.</b>
-> <p><i>Brigitte Bardot</i></p>
+> <b>Even when I'm playing someone named Fat Amy, I'm all about confidence and attitude.</b>
+> <p><i>Rebel Wilson</i></p>
 
 <br>
