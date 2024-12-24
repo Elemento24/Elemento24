@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beginning is the most important part of the work.</b>
-> <p><i>Plato</i></p>
+> <b>At the age when Bengali youth almost inevitably writes poetry, I was listening to European classical music.</b>
+> <p><i>Satyajit Ray</i></p>
 
 <br>
