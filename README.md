@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is the best means we have of digesting time.</b>
-> <p><i>W. H. Auden</i></p>
+> <b>Always the aim for me is making people feel like they are not alone. That's just the greatest feeling.</b>
+> <p><i>Zooey Deschanel</i></p>
 
 <br>
