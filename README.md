@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to sell to people my own age, because that's the way I write songs.</b>
-> <p><i>John Mellencamp</i></p>
+> <b>Earth teach me to forget myself as melted snow forgets its life. Earth teach me resignation as the leaves which die in the fall. Earth teach me courage as the tree which stands all alone. Earth teach me regeneration as the seed which rises in the spring.</b>
+> <p><i>William Alexander</i></p>
 
 <br>
