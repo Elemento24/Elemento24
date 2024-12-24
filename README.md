@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the age when Bengali youth almost inevitably writes poetry, I was listening to European classical music.</b>
-> <p><i>Satyajit Ray</i></p>
+> <b>The things I want to know are in books my best friend is the man who'll get me a book I ain't read.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
