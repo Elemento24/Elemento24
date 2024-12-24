@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The components of anxiety, stress, fear, and anger do not exist independently of you in the world. They simply do not exist in the physical world, even though we talk about them as if they do.</b>
-> <p><i>Wayne Dyer</i></p>
+> <b>I think sometimes when children grow up, their parents grow up. Mine grew up with me. We coexist. I don't try to change them anymore, and I don't think they try to change me. We agree to disagree.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
