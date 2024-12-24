@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always the aim for me is making people feel like they are not alone. That's just the greatest feeling.</b>
-> <p><i>Zooey Deschanel</i></p>
+> <b>The beginning is the most important part of the work.</b>
+> <p><i>Plato</i></p>
 
 <br>
