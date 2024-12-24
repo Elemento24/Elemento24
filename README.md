@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most people have no concept of how an automatic transmission works, yet they know how to drive a car. You don't have to study physics to understand the laws of motion to drive a car. You don't have to understand any of this stuff to use Macintosh.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>As strong as the United States is, we can't deal with terrorism alone.</b>
+> <p><i>Madeleine Albright</i></p>
 
 <br>
