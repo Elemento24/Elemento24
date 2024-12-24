@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had no idea that he was going to write that, but I've always believed that insecurity was what would keep you always in your innocence, no matter what the business did.</b>
-> <p><i>Sally Kirkland</i></p>
+> <b>Every age can be enchanting, provided you live within it.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
