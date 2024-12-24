@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As long as you as an individual... can convince yourself that in order to move forward as best you can you have to be optimistic, you can be described as 'one of the faithful,' one of those people who can say, 'Well, look, something's going to happen! Let's just keep trying. Let's not give up.</b>
-> <p><i>Tom Hanks</i></p>
+> <b>I had no idea that he was going to write that, but I've always believed that insecurity was what would keep you always in your innocence, no matter what the business did.</b>
+> <p><i>Sally Kirkland</i></p>
 
 <br>
