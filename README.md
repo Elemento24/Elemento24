@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Earth teach me to forget myself as melted snow forgets its life. Earth teach me resignation as the leaves which die in the fall. Earth teach me courage as the tree which stands all alone. Earth teach me regeneration as the seed which rises in the spring.</b>
-> <p><i>William Alexander</i></p>
+> <b>When I performed at 'Open Mic U.K.' I had this connection with the audience that I'd never felt before, and I loved it. It was my first big thing, and looking out into the crowd... was just amazing.</b>
+> <p><i>Birdy</i></p>
 
 <br>
