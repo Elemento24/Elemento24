@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I performed at 'Open Mic U.K.' I had this connection with the audience that I'd never felt before, and I loved it. It was my first big thing, and looking out into the crowd... was just amazing.</b>
-> <p><i>Birdy</i></p>
+> <b>As long as you as an individual... can convince yourself that in order to move forward as best you can you have to be optimistic, you can be described as 'one of the faithful,' one of those people who can say, 'Well, look, something's going to happen! Let's just keep trying. Let's not give up.</b>
+> <p><i>Tom Hanks</i></p>
 
 <br>
