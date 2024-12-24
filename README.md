@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When characters change on screen, it makes you feel better about yourself. You think, 'Oh I change too, I'm constantly becoming a better person.'</b>
-> <p><i>Jason Reitman</i></p>
+> <b>Nicole will come up in conversations where it's in a part of the conversation. Or we may be somewhere and I would tell some story about their mother and I. You know, we always honor her birthday.</b>
+> <p><i>O. J. Simpson</i></p>
 
 <br>
