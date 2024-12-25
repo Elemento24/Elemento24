@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One ever feels his twoness - an American, a Negro two souls, two thoughts, two unreconciled strivings two warring ideals in one dark body, whose dogged strength alone keeps it from being torn asunder.</b>
-> <p><i>W. E. B. Du Bois</i></p>
+> <b>If in my youth I had realized that the sustaining splendour of beauty of with which I was in love would one day flood back into my heart, there to ignite a flame that would torture me without end, how gladly would I have put out the light in my eyes.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
