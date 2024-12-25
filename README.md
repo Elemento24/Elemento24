@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I need some isolation, it's necessary to me, that's just who I am. I need to be left alone.</b>
-> <p><i>Laura Marling</i></p>
+> <b>Non-disclosure in the Internet Age is quickly perceived as a breach of trust. Government, corporations and each of us as individuals must recalibrate how we live and share our lives appropriate to the information now available and the expectations of others.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
