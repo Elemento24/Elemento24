@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A majority is always better than the best repartee.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>I went to England in the '70s, and I was in my early 20s. There was still a residue of that era of being an underclass or colonial. I assume it must have been a more aggressive and prominent attitude 40 years before that, because Australia internationally wasn't regarded as having much cultural value. We were a country full of sheep and convicts.</b>
+> <p><i>Geoffrey Rush</i></p>
 
 <br>
