@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can work on the saxophone alone, but ultimately you must perform with others.</b>
-> <p><i>Steve Lacy</i></p>
+> <b>I need some isolation, it's necessary to me, that's just who I am. I need to be left alone.</b>
+> <p><i>Laura Marling</i></p>
 
 <br>
