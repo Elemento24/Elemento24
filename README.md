@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Form follows profit is the aesthetic principle of our times.</b>
-> <p><i>Richard Rogers</i></p>
+> <b>A majority is always better than the best repartee.</b>
+> <p><i>Benjamin Disraeli</i></p>
 
 <br>
