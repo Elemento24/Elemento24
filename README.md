@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The principle of art is to pause, not bypass.</b>
-> <p><i>Jerzy Kosinski</i></p>
+> <b>It took me twenty years to get Steven Parrino's work. From the time I first saw his art, in the mid-eighties, I almost always dismissed it as mannered, Romantic, formulaic, conceptualist-formalist heavy-metal boy-art abstraction.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
