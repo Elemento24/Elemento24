@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Memory in youth is active and easily impressible in old age it is comparatively callous to new impressions, but still retains vividly those of earlier years.</b>
-> <p><i>Charlotte Bronte</i></p>
+> <b>Form follows profit is the aesthetic principle of our times.</b>
+> <p><i>Richard Rogers</i></p>
 
 <br>
