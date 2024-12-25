@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No community values entrepreneurship and small business more than the Hispanic community.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>People see you as an object, not as a person, and they project a set of expectations onto you. People who don't have it think beauty is a blessing, but actually it sets you apart.</b>
+> <p><i>Candice Bergen</i></p>
 
 <br>
