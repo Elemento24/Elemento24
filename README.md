@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men make angry music and it's called rock-and-roll women include anger in their vocabulary and suddenly they're angry and militant.</b>
-> <p><i>Ani DiFranco</i></p>
+> <b>The principle of art is to pause, not bypass.</b>
+> <p><i>Jerzy Kosinski</i></p>
 
 <br>
