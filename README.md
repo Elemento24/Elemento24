@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course, the ideal scenario for parenting is obviously two parents of a mature age.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>No community values entrepreneurship and small business more than the Hispanic community.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
