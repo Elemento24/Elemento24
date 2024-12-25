@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not believe that sheer suffering teaches. If suffering alone taught, all the world would be wise, since everyone suffers. To suffering must be added mourning, understanding, patience, love, openness and the willingness to remain vulnerable.</b>
-> <p><i>Anne Morrow Lindbergh</i></p>
+> <b>This was meaningful that at almost 41 years old, I could be getting my first beauty campaign.</b>
+> <p><i>Teri Hatcher</i></p>
 
 <br>
