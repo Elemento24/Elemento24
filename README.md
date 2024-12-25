@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This was meaningful that at almost 41 years old, I could be getting my first beauty campaign.</b>
-> <p><i>Teri Hatcher</i></p>
+> <b>If you want to change the culture, you will have to start by changing the organization.</b>
+> <p><i>Mary Douglas</i></p>
 
 <br>
