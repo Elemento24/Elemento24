@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think it's a good attitude in your life to feel that you have to be rich to have self-esteem.</b>
-> <p><i>Tom Petty</i></p>
+> <b>Growing up, I looked up to major league baseball players, and now these young women have amazing, incredible women all across the board, from swimming to gymnastics to softball to basketball.</b>
+> <p><i>Jennie Finch</i></p>
 
 <br>
