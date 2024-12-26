@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To think that the new economy is over is like somebody in London in 1830 saying the entire industrial revolution is over because some textile manufacturers in Manchester went broke.</b>
-> <p><i>Alvin Toffler</i></p>
+> <b>If you owe the bank $100 that's your problem. If you owe the bank $100 million, that's the bank's problem.</b>
+> <p><i>J. Paul Getty</i></p>
 
 <br>
