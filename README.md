@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life's too short when you find yourself sitting in a car for four hours every day trying to get from East L.A. to West L.A. to Hollywood and then back to East L.A.</b>
-> <p><i>Garrett Hedlund</i></p>
+> <b>I find myself hoping a total end of all the unhappy divisions of mankind by party-spirit, which at best is but the madness of many for the gain of a few.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
