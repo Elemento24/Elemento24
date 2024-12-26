@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love insects. They are amazing.</b>
-> <p><i>Andrea Arnold</i></p>
+> <b>Everyone says, 'You give birth, you go home, and you have this amazing baby and it's just beautiful'. And I walked in and I just started sobbing.</b>
+> <p><i>Bridget Moynahan</i></p>
 
 <br>
