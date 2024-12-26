@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is the only constant. Hanging on is the only sin.</b>
-> <p><i>Denise McCluggage</i></p>
+> <b>There is danger in reckless change, but greater danger in blind conservatism.</b>
+> <p><i>Henry George</i></p>
 
 <br>
