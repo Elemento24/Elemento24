@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every time I copy something, I can draw it for the rest of my life. But research is so painful - I mean just opening up a magazine looking for a picture of a car or looking out the window looking for a car is just hard!</b>
-> <p><i>Jaime Hernandez</i></p>
+> <b>I've always been fascinated with the juxtaposition of technology in music, not only in recording, but in the keyboard. It's amazing the way you can apply technology to an art form.</b>
+> <p><i>Geoff Downes</i></p>
 
 <br>
