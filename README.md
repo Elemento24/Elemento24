@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been trying to learn how to not be so conflicted about things like my own anger. I've always had a place in my music for my anger as a way of compensating for not having a mechanism to express it in my everyday life. So I've been trying to be more true to myself, and that helps me to chill out a little bit. But politically, uh-uh. No.</b>
-> <p><i>Ani DiFranco</i></p>
+> <b>The only way people are going to change their car buying habits, and the only way government will get behind alternatively fueled vehicles, is if gasoline prices continue to go up.</b>
+> <p><i>Alexandra Paul</i></p>
 
 <br>
