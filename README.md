@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is danger in reckless change, but greater danger in blind conservatism.</b>
-> <p><i>Henry George</i></p>
+> <b>Perhaps the best motivation for going to Mars is political. It is obvious that no single nation currently has either the will or the resources to do it alone, but a consortium of nations and space agencies could achieve it within 20 years.</b>
+> <p><i>Paul Davies</i></p>
 
 <br>
