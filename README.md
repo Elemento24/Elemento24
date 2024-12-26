@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone says, 'You give birth, you go home, and you have this amazing baby and it's just beautiful'. And I walked in and I just started sobbing.</b>
-> <p><i>Bridget Moynahan</i></p>
+> <b>To think that the new economy is over is like somebody in London in 1830 saying the entire industrial revolution is over because some textile manufacturers in Manchester went broke.</b>
+> <p><i>Alvin Toffler</i></p>
 
 <br>
