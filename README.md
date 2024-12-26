@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A dream you dream alone is only a dream. A dream you dream together is reality.</b>
-> <p><i>Yoko Ono</i></p>
+> <b>The art of writing is the art of discovering what you believe.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
