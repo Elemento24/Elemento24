@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of writing is the art of discovering what you believe.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>Life's too short when you find yourself sitting in a car for four hours every day trying to get from East L.A. to West L.A. to Hollywood and then back to East L.A.</b>
+> <p><i>Garrett Hedlund</i></p>
 
 <br>
