@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been fascinated with the juxtaposition of technology in music, not only in recording, but in the keyboard. It's amazing the way you can apply technology to an art form.</b>
-> <p><i>Geoff Downes</i></p>
+> <b>I will never have a drink and get behind the wheel of a car. It's not illegal to drink and drive, but there becomes a certain point where it does become a crime.</b>
+> <p><i>Tracey Gold</i></p>
 
 <br>
