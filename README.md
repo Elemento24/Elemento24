@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best government is that which teaches us to govern ourselves.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>There's no anger ever in a spiritual. There's always the dream of a hope of a better day coming. That God understands the troubles that I'm experiencing.</b>
+> <p><i>Jessye Norman</i></p>
 
 <br>
