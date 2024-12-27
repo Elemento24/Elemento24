@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I consider my ability to arouse enthusiasm among men the greatest asset I possess. The way to develop the best that is in a man is by appreciation and encouragement.</b>
-> <p><i>Charles Schwab</i></p>
+> <b>It has taken me years of struggle, hard work and research to learn to make one simple gesture, and I know enough about the art of writing to realize that it would take as many years of concentrated effort to write one simple, beautiful sentence.</b>
+> <p><i>Isadora Duncan</i></p>
 
 <br>
