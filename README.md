@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think there are a lot of technocrats in the business who would much rather work with just wheels and gears and machinery. Those things interest them more than humanity and I wish them the best of luck.</b>
-> <p><i>Ron Perlman</i></p>
+> <b>I think that New York is not the cultural centre of America, but the business and administrative centre of American culture.</b>
+> <p><i>Saul Bellow</i></p>
 
 <br>
