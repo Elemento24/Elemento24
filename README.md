@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would hope that understanding and reconciliation are not limited to the 19th hole alone.</b>
-> <p><i>Gerald R. Ford</i></p>
+> <b>I consider my ability to arouse enthusiasm among men the greatest asset I possess. The way to develop the best that is in a man is by appreciation and encouragement.</b>
+> <p><i>Charles Schwab</i></p>
 
 <br>
