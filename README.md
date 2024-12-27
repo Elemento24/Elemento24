@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I spend a good portion of my dinner-party conversation defending America because no matter what the political agenda, it's still a fantastic, amazing place.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>I think there are a lot of technocrats in the business who would much rather work with just wheels and gears and machinery. Those things interest them more than humanity and I wish them the best of luck.</b>
+> <p><i>Ron Perlman</i></p>
 
 <br>
