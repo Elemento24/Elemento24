@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maybe more climate activists will think about the climate change not as an international problem to be resolved in an air-conditioned meeting hall, but as a guerilla war to be fought in the streets.</b>
-> <p><i>Jeff Goodell</i></p>
+> <b>As a girl, you're supposed to love Sleeping Beauty. I mean, who wants to love Sleeping Beauty when you can be Aladdin?</b>
+> <p><i>Ellen Page</i></p>
 
 <br>
