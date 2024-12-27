@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dishonesty in government is the business of every citizen. It is not enough to do your own job. There's no particular virtue in that. Democracy isn't a gift. It's a responsibility.</b>
-> <p><i>Dalton Trumbo</i></p>
+> <b>Art is the objectification of feeling.</b>
+> <p><i>Herman Melville</i></p>
 
 <br>
