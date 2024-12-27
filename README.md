@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The fastest way to succeed is to look as if you're playing by somebody else's rules, while quietly playing by your own.</b>
-> <p><i>Michael Korda</i></p>
+> <b>It is dangerous for mortal beauty, or terrestrial virtue, to be examined by too strong a light. The torch of Truth shows much that we cannot, and all that we would not, see.</b>
+> <p><i>Samuel Johnson</i></p>
 
 <br>
