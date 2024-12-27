@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It has taken me years of struggle, hard work and research to learn to make one simple gesture, and I know enough about the art of writing to realize that it would take as many years of concentrated effort to write one simple, beautiful sentence.</b>
-> <p><i>Isadora Duncan</i></p>
+> <b>The mother art is architecture. Without an architecture of our own we have no soul of our own civilization.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
