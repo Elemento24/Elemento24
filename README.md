@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That we find a crystal or a poppy beautiful means that we are less alone, that we are more deeply inserted into existence than the course of a single life would lead us to believe.</b>
-> <p><i>John Berger</i></p>
+> <b>Any film I do is not going to change the way black women have been portrayed, or black people have been portrayed, in cinema since the days of D.W. Griffith.</b>
+> <p><i>Spike Lee</i></p>
 
 <br>
