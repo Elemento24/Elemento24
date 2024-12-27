@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never say never, but the thought of electively cutting oneself is beyond my grasp, and I also object to it politically. Denying the lines on our faces makes a comment about age and wisdom I don't care to make.</b>
-> <p><i>Debra Winger</i></p>
+> <b>The fastest way to succeed is to look as if you're playing by somebody else's rules, while quietly playing by your own.</b>
+> <p><i>Michael Korda</i></p>
 
 <br>
