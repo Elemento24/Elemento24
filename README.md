@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cried when I found out I was a finalist, I kind of went limp when they called my name. I felt like my spirit jumped out of my body, and I was just flesh - it was just amazing.</b>
-> <p><i>Naima Adedapo</i></p>
+> <b>That we find a crystal or a poppy beautiful means that we are less alone, that we are more deeply inserted into existence than the course of a single life would lead us to believe.</b>
+> <p><i>John Berger</i></p>
 
 <br>
