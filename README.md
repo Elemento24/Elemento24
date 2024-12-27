@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a Volvo S60R and it's a pretty fast car, the R says it all.</b>
-> <p><i>Josie Maran</i></p>
+> <b>I would hope that understanding and reconciliation are not limited to the 19th hole alone.</b>
+> <p><i>Gerald R. Ford</i></p>
 
 <br>
