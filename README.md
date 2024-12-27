@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no anger ever in a spiritual. There's always the dream of a hope of a better day coming. That God understands the troubles that I'm experiencing.</b>
-> <p><i>Jessye Norman</i></p>
+> <b>Never say never, but the thought of electively cutting oneself is beyond my grasp, and I also object to it politically. Denying the lines on our faces makes a comment about age and wisdom I don't care to make.</b>
+> <p><i>Debra Winger</i></p>
 
 <br>
