@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the objectification of feeling.</b>
-> <p><i>Herman Melville</i></p>
+> <b>I was homeless for a little bit. I was on people's couches, but it was an amazing journey. I got to make people laugh all the way.</b>
+> <p><i>Sherri Shepherd</i></p>
 
 <br>
