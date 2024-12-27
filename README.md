@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is dangerous for mortal beauty, or terrestrial virtue, to be examined by too strong a light. The torch of Truth shows much that we cannot, and all that we would not, see.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>I spend a good portion of my dinner-party conversation defending America because no matter what the political agenda, it's still a fantastic, amazing place.</b>
+> <p><i>Gwyneth Paltrow</i></p>
 
 <br>
