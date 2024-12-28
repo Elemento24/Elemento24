@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love things that age well - things that don't date, that stand the test of time and that become living examples of the absolute best.</b>
-> <p><i>Giorgio Armani</i></p>
+> <b>A leader does not deserve the name unless he is willing occasionally to stand alone.</b>
+> <p><i>Henry A. Kissinger</i></p>
 
 <br>
