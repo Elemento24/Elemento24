@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A healthy attitude is contagious but don't wait to catch it from others. Be a carrier.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>I love things that age well - things that don't date, that stand the test of time and that become living examples of the absolute best.</b>
+> <p><i>Giorgio Armani</i></p>
 
 <br>
