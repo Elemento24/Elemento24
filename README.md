@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing I've learned is, if you're going out, never go out alone - you leave yourself vulnerable. If you've got someone else there you trust, they can say, be wary of that person. I probably used to be too trusting of people.</b>
-> <p><i>Daniel Radcliffe</i></p>
+> <b>Death is the mother of Beauty hence from her, alone, shall come fulfillment to our dreams and our desires.</b>
+> <p><i>Wallace Stevens</i></p>
 
 <br>
