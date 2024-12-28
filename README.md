@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is ever to the lonely mind a shadow fleeting she is never plain. She is a visitor who leaves behind the gift of grief, the souvenir of pain.</b>
-> <p><i>Christopher Morley</i></p>
+> <b>I do not share the half-in, half-out attitude to the EU of some in Britain. Britain's place is in Europe.</b>
+> <p><i>Peter Mandelson</i></p>
 
 <br>
