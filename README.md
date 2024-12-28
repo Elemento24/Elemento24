@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sweat equity is the most valuable equity there is. Know your business and industry better than anyone else in the world. Love what you do or don't do it.</b>
-> <p><i>Mark Cuban</i></p>
+> <b>Religiosity turns out to be the best indicator of civic involvement: it's more accurate than education, age, income, gender or race.</b>
+> <p><i>Jonathan Sacks</i></p>
 
 <br>
