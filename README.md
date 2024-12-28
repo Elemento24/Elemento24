@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is youth without levity, and age without decay.</b>
-> <p><i>Doris Day</i></p>
+> <b>Beauty is ever to the lonely mind a shadow fleeting she is never plain. She is a visitor who leaves behind the gift of grief, the souvenir of pain.</b>
+> <p><i>Christopher Morley</i></p>
 
 <br>
