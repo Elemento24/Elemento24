@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to say that anger is the blanket that comes around me, and that blunts and blurs my sense of proportion.</b>
-> <p><i>Pete Townshend</i></p>
+> <b>I want the Arabic Granada, that which is art, which is all that seems to me beauty and emotion.</b>
+> <p><i>Isaac Albeniz</i></p>
 
 <br>
