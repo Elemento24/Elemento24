@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>None are so old as those who have outlived enthusiasm.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>My main aim has always been to do good quality films with roles that have some substance. With Power and Beauty there were loads of things that I liked about the movie, which made me opt for it.</b>
+> <p><i>Natasha Henstridge</i></p>
 
 <br>
