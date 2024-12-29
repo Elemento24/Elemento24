@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am not trying to change the world. I am just offering my gift that God gave me, and if somebody is moved by it, that's beautiful.</b>
-> <p><i>Lenny Kravitz</i></p>
+> <b>What I want to give in the theatre is beauty, that's what I want to give.</b>
+> <p><i>Dame Edith Evans</i></p>
 
 <br>
