@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the most amazing locations I've ever been is the top of the volcano in Tanzania, Africa. It's an actual volcano where you really have this lava every day.</b>
-> <p><i>Jan de Bont</i></p>
+> <b>Our most intimate friend is not he to whom we show the worst, but the best of our nature.</b>
+> <p><i>Nathaniel Hawthorne</i></p>
 
 <br>
