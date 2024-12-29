@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry is not only dream and vision it is the skeleton architecture of our lives. It lays the foundations for a future of change, a bridge across our fears of what has never been before.</b>
-> <p><i>Audre Lorde</i></p>
+> <b>I have been overcome by the beauty and richness of our life together, those early mornings setting out, those evenings gleaming with rivers and lakes below us, still holding the last light.</b>
+> <p><i>Anne Morrow Lindbergh</i></p>
 
 <br>
