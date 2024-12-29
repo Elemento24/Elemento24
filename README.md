@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always felt that sexuality is a really slippery thing. In this day and age, it tends to get categorized and labeled, and I think labels are for food. Canned food.</b>
-> <p><i>Michael Stipe</i></p>
+> <b>A woman has the age she deserves.</b>
+> <p><i>Coco Chanel</i></p>
 
 <br>
