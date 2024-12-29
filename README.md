@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Turkey wants a policy of engagement exactly like President Obama's new approach. Policy of engagement, less confrontation, less tense attitude, especially in the region.</b>
-> <p><i>Ahmet Davutoglu</i></p>
+> <b>I am not trying to change the world. I am just offering my gift that God gave me, and if somebody is moved by it, that's beautiful.</b>
+> <p><i>Lenny Kravitz</i></p>
 
 <br>
