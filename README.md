@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The whole business of marshaling one's energies becomes more and more important as one grows older.</b>
-> <p><i>Hume Cronyn</i></p>
+> <b>A rose is the visible result of an infinitude of complicated goings on in the bosom of the earth and in the air above, and similarly a work of art is the product of strange activities in the human mind.</b>
+> <p><i>Clive Bell</i></p>
 
 <br>
