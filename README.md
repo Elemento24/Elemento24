@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I want to give in the theatre is beauty, that's what I want to give.</b>
-> <p><i>Dame Edith Evans</i></p>
+> <b>The fact is that a car used by Gerry Adams and myself during the course of the Mitchell review was bugged by elements within British military intelligence.</b>
+> <p><i>Martin McGuinness</i></p>
 
 <br>
