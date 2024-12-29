@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On some campuses, change is effected through nonviolent or even violent means.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>My mom FedExes a red velvet cake she makes from scratch to me every birthday.</b>
+> <p><i>Molly Sims</i></p>
 
 <br>
