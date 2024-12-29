@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I usually make up my mind about a man in ten seconds, and I very rarely change it.</b>
-> <p><i>Margaret Thatcher</i></p>
+> <b>On some campuses, change is effected through nonviolent or even violent means.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
