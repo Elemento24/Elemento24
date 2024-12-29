@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our most intimate friend is not he to whom we show the worst, but the best of our nature.</b>
-> <p><i>Nathaniel Hawthorne</i></p>
+> <b>I've always felt that sexuality is a really slippery thing. In this day and age, it tends to get categorized and labeled, and I think labels are for food. Canned food.</b>
+> <p><i>Michael Stipe</i></p>
 
 <br>
