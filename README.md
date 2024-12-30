@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I always think that the best way to know God is to love many things.</b>
-> <p><i>Vincent Van Gogh</i></p>
+> <b>If somebody says no to you, or if you get cut, Michael Jordan was cut his first year, but he came back and he was the best ever. That is what you have to have. The attitude that I'm going to show everybody, I'm going to work hard to get better and better.</b>
+> <p><i>Magic Johnson</i></p>
 
 <br>
