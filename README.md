@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We need a number of solutions - we need more efficiency and conservation. Efficiency is a big one. I think car companies need to do a lot better in producing more efficient cars. They have the technology, we just need to demand them as consumers.</b>
-> <p><i>Daryl Hannah</i></p>
+> <b>Never do anything when you are in a temper, for you will do everything wrong.</b>
+> <p><i>Baltasar Gracian</i></p>
 
 <br>
