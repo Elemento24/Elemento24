@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that all the anger and cynicism comes from suppressing things that we always wanted.</b>
-> <p><i>John Lee Hancock</i></p>
+> <b>It was an amazing adventure, it was my dream to be in an American musical... I really hope you are going to love what you are going to see.</b>
+> <p><i>Marion Cotillard</i></p>
 
 <br>
