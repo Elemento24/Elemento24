@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just yesterday returned from a trip where I photographed a woman with two children whom I photographed first when she was the age of the older of the two children.</b>
-> <p><i>Jock Sturges</i></p>
+> <b>The art of life is to know how to enjoy a little and to endure very much.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
