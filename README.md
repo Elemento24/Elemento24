@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I looked on child rearing not only as a work of love and duty but as a profession that was fully as interesting and challenging as any honorable profession in the world and one that demanded the best that I could bring to it.</b>
-> <p><i>Rose Kennedy</i></p>
+> <b>Coercion may prevent many transgressions but it robs even actions which are legal of a part of their beauty. Freedom may lead to many transgressions, but it lends even to vices a less ignoble form.</b>
+> <p><i>Wilhelm von Humboldt</i></p>
 
 <br>
