@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The absence of flaw in beauty is itself a flaw.</b>
-> <p><i>Havelock Ellis</i></p>
+> <b>Anything you cannot relinquish when it has outlived its usefulness possesses you, and in this materialistic age a great many of us are possessed by our possessions.</b>
+> <p><i>Peace Pilgrim</i></p>
 
 <br>
