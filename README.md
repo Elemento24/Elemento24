@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of life is to know how to enjoy a little and to endure very much.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>I'm not a music lover in the sense that I look for something to have on. I've never had that attitude to music.</b>
+> <p><i>Harrison Birtwistle</i></p>
 
 <br>
