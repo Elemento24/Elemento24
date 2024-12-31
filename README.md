@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part about being alone is that you really don't have to answer to anybody. You do what you want.</b>
-> <p><i>Justin Timberlake</i></p>
+> <b>I'm in the acting business. That's the ego business.</b>
+> <p><i>Betty White</i></p>
 
 <br>
