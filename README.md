@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are so busy dreaming the American Dream, fantasizing about what they could be or have a right to be, that they're all asleep at the switch. Consequently we are living in the Age of Human Error.</b>
-> <p><i>Florence King</i></p>
+> <b>The best films of any kind, narrative or documentary, provoke questions.</b>
+> <p><i>Edward Norton</i></p>
 
 <br>
