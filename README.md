@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always had a huge fear of dying or becoming ill. The thing I'm most afraid of, though, is being alone, which I think a lot of performers fear. It's why we seek the limelight - so we're not alone, were adored. We're loved, so people want to be around us. The fear of being alone drives my life.</b>
-> <p><i>Jennifer Lopez</i></p>
+> <b>However, democracy cannot be defined as the existence of parliaments and elections alone.</b>
+> <p><i>Recep Tayyip Erdogan</i></p>
 
 <br>
