@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If somebody says no to you, or if you get cut, Michael Jordan was cut his first year, but he came back and he was the best ever. That is what you have to have. The attitude that I'm going to show everybody, I'm going to work hard to get better and better.</b>
-> <p><i>Magic Johnson</i></p>
+> <b>Today in America, we are trying to prepare students for a high tech world of constant change, but we are doing so by putting them through a school system designed in the early 20th Century that has not seen substantial change in 30 years.</b>
+> <p><i>Janet Napolitano</i></p>
 
 <br>
