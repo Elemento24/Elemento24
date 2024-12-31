@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cats don't like change without their consent.</b>
-> <p><i>Roger Caras</i></p>
+> <b>You get to a certain age and you just want to prove that you can still rock - that you've still got it.</b>
+> <p><i>Jarvis Cocker</i></p>
 
 <br>
