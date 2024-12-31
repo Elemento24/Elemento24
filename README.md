@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Spending $1 for a brand new house would feel very, very good. Spending $1,000 for a ham sandwich would feel very, very bad. Spending $19,000 for a small family car would feel, well, more or less right. But as with physical pain, fiscal pain can depend on the individual, and everyone has a different threshold.</b>
-> <p><i>Jeffrey Kluger</i></p>
+> <b>The best part about being alone is that you really don't have to answer to anybody. You do what you want.</b>
+> <p><i>Justin Timberlake</i></p>
 
 <br>
