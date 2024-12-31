@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>However, democracy cannot be defined as the existence of parliaments and elections alone.</b>
-> <p><i>Recep Tayyip Erdogan</i></p>
+> <b>I know so many amazing actors who don't get work... and then there are a bunch of real duds that work all the time. The industry is just not fair in that way.</b>
+> <p><i>Jenna Fischer</i></p>
 
 <br>
