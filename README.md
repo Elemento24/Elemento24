@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best people renounce all for one goal, the eternal fame of mortals but most people stuff themselves like cattle.</b>
-> <p><i>Heraclitus</i></p>
+> <b>What starts the process, really, are laughs and slights and snubs when you are a kid. If your anger is deep enough and strong enough, you learn that you can change those attitudes by excellence, personal gut performance.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
