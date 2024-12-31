@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty lasts five minutes. Maybe longer if you have a good plastic surgeon.</b>
-> <p><i>Tia Carrere</i></p>
+> <b>Cats don't like change without their consent.</b>
+> <p><i>Roger Caras</i></p>
 
 <br>
