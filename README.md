@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you saw a dog going to be crushed under a car, wouldn't you help him?</b>
-> <p><i>Oskar Schindler</i></p>
+> <b>The best people renounce all for one goal, the eternal fame of mortals but most people stuff themselves like cattle.</b>
+> <p><i>Heraclitus</i></p>
 
 <br>
