@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I trusted someone to look after me on the business side of life.</b>
-> <p><i>Elton John</i></p>
+> <b>If you don't change your beliefs, your life will be like this forever. Is that good news?</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
