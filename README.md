@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you have a line of business - I know this as a CEO - or if you have a teenager - I know this as a parent - who have a spending problem, what do you do? You quit giving them money.</b>
-> <p><i>Carly Fiorina</i></p>
+> <b>If you can change three lives in 10, three lives in a hundred, that's got to be good, hasn't it?</b>
+> <p><i>Ian Botham</i></p>
 
 <br>
