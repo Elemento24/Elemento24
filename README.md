@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He took over anger to intimidate subordinates, and in time anger took over him.</b>
-> <p><i>Milan Kundera</i></p>
+> <b>I consider skateboarding an art form, a lifestyle and a sport. 'Action sport' would be the least offensive categorization.</b>
+> <p><i>Tony Hawk</i></p>
 
 <br>
