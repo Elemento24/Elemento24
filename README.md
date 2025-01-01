@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So here's the question: Without a change in leadership, why would the next four years be any different from the last four years?</b>
-> <p><i>Paul Ryan</i></p>
+> <b>My mother always called me an ugly weed, so I never was aware of anything until I was older. Plain girls should have someone telling them they are beautiful. Sometimes this works miracles.</b>
+> <p><i>Hedy Lamarr</i></p>
 
 <br>
