@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't change your beliefs, your life will be like this forever. Is that good news?</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>He took over anger to intimidate subordinates, and in time anger took over him.</b>
+> <p><i>Milan Kundera</i></p>
 
 <br>
