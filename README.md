@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't like something, change it. If you can't change it, change your attitude.</b>
-> <p><i>Maya Angelou</i></p>
+> <b>It is with rivers as it is with people: the greatest are not always the most agreeable nor the best to live with.</b>
+> <p><i>Henry Van Dyke</i></p>
 
 <br>
