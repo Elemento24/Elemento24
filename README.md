@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Food is not just what we put in our mouths to fill up it is culture and identity. Reason plays some role in our decisions about food, but it's rarely driving the car.</b>
-> <p><i>Jonathan Safran Foer</i></p>
+> <b>So here's the question: Without a change in leadership, why would the next four years be any different from the last four years?</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
