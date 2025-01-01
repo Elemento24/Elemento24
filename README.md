@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The whole kiss-and-tell thing is a negative approach that often happens in a World Cup. We will see negative stories about the players and it can affect their confidence and the overall performance of the national team on the pitch, let alone the bid to actually stage the competition.</b>
-> <p><i>Gary Lineker</i></p>
+> <b>What's amazing is that I'm recognized all over the world through 'Red Dwarf.' British fans are exceptional, but the American fans are something else. Some of them fly 500 miles to stand in line for three hours, just to meet me, then when they do they collapse. It makes you feel like a rock star!</b>
+> <p><i>Craig Charles</i></p>
 
 <br>
