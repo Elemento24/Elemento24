@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother always called me an ugly weed, so I never was aware of anything until I was older. Plain girls should have someone telling them they are beautiful. Sometimes this works miracles.</b>
-> <p><i>Hedy Lamarr</i></p>
+> <b>I come back to the same thing: We've got the greatest pipeline in the company's history in the next 12 months, and we've had the most amazing financial results possible over the last five years, and we're predicting being back at double-digit revenue growth in fiscal year '06.</b>
+> <p><i>Steve Ballmer</i></p>
 
 <br>
