@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's also some element of coming of age during the Reagan administration, which everybody has painted as some glorious time in America, but I remember as being a very, very dark time. There was apocalypse in the air the punk rock movement made sense.</b>
-> <p><i>John Cusack</i></p>
+> <b>I think I'm pretty smart on what I spend my money on. I still don't have a new car, I drive my old car that I've had forever. But I bought a house in downtown Chicago.</b>
+> <p><i>Chris O'Donnell</i></p>
 
 <br>
