@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any authentic work of art must start an argument between the artist and his audience.</b>
-> <p><i>Rebecca West</i></p>
+> <b>Fame changes a lot of things, but it can't change a lightbulb.</b>
+> <p><i>Gilda Radner</i></p>
 
 <br>
