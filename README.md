@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I find most upsetting about this new all-consuming beauty culture is that the obsession with good looks, and how you can supposedly attain them, is almost entirely female-driven.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>Societies need rules that make no sense for individuals. For example, it makes no difference whether a single car drives on the left or on the right. But it makes all the difference when there are many cars!</b>
+> <p><i>Marvin Minsky</i></p>
 
 <br>
