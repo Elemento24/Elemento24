@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fame changes a lot of things, but it can't change a lightbulb.</b>
-> <p><i>Gilda Radner</i></p>
+> <b>Time is generally the best doctor.</b>
+> <p><i>Ovid</i></p>
 
 <br>
