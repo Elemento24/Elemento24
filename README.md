@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents got married late and they had kids late, so I never felt a social or cultural thing to be married or pregnant or a homeowner by a certain age.</b>
-> <p><i>Anna Kendrick</i></p>
+> <b>What I find most upsetting about this new all-consuming beauty culture is that the obsession with good looks, and how you can supposedly attain them, is almost entirely female-driven.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
