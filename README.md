@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not see any beauty in self-restraint.</b>
-> <p><i>Mary MacLane</i></p>
+> <b>If those committed to the quest fail, they will be forgiven. When lost, they will find another way. The moral imperative of humanism is the endeavor alone, whether successful or not, provided the effort is honorable and failure memorable.</b>
+> <p><i>E. O. Wilson</i></p>
 
 <br>
