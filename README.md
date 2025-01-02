@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One should not lose one's temper unless one is certain of getting more and more angry to the end.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>My parents got married late and they had kids late, so I never felt a social or cultural thing to be married or pregnant or a homeowner by a certain age.</b>
+> <p><i>Anna Kendrick</i></p>
 
 <br>
