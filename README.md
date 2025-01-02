@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time is generally the best doctor.</b>
-> <p><i>Ovid</i></p>
+> <b>Always write angry letters to your enemies. Never mail them.</b>
+> <p><i>James Fallows</i></p>
 
 <br>
