@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I find most upsetting about this new all-consuming beauty culture is that the obsession with good looks, and how you can supposedly attain them, is almost entirely female-driven.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>It is not well to make great changes in old age.</b>
+> <p><i>Charles Spurgeon</i></p>
 
 <br>
