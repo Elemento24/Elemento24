@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wasn't going to get such a nice car - I was going to get a cute little hybrid or something, keep the trees happy - but then my grandfather died, and it was all: retail therapy!</b>
-> <p><i>Chris Colfer</i></p>
+> <b>Failure doesn't mean you are a failure it just means you haven't succeeded yet.</b>
+> <p><i>Robert H. Schuller</i></p>
 
 <br>
