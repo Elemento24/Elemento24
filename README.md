@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Failure doesn't mean you are a failure it just means you haven't succeeded yet.</b>
-> <p><i>Robert H. Schuller</i></p>
+> <b>What I find most upsetting about this new all-consuming beauty culture is that the obsession with good looks, and how you can supposedly attain them, is almost entirely female-driven.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
