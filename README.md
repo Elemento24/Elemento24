@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I consider skateboarding an art form, a lifestyle and a sport. 'Action sport' would be the least offensive categorization.</b>
-> <p><i>Tony Hawk</i></p>
+> <b>For me, 'revolution' simply means radical change.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
