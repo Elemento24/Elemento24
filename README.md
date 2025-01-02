@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of fun stuff happens when you go out on a bike compared to when you're in a car. You're more in the environment. It's enjoyable. Even when It's raining It's still fun.</b>
-> <p><i>Stone Gossard</i></p>
+> <b>I do not see any beauty in self-restraint.</b>
+> <p><i>Mary MacLane</i></p>
 
 <br>
