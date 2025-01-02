@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a small thing has the power to make you angry, does that not indicate something about your size?</b>
-> <p><i>Sydney J. Harris</i></p>
+> <b>I feel the 21st century is another new age. Not only can we collaborate again with nature, but we have to. It's an emergency.</b>
+> <p><i>Bjork</i></p>
 
 <br>
