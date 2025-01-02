@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always write angry letters to your enemies. Never mail them.</b>
-> <p><i>James Fallows</i></p>
+> <b>Life is an unfoldment, and the further we travel the more truth we can comprehend. To understand the things that are at our door is the best preparation for understanding those that lie beyond.</b>
+> <p><i>Hypatia</i></p>
 
 <br>
