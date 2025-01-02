@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is an unfoldment, and the further we travel the more truth we can comprehend. To understand the things that are at our door is the best preparation for understanding those that lie beyond.</b>
-> <p><i>Hypatia</i></p>
+> <b>A lot of fun stuff happens when you go out on a bike compared to when you're in a car. You're more in the environment. It's enjoyable. Even when It's raining It's still fun.</b>
+> <p><i>Stone Gossard</i></p>
 
 <br>
