@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is a good motivator.</b>
-> <p><i>James Dyson</i></p>
+> <b>Not by age but by capacity is wisdom acquired.</b>
+> <p><i>Plautus</i></p>
 
 <br>
