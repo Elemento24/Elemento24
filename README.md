@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how much trouble you can get in when you don't have anything else to do.</b>
-> <p><i>Quincy Jones</i></p>
+> <b>A man's best fortune, or his worst, is his wife.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
