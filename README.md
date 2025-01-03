@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ideal has many names, and beauty is but one of them.</b>
-> <p><i>Ninon de L'Enclos</i></p>
+> <b>Religion is the masterpiece of the art of animal training, for it trains people as to how they shall think.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
