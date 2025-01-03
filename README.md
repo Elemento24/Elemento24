@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religion is the masterpiece of the art of animal training, for it trains people as to how they shall think.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>I felt that it's best just to be as transparent as possible.</b>
+> <p><i>Rupert Murdoch</i></p>
 
 <br>
