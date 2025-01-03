@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have bad reflexes. I was once run over by a car being pushed by two guys.</b>
-> <p><i>Woody Allen</i></p>
+> <b>A nation devoid of art and artists cannot have a full existence.</b>
+> <p><i>Kemal Ataturk</i></p>
 
 <br>
