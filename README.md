@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To understand the intensity of driving an F1 car, you have to be in it. When you're driving a 750hp machine at 200mph, the noise and the vibrations are incredible. The G-force when you take big corners is like someone trying to rip your head off. You hit the brakes, and it feels as if the skin is being pulled off your body.</b>
-> <p><i>Jenson Button</i></p>
+> <b>The thought came to me that all one loves in art becomes beautiful. Beauty is nothing but the expression of the fact that something is being loved. Only thus could she be defined.</b>
+> <p><i>Robert Musil</i></p>
 
 <br>
