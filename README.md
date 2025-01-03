@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I slept and dreamt that life was beauty I woke and found that life was duty.</b>
-> <p><i>George Byron</i></p>
+> <b>I have bad reflexes. I was once run over by a car being pushed by two guys.</b>
+> <p><i>Woody Allen</i></p>
 
 <br>
