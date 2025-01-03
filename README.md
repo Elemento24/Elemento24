@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Madden NFL franchise holds a special place in popular culture and the cover is a coveted position for players all over the league. I'm honored to be the first cover athlete chosen by Madden NFL fans and it's a great way to cap off an amazing year for the Saints and the city of New Orleans.</b>
-> <p><i>Drew Brees</i></p>
+> <b>The lips on my upper right bicep are my girlfriend's lips. She has the most amazing lips, and I wanted to carry them around with me everywhere I go, considering I can't carry her lips physically with me. So I decided to place them in a discreet location, such as the inside part of my bicep.</b>
+> <p><i>Jake Owen</i></p>
 
 <br>
