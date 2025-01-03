@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm doing it because I choose it. And if it's not working, I can make a change.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>The best way to find yourself is to lose yourself in the service of others.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
