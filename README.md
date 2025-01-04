@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For every moment of triumph, for every instance of beauty, many souls must be trampled.</b>
-> <p><i>Hunter S. Thompson</i></p>
+> <b>Rigid, the skeleton of habit alone upholds the human frame.</b>
+> <p><i>Virginia Woolf</i></p>
 
 <br>
