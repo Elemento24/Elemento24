@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to keep your friends is not to give them away.</b>
-> <p><i>Wilson Mizner</i></p>
+> <b>I would like to attend college in the future when I have time. I have always been interested in architecture, so perhaps I would pursue a degree in that or business.</b>
+> <p><i>James Maslow</i></p>
 
 <br>
