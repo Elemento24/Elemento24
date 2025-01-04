@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always been very obsessed with time. Time's passage makes us all very vulnerable and because we all experience it in our own way, it can make us feel very alone.</b>
-> <p><i>John Barton</i></p>
+> <b>If you deprive yourself of outsourcing and your competitors do not, you're putting yourself out of business.</b>
+> <p><i>Lee Kuan Yew</i></p>
 
 <br>
