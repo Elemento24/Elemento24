@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The strength and power and goodness of America has always been based on the strength and power and goodness of our communities, our families, our faiths. That is the bedrock of what makes America, America. In our best days, we can feel the vibrancy of America's communities, large and small.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>The human soul needs actual beauty more than bread.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
