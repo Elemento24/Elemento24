@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't drive your business, you will be driven out of business.</b>
-> <p><i>B. C. Forbes</i></p>
+> <b>This is the first convention of the space age - where a candidate can promise the moon and mean it.</b>
+> <p><i>David Brinkley</i></p>
 
 <br>
