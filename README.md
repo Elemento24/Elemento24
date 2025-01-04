@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm generally quite an angry person, and I like to channel my anger toward something creative.</b>
-> <p><i>Sharmeen Obaid-Chinoy</i></p>
+> <b>If you don't drive your business, you will be driven out of business.</b>
+> <p><i>B. C. Forbes</i></p>
 
 <br>
