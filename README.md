@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you were successful, somebody along the line gave you some help... Somebody helped to create this unbelievable American system that we have that allowed you to thrive. Somebody invested in roads and bridges. If you've got a business - you didn't build that. Somebody else made that happen.</b>
-> <p><i>Barack Obama</i></p>
+> <b>I'm generally quite an angry person, and I like to channel my anger toward something creative.</b>
+> <p><i>Sharmeen Obaid-Chinoy</i></p>
 
 <br>
