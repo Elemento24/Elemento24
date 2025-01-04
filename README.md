@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are a lot of female artists my age around at the moment, but they're all American and blonde and blue-eyed and smiley. I'm totally the opposite of that. I want to show a bit more attitude and I have an opinion.</b>
-> <p><i>Samantha Mumba</i></p>
+> <b>Some of your teachers are actually closer in age to you than you think.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
