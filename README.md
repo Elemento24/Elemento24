@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how people will give when you don't ask. Many of them send money because they believe in the message.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>In fact, it is amazing how much European films - Italian, French, German and English - have recovered a certain territory of the audience in their countries over the last few years.</b>
+> <p><i>Wim Wenders</i></p>
 
 <br>
