@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I felt that it's best just to be as transparent as possible.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>If you were successful, somebody along the line gave you some help... Somebody helped to create this unbelievable American system that we have that allowed you to thrive. Somebody invested in roads and bridges. If you've got a business - you didn't build that. Somebody else made that happen.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
