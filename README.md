@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you deprive yourself of outsourcing and your competitors do not, you're putting yourself out of business.</b>
-> <p><i>Lee Kuan Yew</i></p>
+> <b>It's amazing how people will give when you don't ask. Many of them send money because they believe in the message.</b>
+> <p><i>Joel Osteen</i></p>
 
 <br>
