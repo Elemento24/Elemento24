@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of your teachers are actually closer in age to you than you think.</b>
-> <p><i>Maya Lin</i></p>
+> <b>The best way to keep your friends is not to give them away.</b>
+> <p><i>Wilson Mizner</i></p>
 
 <br>
