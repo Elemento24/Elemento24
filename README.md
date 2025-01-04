@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art in Nature is rhythmic and has a horror of constraint.</b>
-> <p><i>Robert Delaunay</i></p>
+> <b>I think I'm actually quite a materialistic person, I value what it takes to make a car or build a nice house. Money does change things, but how it changes people depends on how they react to it.</b>
+> <p><i>Roland Gift</i></p>
 
 <br>
