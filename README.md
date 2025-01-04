@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The irony is that it was tougher to rent a car from Cerberus when it owned Alamo than to buy a semi-automatic. To rent a car, one had to provide ID, a drivers' license, and get insurance coverage. To buy a gun? Cash and carry, from the back of a station wagon at a gun show. No concerns about downstream liability or risk.</b>
-> <p><i>Eliot Spitzer</i></p>
+> <b>I have always been very obsessed with time. Time's passage makes us all very vulnerable and because we all experience it in our own way, it can make us feel very alone.</b>
+> <p><i>John Barton</i></p>
 
 <br>
