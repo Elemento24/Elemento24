@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One should not lose one's temper unless one is certain of getting more and more angry to the end.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>How much more grievous are the consequences of anger than the causes of it.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
