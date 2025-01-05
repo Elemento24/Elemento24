@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fine art is that in which the hand, the head, and the heart of man go together.</b>
-> <p><i>John Ruskin</i></p>
+> <b>People like Frank Zappa were amazing for us Brits.</b>
+> <p><i>Rick Wakeman</i></p>
 
 <br>
