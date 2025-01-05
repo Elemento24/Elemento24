@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not gonna ride home in the car. I'll wait for Randy. I think I'll get home quicker.</b>
-> <p><i>Patsy Cline</i></p>
+> <b>Men are like wine - some turn to vinegar, but the best improve with age.</b>
+> <p><i>Pope John XXIII</i></p>
 
 <br>
