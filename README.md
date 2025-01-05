@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Taste is the fundamental quality which sums up all the other qualities. It is the nec plus ultra of the intelligence. Through this alone is genius the supreme health and balance of all the faculties.</b>
-> <p><i>Isidore Ducasse Lautreamont</i></p>
+> <b>I read murder mysteries. I exercise 40 minutes a day. I watch videotapes while I exercise. I listen to audiotapes when I am in my car. And I try to stay in three different centuries.</b>
+> <p><i>Grover Norquist</i></p>
 
 <br>
