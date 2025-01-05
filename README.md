@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love my kids, and the moments I have with them, and it's kind of weird, it's such an age old cliche, but the way that my sons, the way they make me feel when I look at them, the way they say things, no one else would probably react to them, but it's a special thing for me.</b>
-> <p><i>Michael Rapaport</i></p>
+> <b>When you're young, you look at television and think, there's a conspiracy. The networks have conspired to dumb us down. But when you get a little older, you realize that's not true. The networks are in business to give people exactly what they want.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
