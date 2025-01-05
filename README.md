@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For a while I felt very alone sort of out there in the world of comics, especially here in the States.</b>
-> <p><i>Bill Sienkiewicz</i></p>
+> <b>Creative ideas flourish best in a shop which preserves some spirit of fun. Nobody is in business for fun, but that does not mean there cannot be fun in business.</b>
+> <p><i>Leo Burnett</i></p>
 
 <br>
