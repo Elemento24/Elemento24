@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But we cannot rely on memorials and museums alone. We can tell ourselves we will never forget and we likely won't. But we need to make sure that we teach history to those who never had the opportunity to remember in the first place.</b>
-> <p><i>Dan Rather</i></p>
+> <b>What is wrong with the Iranians in addition to the nuclear bomb? This is the only country on Earth in the 21st century that has renewed imperialistic ambitions. They really want to become the hegemon of the Middle East in an age that gave up imperialism.</b>
+> <p><i>Shimon Peres</i></p>
 
 <br>
