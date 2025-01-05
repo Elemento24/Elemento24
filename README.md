@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is wrong with the Iranians in addition to the nuclear bomb? This is the only country on Earth in the 21st century that has renewed imperialistic ambitions. They really want to become the hegemon of the Middle East in an age that gave up imperialism.</b>
-> <p><i>Shimon Peres</i></p>
+> <b>I'm not gonna ride home in the car. I'll wait for Randy. I think I'll get home quicker.</b>
+> <p><i>Patsy Cline</i></p>
 
 <br>
