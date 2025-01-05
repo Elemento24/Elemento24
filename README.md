@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I'm actually quite a materialistic person, I value what it takes to make a car or build a nice house. Money does change things, but how it changes people depends on how they react to it.</b>
-> <p><i>Roland Gift</i></p>
+> <b>But we cannot rely on memorials and museums alone. We can tell ourselves we will never forget and we likely won't. But we need to make sure that we teach history to those who never had the opportunity to remember in the first place.</b>
+> <p><i>Dan Rather</i></p>
 
 <br>
