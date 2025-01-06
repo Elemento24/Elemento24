@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody knows about Pearl Harbor. The thing that really fascinated me is that through this tragedy there was this amazing American heroism.</b>
-> <p><i>Michael Bay</i></p>
+> <b>Love built on beauty, soon as beauty, dies.</b>
+> <p><i>John Donne</i></p>
 
 <br>
