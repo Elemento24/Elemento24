@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We always overestimate the change that will occur in the next two years and underestimate the change that will occur in the next ten. Don't let yourself be lulled into inaction.</b>
-> <p><i>Bill Gates</i></p>
+> <b>I always keep a ball in the car. You never know.</b>
+> <p><i>Hakeem Olajuwon</i></p>
 
 <br>
