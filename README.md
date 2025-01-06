@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some songs you get. Some songs you may not. And I think that's the beauty of art: to question and to ask, to understand the deeper meaning after two or three or four listenings.</b>
-> <p><i>Janelle Monae</i></p>
+> <b>But having said that, there's also a sea change in attitude towards media.</b>
+> <p><i>Robert McChesney</i></p>
 
 <br>
