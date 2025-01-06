@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was working on Eye of the Beholder, I played a character who is so aloof that my whole lifestyle became very aloof. If someone knocked on my door, there was a part of me that went into a rage, because I wanted to be isolated and alone.</b>
-> <p><i>Ashley Judd</i></p>
+> <b>We always overestimate the change that will occur in the next two years and underestimate the change that will occur in the next ten. Don't let yourself be lulled into inaction.</b>
+> <p><i>Bill Gates</i></p>
 
 <br>
