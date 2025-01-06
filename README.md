@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm proud of the U.S.A. We've done some amazing things. To wear our flag in the Olympics is an honor.</b>
-> <p><i>Shaun White</i></p>
+> <b>Alone I'm nothing.</b>
+> <p><i>Robert Plant</i></p>
 
 <br>
