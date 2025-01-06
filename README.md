@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can be the best actor in the world, but if you don't have that one lucky moment, it kind of doesn't matter. There are a lot of amazing actors who will never get the chance to prove themselves because they won't have that one lucky moment.</b>
-> <p><i>Jeremy Irvine</i></p>
+> <b>Cubism was an attack on the perspective that had been known and used for 500 years. It was the first big, big change. It confused people: they said, 'Things don't look like that!'</b>
+> <p><i>David Hockney</i></p>
 
 <br>
