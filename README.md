@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Revenge is often like biting a dog because the dog bit you.</b>
-> <p><i>Austin O'Malley</i></p>
+> <b>I was born at the age of twelve on an MGM lot.</b>
+> <p><i>Judy Garland</i></p>
 
 <br>
