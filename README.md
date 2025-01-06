@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Elle MacPherson is absolutely amazing she is just so beautiful.</b>
-> <p><i>Carol Alt</i></p>
+> <b>Revenge is often like biting a dog because the dog bit you.</b>
+> <p><i>Austin O'Malley</i></p>
 
 <br>
