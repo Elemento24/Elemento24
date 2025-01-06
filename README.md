@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I'm trying to do is get this message out about self-empowerment, entrepreneurial spirit and true Americanism - the way we were when we changed the world, when Edison was alone, failing his 2,000th time on the lightbulb.</b>
-> <p><i>Glenn Beck</i></p>
+> <b>It's amazing that for actors mostly, it's a risk to attach yourself to a film that you don't know whether or not it's going to even be made and if you sign on, in doing so, who else is going to be in the movie with you.</b>
+> <p><i>Elisha Cuthbert</i></p>
 
 <br>
