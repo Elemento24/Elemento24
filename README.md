@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone at home is so supportive. People recognise me, say how proud they are of me. It's awesome to hear, it's amazing to know I can touch so many people in a positive way.</b>
-> <p><i>Kirsty Coventry</i></p>
+> <b>Lord, where we are wrong, make us willing to change where we are right, make us easy to live with.</b>
+> <p><i>Peter Marshall</i></p>
 
 <br>
