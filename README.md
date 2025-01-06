@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cubism was an attack on the perspective that had been known and used for 500 years. It was the first big, big change. It confused people: they said, 'Things don't look like that!'</b>
-> <p><i>David Hockney</i></p>
+> <b>I'm proud of the U.S.A. We've done some amazing things. To wear our flag in the Olympics is an honor.</b>
+> <p><i>Shaun White</i></p>
 
 <br>
