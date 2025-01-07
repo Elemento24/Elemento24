@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>More marriages might survive if the partners realized that sometimes the better comes after the worse.</b>
-> <p><i>Doug Larson</i></p>
+> <b>Beauty is mysterious as well as terrible. God and devil are fighting there, and the battlefield is the heart of man.</b>
+> <p><i>Fyodor Dostoevsky</i></p>
 
 <br>
