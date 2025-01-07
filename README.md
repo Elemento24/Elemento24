@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Consider the momentous event in architecture when the wall parted and the column became.</b>
-> <p><i>Louis Kahn</i></p>
+> <b>Yes'm, old friends is always best, 'less you can catch a new one that's fit to make an old one out of.</b>
+> <p><i>Sarah Orne Jewett</i></p>
 
 <br>
