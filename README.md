@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The feeling of your baby taking nourishment from your body for the first time is amazing, and it remains the most touching moment of my life.</b>
-> <p><i>Laura Schlessinger</i></p>
+> <b>Muslims have a very bad attitude to homosexuality, they're very intolerant.</b>
+> <p><i>Pim Fortuyn</i></p>
 
 <br>
