@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wise anger is like fire from a flint: there is great ado to get it out and when it does come, it is out again immediately.</b>
-> <p><i>Edward Everett Hale</i></p>
+> <b>The art of leadership is saying no, not saying yes. It is very easy to say yes.</b>
+> <p><i>Tony Blair</i></p>
 
 <br>
