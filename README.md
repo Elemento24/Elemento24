@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Muslims have a very bad attitude to homosexuality, they're very intolerant.</b>
-> <p><i>Pim Fortuyn</i></p>
+> <b>If thou art a master, be sometimes blind if a servant, sometimes deaf.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
