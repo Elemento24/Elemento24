@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was a kid, the only way I saw movies was from the back seat of my family's car at the drive-in.</b>
-> <p><i>Forest Whitaker</i></p>
+> <b>The best part about being with a group is that you don't have to do everything alone. You're with your friends.</b>
+> <p><i>Justin Timberlake</i></p>
 
 <br>
