@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been in a car three or four times when it filled with water and it's not a comfortable feeling.</b>
-> <p><i>Richard Hammond</i></p>
+> <b>Why does a woman work ten years to change a man's habits and then complain that he's not the man she married?</b>
+> <p><i>Barbra Streisand</i></p>
 
 <br>
