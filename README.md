@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>QUOTE</b>
-> <p><i>AUTHOR</i></p>
+> <b>I've been in a car three or four times when it filled with water and it's not a comfortable feeling.</b>
+> <p><i>Richard Hammond</i></p>
 
 <br>
