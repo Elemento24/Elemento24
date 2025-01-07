@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my youth I stressed freedom, and in my old age I stress order. I have made the great discovery that liberty is a product of order.</b>
-> <p><i>Will Durant</i></p>
+> <b>I pretty much borrow my entire beauty regime from my mom.</b>
+> <p><i>Rashida Jones</i></p>
 
 <br>
