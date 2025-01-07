@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why does a woman work ten years to change a man's habits and then complain that he's not the man she married?</b>
-> <p><i>Barbra Streisand</i></p>
+> <b>I just like art. I get pure pleasure from it. I have a lot of wonderful paintings, and every time I look at them I see something different.</b>
+> <p><i>Jack Nicholson</i></p>
 
 <br>
