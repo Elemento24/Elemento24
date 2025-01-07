@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I first thought of the idea for 'Sweet Valley High,' I loved the idea of high school as microcosm of the real world. And what I really liked was how it moved things on from 'Sleeping Beauty'-esque romance novels where the girl had to wait for the hero. This would be girl-driven, very different, I decided - and indeed it is.</b>
-> <p><i>Francine Pascal</i></p>
+> <b>More marriages might survive if the partners realized that sometimes the better comes after the worse.</b>
+> <p><i>Doug Larson</i></p>
 
 <br>
