@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of leadership is saying no, not saying yes. It is very easy to say yes.</b>
-> <p><i>Tony Blair</i></p>
+> <b>The biggest danger to the European Union comes not from those who advocate change, but from those who denounce new thinking as heresy. In its long history Europe has experience of heretics who turned out to have a point.</b>
+> <p><i>David Cameron</i></p>
 
 <br>
