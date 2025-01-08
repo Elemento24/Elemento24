@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's the beauty of music. You can take a theme from a Bach sacred chorale and improvise. It doesn't make any difference where the theme comes from the treatment of it can be jazz.</b>
-> <p><i>Dave Brubeck</i></p>
+> <b>I came back to performing with a different attitude about performing and myself. I wasn't expecting perfection any more, just hoping for an occasional inspiration.</b>
+> <p><i>Neil Diamond</i></p>
 
 <br>
