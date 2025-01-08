@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mum loves me being famous! She is so excited and proud, as she had me so young and couldn't support me, so I am living her dream, it's sweeter for both of us. It's her 40th birthday soon and I'm going to buy her 40 presents.</b>
-> <p><i>Adele</i></p>
+> <b>To be perfectly honest, I think that as I'm growing older, I'm just growing more impatient. I'll be very happy if at some point people say, 'Michael's grown wiser and softer in his old age.' But we'll have to wait and see what my next project is.</b>
+> <p><i>Michael Haneke</i></p>
 
 <br>
