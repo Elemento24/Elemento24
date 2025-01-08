@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty, like ice, our footing does betray Who can tread sure on the smooth, slippery way: Pleased with the surface, we glide swiftly on, And see the dangers that we cannot shun.</b>
-> <p><i>John Dryden</i></p>
+> <b>Don't let your ego get too close to your position, so that if your position gets shot down, your ego doesn't go with it.</b>
+> <p><i>Colin Powell</i></p>
 
 <br>
