@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some say that the age of chivalry is past, that the spirit of romance is dead. The age of chivalry is never past, so long as there is a wrong left unredressed on earth.</b>
-> <p><i>Charles Kingsley</i></p>
+> <b>That term's definitely got a negative aura to it, because people think a diva is somebody with an attitude who demands things all the time. Of course there is that type of diva, but my idea of a diva has always been a singer - whether male or female - who gets on that stage and captivates you with their presence and their voice.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
