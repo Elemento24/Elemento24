@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like anything else that happens on its own, the act of writing is beyond currency. Money is great stuff to have, but when it comes to the act of creation, the best thing is not to think of money too much. It constipates the whole process.</b>
-> <p><i>Stephen King</i></p>
+> <b>For people who are really talented, what you don't say becomes extremely important. You have to judge what to say and what to leave alone so you can let the talent develop.</b>
+> <p><i>Itzhak Perlman</i></p>
 
 <br>
