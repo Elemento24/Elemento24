@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In our so-called democracy we are accustomed to give the majority what they want rather than educate them to understand what is best for them.</b>
-> <p><i>Carter G. Woodson</i></p>
+> <b>Turns out, I couldn't catch them - or even get close to them. I realized that sharks are amazing, beautiful animals who have absolutely no interest in checking me out.</b>
+> <p><i>Malin Akerman</i></p>
 
 <br>
