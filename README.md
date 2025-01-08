@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the country of pain we are each alone.</b>
-> <p><i>May Sarton</i></p>
+> <b>An artist is always alone - if he is an artist. No, what the artist needs is loneliness.</b>
+> <p><i>Henry Miller</i></p>
 
 <br>
