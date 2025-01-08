@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Probably nothing serious or worthwhile can be accomplished without one's willingness to be alone for sustained periods of time, which is not to say that one must live alone, obsessively.</b>
-> <p><i>Joyce Carol Oates</i></p>
+> <b>Mum loves me being famous! She is so excited and proud, as she had me so young and couldn't support me, so I am living her dream, it's sweeter for both of us. It's her 40th birthday soon and I'm going to buy her 40 presents.</b>
+> <p><i>Adele</i></p>
 
 <br>
