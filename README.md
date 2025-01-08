@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist is always alone - if he is an artist. No, what the artist needs is loneliness.</b>
-> <p><i>Henry Miller</i></p>
+> <b>To succeed in business it is necessary to make others see things as you see them.</b>
+> <p><i>Aristotle Onassis</i></p>
 
 <br>
