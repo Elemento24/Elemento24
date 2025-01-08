@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are in danger of making our cities places where business goes on but where life, in its real sense, is lost.</b>
-> <p><i>Hubert H. Humphrey</i></p>
+> <b>Life's an awfully lonesome affair. You come into the world alone and you go out of the world alone yet it seems to me you are more alone while living than even going and coming.</b>
+> <p><i>Emily Carr</i></p>
 
 <br>
