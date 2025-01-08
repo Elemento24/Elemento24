@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Turns out, I couldn't catch them - or even get close to them. I realized that sharks are amazing, beautiful animals who have absolutely no interest in checking me out.</b>
-> <p><i>Malin Akerman</i></p>
+> <b>Like anything else that happens on its own, the act of writing is beyond currency. Money is great stuff to have, but when it comes to the act of creation, the best thing is not to think of money too much. It constipates the whole process.</b>
+> <p><i>Stephen King</i></p>
 
 <br>
