@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People don't change their behavior unless it makes a difference for them to do so.</b>
-> <p><i>Sharon Stone</i></p>
+> <b>It has always been my belief that a man should do his best, regardless of how much he receives for his services, or the number of people he may be serving or the class of people served.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
