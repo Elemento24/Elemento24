@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Filipinos want beauty. I have to look beautiful so that the poor Filipinos will have a star to look at from their slums.</b>
-> <p><i>Imelda Marcos</i></p>
+> <b>A man growing old becomes a child again.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
