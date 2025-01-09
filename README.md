@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most men's anger about religion is as if two men should quarrel for a lady they neither of them care for.</b>
-> <p><i>Edward F. Halifax</i></p>
+> <b>Filipinos want beauty. I have to look beautiful so that the poor Filipinos will have a star to look at from their slums.</b>
+> <p><i>Imelda Marcos</i></p>
 
 <br>
