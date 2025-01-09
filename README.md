@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If we don't like what the Republicans do, we need to get in there and change it.</b>
-> <p><i>Medgar Evers</i></p>
+> <b>The making of friends who are real friends, is the best token we have of a man's success in life.</b>
+> <p><i>Edward Everett Hale</i></p>
 
 <br>
