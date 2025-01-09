@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The same things we've done the past couple of seasons. We've worked on the engine and clutch. We'll try and pick up the performance and consistency of the car and go back out there.</b>
-> <p><i>Larry Dixon</i></p>
+> <b>It is our moral obligation to give every child the very best education possible.</b>
+> <p><i>Desmond Tutu</i></p>
 
 <br>
