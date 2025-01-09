@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The music is first and foremost everything - no egos, no attitude, nothing - it's about the music.</b>
-> <p><i>Big Boi</i></p>
+> <b>Beauty and femininity are ageless and can't be contrived, and glamour, although the manufacturers won't like this, cannot be manufactured. Not real glamour it's based on femininity.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
