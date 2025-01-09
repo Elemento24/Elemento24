@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know why, it's the same reason why you like some music and you don't like others. There's something about it that you like. Ultimately I don't find it's in my best interests to try and analyze it, since it's fundamentally emotional.</b>
-> <p><i>Jerry Garcia</i></p>
+> <b>Whenever I listen to a children's orchestra, I learn. They feel everything, they enjoy everything, they have amazing energy.</b>
+> <p><i>Gustavo Dudamel</i></p>
 
 <br>
