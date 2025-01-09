@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a reality that in this business there's an expectation of being thin. But having a baby is a reality too, and it's more important for me to make milk than to fit into those tiny pants. So that's just going to have to wait.</b>
-> <p><i>Emily Procter</i></p>
+> <b>I don't know why, it's the same reason why you like some music and you don't like others. There's something about it that you like. Ultimately I don't find it's in my best interests to try and analyze it, since it's fundamentally emotional.</b>
+> <p><i>Jerry Garcia</i></p>
 
 <br>
