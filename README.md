@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The compulsion to do good is an innate American trait. Only North Americans seem to believe that they always should, may, and actually can choose somebody with whom to share their blessings. Ultimately this attitude leads to bombing people into the acceptance of gifts.</b>
-> <p><i>Ivan Illich</i></p>
+> <b>Most men's anger about religion is as if two men should quarrel for a lady they neither of them care for.</b>
+> <p><i>Edward F. Halifax</i></p>
 
 <br>
