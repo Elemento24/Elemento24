@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Imperfection is beauty, madness is genius and it's better to be absolutely ridiculous than absolutely boring.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>Shortly thereafter, some friends encouraged me to try out for the Miss South Carolina World beauty pageant. To my surprise, I won - and was sent to New York City to compete nationally.</b>
+> <p><i>Donna Rice</i></p>
 
 <br>
