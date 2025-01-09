@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whenever I listen to a children's orchestra, I learn. They feel everything, they enjoy everything, they have amazing energy.</b>
-> <p><i>Gustavo Dudamel</i></p>
+> <b>Excellence is the best deterrent to racism or sexism.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
