@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are stymied by regulations, limited choice and the threat of litigation. Neither consultants nor industry itself provide research which takes architecture forward.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>Mayors could never get away with the kind of nonsense that goes on in Washington. In our world, you either picked up the trash or you didn't. You either moved an abandoned car or you didn't. You either filled a pothole or you didn't. That's what we do every day. And we know how to get this stuff done.</b>
+> <p><i>Michael Nutter</i></p>
 
 <br>
