@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman whose smile is open and whose expression is glad has a kind of beauty no matter what she wears.</b>
-> <p><i>Anne Roiphe</i></p>
+> <b>We are stymied by regulations, limited choice and the threat of litigation. Neither consultants nor industry itself provide research which takes architecture forward.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
