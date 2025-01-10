@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all have big changes in our lives that are more or less a second chance.</b>
-> <p><i>Harrison Ford</i></p>
+> <b>It is not the young people that degenerate they are not spoiled till those of mature age are already sunk into corruption.</b>
+> <p><i>Charles de Montesquieu</i></p>
 
 <br>
