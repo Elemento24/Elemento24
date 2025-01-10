@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We need to become good citizens in the global village, instead of competing. What are we competing for - to drive more cars, eat more steaks? That will destroy the world.</b>
-> <p><i>Yuan T. Lee</i></p>
+> <b>Its attitude, which it has preached and practiced, is skepticism. Now, it finds, the public is applying that skepticism to the press.</b>
+> <p><i>Thomas Griffith</i></p>
 
 <br>
