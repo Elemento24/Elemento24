@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The unconditional love for you child, it's truly amazing.</b>
-> <p><i>Jourdan Dunn</i></p>
+> <b>It's clever, but is it Art?</b>
+> <p><i>Rudyard Kipling</i></p>
 
 <br>
