@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have grown up alone. I've taken care of myself. I worked, earned money and was independent at 18.</b>
-> <p><i>Ingrid Bergman</i></p>
+> <b>Zest is the secret of all beauty. There is no beauty that is attractive without zest.</b>
+> <p><i>Christian Dior</i></p>
 
 <br>
