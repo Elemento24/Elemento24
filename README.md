@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're truly in a band and you guys have been together for a long time, there's a family bond that you have. In fact, I've talked about this with therapists, especially if you're talking about a relationship, because when you're with somebody, you're going to your family, and she's alone.</b>
-> <p><i>Gary Allan</i></p>
+> <b>My passion and great enjoyment for architecture, and the reason the older I get the more I enjoy it, is because I believe we - architects - can effect the quality of life of the people.</b>
+> <p><i>Richard Rogers</i></p>
 
 <br>
