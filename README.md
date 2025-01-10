@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like progress but I hate change.</b>
-> <p><i>Jon Bon Jovi</i></p>
+> <b>We need to become good citizens in the global village, instead of competing. What are we competing for - to drive more cars, eat more steaks? That will destroy the world.</b>
+> <p><i>Yuan T. Lee</i></p>
 
 <br>
