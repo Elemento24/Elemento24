@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My passion and great enjoyment for architecture, and the reason the older I get the more I enjoy it, is because I believe we - architects - can effect the quality of life of the people.</b>
-> <p><i>Richard Rogers</i></p>
+> <b>I have grown up alone. I've taken care of myself. I worked, earned money and was independent at 18.</b>
+> <p><i>Ingrid Bergman</i></p>
 
 <br>
