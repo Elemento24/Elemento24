@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not the young people that degenerate they are not spoiled till those of mature age are already sunk into corruption.</b>
-> <p><i>Charles de Montesquieu</i></p>
+> <b>And at five o'clock in the morning we left to drive to Old Tucson, and I sat with my mouth open in the van. I was stunned by the beauty of that country.</b>
+> <p><i>Erika Slezak</i></p>
 
 <br>
