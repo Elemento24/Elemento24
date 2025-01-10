@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is tragic that people who are incarcerated are unable to vote. They are probably the most important voices to listen to because they can tell us what we need to change.</b>
-> <p><i>Margaret Cho</i></p>
+> <b>We all have big changes in our lives that are more or less a second chance.</b>
+> <p><i>Harrison Ford</i></p>
 
 <br>
