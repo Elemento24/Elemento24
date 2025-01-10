@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art must take reality by surprise.</b>
-> <p><i>Francoise Sagan</i></p>
+> <b>Age appears to be best in four things old wood best to burn, old wine to drink, old friends to trust, and old authors to read.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
