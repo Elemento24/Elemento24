@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Its attitude, which it has preached and practiced, is skepticism. Now, it finds, the public is applying that skepticism to the press.</b>
-> <p><i>Thomas Griffith</i></p>
+> <b>A woman whose smile is open and whose expression is glad has a kind of beauty no matter what she wears.</b>
+> <p><i>Anne Roiphe</i></p>
 
 <br>
