@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age appears to be best in four things old wood best to burn, old wine to drink, old friends to trust, and old authors to read.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>There is an anti-aging possibility, but it has to come from within.</b>
+> <p><i>Susan Anton</i></p>
 
 <br>
