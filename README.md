@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have to get back to the beauty of just being alive in this present moment.</b>
-> <p><i>Mary McDonnell</i></p>
+> <b>Business is tough you need tough guys.</b>
+> <p><i>Carlos Ghosn</i></p>
 
 <br>
