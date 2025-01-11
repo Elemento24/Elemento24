@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never wanted to do TV. I just did what I was trained to do through the Special Forces, and I've been doing that from a very young age.</b>
-> <p><i>Bear Grylls</i></p>
+> <b>I started out by believing God for a newer car than the one I was driving. I started out believing God for a nicer apartment than I had. Then I moved up.</b>
+> <p><i>Jim Bakker</i></p>
 
 <br>
