@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business is tough you need tough guys.</b>
-> <p><i>Carlos Ghosn</i></p>
+> <b>I gave a funny speech at my wife's birthday party, and I'm thinking, 'Hey, I've still got it.'</b>
+> <p><i>Larry David</i></p>
 
 <br>
