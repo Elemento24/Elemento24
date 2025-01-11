@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If we get the capabilities, NATO, along with the European Union, can do amazing things.</b>
-> <p><i>Lord Robertson</i></p>
+> <b>Love, with very young people, is a heartless business. We drink at that age from thirst, or to get drunk it is only later in life that we occupy ourselves with the individuality of our wine.</b>
+> <p><i>Isak Dinesen</i></p>
 
 <br>
