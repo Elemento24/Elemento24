@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Baseball is a game, yes. It is also a business. But what is most truly is is disguised combat. For all its gentility, its almost leisurely pace, baseball is violence under wraps.</b>
-> <p><i>Willie Mays</i></p>
+> <b>We have to get back to the beauty of just being alive in this present moment.</b>
+> <p><i>Mary McDonnell</i></p>
 
 <br>
