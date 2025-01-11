@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My general attitude to life is to enjoy every minute of every day. I never do anything with a feeling of, 'Oh God, I've got to do this today.'</b>
-> <p><i>Richard Branson</i></p>
+> <b>When I look into the crowd, I see young and old, black and white - it's amazing that I'm able to connect with so many different kinds of people.</b>
+> <p><i>Patti LaBelle</i></p>
 
 <br>
