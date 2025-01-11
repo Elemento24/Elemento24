@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What would be a show that I would rescue? If I could bring anything back, it would be 'The Carol Burnett Show'. Tim Conway is just... I just watched him so many times do stuff over and over. He's just so amazing.</b>
-> <p><i>Tony Hale</i></p>
+> <b>I am 54 and age is slowly writing itself on my face.</b>
+> <p><i>Arthur Smith</i></p>
 
 <br>
