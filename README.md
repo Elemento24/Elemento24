@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I decided to get married at 40, I couldn't find a dress with the modernity or sophistication I wanted. That's when I saw the opportunity for a wedding gown business.</b>
-> <p><i>Vera Wang</i></p>
+> <b>To create architecture is to put in order. Put what in order? Function and objects.</b>
+> <p><i>Le Corbusier</i></p>
 
 <br>
