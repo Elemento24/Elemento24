@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I gave a funny speech at my wife's birthday party, and I'm thinking, 'Hey, I've still got it.'</b>
-> <p><i>Larry David</i></p>
+> <b>We live in an age of instant knowledge. And there's almost a sense of entitlement to that.</b>
+> <p><i>J. J. Abrams</i></p>
 
 <br>
