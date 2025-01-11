@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I started out by believing God for a newer car than the one I was driving. I started out believing God for a nicer apartment than I had. Then I moved up.</b>
-> <p><i>Jim Bakker</i></p>
+> <b>Baseball is a game, yes. It is also a business. But what is most truly is is disguised combat. For all its gentility, its almost leisurely pace, baseball is violence under wraps.</b>
+> <p><i>Willie Mays</i></p>
 
 <br>
