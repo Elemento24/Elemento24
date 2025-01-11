@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The day which we fear as our last is but the birthday of eternity.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>Every time I copy something, I can draw it for the rest of my life. But research is so painful - I mean just opening up a magazine looking for a picture of a car or looking out the window looking for a car is just hard!</b>
+> <p><i>Jaime Hernandez</i></p>
 
 <br>
