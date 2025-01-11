@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The successful man is the one who finds out what is the matter with his business before his competitors do.</b>
-> <p><i>Roy L. Smith</i></p>
+> <b>I don't want life to imitate art. I want life to be art.</b>
+> <p><i>Ernst Fischer</i></p>
 
 <br>
