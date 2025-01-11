@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I look into the crowd, I see young and old, black and white - it's amazing that I'm able to connect with so many different kinds of people.</b>
-> <p><i>Patti LaBelle</i></p>
+> <b>The successful man is the one who finds out what is the matter with his business before his competitors do.</b>
+> <p><i>Roy L. Smith</i></p>
 
 <br>
