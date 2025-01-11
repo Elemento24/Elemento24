@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never travel without my Stetson, but the more I wear it the more I realise that no one wears hats any more. When I was a kid everybody wore hats, especially in Texas, but I get off the plane in Dallas now and I'm the only guy with a hat. It's amazing.</b>
-> <p><i>Larry Hagman</i></p>
+> <b>It is eerie being all but alone in Westminster Abbey. Without the tourists, there are only the dead, many of them kings and queens. They speak powerfully and put my thoughts into vivid perspective.</b>
+> <p><i>A. N. Wilson</i></p>
 
 <br>
