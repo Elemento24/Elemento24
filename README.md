@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ours is essentially a tragic age, so we refuse to take it tragically.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>My general attitude to life is to enjoy every minute of every day. I never do anything with a feeling of, 'Oh God, I've got to do this today.'</b>
+> <p><i>Richard Branson</i></p>
 
 <br>
