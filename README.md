@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To create architecture is to put in order. Put what in order? Function and objects.</b>
-> <p><i>Le Corbusier</i></p>
+> <b>If we get the capabilities, NATO, along with the European Union, can do amazing things.</b>
+> <p><i>Lord Robertson</i></p>
 
 <br>
