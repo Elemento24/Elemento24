@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no self-knowledge but an historical one. No one knows what he himself is who does not know his fellow men, especially the most prominent one of the community, the master's master, the genius of the age.</b>
-> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
+> <b>All art is exorcism. I paint dreams and visions too the dreams and visions of my time. Painting is the effort to produce order order in yourself. There is much chaos in me, much chaos in our time.</b>
+> <p><i>Otto Dix</i></p>
 
 <br>
