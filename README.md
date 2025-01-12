@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For my birthday my husband learned to cook and is cooking one day a week for me. But he only likes to do fancy dishes. So we end up with weird, obscure things in the refrigerator.</b>
-> <p><i>Cheryl Hines</i></p>
+> <b>I told my father I wanted to play the banjo, and so he saved the money and got ready to give me a banjo for my next birthday, and between that time and my birthday, I lost interest in the banjo and was playing guitar.</b>
+> <p><i>Jackson Browne</i></p>
 
 <br>
