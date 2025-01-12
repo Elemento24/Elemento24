@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love that for Barack, there is no such thing as 'us' and 'them' - he doesn't care whether you're a Democrat, a Republican, or none of the above... he knows that we all love our country... and he's always ready to listen to good ideas... he's always looking for the very best in everyone he meets.</b>
-> <p><i>Michelle Obama</i></p>
+> <b>There is no self-knowledge but an historical one. No one knows what he himself is who does not know his fellow men, especially the most prominent one of the community, the master's master, the genius of the age.</b>
+> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
 
 <br>
