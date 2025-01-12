@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that age as a number is not nearly as important as health. You can be in poor health and be pretty miserable at 40 or 50. If you're in good health, you can enjoy things into your 80s.</b>
-> <p><i>Bob Barker</i></p>
+> <b>I mean, if you didn't get it or if you didn't feel like you enjoyed it, sometimes that experience can change.</b>
+> <p><i>Keanu Reeves</i></p>
 
 <br>
