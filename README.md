@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Giving someone a one-time stimulus check, or a one-time tax cut that expires doesn't allow the predictability that business needs.</b>
-> <p><i>Rand Paul</i></p>
+> <b>To live is to change, and to be perfect is to have changed often.</b>
+> <p><i>John Henry Newman</i></p>
 
 <br>
