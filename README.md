@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I told my father I wanted to play the banjo, and so he saved the money and got ready to give me a banjo for my next birthday, and between that time and my birthday, I lost interest in the banjo and was playing guitar.</b>
-> <p><i>Jackson Browne</i></p>
+> <b>Every now and then, I have blissful moments of thanking God for all the amazing things that are happening. When I leave the White House after just meeting Obama or when I see my face on the cover of 'Rolling Stone' or when I meet someone who tells me that their daughter is inspired by me, those are moments that are incredibly joyful.</b>
+> <p><i>Lea Michele</i></p>
 
 <br>
