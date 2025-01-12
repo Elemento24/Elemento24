@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Improvisation is almost like the retarded cousin in the comedy world. We've been trying forever to get improvisation on TV. It's just like stand-up. It's best when it's just left alone. It doesn't translate always on TV. It's best live.</b>
-> <p><i>Amy Poehler</i></p>
+> <b>In business, you're the Chief Salesman. Create a sense of demand, rather than waiting to have demand.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
