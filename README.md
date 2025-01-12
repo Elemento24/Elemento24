@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In business, you're the Chief Salesman. Create a sense of demand, rather than waiting to have demand.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>One of the most amazing things about mathematics is the people who do math aren't usually interested in application, because mathematics itself is truly a beautiful art form. It's structures and patterns, and that's what we love, and that's what we get off on.</b>
+> <p><i>Danica McKellar</i></p>
 
 <br>
