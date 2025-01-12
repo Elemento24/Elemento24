@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, if you didn't get it or if you didn't feel like you enjoyed it, sometimes that experience can change.</b>
-> <p><i>Keanu Reeves</i></p>
+> <b>Giving someone a one-time stimulus check, or a one-time tax cut that expires doesn't allow the predictability that business needs.</b>
+> <p><i>Rand Paul</i></p>
 
 <br>
