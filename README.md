@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's what liberalism is all about, is promoting incompetence on the basis it's fair, because people would be the best if they weren't discriminated against.</b>
-> <p><i>Rush Limbaugh</i></p>
+> <b>You may choose your words like a connoisseur, And polish it up with art, But the word that sways, and stirs, and stays, Is the word that comes from the heart.</b>
+> <p><i>Ella Wheeler Wilcox</i></p>
 
 <br>
