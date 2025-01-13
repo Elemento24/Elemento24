@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To change a habit, make a conscious decision, then act out the new behavior.</b>
-> <p><i>Maxwell Maltz</i></p>
+> <b>It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change.</b>
+> <p><i>Charles Darwin</i></p>
 
 <br>
