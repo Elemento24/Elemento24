@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the first age that's ever paid much attention to the future, which is a little ironic since we may not have one.</b>
-> <p><i>Arthur C. Clarke</i></p>
+> <b>It's good for everyone to understand that they are to love their enemies, simply because your enemies show you things about yourself you need to change. So in actuality enemies are friends in reverse.</b>
+> <p><i>Gary Busey</i></p>
 
 <br>
