@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like sex in Victorian England, the reality of Big Business today is our big dirty secret.</b>
-> <p><i>Ralph Nader</i></p>
+> <b>Change alone is unchanging.</b>
+> <p><i>Heraclitus</i></p>
 
 <br>
