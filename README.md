@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Employers and business leaders need people who can think for themselves - who can take initiative and be the solution to problems.</b>
-> <p><i>Stephen Covey</i></p>
+> <b>To change a habit, make a conscious decision, then act out the new behavior.</b>
+> <p><i>Maxwell Maltz</i></p>
 
 <br>
