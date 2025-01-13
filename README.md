@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If there is no struggle, there is no progress.</b>
-> <p><i>Frederick Douglass</i></p>
+> <b>If you want to have a good life, you should focus on your family, on your business, on your dog, on your fun, and you'll have a good life.</b>
+> <p><i>Adam Carolla</i></p>
 
 <br>
