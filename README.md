@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It proved easier to buy the farm to get the mineral rights than to buy the coal rights alone.</b>
-> <p><i>Orville Redenbacher</i></p>
+> <b>What makes photography a strange invention is that its primary raw materials are light and time.</b>
+> <p><i>John Berger</i></p>
 
 <br>
