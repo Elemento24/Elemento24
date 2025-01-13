@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like staying in hotels. I like to be in my own bed. San Diego as a city is really awesome. The only hard part of it for me is that I'm away from my family and my house. But as far as shooting down there, we get amazing locations, and the crew is really, really stellar down there. They are really fun.</b>
-> <p><i>Kristen Bell</i></p>
+> <b>I know that I've got big ears and a big forehead and that my hair sticks up. But I'm happy with myself. I'm not necessarily trying to win a beauty pageant here.</b>
+> <p><i>Clay Aiken</i></p>
 
 <br>
