@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change.</b>
-> <p><i>Charles Darwin</i></p>
+> <b>Christmas lights may be the loneliest thing for me, especially if you mix them up with reindeers and sleighs. I feel alone. I feel isolated. I feel I do not belong.</b>
+> <p><i>Mira Nair</i></p>
 
 <br>
