@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love clothes, but I don't know what to put on myself, let alone others. I have a lot of help getting dressed.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>There is little premium in poetry in a world that thinks of Pound and Whitman as a weight and a sampler, not an Ezra, a Walt, a thing of beauty, a joy forever.</b>
+> <p><i>Anna Quindlen</i></p>
 
 <br>
