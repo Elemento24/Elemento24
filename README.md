@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no absurdity so palpable but that it may be firmly planted in the human head if you only begin to inculcate it before the age of five, by constantly repeating it with an air of great solemnity.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>And fifth, we will champion small businesses, America's engine of job growth. That means reducing taxes on business, not raising them. It means simplifying and modernizing the regulations that hurt small business the most. And it means that we must rein in the skyrocketing cost of healthcare by repealing and replacing Obamacare.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
