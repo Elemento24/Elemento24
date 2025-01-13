@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Christmas lights may be the loneliest thing for me, especially if you mix them up with reindeers and sleighs. I feel alone. I feel isolated. I feel I do not belong.</b>
-> <p><i>Mira Nair</i></p>
+> <b>I don't like staying in hotels. I like to be in my own bed. San Diego as a city is really awesome. The only hard part of it for me is that I'm away from my family and my house. But as far as shooting down there, we get amazing locations, and the crew is really, really stellar down there. They are really fun.</b>
+> <p><i>Kristen Bell</i></p>
 
 <br>
