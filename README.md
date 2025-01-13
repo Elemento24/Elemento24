@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've found the best way is to not be scared of the attention but to be grateful for it and open to it. It makes my days better rather than being annoyed that people want my attention.</b>
-> <p><i>Brandon Routh</i></p>
+> <b>This is the first age that's ever paid much attention to the future, which is a little ironic since we may not have one.</b>
+> <p><i>Arthur C. Clarke</i></p>
 
 <br>
