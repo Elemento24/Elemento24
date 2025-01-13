@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be with those who know secret things or else alone.</b>
-> <p><i>Rainer Maria Rilke</i></p>
+> <b>Like sex in Victorian England, the reality of Big Business today is our big dirty secret.</b>
+> <p><i>Ralph Nader</i></p>
 
 <br>
