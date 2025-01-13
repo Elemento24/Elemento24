@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is little premium in poetry in a world that thinks of Pound and Whitman as a weight and a sampler, not an Ezra, a Walt, a thing of beauty, a joy forever.</b>
-> <p><i>Anna Quindlen</i></p>
+> <b>It proved easier to buy the farm to get the mineral rights than to buy the coal rights alone.</b>
+> <p><i>Orville Redenbacher</i></p>
 
 <br>
