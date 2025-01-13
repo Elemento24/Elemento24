@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The compensation of a very early success is a conviction that life is a romantic matter. In the best sense one stays young.</b>
-> <p><i>F. Scott Fitzgerald</i></p>
+> <b>There is no absurdity so palpable but that it may be firmly planted in the human head if you only begin to inculcate it before the age of five, by constantly repeating it with an air of great solemnity.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
