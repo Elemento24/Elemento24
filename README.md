@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At home in Ireland, there's a habit of avoidance, an ironical attitude towards the authority figure.</b>
-> <p><i>Seamus Heaney</i></p>
+> <b>One of my biggest problems this season was with the clutch at the start of the race. I hate to risk the car.</b>
+> <p><i>Alain Prost</i></p>
 
 <br>
