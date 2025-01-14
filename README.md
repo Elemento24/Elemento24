@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thing people don't understand is that touring or travelling or whatever you do in my position means you go to all these cool places all over the world, but you see everything from a car window. You don't get to see much of the city or meet people at all.</b>
-> <p><i>Taylor Momsen</i></p>
+> <b>I read murder mysteries. I exercise 40 minutes a day. I watch videotapes while I exercise. I listen to audiotapes when I am in my car. And I try to stay in three different centuries.</b>
+> <p><i>Grover Norquist</i></p>
 
 <br>
