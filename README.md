@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing like the way people feel after they've seen 'The Intouchables.' They feel amazing. The word of mouth on this film is incredible. It's intelligent-feeling good. You're not insulted by the low-browness or stupidity of some of the humor. It's so smart and terrific.</b>
-> <p><i>Harvey Weinstein</i></p>
+> <b>To make pictures big is to make them more powerful.</b>
+> <p><i>Robert Mapplethorpe</i></p>
 
 <br>
