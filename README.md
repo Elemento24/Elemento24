@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wise anger is like fire from a flint: there is great ado to get it out and when it does come, it is out again immediately.</b>
-> <p><i>Edward Everett Hale</i></p>
+> <b>I want to serve chess through games, books that are works of art. I would like to bring the game closer to many people all over the world.</b>
+> <p><i>Garry Kasparov</i></p>
 
 <br>
