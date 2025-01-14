@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I could have been an architect, but I don't think I'd have been very happy. Nearly all modern architecture is a silly game as far as I can see.</b>
-> <p><i>Roger Waters</i></p>
+> <b>Architecture is basically a container of something. I hope they will enjoy not so much the teacup, but the tea.</b>
+> <p><i>Yoshio Taniguchi</i></p>
 
 <br>
