@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is basically a container of something. I hope they will enjoy not so much the teacup, but the tea.</b>
-> <p><i>Yoshio Taniguchi</i></p>
+> <b>The thing people don't understand is that touring or travelling or whatever you do in my position means you go to all these cool places all over the world, but you see everything from a car window. You don't get to see much of the city or meet people at all.</b>
+> <p><i>Taylor Momsen</i></p>
 
 <br>
