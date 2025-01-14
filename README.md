@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You say a new era in art is preparing you sensed it coming continue your studies without weakening. God will do the rest.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>It's an art to live with pain... mix the light into gray.</b>
+> <p><i>Eddie Vedder</i></p>
 
 <br>
