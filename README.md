@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of my biggest problems this season was with the clutch at the start of the race. I hate to risk the car.</b>
-> <p><i>Alain Prost</i></p>
+> <b>Wise anger is like fire from a flint: there is great ado to get it out and when it does come, it is out again immediately.</b>
+> <p><i>Edward Everett Hale</i></p>
 
 <br>
