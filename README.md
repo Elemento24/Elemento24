@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Science arose from poetry... when times change the two can meet again on a higher level as friends.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>All architecture is great architecture after sunset perhaps architecture is really a nocturnal art, like the art of fireworks.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
