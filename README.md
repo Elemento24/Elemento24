@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Birdie is amazing and such an incredible child and I'm having such a great time being a mom but I still want to have a career and I still look forward to auditions and parts, and when I don't get them I'm disappointed.</b>
-> <p><i>Busy Philipps</i></p>
+> <b>Bring a wife home to your house when you are of the right age, not far short of 30 years, nor much above this is the right time for marriage.</b>
+> <p><i>Hesiod</i></p>
 
 <br>
