@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The theatre only knows what it's doing next week, not like the opera, where they say: What are we going to do in five years' time? A completely different attitude.</b>
-> <p><i>Harrison Birtwistle</i></p>
+> <b>There is no definition of beauty, but when you can see someone's spirit coming through, something unexplainable, that's beautiful to me.</b>
+> <p><i>Liv Tyler</i></p>
 
 <br>
