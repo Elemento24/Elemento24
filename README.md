@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a bad driver. And I never will be because I took lessons when I was quite a boy. I never had to pass a test because there wasn't such a thing when I first started driving a motor car. So I didn't have to pass one.</b>
-> <p><i>Richard Murdoch</i></p>
+> <b>A grave blockhead should always go about with a lively one - they show one another off to the best advantage.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
