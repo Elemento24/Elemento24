@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The heart never grows better by age I fear rather worse, always harder. A young liar will be an old one, and a young knave will only be a greater knave as he grows older.</b>
-> <p><i>Lord Chesterfield</i></p>
+> <b>The theatre only knows what it's doing next week, not like the opera, where they say: What are we going to do in five years' time? A completely different attitude.</b>
+> <p><i>Harrison Birtwistle</i></p>
 
 <br>
