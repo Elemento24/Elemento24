@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change alone is eternal, perpetual, immortal.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>Beauty can make you powerful in a way that isn't good for you. Being OK is better for the person I have become.</b>
+> <p><i>Felicity Huffman</i></p>
 
 <br>
