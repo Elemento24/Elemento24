@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Few will have the greatness to bend history itself but each of us can work to change a small portion of events, and in the total of all those acts will be written the history of this generation.</b>
-> <p><i>Robert Kennedy</i></p>
+> <b>In my old age, I'll be in L.A.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
