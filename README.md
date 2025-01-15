@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bring a wife home to your house when you are of the right age, not far short of 30 years, nor much above this is the right time for marriage.</b>
-> <p><i>Hesiod</i></p>
+> <b>Few will have the greatness to bend history itself but each of us can work to change a small portion of events, and in the total of all those acts will be written the history of this generation.</b>
+> <p><i>Robert Kennedy</i></p>
 
 <br>
