@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very happy to hear that my work inspires writers and painters. It's the most beautiful compliment, the greatest reward. Art should always be an exchange.</b>
-> <p><i>Nick Cave</i></p>
+> <b>The more you are in this business, the more humbled by it you become.</b>
+> <p><i>Meryl Streep</i></p>
 
 <br>
