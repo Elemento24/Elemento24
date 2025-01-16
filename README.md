@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone goes to the same exhibitions and the same parties, stays in the same handful of hotels, eats at the same no-star restaurants, and has almost the same opinions. I adore the art world, but this is copycat behavior in a sphere that prides itself on independent thinking.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I lived in small town out in the desert and my friend used to steal his mom's car in the middle of the night. He'd drive over to my house, I'd sneak out and we'd go out to the desert and just burn things down.</b>
+> <p><i>Mark Hoppus</i></p>
 
 <br>
