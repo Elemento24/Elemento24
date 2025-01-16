@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The turning point was when I hit my 30th birthday. I thought, if really want to write, it's time to start. I picked up the book How to Write a Novel in 90 Days. The author said to just write three pages a day, and I figured, I can do this. I never got past Page 3 of that book.</b>
-> <p><i>James Rollins</i></p>
+> <b>I tried for a while to be an agricultural worker and was hopelessly bored. I would stand around in heaps of manure and sing about the beauty of the work I wasn't doing.</b>
+> <p><i>Theodore Bikel</i></p>
 
 <br>
