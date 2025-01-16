@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maybe it is something to do with age, but I have become fonder of poetry than of prose.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>Death is a billion-dollar business. They can't even pass a law where it takes seven days to get a gun. Why don't you have to go through the same kind of screening you do to get a driver's license? It's totally insane.</b>
+> <p><i>John Cusack</i></p>
 
 <br>
