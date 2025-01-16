@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Character isn't something you were born with and can't change, like your fingerprints. It's something you weren't born with and must take responsibility for forming.</b>
-> <p><i>Jim Rohn</i></p>
+> <b>American Idol transcends age, gender, ethnicity, everything.</b>
+> <p><i>Carrie Underwood</i></p>
 
 <br>
