@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to be interesting. I want to be good.</b>
-> <p><i>Ludwig Mies van der Rohe</i></p>
+> <b>Everyone goes to the same exhibitions and the same parties, stays in the same handful of hotels, eats at the same no-star restaurants, and has almost the same opinions. I adore the art world, but this is copycat behavior in a sphere that prides itself on independent thinking.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
