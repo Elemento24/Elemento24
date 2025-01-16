@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Still and all, why bother? Here's my answer. Many people need desperately to receive this message: I feel and think much as you do, care about many of the things you care about, although most people do not care about them. You are not alone.</b>
-> <p><i>Kurt Vonnegut</i></p>
+> <b>Maybe it is something to do with age, but I have become fonder of poetry than of prose.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
