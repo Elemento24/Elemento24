@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture aims at Eternity.</b>
-> <p><i>Christopher Wren</i></p>
+> <b>Beauty is power a smile is its sword.</b>
+> <p><i>John Ray</i></p>
 
 <br>
