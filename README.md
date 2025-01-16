@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My justification is that most people my age spend a lot of time thinking about what they're going to do for the next five or ten years. The time they spend thinking about their life, I just spend drinking.</b>
-> <p><i>Amy Winehouse</i></p>
+> <b>I'm very happy to hear that my work inspires writers and painters. It's the most beautiful compliment, the greatest reward. Art should always be an exchange.</b>
+> <p><i>Nick Cave</i></p>
 
 <br>
