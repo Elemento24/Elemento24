@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is so cliche, but my beauty icon would have to be Angelina Jolie. She looks like she wears natural makeup, but she's still beautiful.</b>
-> <p><i>Tila Tequila</i></p>
+> <b>No matter the nationality, no matter the religion, no matter the ethnic background, America brings out the best in people.</b>
+> <p><i>Arnold Schwarzenegger</i></p>
 
 <br>
