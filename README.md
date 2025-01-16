@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>American Idol transcends age, gender, ethnicity, everything.</b>
-> <p><i>Carrie Underwood</i></p>
+> <b>Change your opinions, keep to your principles change your leaves, keep intact your roots.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
