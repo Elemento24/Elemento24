@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The time I spent thinking about how I was better than somebody else or worrying about somebody else's attitude was time I could put to better use.</b>
-> <p><i>Charley Pride</i></p>
+> <b>The very essence of the creative is its novelty, and hence we have no standard by which to judge it.</b>
+> <p><i>Carl Rogers</i></p>
 
 <br>
