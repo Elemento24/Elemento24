@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have magnificent brains, but we use a great deal of our brilliance to keep ourselves stuck and ignorant, to keep ourselves from not shining. We are so afraid of our beauty and radiance and brilliance because it scared the adults around us when we were children.</b>
-> <p><i>Patricia Sun</i></p>
+> <b>I don't know the first real thing about the dating game. I don't know how to talk to a specific person and connect. I just think you have to go to person by person and do the best you can with people in general.</b>
+> <p><i>Jason Schwartzman</i></p>
 
 <br>
