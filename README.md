@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By its very nature the beautiful is isolated from everything else. From beauty no road leads to reality.</b>
-> <p><i>Hannah Arendt</i></p>
+> <b>You always want to quit while you are ahead. You don't want to be like a fighter who stays too long in the ring until you're not performing at your best.</b>
+> <p><i>Clint Eastwood</i></p>
 
 <br>
