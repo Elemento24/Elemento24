@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All real education is the architecture of the soul.</b>
-> <p><i>William Bennett</i></p>
+> <b>I think that from the time you start playing sports as a child you see that your responsibility to your team is to play the best that you can play as an individual... and yet, not take anything away from being part of a team.</b>
+> <p><i>Wayne Gretzky</i></p>
 
 <br>
