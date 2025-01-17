@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Go on thinking that you don't need to be read and you'll find that it may become quite true: no one will feel the need tom read it because it is written for yourself alone and the public won't feel any impulse to gate crash such a private party.</b>
-> <p><i>Dylan Thomas</i></p>
+> <b>My passion and great enjoyment for architecture, and the reason the older I get the more I enjoy it, is because I believe we - architects - can effect the quality of life of the people.</b>
+> <p><i>Richard Rogers</i></p>
 
 <br>
