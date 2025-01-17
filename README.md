@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not living. It is the use of living.</b>
-> <p><i>Audre Lorde</i></p>
+> <b>We have magnificent brains, but we use a great deal of our brilliance to keep ourselves stuck and ignorant, to keep ourselves from not shining. We are so afraid of our beauty and radiance and brilliance because it scared the adults around us when we were children.</b>
+> <p><i>Patricia Sun</i></p>
 
 <br>
