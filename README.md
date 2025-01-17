@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The desire to hit a big home run is dominating the music business.</b>
-> <p><i>Billy Corgan</i></p>
+> <b>If being an egomaniac means I believe in what I do and in my art or music, then in that respect you can call me that... I believe in what I do, and I'll say it.</b>
+> <p><i>John Lennon</i></p>
 
 <br>
