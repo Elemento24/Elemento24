@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success and the art of making music are two different things for me.</b>
-> <p><i>Norah Jones</i></p>
+> <b>What could be more beautiful than a dear old lady growing wise with age? Every age can be enchanting, provided you live within it.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
