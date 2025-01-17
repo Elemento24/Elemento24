@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter the nationality, no matter the religion, no matter the ethnic background, America brings out the best in people.</b>
-> <p><i>Arnold Schwarzenegger</i></p>
+> <b>It is our moral obligation to give every child the very best education possible.</b>
+> <p><i>Desmond Tutu</i></p>
 
 <br>
