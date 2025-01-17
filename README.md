@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A bad manner spoils everything, even reason and justice a good one supplies everything, gilds a No, sweetens a truth, and adds a touch of beauty to old age itself.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>The time I spent thinking about how I was better than somebody else or worrying about somebody else's attitude was time I could put to better use.</b>
+> <p><i>Charley Pride</i></p>
 
 <br>
