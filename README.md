@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of healing comes from nature, not from the physician. Therefore the physician must start from nature, with an open mind.</b>
-> <p><i>Paracelsus</i></p>
+> <b>A woman tells her doctor, 'I've got a bad back.' The doctor says, 'It's old age.' The woman says, 'I want a second opinion.' The doctor says: 'Okay - you're ugly as well.'</b>
+> <p><i>Tommy Cooper</i></p>
 
 <br>
