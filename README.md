@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My passion and great enjoyment for architecture, and the reason the older I get the more I enjoy it, is because I believe we - architects - can effect the quality of life of the people.</b>
-> <p><i>Richard Rogers</i></p>
+> <b>The art of healing comes from nature, not from the physician. Therefore the physician must start from nature, with an open mind.</b>
+> <p><i>Paracelsus</i></p>
 
 <br>
