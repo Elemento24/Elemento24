@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Jesus picked up twelve men from the bottom ranks of business and forged them into an organisation that conquered the world.</b>
-> <p><i>Bruce Barton</i></p>
+> <b>Art is moral passion married to entertainment. Moral passion without entertainment is propaganda, and entertainment without moral passion is television.</b>
+> <p><i>Rita Mae Brown</i></p>
 
 <br>
