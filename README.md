@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is why cup finals are so special because on the day anyone can beat anyone. That's what it's all about and that's why for me the FA Cup and the Carling Cup are the best cups in the world. That's the beauty of the cup.</b>
-> <p><i>Ian Rush</i></p>
+> <b>In a civilized society, all crimes are likely to be sins, but most sins are not and ought not to be treated as crimes. Man's ultimate responsibility is to God alone.</b>
+> <p><i>Geoffrey Fisher</i></p>
 
 <br>
