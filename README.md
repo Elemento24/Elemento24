@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The principles of true art is not to portray, but to evoke.</b>
-> <p><i>Jerzy Kosinski</i></p>
+> <b>I'm a crazy car guy. I've got an airplane hangar full of cars.</b>
+> <p><i>Paul Walker</i></p>
 
 <br>
