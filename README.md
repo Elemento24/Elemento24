@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought of Paris as a beauty spot on the face of the earth, and of London as a big freckle.</b>
-> <p><i>James Weldon Johnson</i></p>
+> <b>As a kid who wasn't into sports, at school I felt almost alienated at times, whereas in the theatre community there was this amazing sense of camaraderie. Early on, we would go to rehearsals with my dad and I was like the mascot for the backstage crew. That was a big part of my childhood, so I dreamed of one day doing a play in London.</b>
+> <p><i>Zach Braff</i></p>
 
 <br>
