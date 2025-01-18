@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know why I've always been so captivated by architecture.</b>
-> <p><i>Tim Gunn</i></p>
+> <b>The Left Elite only pretend to be concerned about what's best for everyone else because it is the most effective way to manipulate you and your children into their abyss.</b>
+> <p><i>Tammy Bruce</i></p>
 
 <br>
