@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who rejects change is the architect of decay. The only human institution which rejects progress is the cemetery.</b>
-> <p><i>Harold Wilson</i></p>
+> <b>Every age needs men who will redeem the time by living with a vision of the things that are to be.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
