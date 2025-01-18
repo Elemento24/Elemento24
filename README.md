@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The strangeness will wear off and I think we will discover the deeper meanings in modern art.</b>
-> <p><i>Jackson Pollock</i></p>
+> <b>When I was in N.W.A. and didn't get paid all the money I was owed, that's when the business side of showbiz hit me.</b>
+> <p><i>Ice Cube</i></p>
 
 <br>
