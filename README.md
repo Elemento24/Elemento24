@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You always want to quit while you are ahead. You don't want to be like a fighter who stays too long in the ring until you're not performing at your best.</b>
-> <p><i>Clint Eastwood</i></p>
+> <b>Age is just a number. It's totally irrelevant unless, of course, you happen to be a bottle of wine.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
