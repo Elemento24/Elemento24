@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is moral passion married to entertainment. Moral passion without entertainment is propaganda, and entertainment without moral passion is television.</b>
-> <p><i>Rita Mae Brown</i></p>
+> <b>The strangeness will wear off and I think we will discover the deeper meanings in modern art.</b>
+> <p><i>Jackson Pollock</i></p>
 
 <br>
