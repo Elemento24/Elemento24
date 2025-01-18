@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a crazy car guy. I've got an airplane hangar full of cars.</b>
-> <p><i>Paul Walker</i></p>
+> <b>All who consult on doubtful matters, should be void of hatred, friendship, anger, and pity.</b>
+> <p><i>Sallust</i></p>
 
 <br>
