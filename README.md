@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our scientific age demands that we provide definitions, measurements, and statistics in order to be taken seriously. Yet most of the important things in life cannot be precisely defined or measured. Can we define or measure love, beauty, friendship, or decency, for example?</b>
-> <p><i>Dennis Prager</i></p>
+> <b>You are always free to change your mind and choose a different future, or a different past.</b>
+> <p><i>Richard Bach</i></p>
 
 <br>
