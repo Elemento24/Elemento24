@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody has wrestled everybody in the business like I have, especially not Bret Hart.</b>
-> <p><i>Ric Flair</i></p>
+> <b>I am careful not to confuse excellence with perfection. Excellence I can reach for perfection is God's business.</b>
+> <p><i>Michael J. Fox</i></p>
 
 <br>
