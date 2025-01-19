@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Philosophy begins in wonder. And, at the end, when philosophic thought has done its best, the wonder remains.</b>
-> <p><i>Alfred North Whitehead</i></p>
+> <b>When you are fitted in a racing car and you race to win, second or third place is not enough.</b>
+> <p><i>Ayrton Senna</i></p>
 
 <br>
