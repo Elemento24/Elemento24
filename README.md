@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Polite and velvety leaders, who take care to avoid bruising others, are generally not as effective at forcing change.</b>
-> <p><i>Walter Isaacson</i></p>
+> <b>Philosophy begins in wonder. And, at the end, when philosophic thought has done its best, the wonder remains.</b>
+> <p><i>Alfred North Whitehead</i></p>
 
 <br>
