@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Courtesy is a silver lining around the dark clouds of civilization it is the best part of refinement and in many ways, an art of heroic beauty in the vast gallery of man's cruelty and baseness.</b>
-> <p><i>Bryant H. McGill</i></p>
+> <b>After adding trillions to the debt on big-government policies most Americans didn't ask for and which we couldn't afford, Democratic leaders say they need more money, which they intend to take from small business, even though small businesses create the majority of new jobs.</b>
+> <p><i>Mitch McConnell</i></p>
 
 <br>
