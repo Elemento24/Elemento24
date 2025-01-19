@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Criticism is the art of appraising others at one's own value.</b>
-> <p><i>George Jean Nathan</i></p>
+> <b>Polite and velvety leaders, who take care to avoid bruising others, are generally not as effective at forcing change.</b>
+> <p><i>Walter Isaacson</i></p>
 
 <br>
