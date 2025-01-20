@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have my best ideas when I am alone.</b>
-> <p><i>Leona Lewis</i></p>
+> <b>I think we ought to raise the age at which juveniles can have a gun.</b>
+> <p><i>George W. Bush</i></p>
 
 <br>
