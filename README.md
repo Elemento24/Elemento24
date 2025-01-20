@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we ought to raise the age at which juveniles can have a gun.</b>
-> <p><i>George W. Bush</i></p>
+> <b>I went through life like an idiot for a great deal of the time, saying there's nothing I would change. That was a very arrogant thing to say. There's a lot I would change. There are people I would have steered clear of.</b>
+> <p><i>Hugh Leonard</i></p>
 
 <br>
