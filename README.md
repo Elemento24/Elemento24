@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At home in Ireland, there's a habit of avoidance, an ironical attitude towards the authority figure.</b>
-> <p><i>Seamus Heaney</i></p>
+> <b>The only way to change is to vote. People are responsible.</b>
+> <p><i>Paul Wellstone</i></p>
 
 <br>
