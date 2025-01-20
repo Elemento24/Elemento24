@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They can do without architecture who have no olives nor wines in the cellar.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Punk was defined by an attitude rather than a musical style.</b>
+> <p><i>David Byrne</i></p>
 
 <br>
