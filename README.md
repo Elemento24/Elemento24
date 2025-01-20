@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love the art in yourself and not yourself in the art.</b>
-> <p><i>Constantin Stanislavski</i></p>
+> <b>Through my optimism I naturally prefer and capture the beauty in life.</b>
+> <p><i>Leni Riefenstahl</i></p>
 
 <br>
