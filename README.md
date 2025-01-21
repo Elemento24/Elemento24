@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Me and my friend Ioan Gruffudd are like chalk and cheese when it comes to clothes. He lives for his clothes and has an amazing wardrobe. If we're going out I'll turn up at his house and say, 'I haven't got anything to wear,' and he'll tut and sigh and then lend me something swanky.</b>
-> <p><i>Matthew Rhys</i></p>
+> <b>I am also hugely excited to then be competing to defend my three Paralympic titles at the Paralympic Games. I believe we will see some amazing times posted and I am very much looking forward to what will be an incredible Olympics and Paralympics in London.</b>
+> <p><i>Oscar Pistorius</i></p>
 
 <br>
