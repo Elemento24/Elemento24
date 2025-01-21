@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That term's definitely got a negative aura to it, because people think a diva is somebody with an attitude who demands things all the time. Of course there is that type of diva, but my idea of a diva has always been a singer - whether male or female - who gets on that stage and captivates you with their presence and their voice.</b>
-> <p><i>Jordin Sparks</i></p>
+> <b>Though beauty gives you a weird sense of entitlement, it's rather frightening and threatening to have others ascribe such importance to something you know you're just renting for a while.</b>
+> <p><i>Candice Bergen</i></p>
 
 <br>
