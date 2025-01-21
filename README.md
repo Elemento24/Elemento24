@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It felt like the first thing, but when I first started out, I got a job adapting a book by Russell Banks called 'Rule Of The Bone.' I didn't do a very good job. I didn't really know what I was doing in general, let alone how to adapt a book.</b>
-> <p><i>Paul Thomas Anderson</i></p>
+> <b>Because primarily of the power of the Internet, people of modest means can band together and amass vast sums of money that can change the world for some public good if they all agree.</b>
+> <p><i>William J. Clinton</i></p>
 
 <br>
