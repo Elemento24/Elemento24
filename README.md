@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Though beauty gives you a weird sense of entitlement, it's rather frightening and threatening to have others ascribe such importance to something you know you're just renting for a while.</b>
-> <p><i>Candice Bergen</i></p>
+> <b>Writing fiction has become a priestly business in countries that have lost their faith.</b>
+> <p><i>Gore Vidal</i></p>
 
 <br>
