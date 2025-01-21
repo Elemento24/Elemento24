@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thing about drugs and sex is that you lose all your inhibitions. I've had sex in trains, planes, wine bars... and quite a few car parks!</b>
-> <p><i>Robbie Williams</i></p>
+> <b>This is the first convention of the space age - where a candidate can promise the moon and mean it.</b>
+> <p><i>David Brinkley</i></p>
 
 <br>
