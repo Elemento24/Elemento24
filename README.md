@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is danger in reckless change, but greater danger in blind conservatism.</b>
-> <p><i>Henry George</i></p>
+> <b>When I was younger, I was terrified to express anger because it would often kick-start a horrible reaction in the men in my life. So I bit my tongue. I was left to painstakingly deal with the aftermath of my avoidance later in life, in therapy or through the lyrics of my songs.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
