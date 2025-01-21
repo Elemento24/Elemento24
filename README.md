@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our world is so glutted with useless information, images, useless images, sounds, all this sort of thing. It's a cacophony, it's like a madness I think that's been happening in the past twenty-five years. And I think anything that can help a person sit in a room alone and not worry about it is good.</b>
-> <p><i>Martin Scorsese</i></p>
+> <b>It felt like the first thing, but when I first started out, I got a job adapting a book by Russell Banks called 'Rule Of The Bone.' I didn't do a very good job. I didn't really know what I was doing in general, let alone how to adapt a book.</b>
+> <p><i>Paul Thomas Anderson</i></p>
 
 <br>
