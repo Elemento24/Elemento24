@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I go outside of L.A., no matter where it is, really anywhere I go, people will be stopping me or taking pictures or whatever it is. And it's great. It's amazing. I'm just lucky.</b>
-> <p><i>Michael Welch</i></p>
+> <b>For the youth, the indignation of most things will just surge as each birthday passes.</b>
+> <p><i>Chris Evans</i></p>
 
 <br>
