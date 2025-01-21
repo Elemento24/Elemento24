@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obama does not represent America. Nor does he represent anything what our forefathers stood for. This country is basically built on an attitude. It's a way of life. It's not because you're born here. It's not that you're supposed to take from those who have and give to those who haven't. That kills a country. It killed Russia.</b>
-> <p><i>Luke Scott</i></p>
+> <b>O, thou art fairer than the evening air clad in the beauty of a thousand stars.</b>
+> <p><i>Christopher Marlowe</i></p>
 
 <br>
