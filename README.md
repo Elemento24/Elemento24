@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The truth is that we can learn to condition our minds, bodies, and emotions to link pain or pleasure to whatever we choose. By changing what we link pain and pleasure to, we will instantly change our behaviors.</b>
-> <p><i>Tony Robbins</i></p>
+> <b>The easiest and simplest thing that any one can do to make their car safer, more gas efficient, whatever - check the tire pressure.</b>
+> <p><i>Richard Hammond</i></p>
 
 <br>
