@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work of art shows people new directions and thinks of the future. The house thinks of the present.</b>
-> <p><i>Adolf Loos</i></p>
+> <b>The making of friends who are real friends, is the best token we have of a man's success in life.</b>
+> <p><i>Edward Everett Hale</i></p>
 
 <br>
