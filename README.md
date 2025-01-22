@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how I can just ramble on for hours, isn't it? And so unentertaining or uninteresting. But I can ramble on for hours. It's a sort of terrible gift, isn't it?</b>
-> <p><i>Graham Norton</i></p>
+> <b>No art can be noble which is incapable of expressing thought, and no art is capable of expressing thought which does not change.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
