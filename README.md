@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unfortunately, the attitude of many towards the press, humanitarians included and especially government workers, is often one of suspicion, if not outright fear.</b>
-> <p><i>Alvin Adams</i></p>
+> <b>Be able to back up a car for a considerable distance in a straight line and back out of a driveway.</b>
+> <p><i>Marilyn vos Savant</i></p>
 
 <br>
