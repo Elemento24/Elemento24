@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The anger in the Brigade against those who fought the Republic in the rear was sharpened by reports of weapons, even tanks, being kept from the front and hidden for treacherous purposes.</b>
-> <p><i>Bill Alexander</i></p>
+> <b>There is a certain age at which a child looks at you in all earnestness and delivers a long, pleased speech in all the true inflections of spoken English, but with not one recognizable syllable.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
