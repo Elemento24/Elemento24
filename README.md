@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The making of friends who are real friends, is the best token we have of a man's success in life.</b>
-> <p><i>Edward Everett Hale</i></p>
+> <b>It's amazing how I can just ramble on for hours, isn't it? And so unentertaining or uninteresting. But I can ramble on for hours. It's a sort of terrible gift, isn't it?</b>
+> <p><i>Graham Norton</i></p>
 
 <br>
