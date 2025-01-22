@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've spent a lot of time and money trying to keep my anger in control.</b>
-> <p><i>Yancy Butler</i></p>
+> <b>The work of art shows people new directions and thinks of the future. The house thinks of the present.</b>
+> <p><i>Adolf Loos</i></p>
 
 <br>
