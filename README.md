@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nearly all the powerful people of this age are unbelievers, the best of them in doubt and misery, the most in plodding hesitation, doing as well as they can, what practical work lies at hand.</b>
-> <p><i>John Ruskin</i></p>
+> <b>But I think bands that rolled in with a big attitude, like they were some big deal, I just found that very strange.</b>
+> <p><i>Rob Zombie</i></p>
 
 <br>
