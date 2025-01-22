@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I first fell in love with music when I was a little boy. When I first heard music, I felt the beauty in it. Then, being able to tap along on a table top and box was great, but my favorite thing to do was to watch records spin. I would almost get hypnotized by it. These things are what drew me in initially.</b>
-> <p><i>Narada Michael Walden</i></p>
+> <b>I've spent a lot of time and money trying to keep my anger in control.</b>
+> <p><i>Yancy Butler</i></p>
 
 <br>
