@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I think bands that rolled in with a big attitude, like they were some big deal, I just found that very strange.</b>
-> <p><i>Rob Zombie</i></p>
+> <b>For the past 33 years, I have looked in the mirror every morning and asked myself: 'If today were the last day of my life, would I want to do what I am about to do today?' And whenever the answer has been 'No' for too many days in a row, I know I need to change something.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
