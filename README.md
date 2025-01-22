@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be able to back up a car for a considerable distance in a straight line and back out of a driveway.</b>
-> <p><i>Marilyn vos Savant</i></p>
+> <b>I went to an amazing school in Brooklyn called St. Anne's that's a really kind of creative hot bed.</b>
+> <p><i>Lena Dunham</i></p>
 
 <br>
