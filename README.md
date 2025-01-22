@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No sex, age, or condition is above or below the absolute necessity of modesty but without it one vastly beneath the rank of man.</b>
-> <p><i>Bruce Barton</i></p>
+> <b>Unfortunately, the attitude of many towards the press, humanitarians included and especially government workers, is often one of suspicion, if not outright fear.</b>
+> <p><i>Alvin Adams</i></p>
 
 <br>
