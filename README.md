@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the past 33 years, I have looked in the mirror every morning and asked myself: 'If today were the last day of my life, would I want to do what I am about to do today?' And whenever the answer has been 'No' for too many days in a row, I know I need to change something.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>The anger in the Brigade against those who fought the Republic in the rear was sharpened by reports of weapons, even tanks, being kept from the front and hidden for treacherous purposes.</b>
+> <p><i>Bill Alexander</i></p>
 
 <br>
