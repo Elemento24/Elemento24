@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of the best ideas I get seem to happen when I'm doing mindless manual labor or exercise. I'm not sure how that happens, but it leaves me free for remarkable ideas to occur.</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>If you talk to geneticists they are constantly finding that your genes are being switched on and off because of the environment. Genes alone do not determine an exact path in your life.</b>
+> <p><i>Jeffrey Eugenides</i></p>
 
 <br>
