@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know that I have any role models now that are fixed. Definitely my mom - she's the coolest. She's worked really hard her whole life and I just think she's got a great attitude. Moms just know so much it's so silly.</b>
-> <p><i>Larisa Oleynik</i></p>
+> <b>My best kiss was on stage. Kelly Rowland from Destiny's Child gave me a really nice soft kiss on my lips during a performance on my birthday. It was amazing.</b>
+> <p><i>Chris Brown</i></p>
 
 <br>
