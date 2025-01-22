@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went to an amazing school in Brooklyn called St. Anne's that's a really kind of creative hot bed.</b>
-> <p><i>Lena Dunham</i></p>
+> <b>That's one of the nice things. I mean, part of the beauty of me is that I'm very rich. So if I need $600 million, I can put $600 million myself. That's a huge advantage. I must tell you, that's a huge advantage over the other candidates.</b>
+> <p><i>Donald Trump</i></p>
 
 <br>
