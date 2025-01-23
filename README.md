@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing that this is all happening to Lost in Space.</b>
-> <p><i>Mark Goddard</i></p>
+> <b>Solitude is the profoundest fact of the human condition. Man is the only being who knows he is alone.</b>
+> <p><i>Octavio Paz</i></p>
 
 <br>
