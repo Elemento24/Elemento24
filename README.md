@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every business and every product has risks. You can't get around it.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>We reproach people for talking about themselves but it is the subject they treat best.</b>
+> <p><i>Anatole France</i></p>
 
 <br>
