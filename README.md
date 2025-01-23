@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In this age of media and Internet access, we are much more talkative than ever before.</b>
-> <p><i>David Duchovny</i></p>
+> <b>The gambling known as business looks with austere disfavor upon the business known as gambling.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
