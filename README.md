@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wanted to be a mechanic. When I was 14 I wanted to quit school and go work on my car. But my dad said Son, you shouldn't do that. You should stay in school until your education is finished, and when you're done, don't make your hobby your job.</b>
-> <p><i>Eric Bana</i></p>
+> <b>Paul Farmer has helped to build amazing health care system in one of the poorest areas of Haiti. He founded Partners in Health, which serves the destitute and the sick in many parts of the world from Haiti to Boston and from Russia to Peru.</b>
+> <p><i>Tracy Kidder</i></p>
 
 <br>
