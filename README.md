@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Solitude is the profoundest fact of the human condition. Man is the only being who knows he is alone.</b>
-> <p><i>Octavio Paz</i></p>
+> <b>How many times have you been out for a beer or dinner and people are coming up with business ideas? Everybody wants to think they've got that great business idea.</b>
+> <p><i>Mark Burnett</i></p>
 
 <br>
