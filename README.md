@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A gift consists not in what is done or given, but in the intention of the giver or doer.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>We no longer dare to believe in beauty and we make of it a mere appearance in order the more easily to dispose of it.</b>
+> <p><i>Hans Urs von Balthasar</i></p>
 
 <br>
