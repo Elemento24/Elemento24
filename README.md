@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How many times have you been out for a beer or dinner and people are coming up with business ideas? Everybody wants to think they've got that great business idea.</b>
-> <p><i>Mark Burnett</i></p>
+> <b>It is often when night looks darkest, it is often before the fever breaks that one senses the gathering momentum for change, when one feels that resurrection of hope in the midst of despair and apathy.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
