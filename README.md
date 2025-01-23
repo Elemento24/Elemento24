@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dream is of a place and a time where America will once again be seen as the last best hope of earth.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>It's amazing that this is all happening to Lost in Space.</b>
+> <p><i>Mark Goddard</i></p>
 
 <br>
