@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dad instilled in me a great sense of humor. I wasn't bullied at school because my outward attitude was confident, and that helps.</b>
-> <p><i>Warwick Davis</i></p>
+> <b>What is amazing for a woman of my age is that I change as the world is changing-and changing very, very fast. I don't think my mother had that opportunity to change.</b>
+> <p><i>Jeanne Moreau</i></p>
 
 <br>
