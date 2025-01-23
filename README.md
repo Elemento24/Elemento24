@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We reproach people for talking about themselves but it is the subject they treat best.</b>
-> <p><i>Anatole France</i></p>
+> <b>Good humor is one of the best articles of dress one can wear in society.</b>
+> <p><i>William Makepeace Thackeray</i></p>
 
 <br>
