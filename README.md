@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good humor is one of the best articles of dress one can wear in society.</b>
-> <p><i>William Makepeace Thackeray</i></p>
+> <b>A gift consists not in what is done or given, but in the intention of the giver or doer.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
