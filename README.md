@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every Body has so good an Opinion of their own Understanding as to think their own way the best.</b>
-> <p><i>Mary Astell</i></p>
+> <b>The time you feel lonely is the time you most need to be by yourself.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
