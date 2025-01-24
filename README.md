@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was told to avoid the business all together because of the rejection. People would say to me, 'Don't you want to have a normal job and a normal family?' I guess that would be good advice for some people, but I wanted to act.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>My husband gave me a necklace. It's fake. I requested fake. Maybe I'm paranoid, but in this day and age, I don't want something around my neck that's worth more than my head.</b>
+> <p><i>Rita Rudner</i></p>
 
 <br>
