@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Negroes - Sweet and docile, Meek, humble, and kind: Beware the day - They change their mind.</b>
-> <p><i>Langston Hughes</i></p>
+> <b>We are in danger of making our cities places where business goes on but where life, in its real sense, is lost.</b>
+> <p><i>Hubert H. Humphrey</i></p>
 
 <br>
