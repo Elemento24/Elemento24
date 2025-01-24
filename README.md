@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not angry, I'm not an angry person, but I do sometimes like playing with the perception of anger, as in pretending that I'm more angry than I actually am, and sometimes it works quite well.</b>
-> <p><i>Calvin Harris</i></p>
+> <b>We're here to bring beauty to the world and make a difference in this planet. That's what art forms are about.</b>
+> <p><i>Charlie Haden</i></p>
 
 <br>
