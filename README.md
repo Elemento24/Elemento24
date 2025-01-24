@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've crashed my car three times.</b>
-> <p><i>Billy Joel</i></p>
+> <b>I don't believe in morality in architecture.</b>
+> <p><i>Michael Graves</i></p>
 
 <br>
