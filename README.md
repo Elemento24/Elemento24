@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A complainer is like a Death Eater because there's a suction of negative energy. You can catch a great attitude from great people.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>I've crashed my car three times.</b>
+> <p><i>Billy Joel</i></p>
 
 <br>
