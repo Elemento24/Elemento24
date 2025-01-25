@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not drunk is he who from the floor - Can rise alone and still drink more But drunk is They, who prostrate lies, Without the power to drink or rise.</b>
-> <p><i>Thomas Love Peacock</i></p>
+> <b>Somebody has to tell the E.P.A. that we don't need you monkeying around and fiddling around and getting in our business with every kind of regulation you can dream up. You're doing nothing more than killing jobs. It's a cemetery for jobs at the E.P.A.</b>
+> <p><i>Rick Perry</i></p>
 
 <br>
