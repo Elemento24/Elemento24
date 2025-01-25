@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What does it mean to not be alone? I've approached that question through music, technology, writing and other means.</b>
-> <p><i>Jaron Lanier</i></p>
+> <b>It's a reality that in this business there's an expectation of being thin. But having a baby is a reality too, and it's more important for me to make milk than to fit into those tiny pants. So that's just going to have to wait.</b>
+> <p><i>Emily Procter</i></p>
 
 <br>
