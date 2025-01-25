@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of the parenthesis is one of the greatest secrets of eloquence in Society.</b>
-> <p><i>Nicolas Chamfort</i></p>
+> <b>The best portion of a good man's life is his little, nameless, unremembered acts of kindness and of love.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
