@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I choose films for their artistic value. I don't need a mansion or a Jaguar. When I leave this Earth, I won't take any money with me. All I will leave behind will be my art.</b>
-> <p><i>Brad Renfro</i></p>
+> <b>Jeffrey Deitch is the Jeff Koons of art dealers. Not because he's the biggest, best, or the richest of his kind. But because in some ways he's the weirdest (which is saying a lot when you're talking about the wonderful, wicked, lovable, and annoying creatures known as art dealers).</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
