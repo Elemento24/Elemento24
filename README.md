@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well I've written four beauty books as well.</b>
-> <p><i>Joan Collins</i></p>
+> <b>Religion is the best antidote to the individualism of the consumer age. The idea that society can do without it flies in the face of history and, now, evolutionary biology.</b>
+> <p><i>Jonathan Sacks</i></p>
 
 <br>
