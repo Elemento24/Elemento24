@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religion is the best antidote to the individualism of the consumer age. The idea that society can do without it flies in the face of history and, now, evolutionary biology.</b>
-> <p><i>Jonathan Sacks</i></p>
+> <b>Surely all art is the result of one's having been in danger, of having gone through an experience all the way to the end, where no one can go any further.</b>
+> <p><i>Rainer Maria Rilke</i></p>
 
 <br>
