@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best portion of a good man's life is his little, nameless, unremembered acts of kindness and of love.</b>
-> <p><i>William Wordsworth</i></p>
+> <b>Examinations are formidable even to the best prepared, for the greatest fool may ask more than the wisest man can answer.</b>
+> <p><i>Charles Caleb Colton</i></p>
 
 <br>
