@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Advertising is a business of words, but advertising agencies are infested with men and women who cannot write. They cannot write advertisements, and they cannot write plans. They are helpless as deaf mutes on the stage of the Metropolitan Opera.</b>
-> <p><i>David Ogilvy</i></p>
+> <b>I'm very competitive by nature. And I like to be the underdog - It's the best way to win. To come from behind and win is a great feeling!</b>
+> <p><i>Zac Efron</i></p>
 
 <br>
