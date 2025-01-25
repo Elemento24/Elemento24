@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a reality that in this business there's an expectation of being thin. But having a baby is a reality too, and it's more important for me to make milk than to fit into those tiny pants. So that's just going to have to wait.</b>
-> <p><i>Emily Procter</i></p>
+> <b>Good humor is a tonic for mind and body. It is the best antidote for anxiety and depression. It is a business asset. It attracts and keeps friends. It lightens human burdens. It is the direct route to serenity and contentment.</b>
+> <p><i>Grenville Kleiser</i></p>
 
 <br>
