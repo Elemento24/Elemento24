@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good humor is a tonic for mind and body. It is the best antidote for anxiety and depression. It is a business asset. It attracts and keeps friends. It lightens human burdens. It is the direct route to serenity and contentment.</b>
-> <p><i>Grenville Kleiser</i></p>
+> <b>Not drunk is he who from the floor - Can rise alone and still drink more But drunk is They, who prostrate lies, Without the power to drink or rise.</b>
+> <p><i>Thomas Love Peacock</i></p>
 
 <br>
