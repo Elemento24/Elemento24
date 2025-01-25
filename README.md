@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Surely all art is the result of one's having been in danger, of having gone through an experience all the way to the end, where no one can go any further.</b>
-> <p><i>Rainer Maria Rilke</i></p>
+> <b>The art of the parenthesis is one of the greatest secrets of eloquence in Society.</b>
+> <p><i>Nicolas Chamfort</i></p>
 
 <br>
