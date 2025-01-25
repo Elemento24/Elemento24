@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Style used to be an interaction between the human soul and tools that were limiting. In the digital era, it will have to come from the soul alone.</b>
-> <p><i>Jaron Lanier</i></p>
+> <b>What an amazing opportunity to do something like direct a movie and step out of your creative comfort zone and yet do something that is also so familiar at the same time. I was also just excited to have the chance to direct, which I may never get to do again.</b>
+> <p><i>Georgina Chapman</i></p>
 
 <br>
