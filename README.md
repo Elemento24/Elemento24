@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For a people who are free, and who mean to remain so, a well-organized and armed militia is their best security.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.</b>
+> <p><i>Moliere</i></p>
 
 <br>
