@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I have these fantasies of just moving to a foreign country and coming back with a full head of hair. Or not even come back! Make a new life there with hair... Change my name, just see what happens.</b>
-> <p><i>Larry David</i></p>
+> <b>I'm sort of like a lame, single guy in a red sports car.</b>
+> <p><i>Billy Corgan</i></p>
 
 <br>
