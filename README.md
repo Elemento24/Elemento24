@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Know what's weird? Day by day, nothing seems to change. But pretty soon, everything's different.</b>
-> <p><i>Bill Watterson</i></p>
+> <b>The best part of the art of living is to know how to grow old gracefully.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
