@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way of architecture is the quiet voice that underlies it and has guided it from the beginning.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>Old age, believe me, is a good and pleasant thing. It is true you are gently shouldered off the stage, but then you are given such a comfortable front stall as spectator.</b>
+> <p><i>Confucius</i></p>
 
 <br>
