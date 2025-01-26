@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest writers of this age... are aware of the mystery of our existence.</b>
-> <p><i>J. B. Priestley</i></p>
+> <b>Know what's weird? Day by day, nothing seems to change. But pretty soon, everything's different.</b>
+> <p><i>Bill Watterson</i></p>
 
 <br>
