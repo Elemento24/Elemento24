@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part of the art of living is to know how to grow old gracefully.</b>
-> <p><i>Eric Hoffer</i></p>
+> <b>A merchant who approaches business with the idea of serving the public well has nothing to fear from the competition.</b>
+> <p><i>James Cash Penney</i></p>
 
 <br>
