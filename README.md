@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not try to push your way through to the front ranks of your profession do not run after distinctions and rewards but do your utmost to find an entry into the world of beauty.</b>
-> <p><i>Sydney Smith</i></p>
+> <b>The greatest writers of this age... are aware of the mystery of our existence.</b>
+> <p><i>J. B. Priestley</i></p>
 
 <br>
