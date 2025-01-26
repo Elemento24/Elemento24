@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our business in life is not to get ahead of others, but to get ahead of ourselves.</b>
-> <p><i>E. Joseph Cossman</i></p>
+> <b>Information technology and business are becoming inextricably interwoven. I don't think anybody can talk meaningfully about one without the talking about the other.</b>
+> <p><i>Bill Gates</i></p>
 
 <br>
