@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A merchant who approaches business with the idea of serving the public well has nothing to fear from the competition.</b>
-> <p><i>James Cash Penney</i></p>
+> <b>For a people who are free, and who mean to remain so, a well-organized and armed militia is their best security.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
