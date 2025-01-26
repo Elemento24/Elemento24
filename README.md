@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Information technology and business are becoming inextricably interwoven. I don't think anybody can talk meaningfully about one without the talking about the other.</b>
-> <p><i>Bill Gates</i></p>
+> <b>Art can never exist without naked beauty displayed.</b>
+> <p><i>William Blake</i></p>
 
 <br>
