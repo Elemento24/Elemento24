@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All art is but imitation of nature.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>Our business in life is not to get ahead of others, but to get ahead of ourselves.</b>
+> <p><i>E. Joseph Cossman</i></p>
 
 <br>
