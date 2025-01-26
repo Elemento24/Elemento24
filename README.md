@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I trusted someone to look after me on the business side of life.</b>
-> <p><i>Elton John</i></p>
+> <b>Do not try to push your way through to the front ranks of your profession do not run after distinctions and rewards but do your utmost to find an entry into the world of beauty.</b>
+> <p><i>Sydney Smith</i></p>
 
 <br>
