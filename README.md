@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Personal beauty is a greater recommendation than any letter of reference.</b>
-> <p><i>Fanny Brice</i></p>
+> <b>I'm trying to get the record that I made at my birthday party last year, trying to get that out, and the lawyers are diddling around with it and it probably won't be out until next year. I don't know.</b>
+> <p><i>Marian McPartland</i></p>
 
 <br>
