@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the greatest things drama can do, at it's best, is to redefine the words we use every day such as love, home, family, loyalty and envy. Tragedy need not be a downer.</b>
-> <p><i>Ben Kingsley</i></p>
+> <b>You're alone in your ideas, because you're the only one who knows what's possible.</b>
+> <p><i>Bethenny Frankel</i></p>
 
 <br>
