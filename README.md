@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.</b>
-> <p><i>Epictetus</i></p>
+> <b>Beauty has a lot to do with character.</b>
+> <p><i>Kevyn Aucoin</i></p>
 
 <br>
