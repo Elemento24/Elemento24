@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can have a laugh in Los Angeles, or you can weep in Los Angeles, depending on your attitude towards it.</b>
-> <p><i>Miranda Richardson</i></p>
+> <b>The screen is a magic medium. It has such power that it can retain interest as it conveys emotions and moods that no other art form can hope to tackle.</b>
+> <p><i>Stanley Kubrick</i></p>
 
 <br>
