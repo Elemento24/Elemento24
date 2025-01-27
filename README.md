@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not some great work of beauty and love to be a rock-and-roll singer.</b>
-> <p><i>Robert Plant</i></p>
+> <b>Personal beauty is a greater recommendation than any letter of reference.</b>
+> <p><i>Fanny Brice</i></p>
 
 <br>
