@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty has a lot to do with character.</b>
-> <p><i>Kevyn Aucoin</i></p>
+> <b>I allow myself one nice car.</b>
+> <p><i>Slash</i></p>
 
 <br>
