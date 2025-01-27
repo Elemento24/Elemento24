@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The screen is a magic medium. It has such power that it can retain interest as it conveys emotions and moods that no other art form can hope to tackle.</b>
-> <p><i>Stanley Kubrick</i></p>
+> <b>One-third of Americans have already been forced to change their lifestyle because their disposable income is gone. A guy can't go to the corner bar after a rough day at work to have a beer, that's gone to oil!</b>
+> <p><i>Terry McAuliffe</i></p>
 
 <br>
