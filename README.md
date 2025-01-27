@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So, you know, parenting is a very intimate and amazing experience and one of the best experiences of my life.</b>
-> <p><i>Uma Thurman</i></p>
+> <b>Family farms and small businesses are the backbone of our communities.</b>
+> <p><i>Tom Allen</i></p>
 
 <br>
