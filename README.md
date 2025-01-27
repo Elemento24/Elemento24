@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I allow myself one nice car.</b>
-> <p><i>Slash</i></p>
+> <b>You can have a laugh in Los Angeles, or you can weep in Los Angeles, depending on your attitude towards it.</b>
+> <p><i>Miranda Richardson</i></p>
 
 <br>
