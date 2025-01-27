@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Personality is everything in art and poetry.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>So, you know, parenting is a very intimate and amazing experience and one of the best experiences of my life.</b>
+> <p><i>Uma Thurman</i></p>
 
 <br>
