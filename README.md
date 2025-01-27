@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm trying to get the record that I made at my birthday party last year, trying to get that out, and the lawyers are diddling around with it and it probably won't be out until next year. I don't know.</b>
-> <p><i>Marian McPartland</i></p>
+> <b>One of the greatest things drama can do, at it's best, is to redefine the words we use every day such as love, home, family, loyalty and envy. Tragedy need not be a downer.</b>
+> <p><i>Ben Kingsley</i></p>
 
 <br>
