@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being black is not a matter of pigmentation - being black is a reflection of a mental attitude.</b>
-> <p><i>Steven Biko</i></p>
+> <b>It's not some great work of beauty and love to be a rock-and-roll singer.</b>
+> <p><i>Robert Plant</i></p>
 
 <br>
