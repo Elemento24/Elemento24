@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Learned Institutions ought to be favorite objects with every free people. They throw that light over the public mind which is the best security against crafty and dangerous encroachments on the public liberty.</b>
-> <p><i>James Madison</i></p>
+> <b>I don't have clear-cut positions. I get baffled by things. I have viewpoints. Sometimes they change.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
