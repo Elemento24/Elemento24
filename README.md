@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't have clear-cut positions. I get baffled by things. I have viewpoints. Sometimes they change.</b>
-> <p><i>Annie Lennox</i></p>
+> <b>You have to respect your audience. Without them, you're essentially standing alone, singing to yourself.</b>
+> <p><i>K. D. Lang</i></p>
 
 <br>
