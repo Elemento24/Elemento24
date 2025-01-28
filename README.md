@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to respect your audience. Without them, you're essentially standing alone, singing to yourself.</b>
-> <p><i>K. D. Lang</i></p>
+> <b>The secret of a happy marriage is finding the right person. You know they're right if you love to be with them all the time.</b>
+> <p><i>Julia Child</i></p>
 
 <br>
