@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While one finds company in himself and his pursuits, he cannot feel old, no matter what his years may be.</b>
-> <p><i>Amos Bronson Alcott</i></p>
+> <b>The truth of the matter is, beauty is a specific thing, rare and fleeting. Some of us have it in our teens, 20s and 30s and then lose it most of us have it not at all. And that's perfectly okay. But lying to yourself that you have it when you don't seems to me simple-minded at best and psychotic at worst.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
