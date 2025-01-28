@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the best provision for old age.</b>
-> <p><i>Aristotle</i></p>
+> <b>Real beauty is to be true to oneself. That's what makes me feel good.</b>
+> <p><i>Laetitia Casta</i></p>
 
 <br>
