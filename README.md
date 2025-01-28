@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I need to develop a car and engineer a car in a position that feels comfortable for me, and I don't think anyone can do a better job than I can in that position. The problem for me is if I can't get the car there I do struggle more than some.</b>
-> <p><i>Jenson Button</i></p>
+> <b>Cats don't like change without their consent.</b>
+> <p><i>Roger Caras</i></p>
 
 <br>
