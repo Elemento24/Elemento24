@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Things are beautiful if you love them.</b>
-> <p><i>Jean Anouilh</i></p>
+> <b>To send light into the darkness of men's hearts - such is the duty of the artist.</b>
+> <p><i>Robert Schumann</i></p>
 
 <br>
