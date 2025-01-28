@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't need you to remind me of my age. I have a bladder to do that for me.</b>
-> <p><i>Stephen Fry</i></p>
+> <b>I need to develop a car and engineer a car in a position that feels comfortable for me, and I don't think anyone can do a better job than I can in that position. The problem for me is if I can't get the car there I do struggle more than some.</b>
+> <p><i>Jenson Button</i></p>
 
 <br>
