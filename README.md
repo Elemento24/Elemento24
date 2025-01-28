@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to make your dreams come true is to wake up.</b>
-> <p><i>Paul Valery</i></p>
+> <b>He who does not fill his world with phantoms remains alone.</b>
+> <p><i>Antonio Porchia</i></p>
 
 <br>
