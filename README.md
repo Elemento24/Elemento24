@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cats don't like change without their consent.</b>
-> <p><i>Roger Caras</i></p>
+> <b>While one finds company in himself and his pursuits, he cannot feel old, no matter what his years may be.</b>
+> <p><i>Amos Bronson Alcott</i></p>
 
 <br>
