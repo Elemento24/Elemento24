@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>America... just a nation of two hundred million used car salesmen with all the money we need to buy guns and no qualms about killing anybody else in the world who tries to make us uncomfortable.</b>
-> <p><i>Hunter S. Thompson</i></p>
+> <b>All I try to do is create an atmosphere that seems comfortable enough, that it removes tension and everyone feels free. If they feel free then behaviour happens, small moments happen and that's what ultimately works the best for me.</b>
+> <p><i>Barry Levinson</i></p>
 
 <br>
