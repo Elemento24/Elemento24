@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not good at normal things. I can't drive a car. I couldn't read till I was 10.</b>
-> <p><i>Michael Lindsay-Hogg</i></p>
+> <b>Since September 11, security has been increased everywhere, and we have new IDs to get on to the Fox lot. I drove to the security gate, but realized I'd left my ID in my other car. I just broke into that voice - 'Hey, man, I'm Bart Simpson. Who else sounds like this?' The guard waved me through.</b>
+> <p><i>Nancy Cartwright</i></p>
 
 <br>
