@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is never without a reason, but seldom with a good one.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>I'm not good at normal things. I can't drive a car. I couldn't read till I was 10.</b>
+> <p><i>Michael Lindsay-Hogg</i></p>
 
 <br>
