@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will never be an old man. To me, old age is always 15 years older than I am.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>Europe is so well gardened that it resembles a work of art, a scientific theory, a neat metaphysical system. Man has re-created Europe in his own image.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
