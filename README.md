@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we risk becoming the best informed society that has ever died of ignorance.</b>
-> <p><i>Ruben Blades</i></p>
+> <b>I will never be an old man. To me, old age is always 15 years older than I am.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
