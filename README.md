@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When we seek to discover the best in others, we somehow bring out the best in ourselves.</b>
-> <p><i>William Arthur Ward</i></p>
+> <b>America... just a nation of two hundred million used car salesmen with all the money we need to buy guns and no qualms about killing anybody else in the world who tries to make us uncomfortable.</b>
+> <p><i>Hunter S. Thompson</i></p>
 
 <br>
