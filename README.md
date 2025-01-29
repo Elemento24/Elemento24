@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since September 11, security has been increased everywhere, and we have new IDs to get on to the Fox lot. I drove to the security gate, but realized I'd left my ID in my other car. I just broke into that voice - 'Hey, man, I'm Bart Simpson. Who else sounds like this?' The guard waved me through.</b>
-> <p><i>Nancy Cartwright</i></p>
+> <b>The thing about New York is you can leave your house without a plan and find the day. You can't do that in Los Angeles. You need to get in your car, all this, you can't just drive around like a lunatic. In New York, you can literally walk outside, and wind up anywhere.</b>
+> <p><i>Michael Rapaport</i></p>
 
 <br>
