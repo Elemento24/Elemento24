@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I got fitter when I did 'Joseph and the Amazing Technicolor Dreamcoat.' I wore a loincloth - that's a lot of motivation!</b>
-> <p><i>Donny Osmond</i></p>
+> <b>Work alone is noble.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
