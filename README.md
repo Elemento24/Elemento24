@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alchemy is the art of far and near, and I think poetry is alchemy in that way. It's delightful to distort size, to see something that's tiny as though it were vast.</b>
-> <p><i>Robert Morgan</i></p>
+> <b>Anger is never without a reason, but seldom with a good one.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
