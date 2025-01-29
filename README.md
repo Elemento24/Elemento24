@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thing about New York is you can leave your house without a plan and find the day. You can't do that in Los Angeles. You need to get in your car, all this, you can't just drive around like a lunatic. In New York, you can literally walk outside, and wind up anywhere.</b>
-> <p><i>Michael Rapaport</i></p>
+> <b>When we seek to discover the best in others, we somehow bring out the best in ourselves.</b>
+> <p><i>William Arthur Ward</i></p>
 
 <br>
