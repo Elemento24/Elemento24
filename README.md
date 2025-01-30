@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love to be alone. I never found the companion that was so companionable as solitude.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>The challenge is to practice politics as the art of making what appears to be impossible, possible.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
