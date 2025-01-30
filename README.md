@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is uttered from the heart alone, Will win the hearts of others to your own.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>I love to be alone. I never found the companion that was so companionable as solitude.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
