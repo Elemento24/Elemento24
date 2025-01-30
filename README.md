@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude we have towards our personal pets as opposed to the animals that suffer under the factory farm is hypocritical and delusional.</b>
-> <p><i>James Cromwell</i></p>
+> <b>The best form of government is that which is most likely to prevent the greatest sum of evil.</b>
+> <p><i>James Monroe</i></p>
 
 <br>
