@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone talks about age, but it's not about age. It's about work ethic. Winning never gets old.</b>
-> <p><i>Lisa Leslie</i></p>
+> <b>I've traveled all over the country for years speaking in churches, teaching the Ten Commandments. It's amazing if 2 percent of any congregation knows the Ten Commandments.</b>
+> <p><i>Randall Terry</i></p>
 
 <br>
