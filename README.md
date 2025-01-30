@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best form of government is that which is most likely to prevent the greatest sum of evil.</b>
-> <p><i>James Monroe</i></p>
+> <b>Everyone talks about age, but it's not about age. It's about work ethic. Winning never gets old.</b>
+> <p><i>Lisa Leslie</i></p>
 
 <br>
