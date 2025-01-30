@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Punk was defined by an attitude rather than a musical style.</b>
-> <p><i>David Byrne</i></p>
+> <b>Venice is the perfect place for a phase of art to die. No other city on earth embraces entropy quite like this magical floating mall.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
