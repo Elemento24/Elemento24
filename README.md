@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Non-disclosure in the Internet Age is quickly perceived as a breach of trust. Government, corporations and each of us as individuals must recalibrate how we live and share our lives appropriate to the information now available and the expectations of others.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Even in this day and age, if you're not married, there are people who are like, 'Awww! Don't worry, it'll happen for you someday.'</b>
+> <p><i>Kristen Wiig</i></p>
 
 <br>
