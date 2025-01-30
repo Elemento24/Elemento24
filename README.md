@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My unusual beauty tip is that I often use Vaseline to take my make up off. It works great and is good for sensitive skin.</b>
-> <p><i>Rachel Bilson</i></p>
+> <b>Constitutions should consist only of general provisions the reason is that they must necessarily be permanent, and that they cannot calculate for the possible change of things.</b>
+> <p><i>Alexander Hamilton</i></p>
 
 <br>
