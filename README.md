@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today it is not big business that we have to fear. It is big government.</b>
-> <p><i>Wendell Phillips</i></p>
+> <b>After the first miscarriage, I tried to take the attitude that it was my body's way of telling me that this pregnancy wasn't meant to be.</b>
+> <p><i>Christie Brinkley</i></p>
 
 <br>
