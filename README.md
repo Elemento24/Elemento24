@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the modern world of business, it is useless to be a creative, original thinker unless you can also sell what you create.</b>
-> <p><i>David Ogilvy</i></p>
+> <b>Whatever my individual desires were to be free, I was not alone. There were many others who felt the same way.</b>
+> <p><i>Rosa Parks</i></p>
 
 <br>
