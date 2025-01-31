@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm lucky that my real-life Mom has both a great sense of humor about herself and an amazing ability to slip into complete denial if the subject matter gets a little too close to home.</b>
-> <p><i>Cathy Guisewite</i></p>
+> <b>The art of healing comes from nature, not from the physician. Therefore the physician must start from nature, with an open mind.</b>
+> <p><i>Paracelsus</i></p>
 
 <br>
