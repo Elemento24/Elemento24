@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For people who are really talented, what you don't say becomes extremely important. You have to judge what to say and what to leave alone so you can let the talent develop.</b>
-> <p><i>Itzhak Perlman</i></p>
+> <b>I'd said to my sweetheart a couple of days before that the SAG and Spirit Award nomination was amazing and I had no attachment to the Academy Award. I knew I was an underdog so I just decided to sleep through the announcement.</b>
+> <p><i>John Hawkes</i></p>
 
 <br>
