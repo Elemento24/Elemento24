@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of healing comes from nature, not from the physician. Therefore the physician must start from nature, with an open mind.</b>
-> <p><i>Paracelsus</i></p>
+> <b>Part of our western outlook stems from the scientific attitude and its method of isolating the parts of a phenomenon in order to analyze them.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
