@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Generally speaking, if a human being never shows anger, then I think something's wrong. He's not right in the brain.</b>
-> <p><i>Dalai Lama</i></p>
+> <b>In the modern world of business, it is useless to be a creative, original thinker unless you can also sell what you create.</b>
+> <p><i>David Ogilvy</i></p>
 
 <br>
