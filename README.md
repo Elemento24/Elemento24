@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After the first miscarriage, I tried to take the attitude that it was my body's way of telling me that this pregnancy wasn't meant to be.</b>
-> <p><i>Christie Brinkley</i></p>
+> <b>Generally speaking, if a human being never shows anger, then I think something's wrong. He's not right in the brain.</b>
+> <p><i>Dalai Lama</i></p>
 
 <br>
