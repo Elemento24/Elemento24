@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best audience is intelligent, well-educated and a little drunk.</b>
-> <p><i>Alben W. Barkley</i></p>
+> <b>The art of leadership is saying no, not saying yes. It is very easy to say yes.</b>
+> <p><i>Tony Blair</i></p>
 
 <br>
