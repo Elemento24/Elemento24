@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do you remember when you were 10 or 11 years old and you really thought your folks were the best? They were completely omniscient and you took their word for everything. And then you got older and you went through this hideous age when suddenly they were the devil, they were bullies, and they didn't know anything.</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>Freedom is not an ideal, it is not even a protection, if it means nothing more than freedom to stagnate, to live without dreams, to have no greater aim than a second car and another television set.</b>
+> <p><i>Adlai Stevenson</i></p>
 
 <br>
