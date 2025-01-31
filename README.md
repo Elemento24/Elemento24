@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd said to my sweetheart a couple of days before that the SAG and Spirit Award nomination was amazing and I had no attachment to the Academy Award. I knew I was an underdog so I just decided to sleep through the announcement.</b>
-> <p><i>John Hawkes</i></p>
+> <b>The best audience is intelligent, well-educated and a little drunk.</b>
+> <p><i>Alben W. Barkley</i></p>
 
 <br>
