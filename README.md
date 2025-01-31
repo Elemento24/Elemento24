@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm gonna be the best dad that ever lived. I'll have a ranch with a race car track and a golf course.</b>
-> <p><i>Jeremy London</i></p>
+> <b>Europe is so well gardened that it resembles a work of art, a scientific theory, a neat metaphysical system. Man has re-created Europe in his own image.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
