@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Europe is so well gardened that it resembles a work of art, a scientific theory, a neat metaphysical system. Man has re-created Europe in his own image.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>Money and success don't change people they merely amplify what is already there.</b>
+> <p><i>Will Smith</i></p>
 
 <br>
