@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hip-hop is supposed to uplift and create, to educate people on a larger level and to make a change.</b>
-> <p><i>Doug E. Fresh</i></p>
+> <b>Hope and Change has become Divide and Conquer.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
