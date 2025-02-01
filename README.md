@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have become a society that can't self-correct, that can't address its obvious problems, that can't pull out of its nosedive. And so to our list of disasters let us add this fourth entry: we have entered an age of folly that - for all our Facebooking and the twittling tweedle-dee-tweets of the twitterati - we can't wake up from.</b>
-> <p><i>Thomas Frank</i></p>
+> <b>Californians invented the concept of life-style. This alone warrants their doom.</b>
+> <p><i>Don DeLillo</i></p>
 
 <br>
