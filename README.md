@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Okay, let's talk about cartoon labels for half a second - some people think anything with a dog or a car or a colorful alien is garbage, which is not true. Look at Big Moose Red. It's, like, a $6 wine with a cheesy label, and it's actually a solid wine.</b>
-> <p><i>Gary Vaynerchuk</i></p>
+> <b>Many say an art dealer running a museum is a 'conflict of interest.' But maybe the art world has lived an artificial or unintentional lie all of these years when it comes to conflicts of interest.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
