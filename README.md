@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great art speaks a language which every intelligent person can understand. The people who call themselves modernists today speak a different language.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>The speed of change makes you wonder what will become of architecture.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
