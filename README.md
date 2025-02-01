@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is little premium in poetry in a world that thinks of Pound and Whitman as a weight and a sampler, not an Ezra, a Walt, a thing of beauty, a joy forever.</b>
-> <p><i>Anna Quindlen</i></p>
+> <b>You don't know what the Chinese expect in the way of beauty. The presentation is just a farce. You come into a room filled with 50 people and they don't talk to you. There's very little interaction.</b>
+> <p><i>Helmut Jahn</i></p>
 
 <br>
