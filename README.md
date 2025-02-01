@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't know what the Chinese expect in the way of beauty. The presentation is just a farce. You come into a room filled with 50 people and they don't talk to you. There's very little interaction.</b>
-> <p><i>Helmut Jahn</i></p>
+> <b>I really believe you can predict when someone has a great attitude, a real well of talent.</b>
+> <p><i>Taylor Hackford</i></p>
 
 <br>
