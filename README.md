@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dream car would be a Maserati. That would be amazing.</b>
-> <p><i>Jordana Brewster</i></p>
+> <b>Okay, let's talk about cartoon labels for half a second - some people think anything with a dog or a car or a colorful alien is garbage, which is not true. Look at Big Moose Red. It's, like, a $6 wine with a cheesy label, and it's actually a solid wine.</b>
+> <p><i>Gary Vaynerchuk</i></p>
 
 <br>
