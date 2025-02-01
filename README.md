@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Californians invented the concept of life-style. This alone warrants their doom.</b>
-> <p><i>Don DeLillo</i></p>
+> <b>No, I regret nothing, all I regret is having been born, dying is such a long tiresome business I always found.</b>
+> <p><i>Samuel Beckett</i></p>
 
 <br>
