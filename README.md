@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Many say an art dealer running a museum is a 'conflict of interest.' But maybe the art world has lived an artificial or unintentional lie all of these years when it comes to conflicts of interest.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Great art speaks a language which every intelligent person can understand. The people who call themselves modernists today speak a different language.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
