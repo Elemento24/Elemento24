@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No, I regret nothing, all I regret is having been born, dying is such a long tiresome business I always found.</b>
-> <p><i>Samuel Beckett</i></p>
+> <b>Hip-hop is supposed to uplift and create, to educate people on a larger level and to make a change.</b>
+> <p><i>Doug E. Fresh</i></p>
 
 <br>
