@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I live to hail that season by gifted one foretold, when men shall live by reason, and not alone by gold.</b>
-> <p><i>George Linnaeus Banks</i></p>
+> <b>There is little premium in poetry in a world that thinks of Pound and Whitman as a weight and a sampler, not an Ezra, a Walt, a thing of beauty, a joy forever.</b>
+> <p><i>Anna Quindlen</i></p>
 
 <br>
