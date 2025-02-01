@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Setting a good example for your children takes all the fun out of middle age.</b>
-> <p><i>William Feather</i></p>
+> <b>I tried acupuncture, the patch, and hypnosis, but found that I needed to do it alone - when the time was right for me.</b>
+> <p><i>Christy Turlington</i></p>
 
 <br>
