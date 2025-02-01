@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really believe you can predict when someone has a great attitude, a real well of talent.</b>
-> <p><i>Taylor Hackford</i></p>
+> <b>I'm very free-spirited and crazy. I love to have fun, and I like doing stupid things. At the same time, I'm like a 35-year-old. I have a house. I have a car. I have a steady job. I have a business, and I have to make serious decisions.</b>
+> <p><i>Avril Lavigne</i></p>
 
 <br>
