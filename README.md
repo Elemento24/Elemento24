@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Surround yourself with the best people you can find, delegate authority, and don't interfere as long as the policy you've decided upon is being carried out.</b>
-> <p><i>Ronald Reagan</i></p>
+> <b>My dream car would be a Maserati. That would be amazing.</b>
+> <p><i>Jordana Brewster</i></p>
 
 <br>
