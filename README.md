@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hope and Change has become Divide and Conquer.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>Silence is true wisdom's best reply.</b>
+> <p><i>Euripides</i></p>
 
 <br>
