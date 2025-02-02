@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An investment in knowledge pays the best interest.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>Because, if one is writing novels today, concentrating on the beauty of the prose is right up there with concentrating on your semi-colons, for wasted effort.</b>
+> <p><i>Neil Gaiman</i></p>
 
 <br>
