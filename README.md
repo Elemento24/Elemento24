@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We need a balanced, long term energy policy to reduce our dependence on foreign oil and preserve the beauty of the land we love.</b>
-> <p><i>Heather Wilson</i></p>
+> <b>I'm enamored with the art world. Anytime you look at anything that's considered artistic, there's a commercial world around it: the ballet, opera, any kind of music. It can't exist without it.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
