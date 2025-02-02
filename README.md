@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not from the benevolence of the butcher, the brewer, or the baker that we expect our dinner, but from their regard to their own interest.</b>
-> <p><i>Adam Smith</i></p>
+> <b>I left school on my 15th birthday.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
