@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What Englishman will give his mind to politics as long as he can afford to keep a motor car?</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>Love, with very young people, is a heartless business. We drink at that age from thirst, or to get drunk it is only later in life that we occupy ourselves with the individuality of our wine.</b>
+> <p><i>Isak Dinesen</i></p>
 
 <br>
