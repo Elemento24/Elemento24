@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best effort of a fine person is felt after we have left their presence.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>I am Jose Mourinho and I don't change. I arrive with all my qualities and my defects.</b>
+> <p><i>Jose Mourinho</i></p>
 
 <br>
