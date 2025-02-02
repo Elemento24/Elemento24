@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think there is such a thing as being too raunchy when it comes to the art form of burlesque.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>We need a balanced, long term energy policy to reduce our dependence on foreign oil and preserve the beauty of the land we love.</b>
+> <p><i>Heather Wilson</i></p>
 
 <br>
