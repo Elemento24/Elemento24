@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What was past was past. I suppose that was the general attitude.</b>
-> <p><i>V. S. Naipaul</i></p>
+> <b>I've still got that little freedom part of me that wants to have a car that looks really sexy.</b>
+> <p><i>Patrice O'Neal</i></p>
 
 <br>
