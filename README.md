@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To wear your heart on your sleeve isn't a very good plan you should wear it inside, where it functions best.</b>
-> <p><i>Margaret Thatcher</i></p>
+> <b>The best effort of a fine person is felt after we have left their presence.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
