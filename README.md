@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never seen a worse situation than that of young writers in the United States. The publishing business in North America is so commercialized.</b>
-> <p><i>Manuel Puig</i></p>
+> <b>What was past was past. I suppose that was the general attitude.</b>
+> <p><i>V. S. Naipaul</i></p>
 
 <br>
