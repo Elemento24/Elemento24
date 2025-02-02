@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm enamored with the art world. Anytime you look at anything that's considered artistic, there's a commercial world around it: the ballet, opera, any kind of music. It can't exist without it.</b>
-> <p><i>Steve Martin</i></p>
+> <b>My first car, I got it in an auction at my temple. It was an '86 Volvo that I got for 500 bucks, and then wound up throwing $10,000 into the stereo system and put TVs in the foot rests. It was the most ridiculous Volvo you'd ever seen, but I had never had money before and I was out of my mind.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
