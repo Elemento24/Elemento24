@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am of a healthy long lived race, and our minds improve with age.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>What I've enjoyed most, though, is meeting people who have a real interest in food and sharing ideas with them. Good food is a global thing and I find that there is always something new and amazing to learn - I love it!</b>
+> <p><i>Jamie Oliver</i></p>
 
 <br>
