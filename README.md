@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am shocked by the easy attitude of many in the media towards disclosing our Nation's secrets.</b>
-> <p><i>Todd Tiahrt</i></p>
+> <b>The two elements the traveler first captures in the big city are extra human architecture and furious rhythm. Geometry and anguish.</b>
+> <p><i>Federico Garcia Lorca</i></p>
 
 <br>
