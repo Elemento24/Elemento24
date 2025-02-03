@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think exercise tests us in so many ways, our skills, our hearts, our ability to bounce back after setbacks. This is the inner beauty of sports and competition, and it can serve us all well as adult athletes.</b>
-> <p><i>Peggy Fleming</i></p>
+> <b>Some people say it might be good for your career to die and then come back again. I have died many ways, car crashes, motorcycle crashes, etc. But, I am still alive.</b>
+> <p><i>Mark-Paul Gosselaar</i></p>
 
 <br>
