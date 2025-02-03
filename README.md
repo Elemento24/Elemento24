@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Goals allow you to control the direction of change in your favor.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>Turns out, I couldn't catch them - or even get close to them. I realized that sharks are amazing, beautiful animals who have absolutely no interest in checking me out.</b>
+> <p><i>Malin Akerman</i></p>
 
 <br>
