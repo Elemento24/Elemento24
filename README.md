@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The architecture of our future is not only unfinished the scaffolding has hardly gone up.</b>
-> <p><i>George Lamming</i></p>
+> <b>I used to wonder if it was God's plan that I should be alone for so much of my life. But I found peace. I found happiness within people and the world.</b>
+> <p><i>Lana Del Rey</i></p>
 
 <br>
