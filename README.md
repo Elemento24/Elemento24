@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want it said of me by those who knew me best, that I always plucked a thistle and planted a flower where I thought a flower would grow.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>Web users ultimately want to get at data quickly and easily. They don't care as much about attractive sites and pretty design.</b>
+> <p><i>Tim Berners-Lee</i></p>
 
 <br>
