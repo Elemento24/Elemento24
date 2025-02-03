@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hatred is settled anger.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>I think exercise tests us in so many ways, our skills, our hearts, our ability to bounce back after setbacks. This is the inner beauty of sports and competition, and it can serve us all well as adult athletes.</b>
+> <p><i>Peggy Fleming</i></p>
 
 <br>
