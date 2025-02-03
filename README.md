@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Web users ultimately want to get at data quickly and easily. They don't care as much about attractive sites and pretty design.</b>
-> <p><i>Tim Berners-Lee</i></p>
+> <b>There has to be a measure of faith. That's what this business is all about: trusting in something that may never show up, that you have no concrete proof of.</b>
+> <p><i>Wentworth Miller</i></p>
 
 <br>
