@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing one can do when it's raining is to let it rain.</b>
-> <p><i>Henry Wadsworth Longfellow</i></p>
+> <b>All the principles of heaven and earth are living inside you. Life itself is truth, and this will never change. Everything in heaven and earth breathes. Breath is the thread that ties creation together.</b>
+> <p><i>Morihei Ueshiba</i></p>
 
 <br>
