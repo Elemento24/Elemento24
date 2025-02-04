@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So much of what is best in us is bound up in our love of family, that it remains the measure of our stability because it measures our sense of loyalty. All other pacts of love or fear derive from it and are modeled upon it.</b>
-> <p><i>Haniel Long</i></p>
+> <b>As I've gotten older I've occasionally found myself nostalgic for earlier periods of solitude, though I realize that's also likely a false nostalgia, as I know there was nothing I wanted more during those periods than to not be alone, whatever that means.</b>
+> <p><i>Chris Ware</i></p>
 
 <br>
