@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Michelle Pfeiffer hasn't been finding a lot of work recently because she doesn't like what a woman her age is offered. That's a real double standard. You get Sean Connery, who gets older and older, still playing opposite young ladies, but it doesn't work the other way around.</b>
-> <p><i>Denzel Washington</i></p>
+> <b>In business, the competition will bite you if you keep running, if you stand still, they will swallow you.</b>
+> <p><i>Victor Kiam</i></p>
 
 <br>
