@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only thing better than singing is more singing.</b>
-> <p><i>Ella Fitzgerald</i></p>
+> <b>But I have a driver, so I can return calls while I'm in the car.</b>
+> <p><i>Donna Shalala</i></p>
 
 <br>
