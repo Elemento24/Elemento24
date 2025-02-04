@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My work is more about trying to ask good questions and not trying to come up with big shows. Every fashion company is doing that, every car company is doing that.</b>
-> <p><i>Laurie Anderson</i></p>
+> <b>Rule of art: Cant kills creativity!</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
