@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Common sense is the collection of prejudices acquired by age eighteen.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>Art lies by its own artifice.</b>
+> <p><i>Ovid</i></p>
 
 <br>
