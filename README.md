@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Would ye both eat your cake and have your cake?</b>
-> <p><i>John Heywood</i></p>
+> <b>Police departments no longer have to pay overtime or divert resources from other projects to find out where an individual goes - all they have to do is place a tracking device on someone's car or ask a cell phone company for that individual's location history and the technology does the work for them.</b>
+> <p><i>Ron Wyden</i></p>
 
 <br>
