@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No harm comes to man from outside alone: dumbness is the objective spirit.</b>
-> <p><i>Theodor Adorno</i></p>
+> <b>There are two ways to worry words. One is hoping for the greatest possible beauty in what is created. The other is to tell the truth.</b>
+> <p><i>June Jordan</i></p>
 
 <br>
