@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been trying to learn how to not be so conflicted about things like my own anger. I've always had a place in my music for my anger as a way of compensating for not having a mechanism to express it in my everyday life. So I've been trying to be more true to myself, and that helps me to chill out a little bit. But politically, uh-uh. No.</b>
-> <p><i>Ani DiFranco</i></p>
+> <b>The moment you cheat for the sake of beauty, you know you're an artist.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
