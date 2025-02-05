@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change.</b>
-> <p><i>Charles Darwin</i></p>
+> <b>They are amazing kids so we let them make decisions but also have discipline.</b>
+> <p><i>Kelly Preston</i></p>
 
 <br>
