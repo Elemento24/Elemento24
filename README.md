@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They are amazing kids so we let them make decisions but also have discipline.</b>
-> <p><i>Kelly Preston</i></p>
+> <b>The funniest racism is the racism between minorities. It's something you don't see dramatized, but almost every minority I know who's my age, they have these funny stories about their parents stereotyping other minorities.</b>
+> <p><i>Mindy Kaling</i></p>
 
 <br>
