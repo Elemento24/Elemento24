@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude is always one of sensuality, aggressive enthusiasm and a kind of outrageousness in my expression.</b>
-> <p><i>Sally Kirkland</i></p>
+> <b>If you are going to break a Law of Art, make the crime interesting.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
