@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's time to fundamentally change the way that we do business in Washington. To help build a new foundation for the 21st century, we need to reform our government so that it is more efficient, more transparent, and more creative. That will demand new thinking and a new sense of responsibility for every dollar that is spent.</b>
-> <p><i>Barack Obama</i></p>
+> <b>If people don't like me for whatever I do, for being me, then that's too bad. I don't want to change to be something that I'm not for other people to like me.</b>
+> <p><i>Vanessa Hudgens</i></p>
 
 <br>
