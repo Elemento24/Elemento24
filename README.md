@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For I must tell you that we artists cannot tread the path of Beauty without Eros keeping company with us and appointing himself as our guide.</b>
-> <p><i>Thomas Mann</i></p>
+> <b>If I am a legend, then why am I so lonely?</b>
+> <p><i>Judy Garland</i></p>
 
 <br>
