@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ford used to come to work in a big car with two Admiral's flags, on each side of the car. His assistant would be there with his accordion, playing, Hail to the Chief.</b>
-> <p><i>Richard Widmark</i></p>
+> <b>Gary Ross is amazing. He's just - he always has a billion ideas of what he wants, but has a very clear perspective also he just makes it work. He really does. He's trying different things and making everything look amazing.</b>
+> <p><i>Liam Hemsworth</i></p>
 
 <br>
