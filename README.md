@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You shouldn't be in the music business if you're posing.</b>
-> <p><i>Rod Stewart</i></p>
+> <b>Now, personally, I like a car with some sort of character.</b>
+> <p><i>Richard Hammond</i></p>
 
 <br>
