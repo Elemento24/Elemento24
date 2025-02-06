@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, photography is the simultaneous recognition, in a fraction of a second, of the significance of an event.</b>
-> <p><i>Henri Cartier-Bresson</i></p>
+> <b>I don't think anything changes until ideas change. The usual American viewpoint is to believe that something is wrong with the person.</b>
+> <p><i>James Hillman</i></p>
 
 <br>
