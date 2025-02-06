@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't play pyrotechnic scales. I play about frustration, patience, anger. Music is an extension of my soul.</b>
-> <p><i>Dick Dale</i></p>
+> <b>Politics is the art of preventing people from busying themselves with what is their own business.</b>
+> <p><i>Paul Valery</i></p>
 
 <br>
