@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now, personally, I like a car with some sort of character.</b>
-> <p><i>Richard Hammond</i></p>
+> <b>To me, photography is the simultaneous recognition, in a fraction of a second, of the significance of an event.</b>
+> <p><i>Henri Cartier-Bresson</i></p>
 
 <br>
