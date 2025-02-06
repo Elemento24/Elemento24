@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is Art? It is the response of man's creative soul to the call of the Real.</b>
-> <p><i>Rabindranath Tagore</i></p>
+> <b>If you don't like something, change it. If you can't change it, change your attitude.</b>
+> <p><i>Maya Angelou</i></p>
 
 <br>
