@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think anything changes until ideas change. The usual American viewpoint is to believe that something is wrong with the person.</b>
-> <p><i>James Hillman</i></p>
+> <b>Prose is architecture, not interior decoration, and the Baroque is over.</b>
+> <p><i>Ernest Hemingway</i></p>
 
 <br>
