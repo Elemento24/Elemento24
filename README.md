@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am indeed amazed when I consider how weak my mind is and how prone to error.</b>
-> <p><i>Rene Descartes</i></p>
+> <b>Going to a concert is so overwhelming and the energy is amazing.</b>
+> <p><i>Victoria Justice</i></p>
 
 <br>
