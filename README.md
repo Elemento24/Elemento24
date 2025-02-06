@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Going to a concert is so overwhelming and the energy is amazing.</b>
-> <p><i>Victoria Justice</i></p>
+> <b>Words to me were magic. You could say a word and it could conjure up all kinds of images or feelings or a chilly sensation or whatever. It was amazing to me that words had this power.</b>
+> <p><i>Amy Tan</i></p>
 
 <br>
