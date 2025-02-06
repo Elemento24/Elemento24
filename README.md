@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I do think that we approach music, in of itself, with a religious attitude.</b>
-> <p><i>Jon Fishman</i></p>
+> <b>Every artist writes his own autobiography.</b>
+> <p><i>Havelock Ellis</i></p>
 
 <br>
