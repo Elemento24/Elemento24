@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good art provides people with a vocabulary about things they can't articulate.</b>
-> <p><i>Mos Def</i></p>
+> <b>What is Art? It is the response of man's creative soul to the call of the Real.</b>
+> <p><i>Rabindranath Tagore</i></p>
 
 <br>
