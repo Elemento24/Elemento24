@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Would you want to do business with a person who was 99% honest?</b>
-> <p><i>Sydney Madwed</i></p>
+> <b>Good art provides people with a vocabulary about things they can't articulate.</b>
+> <p><i>Mos Def</i></p>
 
 <br>
