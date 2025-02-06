@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prayer does not change God, but it changes him who prays.</b>
-> <p><i>Soren Kierkegaard</i></p>
+> <b>If I start outsourcing all my navigation to a little talking box in my car, I'm sort of screwed. I'm going to lose my car in the parking lot every single time.</b>
+> <p><i>Ken Jennings</i></p>
 
 <br>
