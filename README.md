@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A metaphysical tour de force of untethered meaning and involuting interlocking contrapuntal rhythms, 'The Clock' is more than a movie or even a work of art. It is so strange and other-ish that it becomes a stream-of-consciousness algorithm unto itself - something almost inhuman.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>The best of seers is he who guesses well.</b>
+> <p><i>Euripides</i></p>
 
 <br>
