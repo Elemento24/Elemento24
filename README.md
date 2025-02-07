@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best augury of a man's success in his profession is that he thinks it the finest in the world.</b>
-> <p><i>George Eliot</i></p>
+> <b>What the mass media offers is not popular art, but entertainment which is intended to be consumed like food, forgotten, and replaced by a new dish.</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
