@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is sacred among one people may be ridiculous in another and what is despised or rejected by one cultural group, may in a different environment become the cornerstone for a great edifice of strange grandeur and beauty.</b>
-> <p><i>Hu Shih</i></p>
+> <b>I basically left Texas with no money. I was making $3.50 working in some mall, so I didn't have a lot of cash. I took $1,000 and headed to California. Along the way I stopped in Vegas because I had always wanted to see Caesar's Palace. So I stopped there and won $2,500 on a slot machine! It was amazing.</b>
+> <p><i>Krista Allen</i></p>
 
 <br>
