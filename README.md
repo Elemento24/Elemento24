@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is variable, ugliness is constant.</b>
-> <p><i>Douglas Horton</i></p>
+> <b>What is sacred among one people may be ridiculous in another and what is despised or rejected by one cultural group, may in a different environment become the cornerstone for a great edifice of strange grandeur and beauty.</b>
+> <p><i>Hu Shih</i></p>
 
 <br>
