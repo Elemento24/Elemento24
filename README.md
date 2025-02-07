@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A guy named Charlie Beacham was my first mentor at Ford. He taught me the importance of the dealers, and he rubbed my nose in the retail business.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>Having a clear faith, based on the creed of the church is often labeled today as fundamentalism. Whereas relativism, which is letting oneself be tossed and swept along by every wind of teaching, look like the only attitude acceptable to today's standards.</b>
+> <p><i>Pope Benedict XVI</i></p>
 
 <br>
