@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Associate with men of good quality if you esteem your own reputation for it is better to be alone than in bad company.</b>
-> <p><i>George Washington</i></p>
+> <b>Beauty is variable, ugliness is constant.</b>
+> <p><i>Douglas Horton</i></p>
 
 <br>
