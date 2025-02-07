@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why can't everybody leave everybody else the hell alone.</b>
-> <p><i>Jimmy Durante</i></p>
+> <b>My fastest time in high school was a 4:29 mile. I think cross-country has something to do with my longevity in my business. When you're in an eight-mile race, you never give up.</b>
+> <p><i>Alice Cooper</i></p>
 
 <br>
