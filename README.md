@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How incessant and great are the ills with which a prolonged old age is replete.</b>
-> <p><i>C. S. Lewis</i></p>
+> <b>In prison, inmates sometimes use Cheetos and grape juice as makeup. I wouldn't use that beauty regimen around Britney Spears - she might lick your face off!</b>
+> <p><i>Joel McHale</i></p>
 
 <br>
