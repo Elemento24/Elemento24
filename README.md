@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best of seers is he who guesses well.</b>
-> <p><i>Euripides</i></p>
+> <b>The art of being wise is the art of knowing what to overlook.</b>
+> <p><i>William James</i></p>
 
 <br>
