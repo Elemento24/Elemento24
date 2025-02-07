@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no more difficult art to acquire than the art of observation, and for some men it is quite as difficult to record an observation in brief and plain language.</b>
-> <p><i>William Osler</i></p>
+> <b>I saw how many people were poor and how many kids my age went to school hungry in the morning, which I don't think most of my contemporaries in racially segregated schools in the South thought very much about at the time.</b>
+> <p><i>Charles Kuralt</i></p>
 
 <br>
