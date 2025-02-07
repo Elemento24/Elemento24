@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The frightening thought that what you draw may become a building makes for reasoned lines.</b>
-> <p><i>Saul Steinberg</i></p>
+> <b>The best augury of a man's success in his profession is that he thinks it the finest in the world.</b>
+> <p><i>George Eliot</i></p>
 
 <br>
