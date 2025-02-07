@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In prison, inmates sometimes use Cheetos and grape juice as makeup. I wouldn't use that beauty regimen around Britney Spears - she might lick your face off!</b>
-> <p><i>Joel McHale</i></p>
+> <b>There is no more difficult art to acquire than the art of observation, and for some men it is quite as difficult to record an observation in brief and plain language.</b>
+> <p><i>William Osler</i></p>
 
 <br>
