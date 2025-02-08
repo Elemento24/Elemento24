@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can change a tire, but I couldn't change a fuse on the computer panel on my car.</b>
-> <p><i>Mike O'Malley</i></p>
+> <b>It is the artist's business to create sunshine when the sun fails.</b>
+> <p><i>Romain Rolland</i></p>
 
 <br>
