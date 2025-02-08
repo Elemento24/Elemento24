@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're just into toys, whether it's motorcycles or race cars or computers. I've got the Palm Pilot right here with me, I've got the world's smallest phone. Maybe it's just because I'm still a big little kid and I just love toys, you know?</b>
-> <p><i>Catherine Bell</i></p>
+> <b>To make a couple putts to win the Masters is just an amazing feeling.</b>
+> <p><i>Adam Derek Scott</i></p>
 
 <br>
