@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wealth, beauty, and fame are transient. When those are gone, little is left except the need to be useful.</b>
-> <p><i>Gene Tierney</i></p>
+> <b>This is the precept by which I have lived: Prepare for the worst expect the best and take what comes.</b>
+> <p><i>Hannah Arendt</i></p>
 
 <br>
