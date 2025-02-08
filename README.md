@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't despair too much if you see beautiful things destroyed, if you see them perish. Because the best things are always growing in secret.</b>
-> <p><i>Ben Okri</i></p>
+> <b>Which government is the best? The one that teaches us to govern ourselves.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
