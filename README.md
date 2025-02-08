@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And beauty immortal awakes from the tomb.</b>
-> <p><i>James Beattie</i></p>
+> <b>In architecture the idea degenerated. Design allows a more direct and pleasurable route.</b>
+> <p><i>Charles Eames</i></p>
 
 <br>
