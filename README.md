@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Logic is neither an art nor a science but a dodge.</b>
-> <p><i>Stendhal</i></p>
+> <b>I don't really think that there is anyone in the modern pop business who I feel I want to spar with.</b>
+> <p><i>George Michael</i></p>
 
 <br>
