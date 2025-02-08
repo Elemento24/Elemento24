@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Space is the breath of art.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>It is a blessed thing that in every age some one has had the individuality enough and courage enough to stand by his own convictions.</b>
+> <p><i>Robert Green Ingersoll</i></p>
 
 <br>
