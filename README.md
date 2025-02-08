@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A large income is the best recipe for happiness I ever heard of.</b>
-> <p><i>Jane Austen</i></p>
+> <b>Down to Gehenna, or up to the Throne, He travels the fastest who travels alone.</b>
+> <p><i>Rudyard Kipling</i></p>
 
 <br>
