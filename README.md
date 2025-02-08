@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been an avid reader. If I don't have a book in the car, I'll stop and pick one up just to have something to read. I don't even remember learning to read.</b>
-> <p><i>Janis Ian</i></p>
+> <b>What a man does for pay is of little significance. What he is, as a sensitive instrument responsive to the world's beauty, is everything!</b>
+> <p><i>H. P. Lovecraft</i></p>
 
 <br>
