@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To make a couple putts to win the Masters is just an amazing feeling.</b>
-> <p><i>Adam Derek Scott</i></p>
+> <b>And beauty immortal awakes from the tomb.</b>
+> <p><i>James Beattie</i></p>
 
 <br>
