@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In architecture the idea degenerated. Design allows a more direct and pleasurable route.</b>
-> <p><i>Charles Eames</i></p>
+> <b>Space is the breath of art.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
