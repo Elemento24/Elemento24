@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Which government is the best? The one that teaches us to govern ourselves.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>A large income is the best recipe for happiness I ever heard of.</b>
+> <p><i>Jane Austen</i></p>
 
 <br>
