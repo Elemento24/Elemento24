@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bologna is the best city in Italy for food and has the least number of tourists. With its medieval beauty, it has it all.</b>
-> <p><i>Mario Batali</i></p>
+> <b>That's what I love. Not being interrupted, sitting in a car by myself and listening to music in the rain. There are so many great songs yet to sing.</b>
+> <p><i>Alison Krauss</i></p>
 
 <br>
