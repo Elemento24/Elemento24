@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing is so perfectly amusing as a total change of ideas.</b>
-> <p><i>Laurence Sterne</i></p>
+> <b>You can know or not know how a car runs and still enjoy riding in a car.</b>
+> <p><i>David Byrne</i></p>
 
 <br>
