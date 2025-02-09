@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Talent, like beauty, to be pardoned, must be obscure and unostentatious.</b>
-> <p><i>Marguerite Gardiner</i></p>
+> <b>Men make history and not the other way around. In periods where there is no leadership, society stands still. Progress occurs when courageous, skillful leaders seize the opportunity to change things for the better.</b>
+> <p><i>Harry S. Truman</i></p>
 
 <br>
