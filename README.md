@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Painting is easy when you don't know how, but very difficult when you do.</b>
-> <p><i>Edgar Degas</i></p>
+> <b>Postmodernism surely requires an even greater grasp of symbolism, as it's increasingly an art of gesture alone.</b>
+> <p><i>Andrew Eldritch</i></p>
 
 <br>
