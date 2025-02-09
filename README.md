@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The speed of change makes you wonder what will become of architecture.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>I was away from the front lines for a while this spring, living with other troops, and considerable fighting took place while I was gone. When I got ready to return to my old friends at the front I wondered if I would sense any change in them.</b>
+> <p><i>Ernie Pyle</i></p>
 
 <br>
