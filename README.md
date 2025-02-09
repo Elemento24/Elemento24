@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Experience is the best teacher of all. And for that, there are no guarantees that one will become an artist. Only the journey matters.</b>
-> <p><i>Harry Callahan</i></p>
+> <b>The greatest remedy for anger is delay.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
