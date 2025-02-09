@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes, 85 percent of the art you see isn't any good. But everyone has a different opinion about which 85 percent is bad. That in turn creates fantastically unstable interplay and argument.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Whenever you're in conflict with someone, there is one factor that can make the difference between damaging your relationship and deepening it. That factor is attitude.</b>
+> <p><i>William James</i></p>
 
 <br>
