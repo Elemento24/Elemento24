@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was away from the front lines for a while this spring, living with other troops, and considerable fighting took place while I was gone. When I got ready to return to my old friends at the front I wondered if I would sense any change in them.</b>
-> <p><i>Ernie Pyle</i></p>
+> <b>Education doesn't change life much. It just lifts trouble to a higher plane of regard.</b>
+> <p><i>Robert Frost</i></p>
 
 <br>
