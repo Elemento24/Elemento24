@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest remedy for anger is delay.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>If a small thing has the power to make you angry, does that not indicate something about your size?</b>
+> <p><i>Sydney J. Harris</i></p>
 
 <br>
