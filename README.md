@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every good painter paints what he is.</b>
-> <p><i>Jackson Pollock</i></p>
+> <b>No architecture is so haughty as that which is simple.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
