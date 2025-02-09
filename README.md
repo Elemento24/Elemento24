@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's one Baldessari work I genuinely love and would like to own, maybe because of my Midwestern roots and love of driving alone. 'The backs of all the trucks passed while driving from Los Angeles to Santa Barbara, California, Sunday, 20 January 1963' consists of a grid of 32 small color photographs depicting just what the title says.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Nothing is so perfectly amusing as a total change of ideas.</b>
+> <p><i>Laurence Sterne</i></p>
 
 <br>
