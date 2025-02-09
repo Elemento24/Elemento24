@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can know or not know how a car runs and still enjoy riding in a car.</b>
-> <p><i>David Byrne</i></p>
+> <b>Somebody hits me, I'm going to hit him back. Even if it does look like he hasn't eaten in a while.</b>
+> <p><i>Charles Barkley</i></p>
 
 <br>
