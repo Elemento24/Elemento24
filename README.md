@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>O, thou art fairer than the evening air clad in the beauty of a thousand stars.</b>
-> <p><i>Christopher Marlowe</i></p>
+> <b>Climate change is a global issue - from the point of view of the Earth's climate, a molecule of CO2 emitted in Bejing is the same as a molecule emitted in Sydney.</b>
+> <p><i>Jeff Goodell</i></p>
 
 <br>
