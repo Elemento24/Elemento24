@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Justice means minding one's own business and not meddling with other men's concerns.</b>
-> <p><i>Plato</i></p>
+> <b>I want a chainsaw very badly, because I think cutting down a tree would be unbelievably satisfying. I have asked for a chainsaw for my birthday, but I think I'll probably be given jewelry instead.</b>
+> <p><i>Susan Orlean</i></p>
 
 <br>
