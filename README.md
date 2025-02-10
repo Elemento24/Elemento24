@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a man like Malcolm X could change and repudiate racism, if I myself and other former Muslims can change, if young whites can change, then there is hope for America.</b>
-> <p><i>Eldridge Cleaver</i></p>
+> <b>I'm all about change, and I know things are going to move forward in life, and that's just how it goes.</b>
+> <p><i>Kid Rock</i></p>
 
 <br>
