@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sensual love deceives one as to the nature of heavenly love it could not do so alone, but since it unconsciously has the element of heavenly love within it, it can do so.</b>
-> <p><i>Franz Kafka</i></p>
+> <b>It is time for parents to teach young people early on that in diversity there is beauty and there is strength.</b>
+> <p><i>Maya Angelou</i></p>
 
 <br>
