@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mass transportation is doomed to failure in North America because a person's car is the only place where he can be alone and think.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>If a man like Malcolm X could change and repudiate racism, if I myself and other former Muslims can change, if young whites can change, then there is hope for America.</b>
+> <p><i>Eldridge Cleaver</i></p>
 
 <br>
