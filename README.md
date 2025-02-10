@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The worst men often give the best advice.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>Sensual love deceives one as to the nature of heavenly love it could not do so alone, but since it unconsciously has the element of heavenly love within it, it can do so.</b>
+> <p><i>Franz Kafka</i></p>
 
 <br>
