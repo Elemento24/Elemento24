@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art at its most significant is a Distant Early Warning System that can always be relied on to tell the old culture what is beginning to happen to it.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>Real education should consist of drawing the goodness and the best out of our own students. What better books can there be than the book of humanity?</b>
+> <p><i>Cesar Chavez</i></p>
 
 <br>
