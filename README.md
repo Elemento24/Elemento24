@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want a chainsaw very badly, because I think cutting down a tree would be unbelievably satisfying. I have asked for a chainsaw for my birthday, but I think I'll probably be given jewelry instead.</b>
-> <p><i>Susan Orlean</i></p>
+> <b>You know, it's amazing. I don't even have a car, would you believe it? I had a motorbike and it got stolen last year. So I've got to buy another one of those, I suppose. I can treat myself to that.</b>
+> <p><i>Michael Fassbender</i></p>
 
 <br>
