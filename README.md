@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been an avid reader. If I don't have a book in the car, I'll stop and pick one up just to have something to read. I don't even remember learning to read.</b>
-> <p><i>Janis Ian</i></p>
+> <b>To have striven, to have made the effort, to have been true to certain ideals - this alone is worth the struggle.</b>
+> <p><i>William Osler</i></p>
 
 <br>
