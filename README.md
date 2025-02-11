@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business of America is business.</b>
-> <p><i>Calvin Coolidge</i></p>
+> <b>Youth is the gift of nature, but age is a work of art.</b>
+> <p><i>Stanislaw Lec</i></p>
 
 <br>
