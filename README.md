@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best car safety device is a rear-view mirror with a cop in it.</b>
-> <p><i>Dudley Moore</i></p>
+> <b>A frenzied passion for art is a canker that devours everything else.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
