@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always try to keep the circumstances in my life fresh. I like to change the physical environment I live in, change the people around me and try to experience things for the first time. I think that keeps one on their toes, creatively and spiritually.</b>
-> <p><i>Lenny Kravitz</i></p>
+> <b>The rewards of virtue alone abide secure.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
