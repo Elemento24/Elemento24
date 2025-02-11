@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To have striven, to have made the effort, to have been true to certain ideals - this alone is worth the struggle.</b>
-> <p><i>William Osler</i></p>
+> <b>It's amazing that something only an atom thick can be an impenetrable barrier. You can have gas on one side and vacuum or liquid on the other, and with a wall only one atom thick, nothing would go through it.</b>
+> <p><i>Paul McEuen</i></p>
 
 <br>
