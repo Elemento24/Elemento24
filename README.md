@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's very hard to write a song alone. It's only by jamming that you can get a song together.</b>
-> <p><i>Maurice Gibb</i></p>
+> <b>If you're into architecture and you're from the West, everything is hors d'oeuvres for working to rebuild the Temple. Ultimately you're led there. You can't escape it.</b>
+> <p><i>Ben Nicholson</i></p>
 
 <br>
