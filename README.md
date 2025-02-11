@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're into architecture and you're from the West, everything is hors d'oeuvres for working to rebuild the Temple. Ultimately you're led there. You can't escape it.</b>
-> <p><i>Ben Nicholson</i></p>
+> <b>The best car safety device is a rear-view mirror with a cop in it.</b>
+> <p><i>Dudley Moore</i></p>
 
 <br>
