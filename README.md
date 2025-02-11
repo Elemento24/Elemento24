@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think an artist's responsibility is more complex than people realize.</b>
-> <p><i>Jodie Foster</i></p>
+> <b>Architecture should speak of its time and place, but yearn for timelessness.</b>
+> <p><i>Frank Gehry</i></p>
 
 <br>
