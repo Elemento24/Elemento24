@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the 19th century, you had bourgeois art without politics - an almost frozen idea of what beauty is.</b>
-> <p><i>Douglas Sirk</i></p>
+> <b>Keep your temper. A decision made in anger is never sound.</b>
+> <p><i>Ford Frick</i></p>
 
 <br>
