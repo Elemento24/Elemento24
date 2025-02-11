@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The advice of the elders to young men is very apt to be as unreal as a list of the hundred best books.</b>
-> <p><i>Oliver Wendell Holmes</i></p>
+> <b>I think an artist's responsibility is more complex than people realize.</b>
+> <p><i>Jodie Foster</i></p>
 
 <br>
