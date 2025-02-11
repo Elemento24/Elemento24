@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Qualifying is all about putting everything that you have and that the car has in one lap. It's like a rush, I really enjoy that.</b>
-> <p><i>Sebastian Vettel</i></p>
+> <b>In the 19th century, you had bourgeois art without politics - an almost frozen idea of what beauty is.</b>
+> <p><i>Douglas Sirk</i></p>
 
 <br>
