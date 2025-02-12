@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love, with very young people, is a heartless business. We drink at that age from thirst, or to get drunk it is only later in life that we occupy ourselves with the individuality of our wine.</b>
-> <p><i>Isak Dinesen</i></p>
+> <b>It's better to get the nutrients for healthy skin from food, not supplements. Salmon, walnuts, blueberries, spinach... lots of my favorite foods happen to be amazing for skin too.</b>
+> <p><i>Gail Simmons</i></p>
 
 <br>
