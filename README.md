@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>She gave up beauty in her tender youth, gave all her hope and joy and pleasant ways she covered up her eyes lest they should gaze on vanity, and chose the bitter truth.</b>
-> <p><i>Christina Rossetti</i></p>
+> <b>After a while of getting jerked around, you realize what the business is really made up of.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
