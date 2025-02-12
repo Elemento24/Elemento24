@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Where I am today... I still have my ups and downs, but I take it one day at a time and I just hope that I can be the best that I can possibly be, not only for myself, but also young people that are out there today that need someone to look up to.</b>
-> <p><i>Demi Lovato</i></p>
+> <b>She gave up beauty in her tender youth, gave all her hope and joy and pleasant ways she covered up her eyes lest they should gaze on vanity, and chose the bitter truth.</b>
+> <p><i>Christina Rossetti</i></p>
 
 <br>
