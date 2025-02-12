@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you have learned how to disagree without being disagreeable, then you have discovered the secrete of getting along - whether it be business, family relations, or life itself.</b>
-> <p><i>Bernard Meltzer</i></p>
+> <b>Any authentic work of art must start an argument between the artist and his audience.</b>
+> <p><i>Rebecca West</i></p>
 
 <br>
