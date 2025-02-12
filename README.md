@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every summer my husband and I pack our suitcases, load our kids into the car, and drive from tense, crowded New York City to my family's cottage in Maine. It's on an island, with stretches of sea and sandy beaches, rocky coasts, and pine trees. We barbecue, swim, lie around, and try to do nothing.</b>
-> <p><i>Hope Davis</i></p>
+> <b>Where I am today... I still have my ups and downs, but I take it one day at a time and I just hope that I can be the best that I can possibly be, not only for myself, but also young people that are out there today that need someone to look up to.</b>
+> <p><i>Demi Lovato</i></p>
 
 <br>
