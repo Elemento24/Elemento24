@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man, being reasonable, must get drunk the best of life is but intoxication.</b>
-> <p><i>Lord Byron</i></p>
+> <b>Every now and then, I have blissful moments of thanking God for all the amazing things that are happening. When I leave the White House after just meeting Obama or when I see my face on the cover of 'Rolling Stone' or when I meet someone who tells me that their daughter is inspired by me, those are moments that are incredibly joyful.</b>
+> <p><i>Lea Michele</i></p>
 
 <br>
