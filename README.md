@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was really into classifieds for awhile. I'm a big negotiator. My father owned a car dealership when I was younger... it's just in my blood.</b>
-> <p><i>Jake Johnson</i></p>
+> <b>The denunciation of the young is a necessary part of the hygiene of older people, and greatly assists the circulation of the blood.</b>
+> <p><i>Logan P. Smith</i></p>
 
 <br>
