@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every now and then, I have blissful moments of thanking God for all the amazing things that are happening. When I leave the White House after just meeting Obama or when I see my face on the cover of 'Rolling Stone' or when I meet someone who tells me that their daughter is inspired by me, those are moments that are incredibly joyful.</b>
-> <p><i>Lea Michele</i></p>
+> <b>Love, with very young people, is a heartless business. We drink at that age from thirst, or to get drunk it is only later in life that we occupy ourselves with the individuality of our wine.</b>
+> <p><i>Isak Dinesen</i></p>
 
 <br>
