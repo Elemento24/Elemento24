@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any authentic work of art must start an argument between the artist and his audience.</b>
-> <p><i>Rebecca West</i></p>
+> <b>To dare to live alone is the rarest courage since there are many who had rather meet their bitterest enemy in the field, than their own hearts in their closet.</b>
+> <p><i>Charles Caleb Colton</i></p>
 
 <br>
