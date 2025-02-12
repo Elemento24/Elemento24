@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a horrible visual artist. I can't fix a car, sew, knit, cook, etc. Statistically, there is more I don't do than do.</b>
-> <p><i>Carrie Brownstein</i></p>
+> <b>Action and reaction, ebb and flow, trial and error, change - this is the rhythm of living. Out of our over-confidence, fear out of our fear, clearer vision, fresh hope. And out of hope, progress.</b>
+> <p><i>Bruce Barton</i></p>
 
 <br>
