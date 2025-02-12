@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the revision in the world will not save a bad first draft: for the architecture of the thing comes, or fails to come, in the first conception, and revision only affects the detail and ornament, alas!</b>
-> <p><i>T. E. Lawrence</i></p>
+> <b>I was really into classifieds for awhile. I'm a big negotiator. My father owned a car dealership when I was younger... it's just in my blood.</b>
+> <p><i>Jake Johnson</i></p>
 
 <br>
