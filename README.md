@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A positive attitude is something everyone can work on, and everyone can learn how to employ it.</b>
-> <p><i>Joan Lunden</i></p>
+> <b>Youth is when you're allowed to stay up late on New Year's Eve. Middle age is when you're forced to.</b>
+> <p><i>Bill Vaughan</i></p>
 
 <br>
