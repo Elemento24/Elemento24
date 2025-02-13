@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Listen, if there's one sure-fire rule that I have learned in this business, it's that I don't know anything about human nature.</b>
-> <p><i>Francis Ford Coppola</i></p>
+> <b>I have to live with both my selves as best I may.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
