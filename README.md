@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always thought that change you can see and feel is best.</b>
-> <p><i>Henry Rollins</i></p>
+> <b>Physics does not change the nature of the world it studies, and no science of behavior can change the essential nature of man, even though both sciences yield technologies with a vast power to manipulate the subject matters.</b>
+> <p><i>Pope Paul VI</i></p>
 
 <br>
