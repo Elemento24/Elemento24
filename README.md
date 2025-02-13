@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth is when you're allowed to stay up late on New Year's Eve. Middle age is when you're forced to.</b>
-> <p><i>Bill Vaughan</i></p>
+> <b>The art of progress is to preserve order amid change and to preserve change amid order.</b>
+> <p><i>Alfred North Whitehead</i></p>
 
 <br>
