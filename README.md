@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most urgently, women's identity must be premised upon our 'beauty' so that we will remain vulnerable to outside approval, carrying the vital sensitive organ of self-esteem exposed to the air.</b>
-> <p><i>Naomi Wolf</i></p>
+> <b>We allow our ignorance to prevail upon us and make us think we can survive alone, alone in patches, alone in groups, alone in races, even alone in genders.</b>
+> <p><i>Maya Angelou</i></p>
 
 <br>
