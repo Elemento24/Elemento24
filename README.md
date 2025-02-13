@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know a lot about cars, man. I can look at any car's headlights and tell you exactly which way it's coming.</b>
-> <p><i>Mitch Hedberg</i></p>
+> <b>I have always thought that change you can see and feel is best.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
