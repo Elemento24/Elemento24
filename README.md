@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wisdom I know is social. She seeks her fellows. But Beauty is jealous, and illy bears the presence of a rival.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
