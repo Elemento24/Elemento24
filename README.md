@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't manage - lead change before you have to.</b>
-> <p><i>Jack Welch</i></p>
+> <b>I'd really like to get the girl, shoot the gun, drive the car, have fun. I even have these kind of action dreams, where I'm the action guy.</b>
+> <p><i>Kevin Bacon</i></p>
 
 <br>
