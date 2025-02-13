@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of progress is to preserve order amid change and to preserve change amid order.</b>
-> <p><i>Alfred North Whitehead</i></p>
+> <b>The people who make art their business are mostly imposters.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
