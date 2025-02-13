@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Physics does not change the nature of the world it studies, and no science of behavior can change the essential nature of man, even though both sciences yield technologies with a vast power to manipulate the subject matters.</b>
-> <p><i>Pope Paul VI</i></p>
+> <b>I'll keep on acting 'til they wipe the drool. I like the business. I like to do different parts and diverse characters. I haven't lost my enthusiasm yet!</b>
+> <p><i>Robert Duvall</i></p>
 
 <br>
