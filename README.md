@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to live with both my selves as best I may.</b>
-> <p><i>Brigitte Bardot</i></p>
+> <b>I'm so accustomed to being alone.</b>
+> <p><i>Leighton Meester</i></p>
 
 <br>
