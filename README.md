@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no such thing is aging, but maturing and knowledge. It's beautiful, I call that beauty.</b>
-> <p><i>Celine Dion</i></p>
+> <b>I mean, I've always said I have an amazing team and network of friends and people that I work with that, you know, inspire me and enable me to do what I do.</b>
+> <p><i>Alexander Wang</i></p>
 
 <br>
