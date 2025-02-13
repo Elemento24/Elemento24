@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people who make art their business are mostly imposters.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>I know a lot about cars, man. I can look at any car's headlights and tell you exactly which way it's coming.</b>
+> <p><i>Mitch Hedberg</i></p>
 
 <br>
