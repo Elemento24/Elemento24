@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The style of ancient Egyptian art is transcendently clear, something 8-year-olds can recognize in an instant. Its consistency and codification is one of the most epic visual journeys in all art, one that lasts 30 dynasties spread over 3,000 years.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Alas! how little does the memory of these human inhabitants enhance the beauty of the landscape!</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
