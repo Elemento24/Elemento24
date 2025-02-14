@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps it's good for one to suffer. Can an artist do anything if he's happy? Would he ever want to do anything? What is art, after all, but a protest against the horrible inclemency of life?</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>'Beauty is truth, truth beauty,' - that is all ye know on earth, and all ye need to know.</b>
+> <p><i>John Keats</i></p>
 
 <br>
