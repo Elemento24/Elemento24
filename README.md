@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Genius always gives its best at first prudence, at last.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>Saving faith is an immediate relation to Christ, accepting, receiving, resting upon Him alone, for justification, sanctification, and eternal life by virtue of God's grace.</b>
+> <p><i>Charles Spurgeon</i></p>
 
 <br>
