@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You begin with the possibilities of the material.</b>
-> <p><i>Robert Rauschenberg</i></p>
+> <b>A liberal knows that the only certainty in this life is change but believes that the change can be directed toward a constructive end.</b>
+> <p><i>Henry A. Wallace</i></p>
 
 <br>
