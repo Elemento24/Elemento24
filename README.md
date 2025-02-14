@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The educator must believe in the potential power of his pupil, and he must employ all his art in seeking to bring his pupil to experience this power.</b>
-> <p><i>Alfred Adler</i></p>
+> <b>You begin with the possibilities of the material.</b>
+> <p><i>Robert Rauschenberg</i></p>
 
 <br>
