@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My beauty icons are women whose images are self-created.</b>
-> <p><i>Dita Von Teese</i></p>
+> <b>The educator must believe in the potential power of his pupil, and he must employ all his art in seeking to bring his pupil to experience this power.</b>
+> <p><i>Alfred Adler</i></p>
 
 <br>
