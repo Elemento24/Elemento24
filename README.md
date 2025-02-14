@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>More marriages might survive if the partners realized that sometimes the better comes after the worse.</b>
-> <p><i>Doug Larson</i></p>
+> <b>We try, we fail, we posture, we aspire, we pontificate - and then we age, shrink, die, and vanish.</b>
+> <p><i>George Saunders</i></p>
 
 <br>
