@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alas! how little does the memory of these human inhabitants enhance the beauty of the landscape!</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Perhaps it's good for one to suffer. Can an artist do anything if he's happy? Would he ever want to do anything? What is art, after all, but a protest against the horrible inclemency of life?</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
