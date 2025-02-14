@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Acting in anger and hatred throughout my life, I frequently precipitated what I feared most, the loss of friendships and the need to rely upon the very people I'd abused.</b>
-> <p><i>Luke Ford</i></p>
+> <b>When two men in business always agree, one of them is unnecessary.</b>
+> <p><i>Ezra Pound</i></p>
 
 <br>
