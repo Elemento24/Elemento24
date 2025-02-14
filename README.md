@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's nobody in the business strong enough to scare me.</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>Never have more children than you have car windows.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
