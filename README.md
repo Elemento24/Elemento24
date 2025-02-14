@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is little difference in people, but that little difference makes a big difference. The little difference is attitude. The big difference is whether it is positive or negative.</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>I had wanted a tape recorder since I was tiny. I thought it was a magic thing. I never got one until just before I went to art school.</b>
+> <p><i>Brian Eno</i></p>
 
 <br>
