@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Saving faith is an immediate relation to Christ, accepting, receiving, resting upon Him alone, for justification, sanctification, and eternal life by virtue of God's grace.</b>
-> <p><i>Charles Spurgeon</i></p>
+> <b>Investors have few spare tires left. Think of the image of a car on a bumpy road to an uncertain destination that has already used up its spare tire. The cash reserves of people have been eaten up by the recent market volatility.</b>
+> <p><i>Mohamed El-Erian</i></p>
 
 <br>
