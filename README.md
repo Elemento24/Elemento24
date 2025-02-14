@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My business is to teach my aspirations to confirm themselves to fact, not to try and make facts harmonize with my aspirations.</b>
-> <p><i>Thomas Huxley</i></p>
+> <b>More marriages might survive if the partners realized that sometimes the better comes after the worse.</b>
+> <p><i>Doug Larson</i></p>
 
 <br>
