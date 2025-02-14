@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When two men in business always agree, one of them is unnecessary.</b>
-> <p><i>Ezra Pound</i></p>
+> <b>There is little difference in people, but that little difference makes a big difference. The little difference is attitude. The big difference is whether it is positive or negative.</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
