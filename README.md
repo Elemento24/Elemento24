@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A liberal knows that the only certainty in this life is change but believes that the change can be directed toward a constructive end.</b>
-> <p><i>Henry A. Wallace</i></p>
+> <b>It is very frightening to feel alone when you are standing against a rich and powerful person and all his attendant helpers.</b>
+> <p><i>Gloria Allred</i></p>
 
 <br>
