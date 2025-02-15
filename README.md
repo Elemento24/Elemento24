@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you jump for joy, beware that no one moves the ground from beneath your feet.</b>
-> <p><i>Stanislaw Lec</i></p>
+> <b>No one wants to die. Even people who want to go to heaven don't want to die to get there. And yet death is the destination we all share. No one has ever escaped it. And that is as it should be, because Death is very likely the single best invention of Life. It is Life's change agent. It clears out the old to make way for the new.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
