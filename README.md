@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Liturgy is like a strong tree whose beauty is derived from the continuous renewal of its leaves, but whose strength comes from the old trunk, with solid roots in the ground.</b>
-> <p><i>Pope Paul VI</i></p>
+> <b>In the music business, especially the country music business, every 10 years or so you're going to have this changing of the guard, this wave of new artists that comes in.</b>
+> <p><i>Jason Aldean</i></p>
 
 <br>
