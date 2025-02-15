@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing. We're all friends and friendly. So when the cameras go down, depending on the mood or the nature of the material we're dealing with, there's usually a kind of a prevailing light attitude that's floating around.</b>
-> <p><i>Richard Dean Anderson</i></p>
+> <b>The words of the Bible, and the Bible alone, should be heard from the pulpit.</b>
+> <p><i>Ellen G. White</i></p>
 
 <br>
