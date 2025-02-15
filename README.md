@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you like a person you say 'let's go into business together.' Man is a social animal after all, but such partnerships are fraught with danger.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>These things have a life of there own and never existed when I was growing up certainly worrying when one would get made. It's kind of amazing how that one movie kept living through all these years.</b>
+> <p><i>Stockard Channing</i></p>
 
 <br>
