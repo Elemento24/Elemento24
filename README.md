@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best books... are those that tell you what you know already.</b>
-> <p><i>George Orwell</i></p>
+> <b>Right after 'Raymond' I had a world-is-my-oyster attitude, but I found out I don't like oysters. I had this existential emptiness. 'What is my purpose? Who am I?' I had a big identity crisis.</b>
+> <p><i>Ray Romano</i></p>
 
 <br>
