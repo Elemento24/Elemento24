@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Comics are so full of amazing work. And I can't look at a drawing of a woman without thinking of, for instance, Wallace Wood and his amazing way of capturing beauty.</b>
-> <p><i>Frank Miller</i></p>
+> <b>I believe we need to attract a new generation of the best and brightest to public service and I believe that government can be a source of inspiration, not degradation.</b>
+> <p><i>Andrew Cuomo</i></p>
 
 <br>
