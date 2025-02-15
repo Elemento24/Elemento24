@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is magic delivered from the lie of being truth.</b>
-> <p><i>Theodor Adorno</i></p>
+> <b>The best books... are those that tell you what you know already.</b>
+> <p><i>George Orwell</i></p>
 
 <br>
