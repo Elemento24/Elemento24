@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd love to write something for a male protagonist. That's sort of the next frontier for me. I think it'd be really amazing to write the kind of parts that I love for women but for a guy.</b>
-> <p><i>Lena Dunham</i></p>
+> <b>Nothing. We're all friends and friendly. So when the cameras go down, depending on the mood or the nature of the material we're dealing with, there's usually a kind of a prevailing light attitude that's floating around.</b>
+> <p><i>Richard Dean Anderson</i></p>
 
 <br>
