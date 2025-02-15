@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The words of the Bible, and the Bible alone, should be heard from the pulpit.</b>
-> <p><i>Ellen G. White</i></p>
+> <b>I was impressed by Hendrix. His attitude was brilliant. Even the way he walked was amazing.</b>
+> <p><i>Ritchie Blackmore</i></p>
 
 <br>
