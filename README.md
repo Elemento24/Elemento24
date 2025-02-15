@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate to play the I-live-in-the-country card, but it really takes all of the 'pack the kids into the car and run from here to there' out of the equation.</b>
-> <p><i>Ree Drummond</i></p>
+> <b>Beauty and the Beast became the first animated feature ever nominated for best picture.</b>
+> <p><i>Leonard Maltin</i></p>
 
 <br>
