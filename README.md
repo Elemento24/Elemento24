@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the music business, especially the country music business, every 10 years or so you're going to have this changing of the guard, this wave of new artists that comes in.</b>
-> <p><i>Jason Aldean</i></p>
+> <b>Science fiction is an amazing literature: plot elements that you would think would be completely worn out by now keep changing into surprising new forms.</b>
+> <p><i>Connie Willis</i></p>
 
 <br>
