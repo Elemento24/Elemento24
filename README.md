@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You come into the world alone and you go out of the world alone yet it seems to me you are more alone while living than even going and coming.</b>
-> <p><i>Emily Carr</i></p>
+> <b>When you jump for joy, beware that no one moves the ground from beneath your feet.</b>
+> <p><i>Stanislaw Lec</i></p>
 
 <br>
