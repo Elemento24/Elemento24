@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty in art is often nothing but ugliness subdued.</b>
-> <p><i>Jean Rostand</i></p>
+> <b>Toleration is the best religion.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
