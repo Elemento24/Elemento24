@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't let the fear of the time it will take to accomplish something stand in the way of your doing it. The time will pass anyway we might just as well put that passing time to the best possible use.</b>
-> <p><i>Earl Nightingale</i></p>
+> <b>This is like my dad's race team where we had one Legend car. If we wrecked it, we couldn't race the next week unless we had enough parts to put it back together again.</b>
+> <p><i>Kurt Busch</i></p>
 
 <br>
