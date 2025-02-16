@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Toleration is the best religion.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>Certainly, travel is more than the seeing of sights it is a change that goes on, deep and permanent, in the ideas of living.</b>
+> <p><i>Miriam Beard</i></p>
 
 <br>
