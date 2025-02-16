@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am responsible. Although I may not be able to prevent the worst from happening, I am responsible for my attitude toward the inevitable misfortunes that darken life.</b>
-> <p><i>Walter Anderson</i></p>
+> <b>The arts are an even better barometer of what is happening in our world than the stock market or the debates in congress.</b>
+> <p><i>Hendrik Willem Van Loon</i></p>
 
 <br>
