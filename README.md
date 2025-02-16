@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The arts are an even better barometer of what is happening in our world than the stock market or the debates in congress.</b>
-> <p><i>Hendrik Willem Van Loon</i></p>
+> <b>Well I do find the beauty in animals. I find beauty everywhere. I find beauty in my garden.</b>
+> <p><i>Doris Day</i></p>
 
 <br>
