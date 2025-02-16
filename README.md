@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The creative act lasts but a brief moment, a lightning instant of give-and-take, just long enough for you to level the camera and to trap the fleeting prey in your little box.</b>
-> <p><i>Henri Cartier-Bresson</i></p>
+> <b>I wanted to be a mechanic. When I was 14 I wanted to quit school and go work on my car. But my dad said Son, you shouldn't do that. You should stay in school until your education is finished, and when you're done, don't make your hobby your job.</b>
+> <p><i>Eric Bana</i></p>
 
 <br>
