@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Government in the U.S. today is a senior partner in every business in the country.</b>
-> <p><i>Norman Cousins</i></p>
+> <b>Old age is an insult. It's like being smacked.</b>
+> <p><i>Lawrence Durrell</i></p>
 
 <br>
