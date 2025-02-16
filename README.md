@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Certainly, travel is more than the seeing of sights it is a change that goes on, deep and permanent, in the ideas of living.</b>
-> <p><i>Miriam Beard</i></p>
+> <b>George Clooney is a super-human, he's just such an amazing human being, he taught me how to be a better person and a better actor!</b>
+> <p><i>Shailene Woodley</i></p>
 
 <br>
