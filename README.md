@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Human beings should be held accountable. Leave God alone. He has enough problems.</b>
-> <p><i>Elie Wiesel</i></p>
+> <b>Government in the U.S. today is a senior partner in every business in the country.</b>
+> <p><i>Norman Cousins</i></p>
 
 <br>
