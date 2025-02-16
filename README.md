@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the television age, the key distinction is between the candidate who can speak poetry and the one who can only speak prose.</b>
-> <p><i>Richard M. Nixon</i></p>
+> <b>The creative act lasts but a brief moment, a lightning instant of give-and-take, just long enough for you to level the camera and to trap the fleeting prey in your little box.</b>
+> <p><i>Henri Cartier-Bresson</i></p>
 
 <br>
