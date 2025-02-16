@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wanted to be a mechanic. When I was 14 I wanted to quit school and go work on my car. But my dad said Son, you shouldn't do that. You should stay in school until your education is finished, and when you're done, don't make your hobby your job.</b>
-> <p><i>Eric Bana</i></p>
+> <b>I keep my weight low, although you need to be able to move your weight around the race car to change the balance. I'm 6ft and I'm 70kg so I haven't much fat on me.</b>
+> <p><i>Jenson Button</i></p>
 
 <br>
