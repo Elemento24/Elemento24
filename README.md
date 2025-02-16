@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In business, you're the Chief Salesman. Create a sense of demand, rather than waiting to have demand.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>Don't let the fear of the time it will take to accomplish something stand in the way of your doing it. The time will pass anyway we might just as well put that passing time to the best possible use.</b>
+> <p><i>Earl Nightingale</i></p>
 
 <br>
