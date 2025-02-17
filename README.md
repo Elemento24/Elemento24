@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the stored honey of the human soul, gathered on wings of misery and travail.</b>
-> <p><i>Theodore Dreiser</i></p>
+> <b>The American attitude towards efficiency and execution should always underlie architecture.</b>
+> <p><i>Helmut Jahn</i></p>
 
 <br>
