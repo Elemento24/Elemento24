@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most sets of values would give rise to universes that, although they might be very beautiful, would contain no one able to wonder at that beauty.</b>
-> <p><i>Stephen Hawking</i></p>
+> <b>I was very successful from a very early age, and I want to keep it.</b>
+> <p><i>John Mayer</i></p>
 
 <br>
