@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course, I'm older now. I'm in a different place in my life than when I wrote the songs for 'Car Wheels' or 'Essence' or whatever. Different things were going on.</b>
-> <p><i>Lucinda Williams</i></p>
+> <b>Art is the stored honey of the human soul, gathered on wings of misery and travail.</b>
+> <p><i>Theodore Dreiser</i></p>
 
 <br>
