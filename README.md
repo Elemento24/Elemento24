@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My curiosity and my appetite for evolving as an actor is one of the main components of me still working today in the business.</b>
-> <p><i>Kim Cattrall</i></p>
+> <b>You can construct the character of a man and his age not only from what he does and says, but from what he fails to say and do.</b>
+> <p><i>Norman Douglas</i></p>
 
 <br>
