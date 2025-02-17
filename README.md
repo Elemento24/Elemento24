@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing so conclusively proves a man's ability to lead others as what he does from day to day to lead himself.</b>
-> <p><i>Thomas J. Watson</i></p>
+> <b>Most sets of values would give rise to universes that, although they might be very beautiful, would contain no one able to wonder at that beauty.</b>
+> <p><i>Stephen Hawking</i></p>
 
 <br>
