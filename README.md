@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Until we totally change the way we elect our leaders, until we remove private money from public campaigns, lying will be the de facto method of governance in this country.</b>
-> <p><i>Peter Schuyler</i></p>
+> <b>Nothing so conclusively proves a man's ability to lead others as what he does from day to day to lead himself.</b>
+> <p><i>Thomas J. Watson</i></p>
 
 <br>
