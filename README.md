@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was very successful from a very early age, and I want to keep it.</b>
-> <p><i>John Mayer</i></p>
+> <b>It is amazing how the public steadfastly refuse to attend the third day of a match when so often the last day produces the best and most exciting cricket.</b>
+> <p><i>Frank Woolley</i></p>
 
 <br>
