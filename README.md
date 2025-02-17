@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to get a bad law repealed is to enforce it strictly.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>In my older age, I've learned to take things slower, because I used to be that total-fall-in-love-after-a-day guy.</b>
+> <p><i>Lance Bass</i></p>
 
 <br>
