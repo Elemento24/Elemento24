@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can construct the character of a man and his age not only from what he does and says, but from what he fails to say and do.</b>
-> <p><i>Norman Douglas</i></p>
+> <b>Of course, I'm older now. I'm in a different place in my life than when I wrote the songs for 'Car Wheels' or 'Essence' or whatever. Different things were going on.</b>
+> <p><i>Lucinda Williams</i></p>
 
 <br>
