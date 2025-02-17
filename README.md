@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a planning board commissioner, I have to review the applications for development throughout the city, and the bulk of those applications have been for the waterfront. I think the progress the waterfront has made is amazing.</b>
-> <p><i>Vincent Frank</i></p>
+> <b>'Blind Curve,' the book I'm working on now, sprang from a crazy incident that happened to me last year while on my book tour. I was pulled out of my car for a minor traffic violation - an incident that escalated into my being thrown into cuffs and told I was going to jail. Except in my story, the hero doesn't get off as easily as I did.</b>
+> <p><i>Andrew Gross</i></p>
 
 <br>
