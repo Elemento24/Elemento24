@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For many years, I have lived uncomfortably with the belief that most planning and architectural design suffers for lack of real and basic purpose. The ultimate purpose, it seems to me, must be the improvement of mankind.</b>
-> <p><i>James Rouse</i></p>
+> <b>The best way to get a bad law repealed is to enforce it strictly.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
