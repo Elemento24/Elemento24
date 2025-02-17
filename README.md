@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing that this is all happening to Lost in Space.</b>
-> <p><i>Mark Goddard</i></p>
+> <b>For many years, I have lived uncomfortably with the belief that most planning and architectural design suffers for lack of real and basic purpose. The ultimate purpose, it seems to me, must be the improvement of mankind.</b>
+> <p><i>James Rouse</i></p>
 
 <br>
