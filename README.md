@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my older age, I've learned to take things slower, because I used to be that total-fall-in-love-after-a-day guy.</b>
-> <p><i>Lance Bass</i></p>
+> <b>Until we totally change the way we elect our leaders, until we remove private money from public campaigns, lying will be the de facto method of governance in this country.</b>
+> <p><i>Peter Schuyler</i></p>
 
 <br>
