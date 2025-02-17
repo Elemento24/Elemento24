@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't know a time when there wasn't a war because I spent all my time from the age of two or three to eight in a coal cellar really.</b>
-> <p><i>David Bailey</i></p>
+> <b>My curiosity and my appetite for evolving as an actor is one of the main components of me still working today in the business.</b>
+> <p><i>Kim Cattrall</i></p>
 
 <br>
