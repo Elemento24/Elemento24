@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Voice-acting, on the fun meter, is off the scale. You show up, you don't have to be all primped up, or dressed up. And you get to work with some amazing people, and goof off for four hours.</b>
-> <p><i>Jason Marsden</i></p>
+> <b>It's awesome to see something like 'Inception', which is just mind-blowing and amazing, and it actually resonates with the audiences. I feel like that's rare.</b>
+> <p><i>Danny McBride</i></p>
 
 <br>
