@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a lot of people out there who go through hard times, and they feel alone. They feel like nobody is there. But I'm in the same boat.</b>
-> <p><i>Brandy Norwood</i></p>
+> <b>Beauty is the first test: there is no permanent place in the world for ugly mathematics.</b>
+> <p><i>Godfrey Harold Hardy</i></p>
 
 <br>
