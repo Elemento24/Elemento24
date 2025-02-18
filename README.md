@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All cities are mad: but the madness is gallant. All cities are beautiful: but the beauty is grim.</b>
-> <p><i>Christopher Morley</i></p>
+> <b>I am a walking piece of art every day, with my dreams and my ambitions forward at all times in an effort to inspire my fans to lead their life in that way.</b>
+> <p><i>Lady Gaga</i></p>
 
 <br>
