@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of women these days, a lot of young women don't want to call themselves feminists. You have this cheap, hideous 'girl power' sort of fad, which I think is pretty benign at best, but at worst, I think it's a way of taking the politics out of feminism and making it some kind of fashion.</b>
-> <p><i>Ani DiFranco</i></p>
+> <b>Voice-acting, on the fun meter, is off the scale. You show up, you don't have to be all primped up, or dressed up. And you get to work with some amazing people, and goof off for four hours.</b>
+> <p><i>Jason Marsden</i></p>
 
 <br>
