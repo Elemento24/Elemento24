@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love built on beauty, soon as beauty, dies.</b>
-> <p><i>John Donne</i></p>
+> <b>All cities are mad: but the madness is gallant. All cities are beautiful: but the beauty is grim.</b>
+> <p><i>Christopher Morley</i></p>
 
 <br>
