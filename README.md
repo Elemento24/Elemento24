@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want it said of me by those who knew me best, that I always plucked a thistle and planted a flower where I thought a flower would grow.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>Credit or debit cards, for starters, are nothing short of shoppers' Novocain. Even in the age of digital purchases and virtual money, we still attach a special value to dirty paper with pictures of presidents on it. Handing some of that to a cashier simply hurts more than handing over a little sliver of plastic.</b>
+> <p><i>Jeffrey Kluger</i></p>
 
 <br>
