@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Before now, I've always taken my mixes out to the car and listened to them in the parking lot. I still do that, but more so now I'm listening to it on the Beat box, and I think people should give it at least a listen and check it out and see what it is.</b>
-> <p><i>Dr. Dre</i></p>
+> <b>I didn't appreciate the young woman that I was, or my young beauty, because I was so obsessed with the fact that I felt fat. It's never good to add to anybody else's suffering. It's an important topic to really get the gravity and the importance of - dealing with dignity.</b>
+> <p><i>Margaret Cho</i></p>
 
 <br>
