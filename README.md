@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to destroy the capitalist system is to debauch the currency.</b>
-> <p><i>Vladimir Lenin</i></p>
+> <b>Beauty is desired in order that it may be befouled not for its own sake, but for the joy brought by the certainty of profaning it.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
