@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Death is the mother of Beauty hence from her, alone, shall come fulfillment to our dreams and our desires.</b>
-> <p><i>Wallace Stevens</i></p>
+> <b>Marriage has no guarantees. If that's what you're looking for, go live with a car battery.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
