@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A geek isn't the skinny kid with a pocket protector and acne. There can be computer geeks, video game geeks, car geeks, military geeks, and sports geeks. Being a geek just means that you're passionate about something.</b>
-> <p><i>Olivia Munn</i></p>
+> <b>Everyone has a different beauty and different qualities and I think that women need to learn to love their qualities and be comfortable in the fact that everyone is different.</b>
+> <p><i>Miranda Kerr</i></p>
 
 <br>
