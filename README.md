@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone has a different beauty and different qualities and I think that women need to learn to love their qualities and be comfortable in the fact that everyone is different.</b>
-> <p><i>Miranda Kerr</i></p>
+> <b>I have never yet seen any plan which has not been mended by the observations of those who were much inferior in understanding to the person who took the lead in the business.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
