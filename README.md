@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the first test: there is no permanent place in the world for ugly mathematics.</b>
-> <p><i>Godfrey Harold Hardy</i></p>
+> <b>In Hollywood, you play a mom, and the next thing you know, you're on 'The Golden Girls.' They age you so fast.</b>
+> <p><i>Gabrielle Union</i></p>
 
 <br>
