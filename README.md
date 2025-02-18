@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have never yet seen any plan which has not been mended by the observations of those who were much inferior in understanding to the person who took the lead in the business.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>Success breeds volume, and it's just amazing how many young writers, artists, and musicians there are in town.</b>
+> <p><i>Steven Curtis Chapman</i></p>
 
 <br>
