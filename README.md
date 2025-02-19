@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In our life there is a single color, as on an artist's palette, which provides the meaning of life and art. It is the color of love.</b>
-> <p><i>Marc Chagall</i></p>
+> <b>Becoming an author changes your attitude too. Once you see where books come from, and how they're made, they never seem quite as sacred again.</b>
+> <p><i>Lev Grossman</i></p>
 
 <br>
