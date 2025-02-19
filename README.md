@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing that the amount of news that happens in the world every day always just exactly fits the newspaper.</b>
-> <p><i>Jerry Seinfeld</i></p>
+> <b>Walking is man's best medicine.</b>
+> <p><i>Hippocrates</i></p>
 
 <br>
