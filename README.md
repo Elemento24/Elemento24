@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Walking is man's best medicine.</b>
-> <p><i>Hippocrates</i></p>
+> <b>Writing about music is like dancing about architecture.</b>
+> <p><i>Martin Mull</i></p>
 
 <br>
