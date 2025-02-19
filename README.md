@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is a great force. If you control it, it can be transmuted into a power which can move the whole world.</b>
-> <p><i>William Shenstone</i></p>
+> <b>Love has always been the most important business in my life, I should say the only one.</b>
+> <p><i>Stendhal</i></p>
 
 <br>
