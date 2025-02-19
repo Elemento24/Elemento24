@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being in the business and growing up in L.A., I think I turned out pretty OK.</b>
-> <p><i>Emma Roberts</i></p>
+> <b>One of the basic things about a string is that it can vibrate in many different shapes or forms, which gives music its beauty.</b>
+> <p><i>Edward Witten</i></p>
 
 <br>
