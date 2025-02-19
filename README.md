@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If GM had kept up with technology like the computer industry has, we would all be driving $25 cars that got 1,000 MPG.</b>
-> <p><i>Bill Gates</i></p>
+> <b>In our open society, we are inclined to give to the less fortunate for the pure goodness of giving. We open our home to those who are alone on this holiday to spread some warmth into the life of another.</b>
+> <p><i>Jeff Miller</i></p>
 
 <br>
