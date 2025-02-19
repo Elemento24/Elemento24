@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we love bacon because it has all the qualities of an amazing sensory experience. When we cook it, the sizzling sound is so appetizing, the aroma is maddening, the crunch of the texture is so gratifying and the taste delivers every time.</b>
-> <p><i>Alexandra Guarnaschelli</i></p>
+> <b>Damien Hirst is the Elvis of the English art world, its ayatollah, deliverer, and big-thinking entrepreneurial potty-mouthed prophet and front man. Hirst synthesizes punk, Pop Art, Jeff Koons, Marcel Duchamp, Francis Bacon, and Catholicism.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
