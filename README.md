@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Damien Hirst is the Elvis of the English art world, its ayatollah, deliverer, and big-thinking entrepreneurial potty-mouthed prophet and front man. Hirst synthesizes punk, Pop Art, Jeff Koons, Marcel Duchamp, Francis Bacon, and Catholicism.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>The best of us must sometimes eat our words.</b>
+> <p><i>J. K. Rowling</i></p>
 
 <br>
