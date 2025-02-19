@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Women are so unforgiving of themselves. We don't recognize our own beauty because we're too busy comparing ourselves to other people.</b>
-> <p><i>Kelly Osbourne</i></p>
+> <b>Anger is a great force. If you control it, it can be transmuted into a power which can move the whole world.</b>
+> <p><i>William Shenstone</i></p>
 
 <br>
