@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In our open society, we are inclined to give to the less fortunate for the pure goodness of giving. We open our home to those who are alone on this holiday to spread some warmth into the life of another.</b>
-> <p><i>Jeff Miller</i></p>
+> <b>I remember when I first started in the business, I lost a lot of friends. Some were jealous, some were annoyed at the fact that I was an actress.</b>
+> <p><i>Amber Tamblyn</i></p>
 
 <br>
