@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Becoming an author changes your attitude too. Once you see where books come from, and how they're made, they never seem quite as sacred again.</b>
-> <p><i>Lev Grossman</i></p>
+> <b>I think we love bacon because it has all the qualities of an amazing sensory experience. When we cook it, the sizzling sound is so appetizing, the aroma is maddening, the crunch of the texture is so gratifying and the taste delivers every time.</b>
+> <p><i>Alexandra Guarnaschelli</i></p>
 
 <br>
