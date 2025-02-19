@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember when I first started in the business, I lost a lot of friends. Some were jealous, some were annoyed at the fact that I was an actress.</b>
-> <p><i>Amber Tamblyn</i></p>
+> <b>I don't run a car, have never run a car. I could say that this is because I have this extremely tender environmentalist conscience, but the fact is I hate driving.</b>
+> <p><i>David Attenborough</i></p>
 
 <br>
