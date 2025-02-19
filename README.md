@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>France, and the whole of Europe have a great culture and an amazing history. Most important thing though is that people there know how to live! In America they've forgotten all about it. I'm afraid that the American culture is a disaster.</b>
-> <p><i>Johnny Depp</i></p>
+> <b>There's a tremendous difference between alone and lonely. You could be lonely in a group of people. I like being alone. I like eating by myself. I go home at night and just watch a movie or hang out with my dog. I have to exert myself and really say, oh God, I've got to see my friends 'cause I'm too content being by myself.</b>
+> <p><i>Drew Barrymore</i></p>
 
 <br>
