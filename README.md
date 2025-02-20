@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let me tell you quite bluntly that this king business has given me personally nothing but headaches.</b>
-> <p><i>Mohammed Reza Pahlavi</i></p>
+> <b>Heaven has no rage like love to hatred turned, nor hell a fury like a woman scorned.</b>
+> <p><i>William Congreve</i></p>
 
 <br>
