@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm lucky that most of the time I'm on location in amazing places. Most of the time, I don't need holidays, I just stop working.</b>
-> <p><i>Stephanie Beacham</i></p>
+> <b>Do you like my suit? I think this is an amazing suit, don't you think?</b>
+> <p><i>Tom Selleck</i></p>
 
 <br>
