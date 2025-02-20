@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There has to be a measure of faith. That's what this business is all about: trusting in something that may never show up, that you have no concrete proof of.</b>
-> <p><i>Wentworth Miller</i></p>
+> <b>As winter strips the leaves from around us, so that we may see the distant regions they formerly concealed, so old age takes away our enjoyments only to enlarge the prospect of the coming eternity.</b>
+> <p><i>Jean Paul</i></p>
 
 <br>
