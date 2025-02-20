@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Seek out that particular mental attribute which makes you feel most deeply and vitally alive, along with which comes the inner voice which says, 'This is the real me,' and when you have found that attitude, follow it.</b>
-> <p><i>James Truslow Adams</i></p>
+> <b>There has to be a measure of faith. That's what this business is all about: trusting in something that may never show up, that you have no concrete proof of.</b>
+> <p><i>Wentworth Miller</i></p>
 
 <br>
