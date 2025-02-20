@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't think of yourself as a woman in business.</b>
-> <p><i>Carly Fiorina</i></p>
+> <b>When I work alone, my process is like painting. With Fleetwood Mac, it's more like movie making.</b>
+> <p><i>Lindsey Buckingham</i></p>
 
 <br>
