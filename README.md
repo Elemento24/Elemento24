@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is quite amazing what I didn't feel after a while. I didn't really want to feel things.</b>
-> <p><i>Kate Moss</i></p>
+> <b>Poor Georgia O'Keeffe. Death didn't soften the opinions of the art world toward her paintings.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
