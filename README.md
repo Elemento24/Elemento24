@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poor Georgia O'Keeffe. Death didn't soften the opinions of the art world toward her paintings.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It is best for the wise man not to seem wise.</b>
+> <p><i>Aeschylus</i></p>
 
 <br>
