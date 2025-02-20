@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Heaven has no rage like love to hatred turned, nor hell a fury like a woman scorned.</b>
-> <p><i>William Congreve</i></p>
+> <b>It is quite amazing what I didn't feel after a while. I didn't really want to feel things.</b>
+> <p><i>Kate Moss</i></p>
 
 <br>
