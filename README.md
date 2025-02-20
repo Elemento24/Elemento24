@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The interior of the house personifies the private world the exterior of it is part of the outside world.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>It is time for corporate America to become 'the third pillar' of social change in our society, complementing the first two pillars of government and philanthropy. We need the entire private sector to begin committing itself not just to making profits, but to fulfilling higher and larger purposes by contributing to building a better world.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
