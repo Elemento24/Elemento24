@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I left the show, the fans were so amazing in terms of the outpouring of support and continued support all that time whatever ways they could be in touch with me.</b>
-> <p><i>Alice Barrett</i></p>
+> <b>Only in growth, reform, and change, paradoxically enough, is true security to be found.</b>
+> <p><i>Anne Morrow Lindbergh</i></p>
 
 <br>
