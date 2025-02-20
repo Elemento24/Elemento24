@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I'm doing is art - it's low-brow art but there's a magic in that.</b>
-> <p><i>Kesha</i></p>
+> <b>Ugliness is in a way superior to beauty because it lasts.</b>
+> <p><i>Serge Gainsbourg</i></p>
 
 <br>
