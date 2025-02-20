@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also believe that government has no business telling us how we should live our lives. I think our lifestyle choices should be left up to us. What we do in our private lives is none of the government's business. That position rules out the Republican Party for me.</b>
-> <p><i>Jesse Ventura</i></p>
+> <b>Love grows more tremendously full, swift, poignant, as the years multiply.</b>
+> <p><i>Zane Grey</i></p>
 
 <br>
