@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love grows more tremendously full, swift, poignant, as the years multiply.</b>
-> <p><i>Zane Grey</i></p>
+> <b>See, what you're meant to do when you have a mid-life crisis is buy a fast car, aren't you? Well, I've always had fast cars. It's not that. It's the fear that you're past your best. It's the fear that the stuff you've done in the past is your best work.</b>
+> <p><i>Robbie Coltrane</i></p>
 
 <br>
