@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having lots of siblings is like having built-in best friends.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>The interior of the house personifies the private world the exterior of it is part of the outside world.</b>
+> <p><i>Stephen Gardiner</i></p>
 
 <br>
