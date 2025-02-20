@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do you like my suit? I think this is an amazing suit, don't you think?</b>
-> <p><i>Tom Selleck</i></p>
+> <b>Knowledge rests not upon truth alone, but upon error also.</b>
+> <p><i>Carl Jung</i></p>
 
 <br>
