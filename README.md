@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's what I love from metal, and that's what I love from hip-hop. That's what I love from any music that's hard, that's got an edge to it-The attitude in it.</b>
-> <p><i>Kid Rock</i></p>
+> <b>At its best our age is an age of searchers and discoverers, and at its worst, an age that has domesticated despair and learned to live with it happily.</b>
+> <p><i>Flannery O'Connor</i></p>
 
 <br>
