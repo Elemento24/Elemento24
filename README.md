@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But, if you observe children learning in their first few years of life, you can see that they can and do learn on their own - we leave them alone to crawl, walk, talk, and gain control over their bodies. It happens without much help from parents.</b>
-> <p><i>Daniel Greenberg</i></p>
+> <b>My first car, I got it in an auction at my temple. It was an '86 Volvo that I got for 500 bucks, and then wound up throwing $10,000 into the stereo system and put TVs in the foot rests. It was the most ridiculous Volvo you'd ever seen, but I had never had money before and I was out of my mind.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
