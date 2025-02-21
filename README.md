@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only justice is to follow the sincere intuition of the soul, angry or gentle. Anger is just, and pity is just, but judgement is never just.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>So if you're a robot and you're living on this planet, you can do things that you can't do in real life - things that you wished you could do: like fly like have a car that flies like have furniture that is alive.</b>
+> <p><i>William Joyce</i></p>
 
 <br>
