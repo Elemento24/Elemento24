@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So if you're a robot and you're living on this planet, you can do things that you can't do in real life - things that you wished you could do: like fly like have a car that flies like have furniture that is alive.</b>
-> <p><i>William Joyce</i></p>
+> <b>I like to find the beauty in the ugly. When I'm in a thrift store, I gravitate toward pieces I know I'll wear a ton, and insane pieces that I'm sure most people would consider gross. But I find them inspiring. Our van is currently stocked with some of my random findings from this tour. Maybe I'll call my aesthetic 'van fashion.'</b>
+> <p><i>Victoria Legrand</i></p>
 
 <br>
