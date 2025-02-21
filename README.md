@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first car, I got it in an auction at my temple. It was an '86 Volvo that I got for 500 bucks, and then wound up throwing $10,000 into the stereo system and put TVs in the foot rests. It was the most ridiculous Volvo you'd ever seen, but I had never had money before and I was out of my mind.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>I came on to the film with a very happy-go-lucky attitude which I think my character, Charlie, did when she went into the house. I expected it to be good, and then slowly things started to change for us all.</b>
+> <p><i>Jennifer Sky</i></p>
 
 <br>
