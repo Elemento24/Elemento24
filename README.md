@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Falling in love is the best way to kill your heart because then it's not yours anymore. It's laid in a coffin, waiting to be cremated.</b>
-> <p><i>Ville Valo</i></p>
+> <b>Deep down, my mom had long suspected I was gay... Much of her anger and hurt came from her sense of betrayal that she was the last to be told.</b>
+> <p><i>Chaz Bono</i></p>
 
 <br>
