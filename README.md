@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was bringing my attitude as a regular person 'cause this is my attitude.</b>
-> <p><i>Glenn Danzig</i></p>
+> <b>Form follows function.</b>
+> <p><i>Louis Sullivan</i></p>
 
 <br>
