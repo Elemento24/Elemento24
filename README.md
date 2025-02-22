@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any day acting is an amazing day.</b>
-> <p><i>Kiernan Shipka</i></p>
+> <b>Having lots of siblings is like having built-in best friends.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
