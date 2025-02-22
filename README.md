@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Early in life I had to choose between honest arrogance and hypocritical humility. I chose the former and have seen no reason to change.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>Working with Omarion is pretty amazing. That's like my brother. He's really cool.</b>
+> <p><i>Teyana Taylor</i></p>
 
 <br>
