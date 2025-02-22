@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's when it really came together for me that I was in a Bond film, to have my own spy car!</b>
-> <p><i>Rick Yune</i></p>
+> <b>If you write a novel alone you sit and you weave a little narrative. And it's O.K., but it's of no account.</b>
+> <p><i>V. S. Naipaul</i></p>
 
 <br>
