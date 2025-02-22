@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Form follows function.</b>
-> <p><i>Louis Sullivan</i></p>
+> <b>I want to test my maximum and see how much I can do. And I want to change the world of swimming.</b>
+> <p><i>Michael Phelps</i></p>
 
 <br>
