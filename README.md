@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Border Ballads, for instance, and the Robin Hood Ballads, clearly suppose a state of society which is nothing but a very circumscribed and not very important heroic age.</b>
-> <p><i>Lascelles Abercrombie</i></p>
+> <b>Like music and art, love of nature is a common language that can transcend political or social boundaries.</b>
+> <p><i>Jimmy Carter</i></p>
 
 <br>
