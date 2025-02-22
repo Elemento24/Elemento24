@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Working with Omarion is pretty amazing. That's like my brother. He's really cool.</b>
-> <p><i>Teyana Taylor</i></p>
+> <b>I had arranged a birthday party for him and my children, who are all Aquarians. Instead, we got married. I ran out of excuses. It was just us and my children.</b>
+> <p><i>Diane von Furstenberg</i></p>
 
 <br>
