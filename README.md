@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's the golden age of French cinema again but it's because Sarkozy had the guts to push through copyright law.</b>
-> <p><i>Harvey Weinstein</i></p>
+> <b>I have an amazing relationship with food.</b>
+> <p><i>Katharine McPhee</i></p>
 
 <br>
