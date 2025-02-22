@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success or failure in business is caused more by the mental attitude even than by mental capacities.</b>
-> <p><i>Walter Scott</i></p>
+> <b>Early in life I had to choose between honest arrogance and hypocritical humility. I chose the former and have seen no reason to change.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
