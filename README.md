@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having lots of siblings is like having built-in best friends.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>That's when it really came together for me that I was in a Bond film, to have my own spy car!</b>
+> <p><i>Rick Yune</i></p>
 
 <br>
