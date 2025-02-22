@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are plenty of problems in the world, and doubtless climate change - or whatever the currently voguish phrase for it all is - certainly is one of them. But it's low on my list.</b>
-> <p><i>P. J. O'Rourke</i></p>
+> <b>I'm really lucky that my record companies have been patient with me and leave me alone and give me the time to make it right in my mind.</b>
+> <p><i>Sarah McLachlan</i></p>
 
 <br>
