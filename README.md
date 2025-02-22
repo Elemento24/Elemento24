@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The problem with beauty is that it's like being born rich and getting poorer.</b>
-> <p><i>Joan Collins</i></p>
+> <b>So many women keep their anger inside and let it build until they explode and then people blow them off again.</b>
+> <p><i>Rosalind Wiseman</i></p>
 
 <br>
