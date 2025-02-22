@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like music and art, love of nature is a common language that can transcend political or social boundaries.</b>
-> <p><i>Jimmy Carter</i></p>
+> <b>It's the golden age of French cinema again but it's because Sarkozy had the guts to push through copyright law.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
