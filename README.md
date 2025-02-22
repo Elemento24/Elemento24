@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have an amazing relationship with food.</b>
-> <p><i>Katharine McPhee</i></p>
+> <b>The problem with beauty is that it's like being born rich and getting poorer.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
