@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In less enlightened times, the best way to impress women was to own a hot car. But women wised up and realized it was better to buy their own hot cars so they wouldn't have to ride around with jerks.</b>
-> <p><i>Scott Adams</i></p>
+> <b>There are plenty of problems in the world, and doubtless climate change - or whatever the currently voguish phrase for it all is - certainly is one of them. But it's low on my list.</b>
+> <p><i>P. J. O'Rourke</i></p>
 
 <br>
