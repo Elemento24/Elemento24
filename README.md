@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I change my mind so much I need two boyfriends and a girlfriend.</b>
-> <p><i>Pink</i></p>
+> <b>At the age when Bengali youth almost inevitably writes poetry, I was listening to European classical music.</b>
+> <p><i>Satyajit Ray</i></p>
 
 <br>
