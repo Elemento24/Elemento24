@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When it comes to meat, change is almost always cast as an absolute. You are a vegetarian or you are not.</b>
-> <p><i>Jonathan Safran Foer</i></p>
+> <b>I've got tonnes of aboriginal and Native American art, but I'd like even more.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
