@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I got into this little habit of architecture and building. I designed a house in Colorado and one in Hawaii. The idea is supposed to be build and sell - but then I can never bring myself to sell them.</b>
-> <p><i>Trey Parker</i></p>
+> <b>When it comes to meat, change is almost always cast as an absolute. You are a vegetarian or you are not.</b>
+> <p><i>Jonathan Safran Foer</i></p>
 
 <br>
