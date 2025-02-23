@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change your life today. Don't gamble on the future, act now, without delay.</b>
-> <p><i>Simone de Beauvoir</i></p>
+> <b>I'm very proud of my love for Whitney Houston. She really changed my life. She made my life a better life. She was so beautiful in her love for God, her love for her family and her love for music. She truly loved her music. She could do everything! She had flawless rhythm, flawless pitch, flawless feeling, and flawless beauty.</b>
+> <p><i>Narada Michael Walden</i></p>
 
 <br>
