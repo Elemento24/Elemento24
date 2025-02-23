@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Woman's at best a contradiction still.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>Change your life today. Don't gamble on the future, act now, without delay.</b>
+> <p><i>Simone de Beauvoir</i></p>
 
 <br>
