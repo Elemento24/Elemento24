@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man who has never made a woman angry is a failure in life.</b>
-> <p><i>Christopher Morley</i></p>
+> <b>Being a child at home alone in the summer is a high-risk occupation. If you call your mother at work thirteen times an hour, she can hurt you.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
