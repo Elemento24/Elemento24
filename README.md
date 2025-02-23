@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the age when Bengali youth almost inevitably writes poetry, I was listening to European classical music.</b>
-> <p><i>Satyajit Ray</i></p>
+> <b>Words are not as satisfactory as we should like them to be, but, like our neighbours, we have got to live with them and must make the best and not the worst of them.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
