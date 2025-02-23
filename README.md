@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is merciless. You do not look at it, it looks at you and does not forgive.</b>
-> <p><i>Nikos Kazantzakis</i></p>
+> <b>Without change, something sleeps inside us, and seldom awakens. The sleeper must awaken.</b>
+> <p><i>Frank Herbert</i></p>
 
 <br>
