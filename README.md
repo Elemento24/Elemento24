@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know that I spent any more time alone than any other kid, but being by myself never bothered me.</b>
-> <p><i>Joseph Barbera</i></p>
+> <b>Shadows sometimes people don't see shadows. The Chinese of course never paint them in pictures, oriental art never deals with shadow. But I noticed these shadows and I knew it meant it was sunny.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
