@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shadows sometimes people don't see shadows. The Chinese of course never paint them in pictures, oriental art never deals with shadow. But I noticed these shadows and I knew it meant it was sunny.</b>
-> <p><i>David Hockney</i></p>
+> <b>I change my mind so much I need two boyfriends and a girlfriend.</b>
+> <p><i>Pink</i></p>
 
 <br>
