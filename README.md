@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There weren't any astronauts until I was about 10. Yuri Gagarin went into space right around my 10th birthday.</b>
-> <p><i>John L. Phillips</i></p>
+> <b>The Supreme Court has insulted you over and over again, Lord. They've taken your Bible away from the schools. They've forbidden little children to pray. They've taken the knowledge of God as best they can, and organizations have come into court to take the knowledge of God out of the public square of America.</b>
+> <p><i>Pat Robertson</i></p>
 
 <br>
