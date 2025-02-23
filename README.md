@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only the wisest and stupidest of men never change.</b>
-> <p><i>Confucius</i></p>
+> <b>A man who has never made a woman angry is a failure in life.</b>
+> <p><i>Christopher Morley</i></p>
 
 <br>
