@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another thing I like to do is sit back and take in nature. To look at the birds, listen to their singing, go hiking, camping and jogging and running, walking along the beach, playing games and sometimes being alone with the great outdoors. It's very special to me.</b>
-> <p><i>Larry Wilcox</i></p>
+> <b>The great secret that all old people share is that you really haven't changed in seventy or eighty years. Your body changes, but you don't change at all. And that, of course, causes great confusion.</b>
+> <p><i>Doris Lessing</i></p>
 
 <br>
