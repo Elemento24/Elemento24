@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never travel without my Stetson, but the more I wear it the more I realise that no one wears hats any more. When I was a kid everybody wore hats, especially in Texas, but I get off the plane in Dallas now and I'm the only guy with a hat. It's amazing.</b>
-> <p><i>Larry Hagman</i></p>
+> <b>Another thing I like to do is sit back and take in nature. To look at the birds, listen to their singing, go hiking, camping and jogging and running, walking along the beach, playing games and sometimes being alone with the great outdoors. It's very special to me.</b>
+> <p><i>Larry Wilcox</i></p>
 
 <br>
