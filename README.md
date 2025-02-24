@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's to paint directly on the canvas without any funny business, as it were, and I use almost pure turpentine to start with, adding oil as I go along until the medium becomes pure oil. I use as little oil as I can possibly help, and that's my method.</b>
-> <p><i>Edward Hopper</i></p>
+> <b>Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.</b>
+> <p><i>Dale Carnegie</i></p>
 
 <br>
