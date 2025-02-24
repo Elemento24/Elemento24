@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only in growth, reform, and change, paradoxically enough, is true security to be found.</b>
-> <p><i>Anne Morrow Lindbergh</i></p>
+> <b>You don't have a lot of time you have to get it right. It's amazing how they create these episodes in such a short amount of time. They lavish a lot of care and money on each episode, and they just look terrific.</b>
+> <p><i>Margot Kidder</i></p>
 
 <br>
