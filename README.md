@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you pray for anyone you tend to modify your personal attitude toward him.</b>
-> <p><i>Norman Vincent Peale</i></p>
+> <b>Old age: the crown of life, our play's last act.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
