@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never took guitar lessons. I took classical piano lessons from the age of six when we lived in Holland. And when we moved to America, it was just the typical thing except I was really good at it so was my brother.</b>
-> <p><i>Eddie Van Halen</i></p>
+> <b>Drawing is like making an expressive gesture with the advantage of permanence.</b>
+> <p><i>Henri Matisse</i></p>
 
 <br>
