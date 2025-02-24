@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Though nature be ever so generous, yet can she not make a hero alone. Fortune must contribute her part too and till both concur, the work cannot be perfected.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>My mum is my beauty icon, because she represents what I think beauty is.</b>
+> <p><i>Bar Refaeli</i></p>
 
 <br>
