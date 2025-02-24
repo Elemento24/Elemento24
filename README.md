@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mom and Dad were married 64 years. And if you wondered what their secret was, you could have asked the local florist - because every day Dad gave Mom a rose, which he put on her bedside table. That's how she found out what happened on the day my father died - she went looking for him because that morning, there was no rose.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>Though nature be ever so generous, yet can she not make a hero alone. Fortune must contribute her part too and till both concur, the work cannot be perfected.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
