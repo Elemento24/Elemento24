@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Drawing is like making an expressive gesture with the advantage of permanence.</b>
-> <p><i>Henri Matisse</i></p>
+> <b>When you pray for anyone you tend to modify your personal attitude toward him.</b>
+> <p><i>Norman Vincent Peale</i></p>
 
 <br>
