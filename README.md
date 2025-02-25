@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My best kiss was on stage. Kelly Rowland from Destiny's Child gave me a really nice soft kiss on my lips during a performance on my birthday. It was amazing.</b>
-> <p><i>Chris Brown</i></p>
+> <b>I mean, you have a general tone of it but it's pretty much you get to come in and you're going to flip this car and it's going to blow up and you're going to come out on fire and you go oh, that's cool, and then you get paid a lot of money.</b>
+> <p><i>David R. Ellis</i></p>
 
 <br>
