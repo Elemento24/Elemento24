@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Definition of a Statistician: A man who believes figures don't lie, but admits than under analysis some of them won't stand up either.</b>
-> <p><i>Evan Esar</i></p>
+> <b>On banks, I make no apology for attacking spivs and gamblers who did more harm to the British economy than Bob Crow could achieve in his wildest Trotskyite fantasies, while paying themselves outrageous bonuses underwritten by the taxpayer. There is much public anger about banks and it is well deserved.</b>
+> <p><i>Vince Cable</i></p>
 
 <br>
