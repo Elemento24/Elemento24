@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, you have a general tone of it but it's pretty much you get to come in and you're going to flip this car and it's going to blow up and you're going to come out on fire and you go oh, that's cool, and then you get paid a lot of money.</b>
-> <p><i>David R. Ellis</i></p>
+> <b>Everything officers go through in any chase anywhere in the country, but amped up 100 times! I'm right in the thick of things in a car going like 80 miles an hour, and doing 360s in the middle of the road. It was a wild ride.</b>
+> <p><i>Amy Weber</i></p>
 
 <br>
