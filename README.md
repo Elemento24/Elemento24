@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our judgments judge us, and nothing reveals us, exposes our weaknesses, more ingeniously than the attitude of pronouncing upon our fellows.</b>
-> <p><i>Paul Valery</i></p>
+> <b>Change is growth. For me it has been a very spiritual and musical rebirth.</b>
+> <p><i>Lenny Kravitz</i></p>
 
 <br>
