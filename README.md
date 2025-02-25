@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is growth. For me it has been a very spiritual and musical rebirth.</b>
-> <p><i>Lenny Kravitz</i></p>
+> <b>I am a thing of beauty.</b>
+> <p><i>Frank Sinatra</i></p>
 
 <br>
