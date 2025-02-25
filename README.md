@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know a man who doesn't pay to have his trash taken out. How does he get rid of his trash? He gift wraps it, and puts in into an unlocked car.</b>
-> <p><i>Henny Youngman</i></p>
+> <b>If left unchecked, global change will create violent conflict, torrential storms, shrinking coastlines, and irreversible catastrophe.</b>
+> <p><i>Valerie Jarrett</i></p>
 
 <br>
