@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best films of any kind, narrative or documentary, provoke questions.</b>
-> <p><i>Edward Norton</i></p>
+> <b>I was looking for something a lot heavier, yet melodic at the same time. Something different from heavy metal, a different attitude.</b>
+> <p><i>Kurt Cobain</i></p>
 
 <br>
