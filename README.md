@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The hallmark of our age is the tension between aspirations and sluggish institutions.</b>
-> <p><i>John W. Gardner</i></p>
+> <b>I'm not good at normal things. I can't drive a car. I couldn't read till I was 10.</b>
+> <p><i>Michael Lindsay-Hogg</i></p>
 
 <br>
