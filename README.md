@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Too many people just eat to consume calories. Try dining for a change.</b>
-> <p><i>John Walters</i></p>
+> <b>The best films of any kind, narrative or documentary, provoke questions.</b>
+> <p><i>Edward Norton</i></p>
 
 <br>
