@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man shall not live by bread alone, but by every word that proceeds from the mouth of God.</b>
-> <p><i>Jesus Christ</i></p>
+> <b>The prerequisite of originality is the art of forgetting, at the proper moment, what we know.</b>
+> <p><i>Arthur Koestler</i></p>
 
 <br>
