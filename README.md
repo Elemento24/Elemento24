@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All good art is an indiscretion.</b>
-> <p><i>Tennessee Williams</i></p>
+> <b>Too many people just eat to consume calories. Try dining for a change.</b>
+> <p><i>John Walters</i></p>
 
 <br>
