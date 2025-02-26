@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There was never an angry man that thought his anger unjust.</b>
-> <p><i>Saint Francis de Sales</i></p>
+> <b>They can do without architecture who have no olives nor wines in the cellar.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
