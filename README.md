@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The trite saying that honesty is the best policy has met with the just criticism that honesty is not policy. The real honest man is honest from conviction of what is right, not from policy.</b>
-> <p><i>Robert E. Lee</i></p>
+> <b>Remember you will not always win. Some days, the most resourceful individual will taste defeat. But there is, in this case, always tomorrow - after you have done your best to achieve success today.</b>
+> <p><i>Maxwell Maltz</i></p>
 
 <br>
