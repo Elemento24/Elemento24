@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I walk into a kids' store, and it's amazing, the types of instruments - little squeaky things, rattling things, spinning tops.</b>
-> <p><i>Evelyn Glennie</i></p>
+> <b>While I'm not a celebrity, it's such a weird concept that society has cooked up for us. Astronauts and teachers are much more amazing than actors.</b>
+> <p><i>Joseph Gordon-Levitt</i></p>
 
 <br>
