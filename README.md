@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in a state with a wonderful climate and plenty of natural beauty, from the shores of Cumberland Island to the Chattahoochee River to the Blue Ridge Mountains.</b>
-> <p><i>Roy Barnes</i></p>
+> <b>There was never an angry man that thought his anger unjust.</b>
+> <p><i>Saint Francis de Sales</i></p>
 
 <br>
