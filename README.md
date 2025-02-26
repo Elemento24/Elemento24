@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Countries such as the U.S. and Britain have taken it upon themselves to decide for us in the developing world, even to interfere in our domestic affairs and to bring about what they call regime change.</b>
-> <p><i>Robert Mugabe</i></p>
+> <b>Being a part of SKECHERS is exciting. It is such a hip company with a great attitude and image.</b>
+> <p><i>Carrie Underwood</i></p>
 
 <br>
