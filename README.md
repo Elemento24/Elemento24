@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hitler and Mussolini were only the primary spokesmen for the attitude of domination and craving for power that are in the heart of almost everyone. Until the source is cleared, there will always be confusion and hate, wars and class antagonisms.</b>
-> <p><i>Jiddu Krishnamurti</i></p>
+> <b>If Martin Scorsese calls, I am available. And then there the ones, well, you can just run down the list - any of those Oscar-nominated films, they have amazing directors across the board.</b>
+> <p><i>Timothy Olyphant</i></p>
 
 <br>
