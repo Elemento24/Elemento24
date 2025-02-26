@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being a part of SKECHERS is exciting. It is such a hip company with a great attitude and image.</b>
-> <p><i>Carrie Underwood</i></p>
+> <b>Design can never be an ultimate explanation for anything. It can only be a proximate explanation. A plane or a car is explained by a designer but that's because the designer himself, the engineer, is explained by natural selection.</b>
+> <p><i>Richard Dawkins</i></p>
 
 <br>
