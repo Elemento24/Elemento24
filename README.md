@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Remember you will not always win. Some days, the most resourceful individual will taste defeat. But there is, in this case, always tomorrow - after you have done your best to achieve success today.</b>
-> <p><i>Maxwell Maltz</i></p>
+> <b>The best director is the one you don't see.</b>
+> <p><i>Billy Wilder</i></p>
 
 <br>
