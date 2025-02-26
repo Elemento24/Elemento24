@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While I'm not a celebrity, it's such a weird concept that society has cooked up for us. Astronauts and teachers are much more amazing than actors.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>The state has no business in the bedrooms of the nation.</b>
+> <p><i>Pierre Trudeau</i></p>
 
 <br>
