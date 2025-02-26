@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like everybody in show business, you think you're going to wake up one day, and it's all going to be taken away from you. I think we all share an insecurity in that way, everybody in show business - the ones I talk to, anyway.</b>
-> <p><i>Rod Stewart</i></p>
+> <b>Technological considerations are of great importance to architecture and cities in the informational society.</b>
+> <p><i>Kenzo Tange</i></p>
 
 <br>
