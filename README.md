@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best director is the one you don't see.</b>
-> <p><i>Billy Wilder</i></p>
+> <b>We're a nation of laws, but the good thing about America, is that laws reside in the people and people can change the laws.</b>
+> <p><i>Rick Warren</i></p>
 
 <br>
