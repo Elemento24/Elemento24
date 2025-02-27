@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am so excited this year getting to play the 85th Anniversary Macy's Thanksgiving Day Parade. Everyone knows on Thanksgiving morning to get up, turn on the TV and watch the parade, so to be an actual participant is going to be fun and I'm looking forward to it. I am gonna have to put on my deer hunting gear, though, to stay warm!</b>
-> <p><i>Rodney Atkins</i></p>
+> <b>I'm enamored with the art world. Anytime you look at anything that's considered artistic, there's a commercial world around it: the ballet, opera, any kind of music. It can't exist without it.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
