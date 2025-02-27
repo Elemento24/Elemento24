@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a big potato chip girl. I don't like chocolate and cakes and all that, but I have to have my potato chips. I've got bags in the back of my car right now! But I never beat myself up about it, because, look: You can't give up every damn thing. You need something in your life that you like just because you like it!</b>
-> <p><i>NeNe Leakes</i></p>
+> <b>One of the most beautiful passages of Rousseau is that in the sixth book of Confessions, where he describes the awakening in him of the literary sense. Of such wisdom, the poetic passion, the desire of beauty, the love of art for its own sake, has most.</b>
+> <p><i>Walter Pater</i></p>
 
 <br>
