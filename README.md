@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Really you just gotta keep chugging along and keep a positive attitude and get through all the problems. You gotta face them, otherwise you don't get through.</b>
-> <p><i>Lesley Gore</i></p>
+> <b>Love is not weakness. It is strong. Only the sacrament of marriage can contain it.</b>
+> <p><i>Boris Pasternak</i></p>
 
 <br>
