@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm enamored with the art world. Anytime you look at anything that's considered artistic, there's a commercial world around it: the ballet, opera, any kind of music. It can't exist without it.</b>
-> <p><i>Steve Martin</i></p>
+> <b>I was always very grateful to 'em and am grateful to 'em now. I went back a couple of years ago and did their 20th anniversary show. But the longer I stayed on Hee Haw, the worse things got for me musically.</b>
+> <p><i>Buck Owens</i></p>
 
 <br>
