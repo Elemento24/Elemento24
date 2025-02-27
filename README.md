@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being a mother is the best thing that ever happened to me. Before you have your first baby you are a girl and then you become a mother. There is no transition into being a woman you literally become a mum and being a mum means you always love someone else more than yourself and it is an unexplainable situation.</b>
-> <p><i>Brigitte Nielsen</i></p>
+> <b>I'm a big potato chip girl. I don't like chocolate and cakes and all that, but I have to have my potato chips. I've got bags in the back of my car right now! But I never beat myself up about it, because, look: You can't give up every damn thing. You need something in your life that you like just because you like it!</b>
+> <p><i>NeNe Leakes</i></p>
 
 <br>
