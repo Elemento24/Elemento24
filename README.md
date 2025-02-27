@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love is not weakness. It is strong. Only the sacrament of marriage can contain it.</b>
-> <p><i>Boris Pasternak</i></p>
+> <b>Everybody kind of perceives me as being angry. It's not anger, it's motivation.</b>
+> <p><i>Roger Clemens</i></p>
 
 <br>
