@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most boring scenes are the scenes where a character is alone.</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>What was past was past. I suppose that was the general attitude.</b>
+> <p><i>V. S. Naipaul</i></p>
 
 <br>
