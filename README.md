@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I decided to be a singer, my mother warned me I'd be alone a lot. Basically we all are. Loneliness comes with life.</b>
-> <p><i>Whitney Houston</i></p>
+> <b>The word career is a divisive word. It's a word that divides the normal life from business or professional life.</b>
+> <p><i>Grace Paley</i></p>
 
 <br>
