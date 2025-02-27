@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a big fan of small business ownership. I think it's the backbone of American innovation. But to be successful, you first have to have the courage to go for it.</b>
-> <p><i>Bill Rancic</i></p>
+> <b>When I decided to be a singer, my mother warned me I'd be alone a lot. Basically we all are. Loneliness comes with life.</b>
+> <p><i>Whitney Houston</i></p>
 
 <br>
