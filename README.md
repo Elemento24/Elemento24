@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every good painter paints what he is.</b>
-> <p><i>Jackson Pollock</i></p>
+> <b>I imagine my children are going to save me from my vanity and be my passion and fill whatever fears I have of the amazing time I'm having right now being gone.</b>
+> <p><i>Gwen Stefani</i></p>
 
 <br>
