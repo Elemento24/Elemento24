@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always liked traveling around Europe and seeing the architecture. The buildings in capital cities have been there for hundreds and hundreds and hundreds of years. Some look better than the new ones.</b>
-> <p><i>Joe Elliott</i></p>
+> <b>I'm a big fan of small business ownership. I think it's the backbone of American innovation. But to be successful, you first have to have the courage to go for it.</b>
+> <p><i>Bill Rancic</i></p>
 
 <br>
