@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody kind of perceives me as being angry. It's not anger, it's motivation.</b>
-> <p><i>Roger Clemens</i></p>
+> <b>I was really into classifieds for awhile. I'm a big negotiator. My father owned a car dealership when I was younger... it's just in my blood.</b>
+> <p><i>Jake Johnson</i></p>
 
 <br>
