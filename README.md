@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The word career is a divisive word. It's a word that divides the normal life from business or professional life.</b>
-> <p><i>Grace Paley</i></p>
+> <b>Being a mother is the best thing that ever happened to me. Before you have your first baby you are a girl and then you become a mother. There is no transition into being a woman you literally become a mum and being a mum means you always love someone else more than yourself and it is an unexplainable situation.</b>
+> <p><i>Brigitte Nielsen</i></p>
 
 <br>
