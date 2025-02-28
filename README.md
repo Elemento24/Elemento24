@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a small businessperson, you have no greater leverage than the truth.</b>
-> <p><i>John Greenleaf Whittier</i></p>
+> <b>The best liar is he who makes the smallest amount of lying go the longest way.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
