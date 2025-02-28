@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people won't go the extra mile, and then on their birthday, when no one makes a fuss, they feel neglected and bitter.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>Los Angeles is a very magical place when you take the entertainment industry out of it. You have beautiful beaches and amazing mountains here. I'm a big rock climber. I head out into the mountains whenever I have free time. It's amazing.</b>
+> <p><i>Alex Pettyfer</i></p>
 
 <br>
