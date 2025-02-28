@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A mathematician is a person who can find analogies between theorems a better mathematician is one who can see analogies between proofs and the best mathematician can notice analogies between theories.</b>
-> <p><i>Stefan Banach</i></p>
+> <b>When I was little, I used to work with my dad on the engine of his car. Mostly this was a matter of me handing him wrenches.</b>
+> <p><i>Mireille Enos</i></p>
 
 <br>
