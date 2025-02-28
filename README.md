@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe in capitalism for everybody, not necessarily high finance but capitalism that works for the working men and women of this country who are out there paddling alone in America right now.</b>
-> <p><i>Rick Santorum</i></p>
+> <b>That's an amazing feeling, to walk onstage, and you're not thinking about anything, you're not thinking about your lines or what you're supposed to do - your body, your brain knows, so there's freedom. There's not fear, there's not nerves.</b>
+> <p><i>Eric McCormack</i></p>
 
 <br>
