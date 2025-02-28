@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'UFO's' attitude toward the subject is very similar to mine. It's not an advocacy its philosophy is more 'I want to believe this, but I want it proved.'</b>
-> <p><i>Dwight Schultz</i></p>
+> <b>Creative people don't behave very well generally. If you're looking for examples of good relationships in show business, you're gonna be depressed real fast. I don't have time for anything else right now but work and my daughter. She's my first priority.</b>
+> <p><i>Jim Carrey</i></p>
 
 <br>
