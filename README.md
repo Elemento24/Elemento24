@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I took guitar a while back, and my heart wasn't in it at the time, but I'm ready to try it again. I sing in the car, at home - it's a huge part of my life, especially since I'm from Tennessee.</b>
-> <p><i>Lucy Hale</i></p>
+> <b>'UFO's' attitude toward the subject is very similar to mine. It's not an advocacy its philosophy is more 'I want to believe this, but I want it proved.'</b>
+> <p><i>Dwight Schultz</i></p>
 
 <br>
