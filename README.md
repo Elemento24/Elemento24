@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.</b>
-> <p><i>Niccolo Machiavelli</i></p>
+> <b>Dreams are the seeds of change. Nothing ever grows without a seed, and nothing ever changes without a dream.</b>
+> <p><i>Debby Boone</i></p>
 
 <br>
