@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always very grateful to 'em and am grateful to 'em now. I went back a couple of years ago and did their 20th anniversary show. But the longer I stayed on Hee Haw, the worse things got for me musically.</b>
-> <p><i>Buck Owens</i></p>
+> <b>As a small businessperson, you have no greater leverage than the truth.</b>
+> <p><i>John Greenleaf Whittier</i></p>
 
 <br>
