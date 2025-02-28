@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What the mass media offers is not popular art, but entertainment which is intended to be consumed like food, forgotten, and replaced by a new dish.</b>
-> <p><i>W. H. Auden</i></p>
+> <b>No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.</b>
+> <p><i>Niccolo Machiavelli</i></p>
 
 <br>
