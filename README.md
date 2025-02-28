@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Zest is the secret of all beauty. There is no beauty that is attractive without zest.</b>
-> <p><i>Christian Dior</i></p>
+> <b>Some people won't go the extra mile, and then on their birthday, when no one makes a fuss, they feel neglected and bitter.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
