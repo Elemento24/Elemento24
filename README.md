@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In politics, strangely enough, the best way to play your cards is to lay them face upwards on the table.</b>
-> <p><i>H. G. Wells</i></p>
+> <b>Whatever you may look like, marry a man your own age - as your beauty fades, so will his eyesight.</b>
+> <p><i>Phyllis Diller</i></p>
 
 <br>
