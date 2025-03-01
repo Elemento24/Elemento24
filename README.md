@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every Body has so good an Opinion of their own Understanding as to think their own way the best.</b>
-> <p><i>Mary Astell</i></p>
+> <b>I have a lot of amazing women, you know, women in my life who have been an example for me of what not to do.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
