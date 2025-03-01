@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And it is very sexy as well: somebody says I'm taking you on a surprise date, you don't know where you are going and you can't see and then you put your hand out and there is a tiger. Amazing.</b>
-> <p><i>Emily Watson</i></p>
+> <b>For my birthday my husband learned to cook and is cooking one day a week for me. But he only likes to do fancy dishes. So we end up with weird, obscure things in the refrigerator.</b>
+> <p><i>Cheryl Hines</i></p>
 
 <br>
