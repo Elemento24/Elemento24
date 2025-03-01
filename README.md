@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For my birthday my husband learned to cook and is cooking one day a week for me. But he only likes to do fancy dishes. So we end up with weird, obscure things in the refrigerator.</b>
-> <p><i>Cheryl Hines</i></p>
+> <b>You'd think that in this age, especially in the 21st century - especially with all the technology and all the discoveries that we've made - that we would figure out how to tackle abuse.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
