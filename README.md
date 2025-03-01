@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a lot of amazing women, you know, women in my life who have been an example for me of what not to do.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>In art, all who have done something other than their predecessors have merited the epithet of revolutionary and it is they alone who are masters.</b>
+> <p><i>Paul Gauguin</i></p>
 
 <br>
