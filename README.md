@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dream of politics all my life has been that it is the common business, that it is something we owe to each other to understand and discuss with absolute frankness.</b>
-> <p><i>Woodrow Wilson</i></p>
+> <b>In politics, strangely enough, the best way to play your cards is to lay them face upwards on the table.</b>
+> <p><i>H. G. Wells</i></p>
 
 <br>
