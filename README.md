@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You'd think that in this age, especially in the 21st century - especially with all the technology and all the discoveries that we've made - that we would figure out how to tackle abuse.</b>
-> <p><i>Tori Amos</i></p>
+> <b>A positive attitude can really make dreams come true - it did for me.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
