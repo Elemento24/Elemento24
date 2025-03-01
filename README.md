@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In art, all who have done something other than their predecessors have merited the epithet of revolutionary and it is they alone who are masters.</b>
-> <p><i>Paul Gauguin</i></p>
+> <b>Megacollectors suppose they can enter art history by spending astronomical amounts.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
