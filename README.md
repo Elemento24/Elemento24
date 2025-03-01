@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are lots of things which I would love to tell him, but in some way, I also feel that I lost the person closest to me. And I got a second chance to live. So in a way I feel that I live for both of us... and I will do my best.</b>
-> <p><i>Petra Nemcova</i></p>
+> <b>I strongly believe that missionaries make better products. They care more. For a missionary, it's not just about the business. There has to be a business, and the business has to make sense, but that's not why you do it. You do it because you have something meaningful that motivates you.</b>
+> <p><i>Jeff Bezos</i></p>
 
 <br>
