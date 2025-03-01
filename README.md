@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very accepting with my age. It's like notches on your belt: experience, wisdom, and a different kind of beauty. There comes a day when you've become comfortable in your skin.</b>
-> <p><i>Zoe Saldana</i></p>
+> <b>My dream of politics all my life has been that it is the common business, that it is something we owe to each other to understand and discuss with absolute frankness.</b>
+> <p><i>Woodrow Wilson</i></p>
 
 <br>
