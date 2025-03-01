@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Megacollectors suppose they can enter art history by spending astronomical amounts.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>My mom said the only reason men are alive is for lawn care and vehicle maintenance.</b>
+> <p><i>Tim Allen</i></p>
 
 <br>
