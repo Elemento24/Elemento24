@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm having a great time. I get to travel and see the world. And yeah, I'll have a family, because I don't want to miss out on that amazing experience, but it's not defining who I am.</b>
-> <p><i>Krysten Ritter</i></p>
+> <b>And it is very sexy as well: somebody says I'm taking you on a surprise date, you don't know where you are going and you can't see and then you put your hand out and there is a tiger. Amazing.</b>
+> <p><i>Emily Watson</i></p>
 
 <br>
