@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life... is not simply a series of exciting new ventures. The future is not always a whole new ball game. There tends to be unfinished business. One trails all sorts of things around with one, things that simply won't be got rid of.</b>
-> <p><i>Anita Brookner</i></p>
+> <b>I'm very accepting with my age. It's like notches on your belt: experience, wisdom, and a different kind of beauty. There comes a day when you've become comfortable in your skin.</b>
+> <p><i>Zoe Saldana</i></p>
 
 <br>
