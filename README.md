@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Excellence is not a skill. It is an attitude.</b>
-> <p><i>Ralph Marston</i></p>
+> <b>There is a growing literature about the multitude of journalism's problems, but most of it is concerned with the editorial side of the business, possibly because most people competent to write about journalism are not comfortable writing about finance.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
