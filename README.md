@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom said the only reason men are alive is for lawn care and vehicle maintenance.</b>
-> <p><i>Tim Allen</i></p>
+> <b>Excellence is not a skill. It is an attitude.</b>
+> <p><i>Ralph Marston</i></p>
 
 <br>
