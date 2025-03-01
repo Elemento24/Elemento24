@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A positive attitude can really make dreams come true - it did for me.</b>
-> <p><i>David Bailey</i></p>
+> <b>Life... is not simply a series of exciting new ventures. The future is not always a whole new ball game. There tends to be unfinished business. One trails all sorts of things around with one, things that simply won't be got rid of.</b>
+> <p><i>Anita Brookner</i></p>
 
 <br>
