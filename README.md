@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a growing literature about the multitude of journalism's problems, but most of it is concerned with the editorial side of the business, possibly because most people competent to write about journalism are not comfortable writing about finance.</b>
-> <p><i>Russell Baker</i></p>
+> <b>I'd like to state that Spike Lee is not saying that African American culture is just for black people alone to enjoy and cherish. Culture is for everybody.</b>
+> <p><i>Spike Lee</i></p>
 
 <br>
