@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When Maurice touched a keyboard, it was like something from a movie, magical. He would always give you something from a movie, and you'd go, what did you just play... immediately inspirational writings, amazing. That's what we're going to miss.</b>
-> <p><i>Robin Gibb</i></p>
+> <b>Every Body has so good an Opinion of their own Understanding as to think their own way the best.</b>
+> <p><i>Mary Astell</i></p>
 
 <br>
