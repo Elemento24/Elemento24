@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, you've kind of got the track down, especially with ovals. The only thing that improves is that when race conditions come, you know what to expect slightly more from the track and from your car.</b>
-> <p><i>Danica Patrick</i></p>
+> <b>One should not lose one's temper unless one is certain of getting more and more angry to the end.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
