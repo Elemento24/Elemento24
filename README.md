@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The human soul needs actual beauty more than bread.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>People dance at any age.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
