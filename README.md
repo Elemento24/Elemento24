@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am at that age when you panic at the slightest thing.</b>
-> <p><i>Rupert Everett</i></p>
+> <b>Law is not a profession at all, but rather a business service station and repair shop.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
