@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Italian men do appreciate beautiful women. They're not afraid of the beauty, which is nice.</b>
-> <p><i>Eva Herzigova</i></p>
+> <b>The human soul needs actual beauty more than bread.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
