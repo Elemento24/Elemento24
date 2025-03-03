@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That last day does not bring extinction to us, but change of place.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>I don't mind my age.</b>
+> <p><i>Heather Mills</i></p>
 
 <br>
