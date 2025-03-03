@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Christopher Reeve did such an amazing job that to give him some kind of accent or more bravado would have been wrong. Audiences wouldn't have responded to that either.</b>
-> <p><i>Brandon Routh</i></p>
+> <b>Age is a case of mind over matter. If you don't mind, it don't matter.</b>
+> <p><i>Satchel Paige</i></p>
 
 <br>
