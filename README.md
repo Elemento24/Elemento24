@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Buyers decide in the first eight seconds of seeing a home if they're interested in buying it. Get out of your car, walk in their shoes and see what they see within the first eight seconds.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>I feel sorry for people who don't drink. They wake up in the morning and that's the best they're going to feel all day.</b>
+> <p><i>Dean Martin</i></p>
 
 <br>
