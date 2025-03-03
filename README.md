@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I look at the majority of my own songs they really came from my own sense of personal confusion or need to express some pain or beauty - they were coming from a universal and personal place.</b>
-> <p><i>Annie Lennox</i></p>
+> <b>Education is the best friend. An educated person is respected everywhere. Education beats the beauty and the youth.</b>
+> <p><i>Chanakya</i></p>
 
 <br>
