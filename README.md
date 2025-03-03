@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you never change your mind, why have one?</b>
-> <p><i>Edward de Bono</i></p>
+> <b>This is why cup finals are so special because on the day anyone can beat anyone. That's what it's all about and that's why for me the FA Cup and the Carling Cup are the best cups in the world. That's the beauty of the cup.</b>
+> <p><i>Ian Rush</i></p>
 
 <br>
