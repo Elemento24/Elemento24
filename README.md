@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rashness belongs to youth prudence to old age.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>Christopher Reeve did such an amazing job that to give him some kind of accent or more bravado would have been wrong. Audiences wouldn't have responded to that either.</b>
+> <p><i>Brandon Routh</i></p>
 
 <br>
