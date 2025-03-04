@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Evil is done without effort, naturally, it is the working of fate good is always the product of an art.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>Muslims have a very bad attitude to homosexuality, they're very intolerant.</b>
+> <p><i>Pim Fortuyn</i></p>
 
 <br>
