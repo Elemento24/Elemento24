@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a libel to say that I use my newspapers to support my other business interests. The fact is, I haven't got any other business interests.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>Voting is a right best exercised by people who have taken time to learn about the issues.</b>
+> <p><i>Tony Snow</i></p>
 
 <br>
