@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of having a producer is that you have someone who says, You're finished.</b>
-> <p><i>Sheryl Crow</i></p>
+> <b>It's a libel to say that I use my newspapers to support my other business interests. The fact is, I haven't got any other business interests.</b>
+> <p><i>Rupert Murdoch</i></p>
 
 <br>
