@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best augury of a man's success in his profession is that he thinks it the finest in the world.</b>
-> <p><i>George Eliot</i></p>
+> <b>Evil is done without effort, naturally, it is the working of fate good is always the product of an art.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
