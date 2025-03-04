@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Muslims have a very bad attitude to homosexuality, they're very intolerant.</b>
-> <p><i>Pim Fortuyn</i></p>
+> <b>It seems to me I spent my life in car pools, but you know, that's how I kept track of what was going on.</b>
+> <p><i>Barbara Bush</i></p>
 
 <br>
