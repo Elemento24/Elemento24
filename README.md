@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the spirit of the age to believe that any fact, no matter how suspect, is superior to any imaginative exercise, no matter how true.</b>
-> <p><i>Gore Vidal</i></p>
+> <b>When I say that human beings are just gene machines, one shouldn't put too much emphasis on the word 'just.' There is a very great deal of complication, and indeed beauty in being a gene machine.</b>
+> <p><i>Richard Dawkins</i></p>
 
 <br>
