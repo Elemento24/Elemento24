@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be in a situation where you have no rights whatsoever is something I wish everybody could experience. People's attitudes would change. It would be a better place.</b>
-> <p><i>Tommy Chong</i></p>
+> <b>The beauty of having a producer is that you have someone who says, You're finished.</b>
+> <p><i>Sheryl Crow</i></p>
 
 <br>
