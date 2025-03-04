@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I say that human beings are just gene machines, one shouldn't put too much emphasis on the word 'just.' There is a very great deal of complication, and indeed beauty in being a gene machine.</b>
-> <p><i>Richard Dawkins</i></p>
+> <b>I want to be a morning-talk-show host. I love Kelly Ripa's job. She gets to live in New York and has this amazing job hosting a talk show.</b>
+> <p><i>Ellie Kemper</i></p>
 
 <br>
