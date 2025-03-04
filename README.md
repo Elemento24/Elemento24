@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As soon as I began to earn what might be called fairly large sums, I bought a car and began to explore the country around New York.</b>
-> <p><i>Kate Smith</i></p>
+> <b>I figured out it was a social thing, what women were allowed to do. At a very young age, I decided I was not going to follow women's rules.</b>
+> <p><i>Joan Jett</i></p>
 
 <br>
