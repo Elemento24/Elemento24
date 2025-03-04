@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Thus, the poet's word is beginning to strike forcefully upon the hearts of all men, while absolute men of letters think that they alone live in the real world.</b>
-> <p><i>Salvatore Quasimodo</i></p>
+> <b>The best augury of a man's success in his profession is that he thinks it the finest in the world.</b>
+> <p><i>George Eliot</i></p>
 
 <br>
