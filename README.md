@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate the stereotype of the pitfalls of the child actor. There are so many amazing examples - Natalie Portman, Joseph Gordon-Levitt, Jodie Foster, Drew Barrymore - of people who have made it through.</b>
-> <p><i>Jamie Bell</i></p>
+> <b>To be in a situation where you have no rights whatsoever is something I wish everybody could experience. People's attitudes would change. It would be a better place.</b>
+> <p><i>Tommy Chong</i></p>
 
 <br>
