@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing, it doesn't feel like it has been 10 years since retirement.</b>
-> <p><i>Gabriela Sabatini</i></p>
+> <b>Do not meddle in the affairs of wizards, for they are subtle and quick to anger.</b>
+> <p><i>J. R. R. Tolkien</i></p>
 
 <br>
