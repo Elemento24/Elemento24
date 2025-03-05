@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I figured out it was a social thing, what women were allowed to do. At a very young age, I decided I was not going to follow women's rules.</b>
-> <p><i>Joan Jett</i></p>
+> <b>I will never be an old man. To me, old age is always 15 years older than I am.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
