@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty, the poetry of the fear in their eyes. I didn't mind going to jail for, what, five, six hours? It was absolutely worth it.</b>
-> <p><i>Johnny Depp</i></p>
+> <b>One of the most important things to remember about infant care is: don't change diapers in midstream.</b>
+> <p><i>Don Marquis</i></p>
 
 <br>
