@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the most important things to remember about infant care is: don't change diapers in midstream.</b>
-> <p><i>Don Marquis</i></p>
+> <b>For the first time, I lived alone... in a luxury apartment on Sunset Strip. For a few days I loved the idea, but I got lonely and restless.</b>
+> <p><i>Patty Duke</i></p>
 
 <br>
