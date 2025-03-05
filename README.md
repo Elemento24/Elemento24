@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is only an auctioneer who can equally and impartially admire all schools of art.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>For me the greatest beauty always lies in the greatest clarity.</b>
+> <p><i>Gotthold Ephraim Lessing</i></p>
 
 <br>
