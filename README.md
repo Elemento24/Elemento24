@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The leverage and influence social media gives citizens are rapidly spreading into the business world.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Even if I know I shall never change the masses, never transform anything permanent, all I ask is that the good things also have their place, their refuge.</b>
+> <p><i>Richard Wagner</i></p>
 
 <br>
