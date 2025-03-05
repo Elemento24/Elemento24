@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing to think after all that has happened in this country in the last few years, the last few decades, that so many people have this blind faith that government is our friend and therefore, so we don't need protections against it.</b>
-> <p><i>James Bovard</i></p>
+> <b>If you have a positive attitude and constantly strive to give your best effort, eventually you will overcome your immediate problems and find you are ready for greater challenges.</b>
+> <p><i>Pat Riley</i></p>
 
 <br>
