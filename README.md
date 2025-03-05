@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the first time, I lived alone... in a luxury apartment on Sunset Strip. For a few days I loved the idea, but I got lonely and restless.</b>
-> <p><i>Patty Duke</i></p>
+> <b>Music is amazing. There's some metaphysical comfort where it allows you to be isolated and alone while telling you that you are not alone... truly, the only cure for sadness is to share it with someone else.</b>
+> <p><i>Wayne Coyne</i></p>
 
 <br>
