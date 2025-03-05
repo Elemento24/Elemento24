@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Probably nothing serious or worthwhile can be accomplished without one's willingness to be alone for sustained periods of time, which is not to say that one must live alone, obsessively.</b>
-> <p><i>Joyce Carol Oates</i></p>
+> <b>It is better to be alone than in bad company.</b>
+> <p><i>George Washington</i></p>
 
 <br>
