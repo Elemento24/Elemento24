@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Britain, like most of the developed world, stem-cell research is regarded as a great opportunity. America will be left behind if it doesn't change policy.</b>
-> <p><i>Stephen Hawking</i></p>
+> <b>It is best to avoid the beginnings of evil.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
