@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only change is that baseball has turned Paige from a second class citizen to a second class immortal.</b>
-> <p><i>Satchel Paige</i></p>
+> <b>We don't seem to be able to check crime, so why not legalize it and then tax it out of business?</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
