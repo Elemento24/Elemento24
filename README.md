@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist is never ahead of his time but most people are far behind theirs.</b>
-> <p><i>Edgard Varese</i></p>
+> <b>I came on to the film with a very happy-go-lucky attitude which I think my character, Charlie, did when she went into the house. I expected it to be good, and then slowly things started to change for us all.</b>
+> <p><i>Jennifer Sky</i></p>
 
 <br>
