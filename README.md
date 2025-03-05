@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We don't seem to be able to check crime, so why not legalize it and then tax it out of business?</b>
-> <p><i>Will Rogers</i></p>
+> <b>The beauty, the poetry of the fear in their eyes. I didn't mind going to jail for, what, five, six hours? It was absolutely worth it.</b>
+> <p><i>Johnny Depp</i></p>
 
 <br>
