@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Weird people follow you in the streets, you can't sit alone in a restaurant or a cafe and read a book in peace, and I think everybody values those moments of being alone.</b>
-> <p><i>Winona Ryder</i></p>
+> <b>Power is always dangerous. Power attracts the worst and corrupts the best.</b>
+> <p><i>Edward Abbey</i></p>
 
 <br>
