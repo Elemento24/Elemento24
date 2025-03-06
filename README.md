@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't listen to what art critics say. I don't know anybody who needs a critic to find out what art is.</b>
-> <p><i>Jean-Michel Basquiat</i></p>
+> <b>There are no secrets to success. It is the result of preparation, hard work, and learning from failure.</b>
+> <p><i>Colin Powell</i></p>
 
 <br>
