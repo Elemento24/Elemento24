@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Motherhood is a dream. It really is absolutely amazing.</b>
-> <p><i>Jessica Simpson</i></p>
+> <b>If you give people nothingness, they can ponder what can be achieved from that nothingness.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
