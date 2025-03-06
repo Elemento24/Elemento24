@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me the greatest beauty always lies in the greatest clarity.</b>
-> <p><i>Gotthold Ephraim Lessing</i></p>
+> <b>I can be almost terminally grief-stricken because things are so dire, but at the same time, there's a real lightheartedness about just the recoverability of life, of how things change, how they're not the same, ever again.</b>
+> <p><i>Alice Walker</i></p>
 
 <br>
