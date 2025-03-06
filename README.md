@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diplomacy is the art of saying 'Nice doggie' until you can find a rock.</b>
-> <p><i>Will Rogers</i></p>
+> <b>Now, personally, I like a car with some sort of character.</b>
+> <p><i>Richard Hammond</i></p>
 
 <br>
