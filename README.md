@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now, personally, I like a car with some sort of character.</b>
-> <p><i>Richard Hammond</i></p>
+> <b>Motherhood is a dream. It really is absolutely amazing.</b>
+> <p><i>Jessica Simpson</i></p>
 
 <br>
