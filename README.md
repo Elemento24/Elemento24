@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I basically started playing violin at the age of six. That lasted about three years because my previous teacher died and the second teacher didn't really know how to successfully get me going.</b>
-> <p><i>Miroslav Vitous</i></p>
+> <b>I am afraid we must make the world honest before we can honestly say to our children that honesty is the best policy.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
