@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can lose a game but, I see guys every week including myself, you lose a game, it's a tough loss, you're down, two weeks later you forgot about it. You know it's amazing how down you were, but all of the sudden you're like it never happened.</b>
-> <p><i>Brett Favre</i></p>
+> <b>The prerequisite of originality is the art of forgetting, at the proper moment, what we know.</b>
+> <p><i>Arthur Koestler</i></p>
 
 <br>
