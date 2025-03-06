@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I shall give you hunger, and pain, and sleepless nights. Also beauty, and satisfactions known to few, and glimpses of the heavenly life. None of these you shall have continually, and of their coming and going you shall not be foretold.</b>
-> <p><i>Howard Lindsay</i></p>
+> <b>I don't listen to what art critics say. I don't know anybody who needs a critic to find out what art is.</b>
+> <p><i>Jean-Michel Basquiat</i></p>
 
 <br>
