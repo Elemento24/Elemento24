@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you give people nothingness, they can ponder what can be achieved from that nothingness.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>Life, an age to the miserable, and a moment to the happy.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
