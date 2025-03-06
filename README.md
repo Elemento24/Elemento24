@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world is changing very fast. Big will not beat small anymore. It will be the fast beating the slow.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>Reconciliation requires changes of heart and spirit, as well as social and economic change. It requires symbolic as well as practical action.</b>
+> <p><i>Malcolm Fraser</i></p>
 
 <br>
