@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are no secrets to success. It is the result of preparation, hard work, and learning from failure.</b>
-> <p><i>Colin Powell</i></p>
+> <b>In practice we, in the world, must do business with each other.</b>
+> <p><i>David Mamet</i></p>
 
 <br>
