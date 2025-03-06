@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life, an age to the miserable, and a moment to the happy.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>I shall give you hunger, and pain, and sleepless nights. Also beauty, and satisfactions known to few, and glimpses of the heavenly life. None of these you shall have continually, and of their coming and going you shall not be foretold.</b>
+> <p><i>Howard Lindsay</i></p>
 
 <br>
