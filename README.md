@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today, I think the attitude is that governing is not necessarily good politics, and the result is that it's much more partisan and much more divided.</b>
-> <p><i>Leon Panetta</i></p>
+> <b>Good humor is one of the best articles of dress one can wear in society.</b>
+> <p><i>William Makepeace Thackeray</i></p>
 
 <br>
