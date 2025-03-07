@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know what it's like to start a business. I know how extra ordinarily difficult it is to build something from nothing. I know how government kills jobs and, yes, I know how it can help from time- to-time.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>The art of communication is the language of leadership.</b>
+> <p><i>James Humes</i></p>
 
 <br>
