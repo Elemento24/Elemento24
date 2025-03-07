@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who angers you conquers you.</b>
-> <p><i>Elizabeth Kenny</i></p>
+> <b>Walking with a friend in the dark is better than walking alone in the light.</b>
+> <p><i>Helen Keller</i></p>
 
 <br>
