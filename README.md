@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a spiritually sensitive culture, then, it might well be that age is something to be admired or envied.</b>
-> <p><i>Rowan D. Williams</i></p>
+> <b>I believe that the majority of times the scale tilts toward the good. It's this amazing thing that rolls on and if we get in the flow of it, that's God. And if we fight it, if we swim the other way, we're swimming away from the purest expression of this life.</b>
+> <p><i>Michael J. Fox</i></p>
 
 <br>
