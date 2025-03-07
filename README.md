@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're going to test with the same car, but we have a new car ready.</b>
-> <p><i>Larry Dixon</i></p>
+> <b>The difference between Marilyn Monroe and the early Pamela Anderson is not that great. What's amazing is that the taste of American men and international tastes in terms of beauty have essentially stayed the same. Styles change, but our view of beauty stays the same.</b>
+> <p><i>Hugh Hefner</i></p>
 
 <br>
