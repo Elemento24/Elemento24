@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that the majority of times the scale tilts toward the good. It's this amazing thing that rolls on and if we get in the flow of it, that's God. And if we fight it, if we swim the other way, we're swimming away from the purest expression of this life.</b>
-> <p><i>Michael J. Fox</i></p>
+> <b>I have grown up alone. I've taken care of myself. I worked, earned money and was independent at 18.</b>
+> <p><i>Ingrid Bergman</i></p>
 
 <br>
