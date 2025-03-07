@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One accusation you can't throw at me is that I've always done my best.</b>
-> <p><i>Alan Shearer</i></p>
+> <b>It's sad that women characters have lost so much ground in popular movies. Didn't 'Thelma and Louise' prove that women want to see women doing things on film? Thelma and Louise were in a classic car they were being chased by cops they shot up a truck - and women loved it.</b>
+> <p><i>Robin Quivers</i></p>
 
 <br>
