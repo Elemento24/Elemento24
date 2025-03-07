@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't look my age, I don't feel my age and I don't act my age. To me age is just a number.</b>
-> <p><i>Joan Collins</i></p>
+> <b>This is a fantastic time to be entering the business world, because business is going to change more in the next 10 years than it has in the last 50.</b>
+> <p><i>Bill Gates</i></p>
 
 <br>
