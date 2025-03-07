@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of communication is the language of leadership.</b>
-> <p><i>James Humes</i></p>
+> <b>If there is anything that a man can do well, I say let him do it. Give him a chance.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
