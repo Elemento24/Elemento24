@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Paul Newman had an amazing career. I also love what Tom Hanks has done. He has always made very grounded movies that have something to say. He has found a way to make blockbusters that are about something and that is what I want to do.</b>
-> <p><i>Josh Duhamel</i></p>
+> <b>I delight in my family obligations, but they leave little time for breaks let alone quick trips across the country.</b>
+> <p><i>Carre Otis</i></p>
 
 <br>
