@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wisdom alone is true ambition's aim, wisdom is the source of virtue and of fame obtained with labour, for mankind employed, and then, when most you share it, best enjoyed.</b>
-> <p><i>Alfred North Whitehead</i></p>
+> <b>You're only as young as the last time you changed your mind.</b>
+> <p><i>Timothy Leary</i></p>
 
 <br>
