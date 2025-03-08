@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I write now I do not invent situation, characters, or actions, but rather structures and discursive forms, textual groupings which are combined according to secret affinities among themselves, as in architecture or the plastic arts.</b>
-> <p><i>Juan Goytisolo</i></p>
+> <b>Had the United States and the United Kingdom gone on alone to capture Baghdad, under the provisions of the Geneva and Hague conventions we would have been considered occupying powers and therefore would have been responsible for all the costs of maintaining or restoring government, education and other services for the people of Iraq.</b>
+> <p><i>Norman Schwarzkopf</i></p>
 
 <br>
