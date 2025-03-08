@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not possible to live in this age if you don't have a sense of many contradictory forces.</b>
-> <p><i>Rem Koolhaas</i></p>
+> <b>It was amazing that during rehearsals, without any of the costume on, the character was there complete. It just happened. Half the time, I didn't know I was doing it.</b>
+> <p><i>Peter Mayhew</i></p>
 
 <br>
