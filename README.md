@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But men are men the best sometimes forget.</b>
-> <p><i>William Shakespeare</i></p>
+> <b>Beauty is the first present nature gives to women and the first it takes away.</b>
+> <p><i>Fay Weldon</i></p>
 
 <br>
