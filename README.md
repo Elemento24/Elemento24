@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the first present nature gives to women and the first it takes away.</b>
-> <p><i>Fay Weldon</i></p>
+> <b>Brilliantly lit from stem to stern, she looked like a sagging birthday cake.</b>
+> <p><i>Walter Lord</i></p>
 
 <br>
