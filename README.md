@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is a step from what is obvious and well-known toward what is arcane and concealed.</b>
-> <p><i>Khalil Gibran</i></p>
+> <b>It is not possible to live in this age if you don't have a sense of many contradictory forces.</b>
+> <p><i>Rem Koolhaas</i></p>
 
 <br>
