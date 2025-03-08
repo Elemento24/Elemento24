@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The very essence of the creative is its novelty, and hence we have no standard by which to judge it.</b>
-> <p><i>Carl Rogers</i></p>
+> <b>I do not regret one professional enemy I have made. Any actor who doesn't dare to make an enemy should get out of the business.</b>
+> <p><i>Bette Davis</i></p>
 
 <br>
