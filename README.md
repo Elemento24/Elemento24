@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't see that any buildings should be excluded from the term architecture, as long as they are done properly.</b>
-> <p><i>Arne Jacobsen</i></p>
+> <b>I think Paul Newman had an amazing career. I also love what Tom Hanks has done. He has always made very grounded movies that have something to say. He has found a way to make blockbusters that are about something and that is what I want to do.</b>
+> <p><i>Josh Duhamel</i></p>
 
 <br>
