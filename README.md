@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I delight in my family obligations, but they leave little time for breaks let alone quick trips across the country.</b>
-> <p><i>Carre Otis</i></p>
+> <b>I have grown up alone. I've taken care of myself. I worked, earned money and was independent at 18.</b>
+> <p><i>Ingrid Bergman</i></p>
 
 <br>
