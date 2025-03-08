@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the spirit of the age to believe that any fact, no matter how suspect, is superior to any imaginative exercise, no matter how true.</b>
-> <p><i>Gore Vidal</i></p>
+> <b>When I write now I do not invent situation, characters, or actions, but rather structures and discursive forms, textual groupings which are combined according to secret affinities among themselves, as in architecture or the plastic arts.</b>
+> <p><i>Juan Goytisolo</i></p>
 
 <br>
