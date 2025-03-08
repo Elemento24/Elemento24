@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I delight in my family obligations, but they leave little time for breaks let alone quick trips across the country.</b>
-> <p><i>Carre Otis</i></p>
+> <b>Everybody looks like clones and the only people you notice are my age. I don't notice anybody unless they look great, and every now and again they do, and they are usually 70.</b>
+> <p><i>Vivienne Westwood</i></p>
 
 <br>
