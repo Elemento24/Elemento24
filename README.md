@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody looks like clones and the only people you notice are my age. I don't notice anybody unless they look great, and every now and again they do, and they are usually 70.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>The difference between utility and utility plus beauty is the difference between telephone wires and the spider web.</b>
+> <p><i>Edwin Way Teale</i></p>
 
 <br>
