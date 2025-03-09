@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man of eighty has outlived probably three new schools of painting, two of architecture and poetry and a hundred in dress.</b>
-> <p><i>Lord Byron</i></p>
+> <b>I think everybody has their own way of looking at their lives as some kind of pilgrimage. Some people will see their role as a pilgrim in terms of setting up a fine family, or establishing a business inheritance. Everyone's got their own definition.</b>
+> <p><i>Eric Clapton</i></p>
 
 <br>
