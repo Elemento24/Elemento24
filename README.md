@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people ask the secret of our long marriage. We take time to go to a restaurant two times a week. A little candlelight, dinner, soft music and dancing. She goes Tuesdays, I go Fridays.</b>
-> <p><i>Henny Youngman</i></p>
+> <b>Fact: The new '90210' is cooler than the old '90210.' It's the lithe, streamlined Skipper to the elder series' venerable Barbie. Gone are the traditional parents - they've been replaced by a hipster mom n' pop who get busted necking in the car.</b>
+> <p><i>Diablo Cody</i></p>
 
 <br>
