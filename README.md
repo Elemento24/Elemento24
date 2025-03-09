@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest thing about doing this movie was that Chris and I both were involved in folk music in the '60s. I had a group, but I don't think it was at the same level as Chris, because he's an amazing musician.</b>
-> <p><i>Eugene Levy</i></p>
+> <b>Many highly intelligent people are poor thinkers. Many people of average intelligence are skilled thinkers. The power of a car is separate from the way the car is driven.</b>
+> <p><i>Edward de Bono</i></p>
 
 <br>
