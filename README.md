@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now, I'm not saying I'm fashionable, but there are sociological interests that matter to me, things that are theoretical, political, intellectual and also concerned with vanity and beauty that we all think about but that I try to mix up and translate into fashion.</b>
-> <p><i>Miuccia Prada</i></p>
+> <b>One does not need buildings, money, power, or status to practice the Art of Peace. Heaven is right where you are standing, and that is the place to train.</b>
+> <p><i>Morihei Ueshiba</i></p>
 
 <br>
