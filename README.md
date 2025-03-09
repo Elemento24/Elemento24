@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had wanted a tape recorder since I was tiny. I thought it was a magic thing. I never got one until just before I went to art school.</b>
-> <p><i>Brian Eno</i></p>
+> <b>Now, I'm not saying I'm fashionable, but there are sociological interests that matter to me, things that are theoretical, political, intellectual and also concerned with vanity and beauty that we all think about but that I try to mix up and translate into fashion.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
