@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>See, what you're meant to do when you have a mid-life crisis is buy a fast car, aren't you? Well, I've always had fast cars. It's not that. It's the fear that you're past your best. It's the fear that the stuff you've done in the past is your best work.</b>
-> <p><i>Robbie Coltrane</i></p>
+> <b>The greatest thing about doing this movie was that Chris and I both were involved in folk music in the '60s. I had a group, but I don't think it was at the same level as Chris, because he's an amazing musician.</b>
+> <p><i>Eugene Levy</i></p>
 
 <br>
