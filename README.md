@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I suppose there's an anger in all of us. Some hidden rage that you keep at bay.</b>
-> <p><i>Dominic Cooper</i></p>
+> <b>Old age is the most unexpected of all the things that can happen to a man.</b>
+> <p><i>James Thurber</i></p>
 
 <br>
