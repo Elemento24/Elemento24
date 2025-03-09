@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think everybody has their own way of looking at their lives as some kind of pilgrimage. Some people will see their role as a pilgrim in terms of setting up a fine family, or establishing a business inheritance. Everyone's got their own definition.</b>
-> <p><i>Eric Clapton</i></p>
+> <b>I had wanted a tape recorder since I was tiny. I thought it was a magic thing. I never got one until just before I went to art school.</b>
+> <p><i>Brian Eno</i></p>
 
 <br>
