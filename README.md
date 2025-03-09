@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One does not need buildings, money, power, or status to practice the Art of Peace. Heaven is right where you are standing, and that is the place to train.</b>
-> <p><i>Morihei Ueshiba</i></p>
+> <b>Parents have become so convinced that educators know what is best for their children that they forget that they themselves are really the experts.</b>
+> <p><i>Marian Wright Edelman</i></p>
 
 <br>
