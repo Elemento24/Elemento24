@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a fundamental shift that social media necessitates in business today - the need to transition from 'Me First' to 'We First' thinking.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>My attitude toward men who mess around is simple: If you find 'em, kill 'em.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
