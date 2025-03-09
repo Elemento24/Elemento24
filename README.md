@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A positive attitude can really make dreams come true - it did for me.</b>
-> <p><i>David Bailey</i></p>
+> <b>A man of eighty has outlived probably three new schools of painting, two of architecture and poetry and a hundred in dress.</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
