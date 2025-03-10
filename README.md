@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He has spent his life best who has enjoyed it most. God will take care that we do not enjoy it any more than is good for us.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>The art of life is to know how to enjoy a little and to endure very much.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
