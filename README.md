@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the coming years, if not sooner, social media will become a powerful tool that consumers will aggressively use to influence business attitudes and force companies into greater social responsibility - and, I suggest, move us towards a more sustainable practice of capitalism.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Old age is a tyrant, who forbids, under pain of death, the pleasures of youth.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
