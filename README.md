@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Real beauty is to be true to oneself. That's what makes me feel good.</b>
-> <p><i>Laetitia Casta</i></p>
+> <b>Man does not live by soap alone and hygiene, or even health, is not much good unless you can take a healthy view of it or, better still, feel a healthy indifference to it.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
