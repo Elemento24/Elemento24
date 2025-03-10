@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is a tyrant, who forbids, under pain of death, the pleasures of youth.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>We can recognize the dawn and the decline of love by the uneasiness we feel when alone together.</b>
+> <p><i>Jean de la Bruyere</i></p>
 
 <br>
