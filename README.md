@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The U.S.S. George H. W. Bush is a great thing in my life. It's amazing. A great honor.</b>
-> <p><i>George H. W. Bush</i></p>
+> <b>The human foot is a masterpiece of engineering and a work of art.</b>
+> <p><i>Leonardo da Vinci</i></p>
 
 <br>
