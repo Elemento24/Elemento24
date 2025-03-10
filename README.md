@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really don't think there is anybody in the business with better eyes than Elijah Wood.</b>
-> <p><i>Liev Schreiber</i></p>
+> <b>It is Homer who has chiefly taught other poets the art of telling lies skillfully.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
