@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm tired of being around men all the time. I'm going to start a band called Skirt with three girls and I'll play the guitar and sing backing vocals in drag. I went window shopping when I was in New York, saw a lot of amazing dresses.</b>
-> <p><i>Brian Molko</i></p>
+> <b>In the coming years, if not sooner, social media will become a powerful tool that consumers will aggressively use to influence business attitudes and force companies into greater social responsibility - and, I suggest, move us towards a more sustainable practice of capitalism.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
