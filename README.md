@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The human foot is a masterpiece of engineering and a work of art.</b>
-> <p><i>Leonardo da Vinci</i></p>
+> <b>No one chooses to raise children alone.</b>
+> <p><i>Erykah Badu</i></p>
 
 <br>
