@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can recognize the dawn and the decline of love by the uneasiness we feel when alone together.</b>
-> <p><i>Jean de la Bruyere</i></p>
+> <b>The secret of a happy marriage is finding the right person. You know they're right if you love to be with them all the time.</b>
+> <p><i>Julia Child</i></p>
 
 <br>
