@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And it's absolutely true that male sexual behaviour and female responses to male demands change a lot when they start communicating - and the levels of the communication that I've seen on the ground in very, very poor areas are so high and I think why don't we have that here?</b>
-> <p><i>Emma Thompson</i></p>
+> <b>Remember always that the composer's pen is still mightier than the bow of the violinist in you lie all the possibilities of the creation of beauty.</b>
+> <p><i>John Philip Sousa</i></p>
 
 <br>
