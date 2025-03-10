@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Carpe per diem - seize the check.</b>
-> <p><i>Robin Williams</i></p>
+> <b>People's view of cancer will change when they have their own relationship with cancer, which everyone will, at some point.</b>
+> <p><i>Laura Linney</i></p>
 
 <br>
