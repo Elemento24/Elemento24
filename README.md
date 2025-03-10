@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The secret of a happy marriage is finding the right person. You know they're right if you love to be with them all the time.</b>
-> <p><i>Julia Child</i></p>
+> <b>The U.S.S. George H. W. Bush is a great thing in my life. It's amazing. A great honor.</b>
+> <p><i>George H. W. Bush</i></p>
 
 <br>
