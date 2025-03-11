@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Christ would be a national advertiser today, I am sure, as He was a great advertiser in His own day. He thought of His life as business.</b>
-> <p><i>Bruce Barton</i></p>
+> <b>A whopping 89 percent of buyers start their home search online. How your house looks online is the modern equivalent of 'curb appeal.' Rent a wide-angle lens and good lighting, get rid of your clutter and post at least eight great photos to win the beauty contest.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
