@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned from a very young age that if I pursued the things that truly excited me, that they would reward in more important ways, like happiness.</b>
-> <p><i>Brandon Boyd</i></p>
+> <b>All my early school reports from the age of 5 were 'Daniel must learn not to distract others.'</b>
+> <p><i>Dan Stevens</i></p>
 
 <br>
