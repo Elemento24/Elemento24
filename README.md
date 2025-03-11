@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's great when people appreciate your work, but I don't know how seriously to take it. The amazing thing is that I found something so early that I can support myself doing, and that can even be extremely lucrative, but I love it either way.</b>
-> <p><i>Adrien Brody</i></p>
+> <b>I own stock, and I also insure my car with Geico.</b>
+> <p><i>Ernie Banks</i></p>
 
 <br>
