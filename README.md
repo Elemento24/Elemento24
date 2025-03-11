@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My buildings don't speak in words but by means of their own spaciousness.</b>
-> <p><i>Thom Mayne</i></p>
+> <b>Do more than is required. What is the distance between someone who achieves their goals consistently and those who spend their lives and careers merely following? The extra mile.</b>
+> <p><i>Gary Ryan Blair</i></p>
 
 <br>
