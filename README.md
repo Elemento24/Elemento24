@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been asked, 'What is my favorite car?' and I've always said 'The next one.'</b>
-> <p><i>Caroll Shelby</i></p>
+> <b>It's great when people appreciate your work, but I don't know how seriously to take it. The amazing thing is that I found something so early that I can support myself doing, and that can even be extremely lucrative, but I love it either way.</b>
+> <p><i>Adrien Brody</i></p>
 
 <br>
