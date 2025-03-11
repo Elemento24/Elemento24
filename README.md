@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because, if one is writing novels today, concentrating on the beauty of the prose is right up there with concentrating on your semi-colons, for wasted effort.</b>
-> <p><i>Neil Gaiman</i></p>
+> <b>Good, better, best. Never let it rest. 'Til your good is better and your better is best.</b>
+> <p><i>St. Jerome</i></p>
 
 <br>
