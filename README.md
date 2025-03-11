@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I own stock, and I also insure my car with Geico.</b>
-> <p><i>Ernie Banks</i></p>
+> <b>Never trust a man, who when left alone with a tea cosey... Doesn't try it on.</b>
+> <p><i>Billy Connolly</i></p>
 
 <br>
