@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never trust a man, who when left alone with a tea cosey... Doesn't try it on.</b>
-> <p><i>Billy Connolly</i></p>
+> <b>The work of art is a scream of freedom.</b>
+> <p><i>Christo</i></p>
 
 <br>
