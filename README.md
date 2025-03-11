@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All my early school reports from the age of 5 were 'Daniel must learn not to distract others.'</b>
-> <p><i>Dan Stevens</i></p>
+> <b>Because, if one is writing novels today, concentrating on the beauty of the prose is right up there with concentrating on your semi-colons, for wasted effort.</b>
+> <p><i>Neil Gaiman</i></p>
 
 <br>
