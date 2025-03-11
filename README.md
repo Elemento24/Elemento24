@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I began to understand my sensations, to know what I wanted, at around the age of forty - but only vaguely.</b>
-> <p><i>Camille Pissarro</i></p>
+> <b>Christ would be a national advertiser today, I am sure, as He was a great advertiser in His own day. He thought of His life as business.</b>
+> <p><i>Bruce Barton</i></p>
 
 <br>
