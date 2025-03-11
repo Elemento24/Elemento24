@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work of art is a scream of freedom.</b>
-> <p><i>Christo</i></p>
+> <b>My learning process is by eye alone it's not at all scientific.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
