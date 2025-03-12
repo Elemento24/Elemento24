@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will keep smiling, be positive and never give up! I will give 100 percent each time I play. These are always my goals and my attitude.</b>
-> <p><i>Yani Tseng</i></p>
+> <b>Singing really is acting. In a lot of ways, it's much more personal. I love music, and being able to work on that is amazing.</b>
+> <p><i>Leighton Meester</i></p>
 
 <br>
