@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The scientific theory I like best is that the rings of Saturn are composed entirely of lost airline luggage.</b>
-> <p><i>Mark Russell</i></p>
+> <b>Before anything else, we need a new age of Enlightenment. Our present political systems must relinquish their claims on truth, justice and freedom and have to replace them with the search for truth, justice, freedom and reason.</b>
+> <p><i>Friedrich Durrenmatt</i></p>
 
 <br>
