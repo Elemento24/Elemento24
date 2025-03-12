@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Right's view of government and the Left's view of big business are both correct.</b>
-> <p><i>Robert Anton Wilson</i></p>
+> <b>I learned you have to fight for yourself in the picture business.</b>
+> <p><i>Loretta Young</i></p>
 
 <br>
