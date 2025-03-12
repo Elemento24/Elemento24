@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first feminine feature that goes, with advancing age, is the neck.</b>
-> <p><i>Gloria Swanson</i></p>
+> <b>I will keep smiling, be positive and never give up! I will give 100 percent each time I play. These are always my goals and my attitude.</b>
+> <p><i>Yani Tseng</i></p>
 
 <br>
