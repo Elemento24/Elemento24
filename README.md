@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who has lost track of time when using a computer knows the propensity to dream, the urge to make dreams come true and the tendency to miss lunch.</b>
-> <p><i>Tim Berners-Lee</i></p>
+> <b>You can rule ignorance you can manipulate the illiterate you can do whatever you want when a people are uneducated, so that goes in line with corrupt business and corrupt politics.</b>
+> <p><i>will.i.am</i></p>
 
 <br>
