@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The question, I've come to think, is not what inspires one to change, but what inspires one to remain changed.</b>
-> <p><i>Jonathan Safran Foer</i></p>
+> <b>The trite saying that honesty is the best policy has met with the just criticism that honesty is not policy. The real honest man is honest from conviction of what is right, not from policy.</b>
+> <p><i>Robert E. Lee</i></p>
 
 <br>
