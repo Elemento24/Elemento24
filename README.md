@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I could go away tomorrow. I've already accomplished something. It's such a selfish business that sometimes I get sick of myself.</b>
-> <p><i>Jim Carrey</i></p>
+> <b>It is well known that Beauty does not look with a good grace on the timid advances of Humour.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
