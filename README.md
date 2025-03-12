@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Moby Dick - that book is so amazing. I just realized that it starts with two characters meeting in bed that's how my book begins, too, but I hadn't noticed the parallel before, two characters forced to share a bed, reluctantly.</b>
-> <p><i>Michael Chabon</i></p>
+> <b>I am firmly of the opinion that women who make a lot of effort to hang onto their looks in middle age (unless they are beauties, entertainers or prostitutes) are rather sad, as one should surely have something more substantial to recommend one by this time, such as kindness or cleverness.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
