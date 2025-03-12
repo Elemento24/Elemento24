@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work an unknown good man has done is like a vein of water flowing hidden underground, secretly making the ground green.</b>
-> <p><i>Thomas Carlyle</i></p>
+> <b>I worked at an ice cream parlor called Chadwicks. We wore old-timey outfits and had to bang a drum, play a kazoo, and sing 'Happy Birthday' to people while giving them free birthday sundaes. Lots of ice cream scooping and $1 tips.</b>
+> <p><i>Amy Poehler</i></p>
 
 <br>
