@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am firmly of the opinion that women who make a lot of effort to hang onto their looks in middle age (unless they are beauties, entertainers or prostitutes) are rather sad, as one should surely have something more substantial to recommend one by this time, such as kindness or cleverness.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>In the back of your mind, when you say you want to write music for the movies, you're saying that you want a big house, a big car and a boat. If you just wanted to write music, you could live in Kansas and do it.</b>
+> <p><i>Bill Conti</i></p>
 
 <br>
