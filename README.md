@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can rule ignorance you can manipulate the illiterate you can do whatever you want when a people are uneducated, so that goes in line with corrupt business and corrupt politics.</b>
-> <p><i>will.i.am</i></p>
+> <b>Moby Dick - that book is so amazing. I just realized that it starts with two characters meeting in bed that's how my book begins, too, but I hadn't noticed the parallel before, two characters forced to share a bed, reluctantly.</b>
+> <p><i>Michael Chabon</i></p>
 
 <br>
