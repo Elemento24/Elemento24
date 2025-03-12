@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best measure of a man's honesty isn't his income tax return. It's the zero adjust on his bathroom scale.</b>
-> <p><i>Arthur C. Clarke</i></p>
+> <b>A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.</b>
+> <p><i>Horace</i></p>
 
 <br>
