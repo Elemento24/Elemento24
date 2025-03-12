@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.</b>
-> <p><i>Horace</i></p>
+> <b>The scientific theory I like best is that the rings of Saturn are composed entirely of lost airline luggage.</b>
+> <p><i>Mark Russell</i></p>
 
 <br>
