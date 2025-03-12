@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the back of your mind, when you say you want to write music for the movies, you're saying that you want a big house, a big car and a boat. If you just wanted to write music, you could live in Kansas and do it.</b>
-> <p><i>Bill Conti</i></p>
+> <b>The first feminine feature that goes, with advancing age, is the neck.</b>
+> <p><i>Gloria Swanson</i></p>
 
 <br>
