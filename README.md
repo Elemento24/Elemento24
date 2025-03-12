@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cried on my 18th birthday. I thought 17 was such a nice age. You're young enough to get away with things, but you're old enough, too.</b>
-> <p><i>Liv Tyler</i></p>
+> <b>The question, I've come to think, is not what inspires one to change, but what inspires one to remain changed.</b>
+> <p><i>Jonathan Safran Foer</i></p>
 
 <br>
