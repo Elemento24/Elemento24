@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being a blockhead is sometimes the best security against being cheated by a man of wit.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>The attitude we have towards our personal pets as opposed to the animals that suffer under the factory farm is hypocritical and delusional.</b>
+> <p><i>James Cromwell</i></p>
 
 <br>
