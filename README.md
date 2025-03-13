@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lead singers not only do the majority of the work, but their personalities are singled out and taken as the general attitude of the unit.</b>
-> <p><i>Martha Reeves</i></p>
+> <b>The more horrifying this world becomes, the more art becomes abstract.</b>
+> <p><i>Ellen Key</i></p>
 
 <br>
