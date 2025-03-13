@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The more horrifying this world becomes, the more art becomes abstract.</b>
-> <p><i>Ellen Key</i></p>
+> <b>The art of using deceit and cunning grow continually weaker and less effective to the user.</b>
+> <p><i>John Tillotson</i></p>
 
 <br>
