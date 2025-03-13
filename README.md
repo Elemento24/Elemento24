@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I think I might not have written 'The Age of Miracles' if I hadn't grown up in California, if I hadn't been exposed to its very particular blend of beauty and disaster, of danger and denial.</b>
-> <p><i>Karen Thompson Walker</i></p>
+> <b>Science shows us truth and beauty and fills each day with a fresh wonder of the exquisite order which governs our world.</b>
+> <p><i>Polykarp Kusch</i></p>
 
 <br>
