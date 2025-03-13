@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wherever the art of medicine is loved, there is also a love of humanity.</b>
-> <p><i>Hippocrates</i></p>
+> <b>Lead singers not only do the majority of the work, but their personalities are singled out and taken as the general attitude of the unit.</b>
+> <p><i>Martha Reeves</i></p>
 
 <br>
