@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just think that sometimes we hang onto people or relationships long after they've ceased to be of any use to either of you. I'm always meeting new people, and my list of friends seems to change quite a bit.</b>
-> <p><i>John Cleese</i></p>
+> <b>I'm not a party animal I took my job as Miss USA very seriously... Sometimes, of course, I want to let it all go. Even though I'm a beauty queen, you're also an unofficial ambassador, and there's a lot of pressure.</b>
+> <p><i>Rima Fakih</i></p>
 
 <br>
