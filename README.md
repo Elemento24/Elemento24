@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No One Is Alone by Stephen Sondheim is all about thinking for yourself and being your own person.</b>
-> <p><i>Bernadette Peters</i></p>
+> <b>Being alone is very difficult.</b>
+> <p><i>Yoko Ono</i></p>
 
 <br>
