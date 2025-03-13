@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of using deceit and cunning grow continually weaker and less effective to the user.</b>
-> <p><i>John Tillotson</i></p>
+> <b>Many attempts have been made by writers on art and poetry to define beauty in the abstract, to express it in the most general terms, to find some universal formula for it.</b>
+> <p><i>Walter Pater</i></p>
 
 <br>
