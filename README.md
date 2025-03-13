@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Many attempts have been made by writers on art and poetry to define beauty in the abstract, to express it in the most general terms, to find some universal formula for it.</b>
-> <p><i>Walter Pater</i></p>
+> <b>You can rule ignorance you can manipulate the illiterate you can do whatever you want when a people are uneducated, so that goes in line with corrupt business and corrupt politics.</b>
+> <p><i>will.i.am</i></p>
 
 <br>
