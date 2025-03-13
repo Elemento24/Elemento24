@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who knows no hardships will know no hardihood. He who faces no calamity will need no courage. Mysterious though it is, the characteristics in human nature which we love best grow in a soil with a strong mixture of troubles.</b>
-> <p><i>Harry Emerson Fosdick</i></p>
+> <b>Interventions are really emotionally exhausting and I would never ever want to have one. In the same way, I would never want to have a surprise birthday party. That would be horrible.</b>
+> <p><i>Margaret Cho</i></p>
 
 <br>
