@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even if the chef has a good business head, his focus should be behind kitchen doors. A business partner should take care of everything in front of the kitchen doors.</b>
-> <p><i>Bobby Flay</i></p>
+> <b>Being a blockhead is sometimes the best security against being cheated by a man of wit.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
