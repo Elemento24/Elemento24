@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being a child at home alone in the summer is a high-risk occupation. If you call your mother at work thirteen times an hour, she can hurt you.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>Sometimes I think I might not have written 'The Age of Miracles' if I hadn't grown up in California, if I hadn't been exposed to its very particular blend of beauty and disaster, of danger and denial.</b>
+> <p><i>Karen Thompson Walker</i></p>
 
 <br>
