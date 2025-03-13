@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude we have towards our personal pets as opposed to the animals that suffer under the factory farm is hypocritical and delusional.</b>
-> <p><i>James Cromwell</i></p>
+> <b>He who knows no hardships will know no hardihood. He who faces no calamity will need no courage. Mysterious though it is, the characteristics in human nature which we love best grow in a soil with a strong mixture of troubles.</b>
+> <p><i>Harry Emerson Fosdick</i></p>
 
 <br>
