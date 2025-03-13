@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I truly don't know why the boys are getting all the votes - it could be because they are really amazing, and that's all there is to it. They're really, really good and every single boy deserves to be in the competition right now, and so do the two girls.</b>
-> <p><i>Pia Toscano</i></p>
+> <b>Even if the chef has a good business head, his focus should be behind kitchen doors. A business partner should take care of everything in front of the kitchen doors.</b>
+> <p><i>Bobby Flay</i></p>
 
 <br>
