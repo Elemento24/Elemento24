@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is spiritual. The music business is not.</b>
-> <p><i>Van Morrison</i></p>
+> <b>Wherever the art of medicine is loved, there is also a love of humanity.</b>
+> <p><i>Hippocrates</i></p>
 
 <br>
