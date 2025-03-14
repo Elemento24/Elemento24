@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who find beauty in all of nature will find themselves at one with the secrets of life itself.</b>
-> <p><i>L. Wolfe Gilbert</i></p>
+> <b>Getting through the nights is the toughest part. Being alone. Not having her there to talk to.</b>
+> <p><i>Stuart Appleby</i></p>
 
 <br>
