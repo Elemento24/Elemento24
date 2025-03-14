@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was one of those evenings when men feel that truth, goodness and beauty are one. In the morning, when they commit their discovery to paper, when others read it written there, it looks wholly ridiculous.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>I like to put on hardcore when I have to clean my apartment, which I hate to do, but it's motivational. I like old heavy metal when I'm outside working on my car. Music has definite functions for me.</b>
+> <p><i>Peter Steele</i></p>
 
 <br>
