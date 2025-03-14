@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dear motorist on the information superhighway. I'm sorry I do not have a car.</b>
-> <p><i>Eric San</i></p>
+> <b>If we're given a number of circumstances to deal with, the brain goes into this mode of trying to find a solution, and it's amazing how good we are at it.</b>
+> <p><i>Jon Brion</i></p>
 
 <br>
