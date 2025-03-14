@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Interventions are really emotionally exhausting and I would never ever want to have one. In the same way, I would never want to have a surprise birthday party. That would be horrible.</b>
-> <p><i>Margaret Cho</i></p>
+> <b>Design, in its broadest sense, is the enabler of the digital era - it's a process that creates order out of chaos, that renders technology usable to business. Design means being good, not just looking good.</b>
+> <p><i>Clement Mok</i></p>
 
 <br>
