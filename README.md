@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to put on hardcore when I have to clean my apartment, which I hate to do, but it's motivational. I like old heavy metal when I'm outside working on my car. Music has definite functions for me.</b>
-> <p><i>Peter Steele</i></p>
+> <b>Dear motorist on the information superhighway. I'm sorry I do not have a car.</b>
+> <p><i>Eric San</i></p>
 
 <br>
