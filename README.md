@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Design, in its broadest sense, is the enabler of the digital era - it's a process that creates order out of chaos, that renders technology usable to business. Design means being good, not just looking good.</b>
-> <p><i>Clement Mok</i></p>
+> <b>I was always such a people-watcher. I would sit on street corners alone and watch people and make up stories about them in my head. Then, all of a sudden, I was the one being watched.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
