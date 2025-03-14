@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He alone loves the Creator perfectly who manifests a pure love for his neighbor.</b>
-> <p><i>Venerable Bede</i></p>
+> <b>Anyone who's lost someone to cancer will say this, that you have to struggle to try to remember the person before the diagnosis happened, because they really do change - as anyone would change.</b>
+> <p><i>Mindy Kaling</i></p>
 
 <br>
