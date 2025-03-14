@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man has a limited biological capacity for change. When this capacity is overwhelmed, the capacity is in future shock.</b>
-> <p><i>Alvin Toffler</i></p>
+> <b>Becoming an author changes your attitude too. Once you see where books come from, and how they're made, they never seem quite as sacred again.</b>
+> <p><i>Lev Grossman</i></p>
 
 <br>
