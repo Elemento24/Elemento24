@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What saddens me is the corruption of youth and beauty, and the loss of soul, which is only replaced by money.</b>
-> <p><i>Lisa Bonet</i></p>
+> <b>He alone loves the Creator perfectly who manifests a pure love for his neighbor.</b>
+> <p><i>Venerable Bede</i></p>
 
 <br>
