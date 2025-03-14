@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always such a people-watcher. I would sit on street corners alone and watch people and make up stories about them in my head. Then, all of a sudden, I was the one being watched.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Mankind's true moral test, its fundamental test (which lies deeply buried from view), consists of its attitude towards those who are at its mercy: animals. And in this respect mankind has suffered a fundamental debacle, a debacle so fundamental that all others stem from it.</b>
+> <p><i>Milan Kundera</i></p>
 
 <br>
