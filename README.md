@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't run a business or anything else on a theory.</b>
-> <p><i>Harold S. Geneen</i></p>
+> <b>In LA, where I live, it's all about perfectionism. Beauty is now defined by your bones sticking out of your decolletage. For that to be the standard is really perilous for women.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
