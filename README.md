@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing is more generally known than our duties which belong to Christianity and yet, how amazing is it, nothing is less practiced?</b>
-> <p><i>George Whitefield</i></p>
+> <b>What saddens me is the corruption of youth and beauty, and the loss of soul, which is only replaced by money.</b>
+> <p><i>Lisa Bonet</i></p>
 
 <br>
