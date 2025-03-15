@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The whole aspect of cinema and film festivals should be a moment to come together and celebrate art and humanity. It would be a shame if there was such a divide.</b>
-> <p><i>Keanu Reeves</i></p>
+> <b>Medicine is a science of uncertainty and an art of probability.</b>
+> <p><i>William Osler</i></p>
 
 <br>
