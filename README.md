@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One night I'll be in Los Angeles and it'll be a Latin crowd, and then another night I'll go to Fresno and it'll be an all-black crowd. To me, that's the beauty of the music.</b>
-> <p><i>Pitbull</i></p>
+> <b>Without realizing it, the individual composes his life according to the laws of beauty even in times of greatest distress.</b>
+> <p><i>Milan Kundera</i></p>
 
 <br>
