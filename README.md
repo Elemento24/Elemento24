@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel sorry for people who don't drink. They wake up in the morning and that's the best they're going to feel all day.</b>
-> <p><i>Dean Martin</i></p>
+> <b>When angry count to ten before you speak. If very angry, count to one hundred.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
