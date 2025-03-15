@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was very happy sitting alone at a dining room table, writing a script.</b>
-> <p><i>Conrad Hall</i></p>
+> <b>No great movement designed to change the world can bear to be laughed at or belittled. Mockery is a rust that corrodes all it touches.</b>
+> <p><i>Milan Kundera</i></p>
 
 <br>
