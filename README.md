@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just think that people take me a little more seriously as a brunette. I don't know if that's just because of a societal preconceived notion that all blondes are stupid, but it's a different kind of attitude.</b>
-> <p><i>Kate Bosworth</i></p>
+> <b>I don't know if it has set in or not. Honestly, it's crazy. It's such an amazing honor. I remember thinking back to being in my room waiting for the call to see if I got the part. It's like winning the lottery. I'm proud to be a member of such an amazing cast - that's the best award of all.</b>
+> <p><i>Hailee Steinfeld</i></p>
 
 <br>
