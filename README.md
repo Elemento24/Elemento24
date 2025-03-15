@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The idea of avant-garde art is a very suspicious thing to me, the idea that poetry is new and it keeps being new the way Chevrolets every year are new.</b>
-> <p><i>Robert Morgan</i></p>
+> <b>I was very happy sitting alone at a dining room table, writing a script.</b>
+> <p><i>Conrad Hall</i></p>
 
 <br>
