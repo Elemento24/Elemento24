@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Medicine is a science of uncertainty and an art of probability.</b>
-> <p><i>William Osler</i></p>
+> <b>In a world that is constantly changing, there is no one subject or set of subjects that will serve you for the foreseeable future, let alone for the rest of your life. The most important skill to acquire now is learning how to learn.</b>
+> <p><i>John Naisbitt</i></p>
 
 <br>
