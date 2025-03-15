@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of us would never consider getting our car repaired without first receiving an estimate of the charges, but this is exactly what we do when we need to go to a hospital for treatment.</b>
-> <p><i>Dan Lipinski</i></p>
+> <b>By far my most perilous assignment was covering a tank car explosion.</b>
+> <p><i>Jessica Savitch</i></p>
 
 <br>
