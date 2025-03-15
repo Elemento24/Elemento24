@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body is an amazing machine... If you eat the right things your body will perform incredibly well!</b>
-> <p><i>Shawn Johnson</i></p>
+> <b>I feel sorry for people who don't drink. They wake up in the morning and that's the best they're going to feel all day.</b>
+> <p><i>Dean Martin</i></p>
 
 <br>
