@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No great movement designed to change the world can bear to be laughed at or belittled. Mockery is a rust that corrodes all it touches.</b>
-> <p><i>Milan Kundera</i></p>
+> <b>I never really studied business in school. I kind of wish I had, but how boring is that?</b>
+> <p><i>Mick Jagger</i></p>
 
 <br>
