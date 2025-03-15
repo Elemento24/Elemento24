@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By far my most perilous assignment was covering a tank car explosion.</b>
-> <p><i>Jessica Savitch</i></p>
+> <b>What we call wisdom is the result of all the wisdom of past ages. Our best institutions are like young trees growing upon the roots of the old trunks that have crumbled away.</b>
+> <p><i>Henry Ward Beecher</i></p>
 
 <br>
