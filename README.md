@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If GM had kept up with technology like the computer industry has, we would all be driving $25 cars that got 1,000 MPG.</b>
-> <p><i>Bill Gates</i></p>
+> <b>One night I'll be in Los Angeles and it'll be a Latin crowd, and then another night I'll go to Fresno and it'll be an all-black crowd. To me, that's the beauty of the music.</b>
+> <p><i>Pitbull</i></p>
 
 <br>
