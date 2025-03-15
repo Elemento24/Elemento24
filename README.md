@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without realizing it, the individual composes his life according to the laws of beauty even in times of greatest distress.</b>
-> <p><i>Milan Kundera</i></p>
+> <b>I just think that people take me a little more seriously as a brunette. I don't know if that's just because of a societal preconceived notion that all blondes are stupid, but it's a different kind of attitude.</b>
+> <p><i>Kate Bosworth</i></p>
 
 <br>
