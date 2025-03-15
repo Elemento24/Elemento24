@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never really studied business in school. I kind of wish I had, but how boring is that?</b>
-> <p><i>Mick Jagger</i></p>
+> <b>The architect should strive continually to simplify the ensemble of the rooms should then be carefully considered that comfort and utility may go hand in hand with beauty.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
