@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The architect should strive continually to simplify the ensemble of the rooms should then be carefully considered that comfort and utility may go hand in hand with beauty.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>The whole aspect of cinema and film festivals should be a moment to come together and celebrate art and humanity. It would be a shame if there was such a divide.</b>
+> <p><i>Keanu Reeves</i></p>
 
 <br>
