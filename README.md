@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very manipulative towards directors. My theory is that everyone on the set is directing the film, we're all receiving art messages from the universe on how we should do the film.</b>
-> <p><i>Jeff Bridges</i></p>
+> <b>Most of us would never consider getting our car repaired without first receiving an estimate of the charges, but this is exactly what we do when we need to go to a hospital for treatment.</b>
+> <p><i>Dan Lipinski</i></p>
 
 <br>
