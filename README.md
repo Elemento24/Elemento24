@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On the dance floor, as much as you say, 'Ladies, you are the car. He is the driver. You can only go where he takes you,' they still try to be in control.</b>
-> <p><i>Len Goodman</i></p>
+> <b>After hurting myself like that, I could not go back immediately to racing. I was in no condition, mentally or physically. That helped me to strengthen myself to go through the hard times that were ahead with my business, and to be successful.</b>
+> <p><i>Nelson Piquet</i></p>
 
 <br>
