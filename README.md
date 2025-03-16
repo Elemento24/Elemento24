@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The more specific idea of Evolution now reached is - a change from an indefinite, incoherent homogeneity to a definite, coherent heterogeneity, accompanying the dissipation of motion and integration of matter.</b>
-> <p><i>Herbert Spencer</i></p>
+> <b>I looked on child rearing not only as a work of love and duty but as a profession that was fully as interesting and challenging as any honorable profession in the world and one that demanded the best that I could bring to it.</b>
+> <p><i>Rose Kennedy</i></p>
 
 <br>
