@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whatever my individual desires were to be free, I was not alone. There were many others who felt the same way.</b>
-> <p><i>Rosa Parks</i></p>
+> <b>I am very puzzled by the fact that young people are getting infected again. They don't take precautions despite an enormous amount of information. It's like riding a race car at 200 kilometers an hour. Some people like the risk.</b>
+> <p><i>Luc Montagnier</i></p>
 
 <br>
