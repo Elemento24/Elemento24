@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems to me I spent my life in car pools, but you know, that's how I kept track of what was going on.</b>
-> <p><i>Barbara Bush</i></p>
+> <b>I'd like to do a lot of things - whether in design or architecture or business.</b>
+> <p><i>Caroline Wozniacki</i></p>
 
 <br>
