@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only thing better than singing is more singing.</b>
-> <p><i>Ella Fitzgerald</i></p>
+> <b>We need comprehensive reform that will make America the best place in the world to invest and do business.</b>
+> <p><i>Jim DeMint</i></p>
 
 <br>
