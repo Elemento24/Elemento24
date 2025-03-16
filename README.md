@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We need comprehensive reform that will make America the best place in the world to invest and do business.</b>
-> <p><i>Jim DeMint</i></p>
+> <b>History has remembered the kings and warriors, because they destroyed art has remembered the people, because they created.</b>
+> <p><i>William Morris</i></p>
 
 <br>
