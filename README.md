@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People feel that the EU is a one-way process, a great machine that sucks up decision-making from national parliaments to the European level until everything is decided by the EU. That needs to change.</b>
-> <p><i>William Hague</i></p>
+> <b>No one is in control of your happiness but you therefore, you have the power to change anything about yourself or your life that you want to change.</b>
+> <p><i>Barbara de Angelis</i></p>
 
 <br>
