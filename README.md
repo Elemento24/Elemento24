@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>History has remembered the kings and warriors, because they destroyed art has remembered the people, because they created.</b>
-> <p><i>William Morris</i></p>
+> <b>Whatever my individual desires were to be free, I was not alone. There were many others who felt the same way.</b>
+> <p><i>Rosa Parks</i></p>
 
 <br>
