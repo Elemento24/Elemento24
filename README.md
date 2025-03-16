@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am very puzzled by the fact that young people are getting infected again. They don't take precautions despite an enormous amount of information. It's like riding a race car at 200 kilometers an hour. Some people like the risk.</b>
-> <p><i>Luc Montagnier</i></p>
+> <b>The more specific idea of Evolution now reached is - a change from an indefinite, incoherent homogeneity to a definite, coherent heterogeneity, accompanying the dissipation of motion and integration of matter.</b>
+> <p><i>Herbert Spencer</i></p>
 
 <br>
