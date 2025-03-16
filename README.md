@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never called my work an 'art'. It's part of show business, the business of building entertainment.</b>
-> <p><i>Walt Disney</i></p>
+> <b>The most seductive thing about art is the personality of the artist himself.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
