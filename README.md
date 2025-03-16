@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When angry count to ten before you speak. If very angry, count to one hundred.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>The age of a woman doesn't mean a thing. The best tunes are played on the oldest fiddles.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
