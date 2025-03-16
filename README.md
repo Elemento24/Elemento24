@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I looked on child rearing not only as a work of love and duty but as a profession that was fully as interesting and challenging as any honorable profession in the world and one that demanded the best that I could bring to it.</b>
-> <p><i>Rose Kennedy</i></p>
+> <b>I have so many different personalities in me and I still feel lonely.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
