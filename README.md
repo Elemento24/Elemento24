@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have so many different personalities in me and I still feel lonely.</b>
-> <p><i>Tori Amos</i></p>
+> <b>It seems to me I spent my life in car pools, but you know, that's how I kept track of what was going on.</b>
+> <p><i>Barbara Bush</i></p>
 
 <br>
