@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is no great art to say something briefly when, like Tacitus, one has something to say when one has nothing to say, however, and none the less writes a whole book and makes truth into a liar - that I call an achievement.</b>
-> <p><i>Horace</i></p>
+> <b>Definition of Statistics: The science of producing unreliable facts from reliable figures.</b>
+> <p><i>Evan Esar</i></p>
 
 <br>
