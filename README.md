@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Though nature be ever so generous, yet can she not make a hero alone. Fortune must contribute her part too and till both concur, the work cannot be perfected.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>Even when I'm playing someone named Fat Amy, I'm all about confidence and attitude.</b>
+> <p><i>Rebel Wilson</i></p>
 
 <br>
