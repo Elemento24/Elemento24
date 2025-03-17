@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All we need, really, is a change from a near frigid to a tropical attitude of mind.</b>
-> <p><i>Marjory Stoneman Douglas</i></p>
+> <b>I think that Indy is special to me. The greater the distance between the last time I drove an Indy car and the next time, I wouldn't like that to be too big.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
