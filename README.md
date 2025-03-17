@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A picture is a poem without words.</b>
-> <p><i>Horace</i></p>
+> <b>I like change. There's something Buddhist about it - continuous change is wonderful.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
