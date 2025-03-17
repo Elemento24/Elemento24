@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The advice of the elders to young men is very apt to be as unreal as a list of the hundred best books.</b>
-> <p><i>Oliver Wendell Holmes</i></p>
+> <b>It is no great art to say something briefly when, like Tacitus, one has something to say when one has nothing to say, however, and none the less writes a whole book and makes truth into a liar - that I call an achievement.</b>
+> <p><i>Horace</i></p>
 
 <br>
