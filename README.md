@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Internet creates as well as destroys. Social networks, search advertising, and cloud computing are multibillion dollar industries that didn't exist 10 years ago. They are products of the same force that has rendered the Postal Service's core business obsolete.</b>
-> <p><i>John Sununu</i></p>
+> <b>We want to reinvent the phone. What's the killer app? The killer app is making calls! It's amazing how hard it is to make calls on most phones. We want to let you use contacts like never before - sync your iPhone with your PC or mac.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
