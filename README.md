@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You change with the guys you date.</b>
-> <p><i>Jessica Simpson</i></p>
+> <b>The difference between a movie star and a movie actor is this - a movie star will say, 'How can I change the script to suit me?' and a movie actor will say. 'How can I change me to suit the script?'</b>
+> <p><i>Michael Caine</i></p>
 
 <br>
