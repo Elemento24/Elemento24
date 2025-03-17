@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once I planned to write a book of poems entirely about the things in my pocket. But I found it would be too long and the age of the great epics is past.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>People discuss my art and pretend to understand as if it were necessary to understand, when it's simply necessary to love.</b>
+> <p><i>Claude Monet</i></p>
 
 <br>
