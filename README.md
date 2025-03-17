@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get a lot of return business. I think it's all those years I put in traveling around the country people saw me before and had a good time so they want to see me again.</b>
-> <p><i>Rita Rudner</i></p>
+> <b>Age gives you a great sense of proportion. You can be very hard on yourself when you're younger but now I just think 'well everybody's absolutely mad and I'm doing quite well'.</b>
+> <p><i>Steven Morrissey</i></p>
 
 <br>
