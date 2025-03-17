@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Watching Bernadette Peters perform is like an acting class. She's amazing.</b>
-> <p><i>Jenna Ushkowitz</i></p>
+> <b>In passing, we should note this curious mark of our own age: the only absolute allowed is the absolute insistence that there is no absolute.</b>
+> <p><i>Francis Schaeffer</i></p>
 
 <br>
