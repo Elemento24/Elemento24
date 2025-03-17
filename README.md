@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age gives you a great sense of proportion. You can be very hard on yourself when you're younger but now I just think 'well everybody's absolutely mad and I'm doing quite well'.</b>
-> <p><i>Steven Morrissey</i></p>
+> <b>You change with the guys you date.</b>
+> <p><i>Jessica Simpson</i></p>
 
 <br>
