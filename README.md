@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We want to reinvent the phone. What's the killer app? The killer app is making calls! It's amazing how hard it is to make calls on most phones. We want to let you use contacts like never before - sync your iPhone with your PC or mac.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>Watching Bernadette Peters perform is like an acting class. She's amazing.</b>
+> <p><i>Jenna Ushkowitz</i></p>
 
 <br>
