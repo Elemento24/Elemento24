@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I could never drive in a great big car people like me because I'm a man of the people, a hustler.</b>
-> <p><i>Terry McAuliffe</i></p>
+> <b>Beauty and the Beast became the first animated feature ever nominated for best picture.</b>
+> <p><i>Leonard Maltin</i></p>
 
 <br>
