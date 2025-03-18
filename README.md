@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Loving a child doesn't mean giving in to all his whims to love him is to bring out the best in him, to teach him to love what is difficult.</b>
-> <p><i>Nadia Boulanger</i></p>
+> <b>You don't take a photograph, you make it.</b>
+> <p><i>Ansel Adams</i></p>
 
 <br>
