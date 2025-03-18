@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Trophies and medals have never meant much to me. I've had amazing experiences, which let you feel like you've accomplished something.</b>
-> <p><i>John Krasinski</i></p>
+> <b>I love to watch times change!</b>
+> <p><i>Karl Lagerfeld</i></p>
 
 <br>
