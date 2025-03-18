@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is so impermanent that it's not about somebody else or things around me, it's about knowing you are completely alone in this world and being content inside.</b>
-> <p><i>K. D. Lang</i></p>
+> <b>We have a powerful potential in out youth, and we must have the courage to change old ideas and practices so that we may direct their power toward good ends.</b>
+> <p><i>Mary McLeod Bethune</i></p>
 
 <br>
