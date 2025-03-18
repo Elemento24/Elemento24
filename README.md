@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tried acupuncture, the patch, and hypnosis, but found that I needed to do it alone - when the time was right for me.</b>
-> <p><i>Christy Turlington</i></p>
+> <b>'The Dance Scene' is basically the most amazing dance show in the world, and it follows me as a creative director. You see how I maintain that creativity.</b>
+> <p><i>Laurieann Gibson</i></p>
 
 <br>
