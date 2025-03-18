@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have a powerful potential in out youth, and we must have the courage to change old ideas and practices so that we may direct their power toward good ends.</b>
-> <p><i>Mary McLeod Bethune</i></p>
+> <b>I know, to banish anger altogether from one's breast is a difficult task. It cannot be achieved through pure personal effort. It can be done only by God's grace.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
