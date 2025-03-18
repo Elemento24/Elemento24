@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'The Dance Scene' is basically the most amazing dance show in the world, and it follows me as a creative director. You see how I maintain that creativity.</b>
-> <p><i>Laurieann Gibson</i></p>
+> <b>Life is so impermanent that it's not about somebody else or things around me, it's about knowing you are completely alone in this world and being content inside.</b>
+> <p><i>K. D. Lang</i></p>
 
 <br>
