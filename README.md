@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know, to banish anger altogether from one's breast is a difficult task. It cannot be achieved through pure personal effort. It can be done only by God's grace.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>The architecture of our future is not only unfinished the scaffolding has hardly gone up.</b>
+> <p><i>George Lamming</i></p>
 
 <br>
