@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always feel like the art's there and I just see it, so it's not really a lot of work.</b>
-> <p><i>Damien Hirst</i></p>
+> <b>Whether it's the best of times or the worst of times, it's the only time we've got.</b>
+> <p><i>Art Buchwald</i></p>
 
 <br>
