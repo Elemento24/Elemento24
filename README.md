@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yeah, I left Idaho at 17. You know, I graduated high school a year early and just, you know, the typical story, packed up my car and moved out.</b>
-> <p><i>Aaron Paul</i></p>
+> <b>When you have that window of opportunity called a crisis, move as quickly as you can, get as much done as you can. There's a momentum for change that's very compelling.</b>
+> <p><i>Anne M. Mulcahy</i></p>
 
 <br>
