@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and the Beast became the first animated feature ever nominated for best picture.</b>
-> <p><i>Leonard Maltin</i></p>
+> <b>The spirit of democracy is not a mechanical thing to be adjusted by abolition of forms. It requires change of heart.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
