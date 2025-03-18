@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The architecture of our future is not only unfinished the scaffolding has hardly gone up.</b>
-> <p><i>George Lamming</i></p>
+> <b>I could never drive in a great big car people like me because I'm a man of the people, a hustler.</b>
+> <p><i>Terry McAuliffe</i></p>
 
 <br>
