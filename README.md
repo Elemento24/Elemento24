@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now, I'm not saying I'm fashionable, but there are sociological interests that matter to me, things that are theoretical, political, intellectual and also concerned with vanity and beauty that we all think about but that I try to mix up and translate into fashion.</b>
-> <p><i>Miuccia Prada</i></p>
+> <b>Loving a child doesn't mean giving in to all his whims to love him is to bring out the best in him, to teach him to love what is difficult.</b>
+> <p><i>Nadia Boulanger</i></p>
 
 <br>
