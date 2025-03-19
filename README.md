@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Paul Farmer has helped to build amazing health care system in one of the poorest areas of Haiti. He founded Partners in Health, which serves the destitute and the sick in many parts of the world from Haiti to Boston and from Russia to Peru.</b>
-> <p><i>Tracy Kidder</i></p>
+> <b>Pay attention to the beauty surrounding you.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
