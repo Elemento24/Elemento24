@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember that all of a sudden, the car felt like I couldn't control it. It was absolutely the most horrifying experience. We rolled over, off the freeway. I think there was something wrong with the car.</b>
-> <p><i>Tracey Gold</i></p>
+> <b>The most terrifying thing I can think of is being alone - and I mean utterly alone, like no one else in the world alone - at night. That's the nucleus of the first story in my collection and it's also where the title came from for the book.</b>
+> <p><i>Paul Kane</i></p>
 
 <br>
