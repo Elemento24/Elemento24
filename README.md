@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rare is the union of beauty and purity.</b>
-> <p><i>Juvenal</i></p>
+> <b>In matters of conscience, first thoughts are best. In matters of prudence, last thoughts are best.</b>
+> <p><i>Robert Hall</i></p>
 
 <br>
