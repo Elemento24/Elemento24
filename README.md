@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me the Anita series is built like a mystery series, which means that as much as possible each book stands alone, so you have a mystery to solve from the beginning to the end of the book.</b>
-> <p><i>Laurell K. Hamilton</i></p>
+> <b>If you want to be certain, you should never get married. You should never change jobs. In fact, you might as well just stay home. Because I don't know anybody who is certain. That need to be certain is just procrastination.</b>
+> <p><i>Mark Burnett</i></p>
 
 <br>
