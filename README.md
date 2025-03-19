@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religion is the masterpiece of the art of animal training, for it trains people as to how they shall think.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>I felt I had to share Idaho with my friend from New York because he'd shared New York with me, so I was going to share the beauty of nature with a man who went to museums and clubs late at night. But there was nothing to do where I lived at night.</b>
+> <p><i>Mariel Hemingway</i></p>
 
 <br>
