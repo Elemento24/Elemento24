@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the desire of a man to express himself, to record the reactions of his personality to the world he lives in.</b>
-> <p><i>Amy Lowell</i></p>
+> <b>The greatest pleasure when I started making money was not buying cars or yachts but finding myself able to have as many freshly typed drafts as possible.</b>
+> <p><i>Gore Vidal</i></p>
 
 <br>
