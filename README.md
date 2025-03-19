@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A private railroad car is not an acquired taste. One takes to it immediately.</b>
-> <p><i>Eleanor Robson Belmont</i></p>
+> <b>Have you ever noticed how nice people are at the car wash?! Maybe it's just me, but it makes me happy. Weird, I know!</b>
+> <p><i>Brittany Snow</i></p>
 
 <br>
