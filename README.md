@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't take a photograph, you make it.</b>
-> <p><i>Ansel Adams</i></p>
+> <b>I have no fear of making changes, destroying the image, etc., because the painting has a life of its own.</b>
+> <p><i>Jackson Pollock</i></p>
 
 <br>
