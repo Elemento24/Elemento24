@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, I think that there's a very thin dividing line between success and failure. And I think if you start a business without financial backing, you're likely to go the wrong side of that dividing line.</b>
-> <p><i>Richard Branson</i></p>
+> <b>Rare is the union of beauty and purity.</b>
+> <p><i>Juvenal</i></p>
 
 <br>
