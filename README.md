@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The United Nations four or five years ago put out a study that said the meat industry, meat-eating, growing meat for food is the No. 1 killer of our planet - not No. 2 or No. 3: No 1. You know what's No. 2? Transportation. Everyone thinks that No. 1 is transportation, and goes out and buys a hybrid car. Screw the hybrid cars. Don't eat hamburgers.</b>
-> <p><i>Maggie Q</i></p>
+> <b>Paul Farmer has helped to build amazing health care system in one of the poorest areas of Haiti. He founded Partners in Health, which serves the destitute and the sick in many parts of the world from Haiti to Boston and from Russia to Peru.</b>
+> <p><i>Tracy Kidder</i></p>
 
 <br>
