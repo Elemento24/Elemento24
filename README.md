@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest pleasure when I started making money was not buying cars or yachts but finding myself able to have as many freshly typed drafts as possible.</b>
-> <p><i>Gore Vidal</i></p>
+> <b>I remember that all of a sudden, the car felt like I couldn't control it. It was absolutely the most horrifying experience. We rolled over, off the freeway. I think there was something wrong with the car.</b>
+> <p><i>Tracey Gold</i></p>
 
 <br>
