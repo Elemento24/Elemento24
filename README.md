@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In matters of conscience, first thoughts are best. In matters of prudence, last thoughts are best.</b>
-> <p><i>Robert Hall</i></p>
+> <b>Religion is the masterpiece of the art of animal training, for it trains people as to how they shall think.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
