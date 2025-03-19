@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To catch a husband is an art to hold him is a job.</b>
-> <p><i>Simone de Beauvoir</i></p>
+> <b>Well, I think that there's a very thin dividing line between success and failure. And I think if you start a business without financial backing, you're likely to go the wrong side of that dividing line.</b>
+> <p><i>Richard Branson</i></p>
 
 <br>
