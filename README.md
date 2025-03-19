@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Somehow, the greater the public opposition to the health care bill, the more determined they seem to force it on us anyway. Their attitude shows Washington at its very worst - the presumption that they know best, and they're going to get their way whether the American people like it or not.</b>
-> <p><i>Scott Brown</i></p>
+> <b>We succeed in enterprises which demand the positive qualities we possess, but we excel in those which can also make use of our defects.</b>
+> <p><i>Alexis de Tocqueville</i></p>
 
 <br>
