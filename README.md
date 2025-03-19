@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With a great poet the sense of Beauty overcomes every other consideration, or rather obliterates all consideration.</b>
-> <p><i>John Keats</i></p>
+> <b>To catch a husband is an art to hold him is a job.</b>
+> <p><i>Simone de Beauvoir</i></p>
 
 <br>
