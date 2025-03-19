@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Have you ever noticed how nice people are at the car wash?! Maybe it's just me, but it makes me happy. Weird, I know!</b>
-> <p><i>Brittany Snow</i></p>
+> <b>With a great poet the sense of Beauty overcomes every other consideration, or rather obliterates all consideration.</b>
+> <p><i>John Keats</i></p>
 
 <br>
