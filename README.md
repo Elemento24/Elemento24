@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have no fear of making changes, destroying the image, etc., because the painting has a life of its own.</b>
-> <p><i>Jackson Pollock</i></p>
+> <b>For me the Anita series is built like a mystery series, which means that as much as possible each book stands alone, so you have a mystery to solve from the beginning to the end of the book.</b>
+> <p><i>Laurell K. Hamilton</i></p>
 
 <br>
