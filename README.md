@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to be certain, you should never get married. You should never change jobs. In fact, you might as well just stay home. Because I don't know anybody who is certain. That need to be certain is just procrastination.</b>
-> <p><i>Mark Burnett</i></p>
+> <b>Art is the desire of a man to express himself, to record the reactions of his personality to the world he lives in.</b>
+> <p><i>Amy Lowell</i></p>
 
 <br>
