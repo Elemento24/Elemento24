@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest remedy for anger is delay.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>Beauty is as relative as light and dark. Thus, there exists no beautiful woman, none at all, because you are never certain that a still far more beautiful woman will not appear and completely shame the supposed beauty of the first.</b>
+> <p><i>Paul Klee</i></p>
 
 <br>
