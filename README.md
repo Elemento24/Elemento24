@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who relishes art should love the extraordinary diversity and psychic magic of our art galleries. There's likely more combined square footage for the showing of art on one New York block - West 24th Street between Tenth and Eleventh Avenues - than in all of Amsterdam's or Hamburg's galleries.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>We're a nation of laws, but the good thing about America, is that laws reside in the people and people can change the laws.</b>
+> <p><i>Rick Warren</i></p>
 
 <br>
