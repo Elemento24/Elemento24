@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, there is amazing amount of oil and gas and other resources out beneath the sea. It's staggering.</b>
-> <p><i>Robert Ballard</i></p>
+> <b>I don't even know what words to use to talk about the music industry anymore. But the business has changed a lot - the methods of releasing music.</b>
+> <p><i>Anthony Kiedis</i></p>
 
 <br>
