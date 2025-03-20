@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Advertising is fundamentally persuasion and persuasion happens to be not a science, but an art.</b>
-> <p><i>William Bernbach</i></p>
+> <b>I tried for a while to be an agricultural worker and was hopelessly bored. To me it was meaningless. I would stand around in heaps of manure and sings about the beauty of the work I wasn't doing.</b>
+> <p><i>Theodore Bikel</i></p>
 
 <br>
