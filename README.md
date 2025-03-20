@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Especially in the car ride to and from gym. I find myself spacing out a lot, just visualizing what the Olympics would be like and just having such great role models.</b>
-> <p><i>Aly Raisman</i></p>
+> <b>Friends are very important to me, and I have always had many of them. There are probably many reasons why this is so, but two seem to me more valid than any of the others I am a naturally friendly person, and I hate to be alone.</b>
+> <p><i>Georg Solti</i></p>
 
 <br>
