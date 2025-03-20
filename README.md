@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents have a strong work ethic, but their attitude to life, their philosophy, is: 'whatever makes you happy.'</b>
-> <p><i>Sally Hawkins</i></p>
+> <b>Advertising is fundamentally persuasion and persuasion happens to be not a science, but an art.</b>
+> <p><i>William Bernbach</i></p>
 
 <br>
