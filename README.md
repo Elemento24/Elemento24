@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In mathematics the art of proposing a question must be held of higher value than solving it.</b>
-> <p><i>Georg Cantor</i></p>
+> <b>Both my brothers became physicians and I, of course, wandered into a business where the undisciplined are welcome.</b>
+> <p><i>Carroll O'Connor</i></p>
 
 <br>
