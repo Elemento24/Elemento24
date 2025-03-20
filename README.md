@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tried for a while to be an agricultural worker and was hopelessly bored. To me it was meaningless. I would stand around in heaps of manure and sings about the beauty of the work I wasn't doing.</b>
-> <p><i>Theodore Bikel</i></p>
+> <b>Especially in the car ride to and from gym. I find myself spacing out a lot, just visualizing what the Olympics would be like and just having such great role models.</b>
+> <p><i>Aly Raisman</i></p>
 
 <br>
