@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh, I don't think Tom Sowell would tell anybody to join the administration. That's not his style. But I think his attitude has always been if it had to be done he'd prefer me to do it than somebody else.</b>
-> <p><i>Clarence Thomas</i></p>
+> <b>I cried on my 18th birthday. I thought 17 was such a nice age. You're young enough to get away with things, but you're old enough, too.</b>
+> <p><i>Liv Tyler</i></p>
 
 <br>
