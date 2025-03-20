@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the unceasing effort to compete with the beauty of flowers - and never succeeding.</b>
-> <p><i>Gian Carlo Menotti</i></p>
+> <b>It's amazing. I can't believe how brilliant the whole thing is - my daughter, Georgia, is just wonderful.</b>
+> <p><i>Edward Hall</i></p>
 
 <br>
