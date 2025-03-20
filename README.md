@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pay attention to the beauty surrounding you.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>The wisdom of age: don't stop walking.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
