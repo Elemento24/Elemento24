@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>My parents have a strong work ethic, but their attitude to life, their philosophy, is: 'whatever makes you happy.'</b>
+> <p><i>Sally Hawkins</i></p>
 
 <br>
