@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't even know what words to use to talk about the music industry anymore. But the business has changed a lot - the methods of releasing music.</b>
-> <p><i>Anthony Kiedis</i></p>
+> <b>In mathematics the art of proposing a question must be held of higher value than solving it.</b>
+> <p><i>Georg Cantor</i></p>
 
 <br>
