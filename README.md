@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dream career would be to be in things that have real heart and are telling real stories but while doing that, you're getting really big laughs. I don't necessarily love the straight crazy comedies. 'Caddyshack' is amazing, but there's not a lot of new 'Caddyshack's.</b>
-> <p><i>Jake Johnson</i></p>
+> <b>Anyone who relishes art should love the extraordinary diversity and psychic magic of our art galleries. There's likely more combined square footage for the showing of art on one New York block - West 24th Street between Tenth and Eleventh Avenues - than in all of Amsterdam's or Hamburg's galleries.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
