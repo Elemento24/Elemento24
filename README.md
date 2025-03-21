@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is how we determine how valuable you are.</b>
-> <p><i>Jane Elliot</i></p>
+> <b>God grant me the serenity to accept the things I cannot change, the courage to change the things I can, and the wisdom to know the difference.</b>
+> <p><i>Reinhold Niebuhr</i></p>
 
 <br>
