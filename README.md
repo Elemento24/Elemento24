@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Doors open because you're beautiful, but I wouldn't cultivate beauty to the exclusion of brains.</b>
-> <p><i>Tia Carrere</i></p>
+> <b>Instead of giving a politician the keys to the city, it might be better to change the locks.</b>
+> <p><i>Doug Larson</i></p>
 
 <br>
