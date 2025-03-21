@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just always expect the best because I'm a competitor and if I'm competing, then obviously I'm trying to be better in everything.</b>
-> <p><i>Lil Wayne</i></p>
+> <b>You will never cease to be the most amazed person on earth at what God has done for you on the inside.</b>
+> <p><i>Oswald Chambers</i></p>
 
 <br>
