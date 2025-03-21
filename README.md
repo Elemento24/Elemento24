@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reading is not a duty, and has consequently no business to be made disagreeable.</b>
-> <p><i>Aneurin Bevan</i></p>
+> <b>Knowing that we can be loved exactly as we are gives us all the best opportunity for growing into the healthiest of people.</b>
+> <p><i>Fred Rogers</i></p>
 
 <br>
