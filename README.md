@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the artist, then, life's hungry man, the glutton of eternity, beauty's miser, glory's slave.</b>
-> <p><i>Tom Wolfe</i></p>
+> <b>Old age is ready to undertake tasks that youth shirked because they would take too long.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
