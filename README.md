@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Five enemies of peace inhabit with us - avarice, ambition, envy, anger, and pride if these were to be banished, we should infallibly enjoy perpetual peace.</b>
-> <p><i>Petrarch</i></p>
+> <b>I'm on an Isabel Marant kick. She does an amazing job of making things that are everyday-wearable but also special and a little bit different. I definitely like that she has a '70s western vibe. There's something that's very fun and vintage in what she's doing.</b>
+> <p><i>Jennifer Morrison</i></p>
 
 <br>
