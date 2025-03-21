@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wherever the art of medicine is loved, there is also a love of humanity.</b>
-> <p><i>Hippocrates</i></p>
+> <b>Doors open because you're beautiful, but I wouldn't cultivate beauty to the exclusion of brains.</b>
+> <p><i>Tia Carrere</i></p>
 
 <br>
