@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Instead of giving a politician the keys to the city, it might be better to change the locks.</b>
-> <p><i>Doug Larson</i></p>
+> <b>Man should forget his anger before he lies down to sleep.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
