@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You will never cease to be the most amazed person on earth at what God has done for you on the inside.</b>
-> <p><i>Oswald Chambers</i></p>
+> <b>I mean, there are some amazing storytelling being done on the small screen right now. That's what so cool about being in television right now. Studios, networks are starting to throw more resources, better writers, more production values... and to be part of that is awesome.</b>
+> <p><i>Ian Somerhalder</i></p>
 
 <br>
