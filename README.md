@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is ready to undertake tasks that youth shirked because they would take too long.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>Age is how we determine how valuable you are.</b>
+> <p><i>Jane Elliot</i></p>
 
 <br>
