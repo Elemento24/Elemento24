@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's also some element of coming of age during the Reagan administration, which everybody has painted as some glorious time in America, but I remember as being a very, very dark time. There was apocalypse in the air the punk rock movement made sense.</b>
-> <p><i>John Cusack</i></p>
+> <b>Architecture can't fully represent the chaos and turmoil that are part of the human personality, but you need to put some of that turmoil into the architecture, or it isn't real.</b>
+> <p><i>Frank Stella</i></p>
 
 <br>
