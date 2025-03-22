@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The man of genius is he and he alone who finds such joy in his art that he will work at it come hell or high water.</b>
-> <p><i>Stendhal</i></p>
+> <b>Fashion is always of the time in which you live. It is not something standing alone. But the grand problem, the most important problem, is to rejeuvenate women. To make women look young. Then their outlook changes. They feel more joyous.</b>
+> <p><i>Coco Chanel</i></p>
 
 <br>
