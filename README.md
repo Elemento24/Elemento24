@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Younger women have no problem in reconciling beauty with ambitions as a professional woman.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>I believe that the fight against crime starts in the home. Parents must take responsibility for their children and show them love and guidance from an early age so they learn to respect the rights of others.</b>
+> <p><i>Blanche Lincoln</i></p>
 
 <br>
