@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not the normal way to look at things but I experienced death at a really young age and because of that it's been part of my mental landscape that death is really very possible.</b>
-> <p><i>Cate Blanchett</i></p>
+> <b>The dialogue of architecture has been centered too long around the idea of truth.</b>
+> <p><i>Michael Graves</i></p>
 
 <br>
