@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would like to see more airplay for all artists, no matter what age. I think there's a lot of money being spent toward the young guys, but a lot of the older guys are the ones who blazed the trail for those young guys.</b>
-> <p><i>Willie Nelson</i></p>
+> <b>Younger women have no problem in reconciling beauty with ambitions as a professional woman.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
