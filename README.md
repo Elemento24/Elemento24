@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Solitude is strength to depend on the presence of the crowd is weakness. The man who needs a mob to nerve him is much more alone than he imagines.</b>
-> <p><i>Paul Brunton</i></p>
+> <b>You want to try and bring a character to life in an honest a way as you possibly can. It doesn't matter whether he's a doctor, an actor, a car salesman or a captain of a starship. If you can bring truth and honesty to that character, then your audience will believe you.</b>
+> <p><i>Scott Bakula</i></p>
 
 <br>
