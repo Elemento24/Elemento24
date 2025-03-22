@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd like to share my experiences and the lessons I've learned and hopefully create some amazing, fun courses.</b>
-> <p><i>Tiger Woods</i></p>
+> <b>Your body actually reminds you about your age and your injuries - the body has a stronger memory than your mind.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
