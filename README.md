@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture can't fully represent the chaos and turmoil that are part of the human personality, but you need to put some of that turmoil into the architecture, or it isn't real.</b>
-> <p><i>Frank Stella</i></p>
+> <b>I'd like to share my experiences and the lessons I've learned and hopefully create some amazing, fun courses.</b>
+> <p><i>Tiger Woods</i></p>
 
 <br>
