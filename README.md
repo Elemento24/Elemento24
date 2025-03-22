@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that the fight against crime starts in the home. Parents must take responsibility for their children and show them love and guidance from an early age so they learn to respect the rights of others.</b>
-> <p><i>Blanche Lincoln</i></p>
+> <b>In Turkey, you're not allowed to be left alone in the hospital. The nurse teaches the family how to do things, and somebody is always there with the patient.</b>
+> <p><i>Mehmet Oz</i></p>
 
 <br>
