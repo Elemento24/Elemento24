@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The dialogue of architecture has been centered too long around the idea of truth.</b>
-> <p><i>Michael Graves</i></p>
+> <b>My unusual beauty tip is that I often use Vaseline to take my make up off. It works great and is good for sensitive skin.</b>
+> <p><i>Rachel Bilson</i></p>
 
 <br>
