@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After World War II great strides were made in modern Japanese architecture, not only in advanced technology, allowing earthquake resistant tall buildings, but expressing and infusing characteristics of traditional Japanese architecture in modern buildings.</b>
-> <p><i>Harry Seidler</i></p>
+> <b>There's also some element of coming of age during the Reagan administration, which everybody has painted as some glorious time in America, but I remember as being a very, very dark time. There was apocalypse in the air the punk rock movement made sense.</b>
+> <p><i>John Cusack</i></p>
 
 <br>
