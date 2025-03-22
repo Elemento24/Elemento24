@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fashion is always of the time in which you live. It is not something standing alone. But the grand problem, the most important problem, is to rejeuvenate women. To make women look young. Then their outlook changes. They feel more joyous.</b>
-> <p><i>Coco Chanel</i></p>
+> <b>After World War II great strides were made in modern Japanese architecture, not only in advanced technology, allowing earthquake resistant tall buildings, but expressing and infusing characteristics of traditional Japanese architecture in modern buildings.</b>
+> <p><i>Harry Seidler</i></p>
 
 <br>
