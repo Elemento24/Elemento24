@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Starting a new retirement plan for those below a certain age is something tens of millions of Americans have already been through at work.</b>
-> <p><i>Mitch Daniels</i></p>
+> <b>The best time to make friends is before you need them.</b>
+> <p><i>Ethel Barrymore</i></p>
 
 <br>
