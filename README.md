@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want a flashy car, just something that would allow me to stop using the Tube. And it would be good not to have to rely on my mum all the time, particularly when I have to listen to her singing in her car.</b>
-> <p><i>Andy Murray</i></p>
+> <b>It is not fit the public trusts should be lodged in the hands of any, till they are first proved and found fit for the business they are to be entrusted with.</b>
+> <p><i>Matthew Henry</i></p>
 
 <br>
