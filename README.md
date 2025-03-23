@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be open to the amazing changes which are occurring in the field that interest you.</b>
-> <p><i>Leigh Steinberg</i></p>
+> <b>Change, like sunshine, can be a friend or a foe, a blessing or a curse, a dawn or a dusk.</b>
+> <p><i>William Arthur Ward</i></p>
 
 <br>
