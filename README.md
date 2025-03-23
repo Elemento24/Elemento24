@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be sure what you want and be sure about yourself. Fashion is not just beauty, it's about good attitude. You have to believe in yourself and be strong.</b>
-> <p><i>Adriana Lima</i></p>
+> <b>Be open to the amazing changes which are occurring in the field that interest you.</b>
+> <p><i>Leigh Steinberg</i></p>
 
 <br>
