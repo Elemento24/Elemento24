@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not fit the public trusts should be lodged in the hands of any, till they are first proved and found fit for the business they are to be entrusted with.</b>
-> <p><i>Matthew Henry</i></p>
+> <b>It's amazing what some people read into songs.</b>
+> <p><i>Richard Thompson</i></p>
 
 <br>
