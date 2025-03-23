@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The question remains: which brands will commit to creating a private sector pillar of social change, and which will become casualties of their own outdated thinking?</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>One's mind has a way of making itself up in the background, and it suddenly becomes clear what one means to do.</b>
+> <p><i>A. C. Benson</i></p>
 
 <br>
