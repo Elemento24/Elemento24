@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are amazingly wonderful people in all walks of life some familiar to us and others not. Stretch yourself and really get to know people. People are in many ways one of our greatest treasures.</b>
-> <p><i>Bryant H. McGill</i></p>
+> <b>People like Frank Zappa were amazing for us Brits.</b>
+> <p><i>Rick Wakeman</i></p>
 
 <br>
