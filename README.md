@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it true that, you know, sometimes things start to change even before a government changes and, actually, I think you can begin to see even the Labour machine beginning to understand that it has become over-reliant on targets and processes, that local governments have been over-bossed and bullied.</b>
-> <p><i>David Cameron</i></p>
+> <b>If you aren't playing well, the game isn't as much fun. When that happens I tell myself just to go out and play as I did when I was a kid.</b>
+> <p><i>Thomas J. Watson</i></p>
 
 <br>
