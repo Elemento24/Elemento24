@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing what some people read into songs.</b>
-> <p><i>Richard Thompson</i></p>
+> <b>The man of genius is he and he alone who finds such joy in his art that he will work at it come hell or high water.</b>
+> <p><i>Stendhal</i></p>
 
 <br>
