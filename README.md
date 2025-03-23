@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>New needs need new techniques. And the modern artists have found new ways and new means of making their statements... the modern painter cannot express this age, the airplane, the atom bomb, the radio, in the old forms of the Renaissance or of any other past culture.</b>
-> <p><i>Jackson Pollock</i></p>
+> <b>The irony is that it was tougher to rent a car from Cerberus when it owned Alamo than to buy a semi-automatic. To rent a car, one had to provide ID, a drivers' license, and get insurance coverage. To buy a gun? Cash and carry, from the back of a station wagon at a gun show. No concerns about downstream liability or risk.</b>
+> <p><i>Eliot Spitzer</i></p>
 
 <br>
