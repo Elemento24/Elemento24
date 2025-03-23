@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In an artwork you're always looking for artistic decisions, so an ashtray is perfect. An ashtray has got life and death.</b>
-> <p><i>Damien Hirst</i></p>
+> <b>My daily beauty regimen is definitely always in the mornings, and at night, always washing my face with a basic cleanser. I also use a moisturizer with SPF to follow up.</b>
+> <p><i>Shay Mitchell</i></p>
 
 <br>
