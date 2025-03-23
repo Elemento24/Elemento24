@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not just Bin Laden or just those that are involved in the counterterrorism effort. We've gotta cast the net broader than that. But I think it's a - very special tribute that we all owe to the bravery and courage of the men and women in the intelligence and military business who performed so well to finally get it done.</b>
-> <p><i>Dick Cheney</i></p>
+> <b>I think it true that, you know, sometimes things start to change even before a government changes and, actually, I think you can begin to see even the Labour machine beginning to understand that it has become over-reliant on targets and processes, that local governments have been over-bossed and bullied.</b>
+> <p><i>David Cameron</i></p>
 
 <br>
