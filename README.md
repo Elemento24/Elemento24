@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you aren't playing well, the game isn't as much fun. When that happens I tell myself just to go out and play as I did when I was a kid.</b>
-> <p><i>Thomas J. Watson</i></p>
+> <b>New needs need new techniques. And the modern artists have found new ways and new means of making their statements... the modern painter cannot express this age, the airplane, the atom bomb, the radio, in the old forms of the Renaissance or of any other past culture.</b>
+> <p><i>Jackson Pollock</i></p>
 
 <br>
