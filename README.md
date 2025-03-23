@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My daily beauty regimen is definitely always in the mornings, and at night, always washing my face with a basic cleanser. I also use a moisturizer with SPF to follow up.</b>
-> <p><i>Shay Mitchell</i></p>
+> <b>It's not just Bin Laden or just those that are involved in the counterterrorism effort. We've gotta cast the net broader than that. But I think it's a - very special tribute that we all owe to the bravery and courage of the men and women in the intelligence and military business who performed so well to finally get it done.</b>
+> <p><i>Dick Cheney</i></p>
 
 <br>
