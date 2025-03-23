@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change, like sunshine, can be a friend or a foe, a blessing or a curse, a dawn or a dusk.</b>
-> <p><i>William Arthur Ward</i></p>
+> <b>Perfect health, like perfect beauty, is a rare thing and so, it seems, is perfect disease.</b>
+> <p><i>Peter Latham</i></p>
 
 <br>
