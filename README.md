@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every one who has a heart, however ignorant of architecture he may be, feels the transcendent beauty and poetry of the mediaeval churches.</b>
-> <p><i>Goldwin Smith</i></p>
+> <b>In an artwork you're always looking for artistic decisions, so an ashtray is perfect. An ashtray has got life and death.</b>
+> <p><i>Damien Hirst</i></p>
 
 <br>
