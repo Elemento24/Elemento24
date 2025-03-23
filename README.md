@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The irony is that it was tougher to rent a car from Cerberus when it owned Alamo than to buy a semi-automatic. To rent a car, one had to provide ID, a drivers' license, and get insurance coverage. To buy a gun? Cash and carry, from the back of a station wagon at a gun show. No concerns about downstream liability or risk.</b>
-> <p><i>Eliot Spitzer</i></p>
+> <b>Be sure what you want and be sure about yourself. Fashion is not just beauty, it's about good attitude. You have to believe in yourself and be strong.</b>
+> <p><i>Adriana Lima</i></p>
 
 <br>
