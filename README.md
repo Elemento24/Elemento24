@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You're alone in your ideas, because you're the only one who knows what's possible.</b>
-> <p><i>Bethenny Frankel</i></p>
+> <b>I have the handicap of being born with a special language to which I alone have the key.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
