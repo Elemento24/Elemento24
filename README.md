@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>America doesn't reward people of my age, either in day-to-day life or for their performances.</b>
-> <p><i>Meryl Streep</i></p>
+> <b>Journalists do not live by words alone, although sometimes they have to eat them.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
