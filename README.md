@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All in all it was a smooth race, the car was very well balanced. I'm very proud to be the first winner here in India.</b>
-> <p><i>Sebastian Vettel</i></p>
+> <b>Up until the Depression, recession had a moral character: it was supposed to purge the body economic of the greed and excess that attends a business expansion.</b>
+> <p><i>James Buchan</i></p>
 
 <br>
