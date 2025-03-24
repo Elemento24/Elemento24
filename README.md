@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yet, it is true, poetry is delicious the best prose is that which is most full of poetry.</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>All in all it was a smooth race, the car was very well balanced. I'm very proud to be the first winner here in India.</b>
+> <p><i>Sebastian Vettel</i></p>
 
 <br>
