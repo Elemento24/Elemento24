@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whether you come from heaven or hell, what does it matter, O Beauty!</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>We all like to forgive, and love best not those who offend us least, nor who have done most for us, but those who make it most easy for us to forgive them.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
