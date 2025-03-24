@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all like to forgive, and love best not those who offend us least, nor who have done most for us, but those who make it most easy for us to forgive them.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>Any authentic work of art must start an argument between the artist and his audience.</b>
+> <p><i>Rebecca West</i></p>
 
 <br>
