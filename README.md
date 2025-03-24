@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wouldn't change anything. I've made mistakes, but thanks to those mistakes, I've learned.</b>
-> <p><i>Enrique Iglesias</i></p>
+> <b>Also, if you want to reach people, theatre is not always the best way to do it.</b>
+> <p><i>Harvey Fierstein</i></p>
 
 <br>
