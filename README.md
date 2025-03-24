@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The trick of this thing and the beauty of this thing is that it's a cowboy movie first and then stuff happens. Even after stuff happens it doesn't change - it hasn't suddenly changed into another kind of movie. It's still a cowboy movie. And that's what's incredible about it because nobody has done that before, that's new territory.</b>
-> <p><i>Harrison Ford</i></p>
+> <b>Whether you come from heaven or hell, what does it matter, O Beauty!</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
