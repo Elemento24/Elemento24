@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Up until the Depression, recession had a moral character: it was supposed to purge the body economic of the greed and excess that attends a business expansion.</b>
-> <p><i>James Buchan</i></p>
+> <b>My passion and great enjoyment for architecture, and the reason the older I get the more I enjoy it, is because I believe we - architects - can effect the quality of life of the people.</b>
+> <p><i>Richard Rogers</i></p>
 
 <br>
