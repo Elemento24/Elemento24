@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The last time money left the art world, intrepid types maxed out their credit cards and opened galleries, and a few of them have become the best in the world.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Yet, it is true, poetry is delicious the best prose is that which is most full of poetry.</b>
+> <p><i>Virginia Woolf</i></p>
 
 <br>
