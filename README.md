@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Spend some time this weekend on home improvement improve your attitude toward your family.</b>
-> <p><i>Bo Bennett</i></p>
+> <b>George Clooney is a super-human, he's just such an amazing human being, he taught me how to be a better person and a better actor!</b>
+> <p><i>Shailene Woodley</i></p>
 
 <br>
