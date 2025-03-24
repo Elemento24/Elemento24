@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have the handicap of being born with a special language to which I alone have the key.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>Beauty is grace and confidence. I've learned to accept and appreciate what nature gave me.</b>
+> <p><i>Lindsay Lohan</i></p>
 
 <br>
