@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Very few people are original. There's very little original anything out there. Because to be original means you have to stand alone.</b>
-> <p><i>Susan Powter</i></p>
+> <b>Spend some time this weekend on home improvement improve your attitude toward your family.</b>
+> <p><i>Bo Bennett</i></p>
 
 <br>
