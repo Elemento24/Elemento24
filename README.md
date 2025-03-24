@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A large income is the best recipe for happiness I ever heard of.</b>
-> <p><i>Jane Austen</i></p>
+> <b>I think the most exciting thing is that you expect people our age to know the music, but actually a lot of kids know the music, and if anything is left, we have left really good music, and that's the important part, not the mop-tops or whatever.</b>
+> <p><i>Ringo Starr</i></p>
 
 <br>
