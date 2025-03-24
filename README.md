@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any authentic work of art must start an argument between the artist and his audience.</b>
-> <p><i>Rebecca West</i></p>
+> <b>America doesn't reward people of my age, either in day-to-day life or for their performances.</b>
+> <p><i>Meryl Streep</i></p>
 
 <br>
