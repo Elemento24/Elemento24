@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the most exciting thing is that you expect people our age to know the music, but actually a lot of kids know the music, and if anything is left, we have left really good music, and that's the important part, not the mop-tops or whatever.</b>
-> <p><i>Ringo Starr</i></p>
+> <b>Very few people are original. There's very little original anything out there. Because to be original means you have to stand alone.</b>
+> <p><i>Susan Powter</i></p>
 
 <br>
