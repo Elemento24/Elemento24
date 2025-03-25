@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The arts are an even better barometer of what is happening in our world than the stock market or the debates in congress.</b>
-> <p><i>Hendrik Willem Van Loon</i></p>
+> <b>I did 13-something years of talking to wrestlers and promoters about why they did certain things and why they booked matches a certain way and what they were thinking and whether they were satisfied with the draw. And I got a lot of insight in the business.</b>
+> <p><i>Billy Corgan</i></p>
 
 <br>
