@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did 13-something years of talking to wrestlers and promoters about why they did certain things and why they booked matches a certain way and what they were thinking and whether they were satisfied with the draw. And I got a lot of insight in the business.</b>
-> <p><i>Billy Corgan</i></p>
+> <b>The past itself, as historical change continues to accelerate, has become the most surreal of subjects - making it possible... to see a new beauty in what is vanishing.</b>
+> <p><i>Susan Sontag</i></p>
 
 <br>
