@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The past itself, as historical change continues to accelerate, has become the most surreal of subjects - making it possible... to see a new beauty in what is vanishing.</b>
-> <p><i>Susan Sontag</i></p>
+> <b>I can't really define it in sexual terms alone although our sexuality is so energizing why not enjoy it too?</b>
+> <p><i>Audre Lorde</i></p>
 
 <br>
