@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The man who goes alone can start today but he who travels with another must wait till that other is ready.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>I think that in itself is kind of an amazing achievement to be able to say that your full-time career is in any creative arts, let alone a show that has kept people interested for coming on four seasons and hopefully more.</b>
+> <p><i>Anna Paquin</i></p>
 
 <br>
