@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every piece of entertainment is made with the idea that 'This is going to be terrific' and 'This is the best thing I've ever done' and then it hits the public and then the public tells you whether it's good or bad.</b>
-> <p><i>William Shatner</i></p>
+> <b>Time, in general, has always been a central obsession of mine - what it does to people, how it can constitute a plot all on its own. So naturally, I am interested in old age.</b>
+> <p><i>Anne Tyler</i></p>
 
 <br>
