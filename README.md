@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't really define it in sexual terms alone although our sexuality is so energizing why not enjoy it too?</b>
-> <p><i>Audre Lorde</i></p>
+> <b>I'm not as far along as Jack Nicklaus was at this age, but I'm trying.</b>
+> <p><i>Tiger Woods</i></p>
 
 <br>
