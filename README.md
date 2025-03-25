@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your attitude is like a box of crayons that color your world. Constantly color your picture gray, and your picture will always be bleak. Try adding some bright colors to the picture by including humor, and your picture begins to lighten up.</b>
-> <p><i>Allen Klein</i></p>
+> <b>It becomes more necessary to see the truth as it is if you realize that the only vehicle for change are these people who have lost their personality.</b>
+> <p><i>Steven Biko</i></p>
 
 <br>
