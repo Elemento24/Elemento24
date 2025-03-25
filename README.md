@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know it sounds a bit corny, but I do think that beauty and sexiness come from within.</b>
-> <p><i>Rachel Stevens</i></p>
+> <b>So now, cut to ten years later, and I'm making this amazing contract with Pantene. It's incredible.</b>
+> <p><i>Maria Menounos</i></p>
 
 <br>
