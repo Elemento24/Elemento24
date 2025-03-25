@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We no longer dare to believe in beauty and we make of it a mere appearance in order the more easily to dispose of it.</b>
-> <p><i>Hans Urs von Balthasar</i></p>
+> <b>How can you sing of amazing grace and all God's wonders without using your hands?</b>
+> <p><i>Mahalia Jackson</i></p>
 
 <br>
