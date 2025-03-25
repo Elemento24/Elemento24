@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time, in general, has always been a central obsession of mine - what it does to people, how it can constitute a plot all on its own. So naturally, I am interested in old age.</b>
-> <p><i>Anne Tyler</i></p>
+> <b>If you are lonely when you're alone, you are in bad company.</b>
+> <p><i>Jean-Paul Sartre</i></p>
 
 <br>
