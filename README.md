@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body is your instrument in dance, but your art is outside that creature, the body.</b>
-> <p><i>Martha Graham</i></p>
+> <b>I know it sounds a bit corny, but I do think that beauty and sexiness come from within.</b>
+> <p><i>Rachel Stevens</i></p>
 
 <br>
