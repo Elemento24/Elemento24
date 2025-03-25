@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry is the art of substantiating shadows, and of lending existence to nothing.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>The body is your instrument in dance, but your art is outside that creature, the body.</b>
+> <p><i>Martha Graham</i></p>
 
 <br>
