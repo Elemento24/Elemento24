@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It becomes more necessary to see the truth as it is if you realize that the only vehicle for change are these people who have lost their personality.</b>
-> <p><i>Steven Biko</i></p>
+> <b>The arts are an even better barometer of what is happening in our world than the stock market or the debates in congress.</b>
+> <p><i>Hendrik Willem Van Loon</i></p>
 
 <br>
