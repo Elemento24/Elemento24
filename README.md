@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vision is the true creative rhythm.</b>
-> <p><i>Robert Delaunay</i></p>
+> <b>We no longer dare to believe in beauty and we make of it a mere appearance in order the more easily to dispose of it.</b>
+> <p><i>Hans Urs von Balthasar</i></p>
 
 <br>
