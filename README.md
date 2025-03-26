@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I enjoy doing more than anything is, I have my little antique car collection, and when the weather is pretty I like to get out one of my old cars. I have a little route I run down in the country, down Nachez Trace Parkway. The loop down through there is just really relaxing, not much traffic.</b>
-> <p><i>Alan Jackson</i></p>
+> <b>At first I missed it, but it was the amazing energy thing that happened during shows, when a lot of people were like Yay Yay Yeah! I missed that for a while. But I don't miss the regular and the business side of that whole thing.</b>
+> <p><i>Bill Kreutzmann</i></p>
 
 <br>
