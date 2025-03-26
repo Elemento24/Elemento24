@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I speak of the beauty of a game of chess, then naturally this is subjective. Beauty can be found in a very technical, mathematical game for example. That is the beauty of clarity.</b>
-> <p><i>Vladimir Kramnik</i></p>
+> <b>Look up, laugh loud, talk big, keep the color in your cheek and the fire in your eye, adorn your person, maintain your health, your beauty and your animal spirits.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
