@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who does not fill his world with phantoms remains alone.</b>
-> <p><i>Antonio Porchia</i></p>
+> <b>Creative without strategy is called 'art.' Creative with strategy is called 'advertising.'</b>
+> <p><i>Jef I. Richards</i></p>
 
 <br>
