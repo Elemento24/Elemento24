@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Design must reflect the practical and aesthetic in business but above all... good design must primarily serve people.</b>
-> <p><i>Thomas J. Watson</i></p>
+> <b>When I go to the clinic next and sit with a tube in my arm and watch the poison go in, I'm in an attitude of abject passivity. It doesn't feel like fighting at all it just feels like submitting.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
