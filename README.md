@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look up, laugh loud, talk big, keep the color in your cheek and the fire in your eye, adorn your person, maintain your health, your beauty and your animal spirits.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>First let me report that the art in the Barnes Collection has never looked better. My trips to the old Barnes were always amazing, but except on the sunniest days, you could barely see the art. The building always felt pushed beyond its capacity.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
