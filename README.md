@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Creative ideas flourish best in a shop which preserves some spirit of fun. Nobody is in business for fun, but that does not mean there cannot be fun in business.</b>
-> <p><i>Leo Burnett</i></p>
+> <b>Design must reflect the practical and aesthetic in business but above all... good design must primarily serve people.</b>
+> <p><i>Thomas J. Watson</i></p>
 
 <br>
