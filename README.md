@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a child but I have to think and act like a woman, this business forces you to.</b>
-> <p><i>Rihanna</i></p>
+> <b>I think your whole life shows in your face and you should be proud of that.</b>
+> <p><i>Lauren Bacall</i></p>
 
 <br>
