@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not as far along as Jack Nicklaus was at this age, but I'm trying.</b>
-> <p><i>Tiger Woods</i></p>
+> <b>I am a child but I have to think and act like a woman, this business forces you to.</b>
+> <p><i>Rihanna</i></p>
 
 <br>
