@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And what most people don't understand is the bulk of business in this country is small business.</b>
-> <p><i>Alphonso Jackson</i></p>
+> <b>To say nothing, especially when speaking, is half the art of diplomacy.</b>
+> <p><i>Will Durant</i></p>
 
 <br>
