@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you can change three lives in 10, three lives in a hundred, that's got to be good, hasn't it?</b>
-> <p><i>Ian Botham</i></p>
+> <b>What I enjoy doing more than anything is, I have my little antique car collection, and when the weather is pretty I like to get out one of my old cars. I have a little route I run down in the country, down Nachez Trace Parkway. The loop down through there is just really relaxing, not much traffic.</b>
+> <p><i>Alan Jackson</i></p>
 
 <br>
