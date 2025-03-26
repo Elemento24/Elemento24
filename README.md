@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Winning 'The Apprentice' changed my life in ways I could never have imagined. It has been an amazing experience working for Donald Trump and I am very grateful for the whole opportunity.</b>
-> <p><i>Bill Rancic</i></p>
+> <b>It is wise to direct your anger towards problems - not people to focus your energies on answers - not excuses.</b>
+> <p><i>William Arthur Ward</i></p>
 
 <br>
