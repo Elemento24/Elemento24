@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Creative without strategy is called 'art.' Creative with strategy is called 'advertising.'</b>
-> <p><i>Jef I. Richards</i></p>
+> <b>Rationalism is the enemy of art, though necessary as a basis for architecture.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
