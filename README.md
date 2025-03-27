@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The time you feel lonely is the time you most need to be by yourself.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>The works must be conceived with fire in the soul but executed with clinical coolness.</b>
+> <p><i>Joan Miro</i></p>
 
 <br>
