@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first rule of business is: Do other men for they would do you.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>If I am a legend, then why am I so lonely?</b>
+> <p><i>Judy Garland</i></p>
 
 <br>
