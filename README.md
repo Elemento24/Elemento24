@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the best temporary cures for pride and affectation is seasickness a man who wants to vomit never puts on airs.</b>
-> <p><i>Josh Billings</i></p>
+> <b>And at five o'clock in the morning we left to drive to Old Tucson, and I sat with my mouth open in the van. I was stunned by the beauty of that country.</b>
+> <p><i>Erika Slezak</i></p>
 
 <br>
