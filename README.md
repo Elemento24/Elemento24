@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And at five o'clock in the morning we left to drive to Old Tucson, and I sat with my mouth open in the van. I was stunned by the beauty of that country.</b>
-> <p><i>Erika Slezak</i></p>
+> <b>Art is never finished, only abandoned.</b>
+> <p><i>Leonardo da Vinci</i></p>
 
 <br>
