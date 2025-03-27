@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After all, it is the divinity within that makes the divinity without and I have been more fascinated by a woman of talent and intelligence, though deficient in personal charms, than I have been by the most regular beauty.</b>
-> <p><i>Washington Irving</i></p>
+> <b>When you're young, you look at television and think, there's a conspiracy. The networks have conspired to dumb us down. But when you get a little older, you realize that's not true. The networks are in business to give people exactly what they want.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
