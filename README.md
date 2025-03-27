@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you're young, you look at television and think, there's a conspiracy. The networks have conspired to dumb us down. But when you get a little older, you realize that's not true. The networks are in business to give people exactly what they want.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>It's amazing marrying someone who wants nothing to do with Hollywood.</b>
+> <p><i>Nicolas Cage</i></p>
 
 <br>
