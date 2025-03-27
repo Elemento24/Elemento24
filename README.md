@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What we've gone through in the last several years has caused some people to question 'Can we trust Microsoft?'</b>
-> <p><i>Steve Ballmer</i></p>
+> <b>Nothing requires the architect's care more than the due proportions of buildings.</b>
+> <p><i>Marcus V. Pollio</i></p>
 
 <br>
