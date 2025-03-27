@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is never finished, only abandoned.</b>
-> <p><i>Leonardo da Vinci</i></p>
+> <b>The time you feel lonely is the time you most need to be by yourself.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
