@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm 36 and if I met a woman of my own age and married her, I'd also be marrying her former life, her past. It might be OK for some people - I don't want to judge it or anything - but it's not for me. It would destroy my creativity.</b>
-> <p><i>Henry Rollins</i></p>
+> <b>One of the best temporary cures for pride and affectation is seasickness a man who wants to vomit never puts on airs.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
