@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The works must be conceived with fire in the soul but executed with clinical coolness.</b>
-> <p><i>Joan Miro</i></p>
+> <b>There must be a day or two in a man's life when he is the precise age for something important.</b>
+> <p><i>Franklin P. Adams</i></p>
 
 <br>
