@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diplomats make it their business to conceal the facts.</b>
-> <p><i>Margaret Sanger</i></p>
+> <b>The first rule of business is: Do other men for they would do you.</b>
+> <p><i>Charles Dickens</i></p>
 
 <br>
