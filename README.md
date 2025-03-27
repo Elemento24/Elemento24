@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone can write a story based on the kind of horror where you see a guy in car and then there's the bad guy in the back seat. It's infantile to rely on that for telling a story. That's like going to bed and thinking there's a monster under your bed. It's silly.</b>
-> <p><i>Sergio Aragones</i></p>
+> <b>I believe that Gandhi was correct. Non-violent civil disobedience is the only way to bring about change that allows people to enjoy the change and not get killed in the process.</b>
+> <p><i>Edward James Olmos</i></p>
 
 <br>
