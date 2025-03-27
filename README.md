@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing marrying someone who wants nothing to do with Hollywood.</b>
-> <p><i>Nicolas Cage</i></p>
+> <b>I just think we're living in a time of massive, amazing change, like the Industrial Revolution on acid.</b>
+> <p><i>Kelly Lynch</i></p>
 
 <br>
