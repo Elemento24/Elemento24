@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just think we're living in a time of massive, amazing change, like the Industrial Revolution on acid.</b>
-> <p><i>Kelly Lynch</i></p>
+> <b>Character is the result of two things: mental attitude and the way we spend our time.</b>
+> <p><i>Elbert Hubbard</i></p>
 
 <br>
