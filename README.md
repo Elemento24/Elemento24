@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Katy Perry is the sexiest woman I've ever kissed. It was amazing and very purple - she had purple lipstick on. I don't think there will ever be anything cooler than kissing her... until I marry her maybe!</b>
-> <p><i>Niall Horan</i></p>
+> <b>While I'm not a celebrity, it's such a weird concept that society has cooked up for us. Astronauts and teachers are much more amazing than actors.</b>
+> <p><i>Joseph Gordon-Levitt</i></p>
 
 <br>
