@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In individual industries where female labour pays an important role, any movement advocating better wages, shorter working hours, etc., would not be doomed from the start because of the attitude of those women workers who are not organized.</b>
-> <p><i>Clara Zetkin</i></p>
+> <b>The best player I ever played with was Dennis Johnson.</b>
+> <p><i>Larry Bird</i></p>
 
 <br>
