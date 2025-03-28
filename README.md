@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body is your instrument in dance, but your art is outside that creature, the body.</b>
-> <p><i>Martha Graham</i></p>
+> <b>We shouldn't feel restricted by our sexuality, and our sexuality doesn't have to be a cultural choice. That's an amazing variety of music within those five main performers.</b>
+> <p><i>Neil Tennant</i></p>
 
 <br>
