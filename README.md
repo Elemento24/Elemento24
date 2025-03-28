@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just change with the times. I really don't have a say in what's going on. Music was here before me.</b>
-> <p><i>Snoop Dogg</i></p>
+> <b>The body is your instrument in dance, but your art is outside that creature, the body.</b>
+> <p><i>Martha Graham</i></p>
 
 <br>
