@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Right up until the time I retired at age 37, I felt like there were still things that I could do better.</b>
-> <p><i>Julius Erving</i></p>
+> <b>One must learn, if one is to see the beauty in Japan, to like an extraordinarily restrained and delicate loveliness.</b>
+> <p><i>Miriam Beard</i></p>
 
 <br>
