@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Beauty is truth, truth beauty,' - that is all ye know on earth, and all ye need to know.</b>
-> <p><i>John Keats</i></p>
+> <b>Receiving the Newcombe Medal for a third year in a row is an amazing honour. The Newcombe Medal is a great occasion for the Australian tennis community to come together and celebrate our sport, recognise people's achievements and contributions to Australian tennis.</b>
+> <p><i>Samantha Stosur</i></p>
 
 <br>
