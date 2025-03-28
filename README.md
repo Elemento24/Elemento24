@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And suddenly I realised that I was no longer driving the car consciously. I was driving it by a kind of instinct, only I was in a different dimension.</b>
-> <p><i>Ayrton Senna</i></p>
+> <b>I wasn't afraid of getting old, because I was never a great beauty.</b>
+> <p><i>Shirley MacLaine</i></p>
 
 <br>
