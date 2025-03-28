@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We shouldn't feel restricted by our sexuality, and our sexuality doesn't have to be a cultural choice. That's an amazing variety of music within those five main performers.</b>
-> <p><i>Neil Tennant</i></p>
+> <b>I tried acupuncture, the patch, and hypnosis, but found that I needed to do it alone - when the time was right for me.</b>
+> <p><i>Christy Turlington</i></p>
 
 <br>
