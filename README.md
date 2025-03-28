@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best player I ever played with was Dennis Johnson.</b>
-> <p><i>Larry Bird</i></p>
+> <b>Katy Perry is the sexiest woman I've ever kissed. It was amazing and very purple - she had purple lipstick on. I don't think there will ever be anything cooler than kissing her... until I marry her maybe!</b>
+> <p><i>Niall Horan</i></p>
 
 <br>
