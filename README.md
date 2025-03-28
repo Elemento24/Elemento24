@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I came to water late. I learned to swim at the age of 20.</b>
-> <p><i>Liam Neeson</i></p>
+> <b>I've had two romances since moving to Las Vegas. One was with somebody 12 years older than me, and the other was the same age, and neither worked out. I know people still think of me as one of Hugh Hefner's girlfriends, and he of course was much older than me, but that was a whole different lifestyle and a different kind of dating.</b>
+> <p><i>Holly Madison</i></p>
 
 <br>
