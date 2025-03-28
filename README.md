@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One must learn, if one is to see the beauty in Japan, to like an extraordinarily restrained and delicate loveliness.</b>
-> <p><i>Miriam Beard</i></p>
+> <b>I cannot go to Montreal without going to Beauty's, my favorite place for breakfast, where I have the Mish-Mash omelet with hot dogs, salami, eggs, green peppers, and onions, and the best banana bread in the world. It's legendary!</b>
+> <p><i>Gail Simmons</i></p>
 
 <br>
