@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Power will intoxicate the best hearts, as wine the strongest heads. No man is wise enough, nor good enough to be trusted with unlimited power.</b>
-> <p><i>Charles Caleb Colton</i></p>
+> <b>A live concert to me is exciting because of all the electricity that is generated in the crowd and on stage. It's my favorite part of the business, live concerts.</b>
+> <p><i>Elvis Presley</i></p>
 
 <br>
