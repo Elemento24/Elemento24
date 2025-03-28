@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wasn't afraid of getting old, because I was never a great beauty.</b>
-> <p><i>Shirley MacLaine</i></p>
+> <b>Power will intoxicate the best hearts, as wine the strongest heads. No man is wise enough, nor good enough to be trusted with unlimited power.</b>
+> <p><i>Charles Caleb Colton</i></p>
 
 <br>
