@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While I'm not a celebrity, it's such a weird concept that society has cooked up for us. Astronauts and teachers are much more amazing than actors.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>The nature of motion capture is only going to work for certain films. It's not going to put any other type of movies out of business.</b>
+> <p><i>Tom Hanks</i></p>
 
 <br>
