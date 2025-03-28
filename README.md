@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes, 85 percent of the art you see isn't any good. But everyone has a different opinion about which 85 percent is bad. That in turn creates fantastically unstable interplay and argument.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Right up until the time I retired at age 37, I felt like there were still things that I could do better.</b>
+> <p><i>Julius Erving</i></p>
 
 <br>
