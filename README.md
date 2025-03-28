@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A live concert to me is exciting because of all the electricity that is generated in the crowd and on stage. It's my favorite part of the business, live concerts.</b>
-> <p><i>Elvis Presley</i></p>
+> <b>Admiration of the proletariat, like that of dams, power stations, and aeroplanes, is part of the ideology of the machine age.</b>
+> <p><i>Bertrand Russell</i></p>
 
 <br>
