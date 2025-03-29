@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is time to change our policy of appeasement toward the Palestinians, to strengthen our ties with the nation of Israel.</b>
-> <p><i>Rick Perry</i></p>
+> <b>It's a little silly to finally learn how to write at this age. But I long ago realized I was secretly sincere.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
