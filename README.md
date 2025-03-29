@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are rarely proud when we are alone.</b>
-> <p><i>Voltaire</i></p>
+> <b>I envy the sensibility in Europe, appreciating beauty in women as they age. I'm going to go that way. I might dye my gray hair for a bit, but beyond that the buck stops. I'm not having any work done.</b>
+> <p><i>Rachel Bilson</i></p>
 
 <br>
