@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We now accept the fact that learning is a lifelong process of keeping abreast of change. And the most pressing task is to teach people how to learn.</b>
-> <p><i>Peter Drucker</i></p>
+> <b>I went to school for engineering, I studied jazz. So I always had this kind of creative side and technical side, and I thought architecture might be the way to combine them, so I went to architecture school in New York.</b>
+> <p><i>Joseph Kosinski</i></p>
 
 <br>
