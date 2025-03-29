@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cannibals prefer those who have no spines.</b>
-> <p><i>Stanislaw Lem</i></p>
+> <b>The last of human freedoms - the ability to chose one's attitude in a given set of circumstances.</b>
+> <p><i>Viktor E. Frankl</i></p>
 
 <br>
