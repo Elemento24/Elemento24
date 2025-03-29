@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No sex, age, or condition is above or below the absolute necessity of modesty but without it one vastly beneath the rank of man.</b>
-> <p><i>Bruce Barton</i></p>
+> <b>We submit to the majority because we have to. But we are not compelled to call our attitude of subjection a posture of respect.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
