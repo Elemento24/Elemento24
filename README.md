@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, there is amazing amount of oil and gas and other resources out beneath the sea. It's staggering.</b>
-> <p><i>Robert Ballard</i></p>
+> <b>Anything that's different from your own realm of experience as a human being, whether it's driving a car or a boat, or using guns, anything that separates you from yourself and leads you more towards this character's existence is a big help.</b>
+> <p><i>Colin Farrell</i></p>
 
 <br>
