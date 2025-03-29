@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a little silly to finally learn how to write at this age. But I long ago realized I was secretly sincere.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>To me, nothing in the art world is neutral. The idea of 'disinterest' strikes me as boring, dishonest, dubious, and uninteresting.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
