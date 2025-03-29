@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I meant that, given the circumstances of my childhood, I had the illusion that it's easier to be alone. To have your relationships be casual and also to pose as a solitary person, because it was more romantic. You know, I was raised on the idea of the ramblin' man and the loner.</b>
-> <p><i>Steve Martin</i></p>
+> <b>I don't know. I think it's funny! I think it's funny! I go, what? It's so absurd. I'm alone.</b>
+> <p><i>Danny DeVito</i></p>
 
 <br>
