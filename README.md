@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To do a dull thing with style-now that's what I call art.</b>
-> <p><i>Charles Bukowski</i></p>
+> <b>What is an adult? A child blown up by age.</b>
+> <p><i>Simone de Beauvoir</i></p>
 
 <br>
