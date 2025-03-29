@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went to school for engineering, I studied jazz. So I always had this kind of creative side and technical side, and I thought architecture might be the way to combine them, so I went to architecture school in New York.</b>
-> <p><i>Joseph Kosinski</i></p>
+> <b>I think I meant that, given the circumstances of my childhood, I had the illusion that it's easier to be alone. To have your relationships be casual and also to pose as a solitary person, because it was more romantic. You know, I was raised on the idea of the ramblin' man and the loner.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
