@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Probably the most visible example of unintended consequences, is what happens every time humans try to change the natural ecology of a place.</b>
-> <p><i>Margaret J. Wheatley</i></p>
+> <b>Character is the result of two things: mental attitude and the way we spend our time.</b>
+> <p><i>Elbert Hubbard</i></p>
 
 <br>
