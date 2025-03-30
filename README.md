@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Canadians can easily 'pass for American' as long as we don't accidentally use metric measurements or apologize when hit by a car.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>Drawing is the honesty of the art. There is no possibility of cheating. It is either good or bad.</b>
+> <p><i>Salvador Dali</i></p>
 
 <br>
