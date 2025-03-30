@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>Pastry is different from cooking because you have to consider the chemistry, beauty and flavor. It's not just sugar and eggs thrown together. I tell my pastry chefs to be in tune for all of this. You have to be challenged by using secret or unusual ingredients.</b>
+> <p><i>Ron Ben-Israel</i></p>
 
 <br>
