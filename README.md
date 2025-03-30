@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even if you play perfectly, a fault of your opponent's can destroy the entire beauty of the game.</b>
-> <p><i>Vladimir Kramnik</i></p>
+> <b>Sleep is good, death is better but of course, the best thing would to have never been born at all.</b>
+> <p><i>Heinrich Heine</i></p>
 
 <br>
