@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The principle of the Gothic architecture is infinity made imaginable.</b>
-> <p><i>Samuel Taylor Coleridge</i></p>
+> <b>I like to pretend that my art has nothing to do with me.</b>
+> <p><i>Roy Lichtenstein</i></p>
 
 <br>
