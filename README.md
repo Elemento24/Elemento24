@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Adulthood is the ever-shrinking period between childhood and old age. It is the apparent aim of modern industrial societies to reduce this period to a minimum.</b>
-> <p><i>Thomas Szasz</i></p>
+> <b>But my passion is racing cars. It's what I like to do in my off time.</b>
+> <p><i>Mark-Paul Gosselaar</i></p>
 
 <br>
