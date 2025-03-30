@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman telling her true age is like a buyer confiding his final price to an Armenian rug dealer.</b>
-> <p><i>Mignon McLaughlin</i></p>
+> <b>You know, we'd just had a birthday, he was... you know, he still had a future out of him, and all I can is he was just one of the most beautiful people in the world... a very gifted man, and it's a loss to the world, not just for us.</b>
+> <p><i>Robin Gibb</i></p>
 
 <br>
