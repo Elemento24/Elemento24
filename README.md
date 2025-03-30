@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's such a diversion to be constantly thinking of better ways I can teach people math that my hunger is for that really, for new ways of translating the beauty of it.</b>
-> <p><i>Danica McKellar</i></p>
+> <b>Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
