@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An apology might help, but you can change your life without one.</b>
-> <p><i>Robin Quivers</i></p>
+> <b>You can fake your age or mask it, but the passion that moves the characters has to be real.</b>
+> <p><i>Victoria Abril</i></p>
 
 <br>
