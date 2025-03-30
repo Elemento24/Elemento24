@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Latin life is rich with warmth, family values and history. I want to bring that beauty into American homes.</b>
-> <p><i>Cristina Saralegui</i></p>
+> <b>The principle of the Gothic architecture is infinity made imaginable.</b>
+> <p><i>Samuel Taylor Coleridge</i></p>
 
 <br>
