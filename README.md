@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can fake your age or mask it, but the passion that moves the characters has to be real.</b>
-> <p><i>Victoria Abril</i></p>
+> <b>Canadians can easily 'pass for American' as long as we don't accidentally use metric measurements or apologize when hit by a car.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
