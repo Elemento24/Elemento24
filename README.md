@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd kind of like to have a classic old muscle car. I think that would be fun.</b>
-> <p><i>Brooke Burke</i></p>
+> <b>It's such a diversion to be constantly thinking of better ways I can teach people math that my hunger is for that really, for new ways of translating the beauty of it.</b>
+> <p><i>Danica McKellar</i></p>
 
 <br>
