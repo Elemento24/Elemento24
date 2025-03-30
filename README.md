@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone talks about age, but it's not about age. It's about work ethic. Winning never gets old.</b>
-> <p><i>Lisa Leslie</i></p>
+> <b>The Stones are a different kind of group. I realized that when I joined them. It's not really so much their musical ability, it's just they have a certain kind of style and attitude which is unique.</b>
+> <p><i>Mick Taylor</i></p>
 
 <br>
