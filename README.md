@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sleep is good, death is better but of course, the best thing would to have never been born at all.</b>
-> <p><i>Heinrich Heine</i></p>
+> <b>Latin life is rich with warmth, family values and history. I want to bring that beauty into American homes.</b>
+> <p><i>Cristina Saralegui</i></p>
 
 <br>
