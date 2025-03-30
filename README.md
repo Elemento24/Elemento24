@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Character is the result of two things: mental attitude and the way we spend our time.</b>
-> <p><i>Elbert Hubbard</i></p>
+> <b>An apology might help, but you can change your life without one.</b>
+> <p><i>Robin Quivers</i></p>
 
 <br>
