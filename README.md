@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to pretend that my art has nothing to do with me.</b>
-> <p><i>Roy Lichtenstein</i></p>
+> <b>People are surprised at how down-to-earth I am. I like to stay home on Friday nights and listen to 'The Art of Happiness' by the Dalai Lama.</b>
+> <p><i>Carmen Electra</i></p>
 
 <br>
