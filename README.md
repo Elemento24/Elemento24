@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But my passion is racing cars. It's what I like to do in my off time.</b>
-> <p><i>Mark-Paul Gosselaar</i></p>
+> <b>I'd kind of like to have a classic old muscle car. I think that would be fun.</b>
+> <p><i>Brooke Burke</i></p>
 
 <br>
