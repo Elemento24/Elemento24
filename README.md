@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Stones are a different kind of group. I realized that when I joined them. It's not really so much their musical ability, it's just they have a certain kind of style and attitude which is unique.</b>
-> <p><i>Mick Taylor</i></p>
+> <b>Even if you play perfectly, a fault of your opponent's can destroy the entire beauty of the game.</b>
+> <p><i>Vladimir Kramnik</i></p>
 
 <br>
