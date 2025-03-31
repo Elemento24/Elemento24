@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd love to work with Sufjan Stevens. He so gets it. He's amazing.</b>
-> <p><i>Lee DeWyze</i></p>
+> <b>A man can be himself only so long as he is alone.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
