@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I nearly died of double bronchial pneumonia at the age of five.</b>
-> <p><i>Roger Moore</i></p>
+> <b>I have always been a business person.</b>
+> <p><i>Bethenny Frankel</i></p>
 
 <br>
