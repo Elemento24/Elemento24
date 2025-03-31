@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With just about every player in Australia, his whole goal and ambition is to play for Australia. That's why they're playing first class cricket. It's just a different attitude.</b>
-> <p><i>Shane Warne</i></p>
+> <b>The unions say 'last hired - first fired,', we say hire and fire based on merit. We want the best and brightest in the classroom.</b>
+> <p><i>Scott Walker</i></p>
 
 <br>
