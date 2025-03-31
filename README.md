@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dream career would be to be in things that have real heart and are telling real stories but while doing that, you're getting really big laughs. I don't necessarily love the straight crazy comedies. 'Caddyshack' is amazing, but there's not a lot of new 'Caddyshack's.</b>
-> <p><i>Jake Johnson</i></p>
+> <b>I wanted to end my life so bad and was in my car ready to go down that ramp into the water, and I did go part way, but I stopped. I went again and stopped. I then got out of the car and stood by the car a nervous wreck.</b>
+> <p><i>Susan Smith</i></p>
 
 <br>
