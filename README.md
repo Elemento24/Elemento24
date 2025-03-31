@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've just finished reading a book about the brilliant Margaret Rutherford. She wasn't a beauty, but inside she was absolutely blazing and passionate about her work. She's one of those life-affirming characters.</b>
-> <p><i>Sophie Thompson</i></p>
+> <b>I did this Super-8 film at art school called 'Tissues,' this black comedy about a family whose father has been arrested for child molestation. I was absolutely thrilled by every inch of it, and would throw my projector in the back of my car and show it to anybody who would watch it.</b>
+> <p><i>Jane Campion</i></p>
 
 <br>
