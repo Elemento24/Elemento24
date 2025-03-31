@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is in the eye of the beer holder.</b>
-> <p><i>Kinky Friedman</i></p>
+> <b>The pain passes, but the beauty remains.</b>
+> <p><i>Auguste Renoir</i></p>
 
 <br>
