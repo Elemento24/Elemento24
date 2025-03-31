@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rock isn't art, it's the way ordinary people talk.</b>
-> <p><i>Billy Idol</i></p>
+> <b>To own the dominant, or only, newspaper in a mid-sized American city was, for many decades, a kind of license to print money. In the Internet age, however, no one has figured out how to rescue the newspaper in the United States or abroad.</b>
+> <p><i>Eric Alterman</i></p>
 
 <br>
