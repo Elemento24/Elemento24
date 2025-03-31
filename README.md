@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Outstanding leaders go out of their way to boost the self-esteem of their personnel. If people believe in themselves, it's amazing what they can accomplish.</b>
-> <p><i>Sam Walton</i></p>
+> <b>When I drank, I had a very different attitude towards my playing. It was sloppier but I kind of liked it that way. It was like the alcohol was telling my mind what to do.</b>
+> <p><i>Mick Mars</i></p>
 
 <br>
