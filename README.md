@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Strong characters are brought out by change of situation, and gentle ones by permanence.</b>
-> <p><i>Jean Paul</i></p>
+> <b>Beauty is in the eye of the beer holder.</b>
+> <p><i>Kinky Friedman</i></p>
 
 <br>
