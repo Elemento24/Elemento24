@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It never seems to occur to some people, that, like beauty, a sense of humor may sometimes be fatal.</b>
-> <p><i>Edgar Rice Burroghs</i></p>
+> <b>My dream career would be to be in things that have real heart and are telling real stories but while doing that, you're getting really big laughs. I don't necessarily love the straight crazy comedies. 'Caddyshack' is amazing, but there's not a lot of new 'Caddyshack's.</b>
+> <p><i>Jake Johnson</i></p>
 
 <br>
