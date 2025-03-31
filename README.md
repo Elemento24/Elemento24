@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always been a business person.</b>
-> <p><i>Bethenny Frankel</i></p>
+> <b>Rock isn't art, it's the way ordinary people talk.</b>
+> <p><i>Billy Idol</i></p>
 
 <br>
