@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I drank, I had a very different attitude towards my playing. It was sloppier but I kind of liked it that way. It was like the alcohol was telling my mind what to do.</b>
-> <p><i>Mick Mars</i></p>
+> <b>It never seems to occur to some people, that, like beauty, a sense of humor may sometimes be fatal.</b>
+> <p><i>Edgar Rice Burroghs</i></p>
 
 <br>
