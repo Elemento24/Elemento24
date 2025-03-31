@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wanted to end my life so bad and was in my car ready to go down that ramp into the water, and I did go part way, but I stopped. I went again and stopped. I then got out of the car and stood by the car a nervous wreck.</b>
-> <p><i>Susan Smith</i></p>
+> <b>I'd love to work with Sufjan Stevens. He so gets it. He's amazing.</b>
+> <p><i>Lee DeWyze</i></p>
 
 <br>
