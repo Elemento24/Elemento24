@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Drawing is the honesty of the art. There is no possibility of cheating. It is either good or bad.</b>
-> <p><i>Salvador Dali</i></p>
+> <b>I've just finished reading a book about the brilliant Margaret Rutherford. She wasn't a beauty, but inside she was absolutely blazing and passionate about her work. She's one of those life-affirming characters.</b>
+> <p><i>Sophie Thompson</i></p>
 
 <br>
