@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our Age of Anxiety is, in great part, the result of trying to do today's job with yesterday's tools and yesterday's concepts.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>Most poetry in the modern age has retreated to the private sphere, turning its back on the political realm.</b>
+> <p><i>Terry Eagleton</i></p>
 
 <br>
