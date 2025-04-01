@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was 16 years old, driving to LA, and sleeping in my car, just trying to make it happen.</b>
-> <p><i>Nick Cannon</i></p>
+> <b>Everyone can identify with a fragrant garden, with beauty of sunset, with the quiet of nature, with a warm and cozy cottage.</b>
+> <p><i>Thomas Kincade</i></p>
 
 <br>
