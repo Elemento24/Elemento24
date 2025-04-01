@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The unions say 'last hired - first fired,', we say hire and fire based on merit. We want the best and brightest in the classroom.</b>
-> <p><i>Scott Walker</i></p>
+> <b>My nominee for Best Picture of the year - maybe the best picture ever, because it's essentially made up of and is an ecstatic love letter to all other movies - is Christian Marclay's endlessly enticing must-see masterpiece 'The Clock.'</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
