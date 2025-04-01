@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel sorry for people who don't drink. They wake up in the morning and that's the best they're going to feel all day.</b>
-> <p><i>Dean Martin</i></p>
+> <b>As a child, I wanted only two things - to be left alone to read my library books, and to get away from my provincial hometown and go to London to be a writer. And I always knew that when I got there, I wanted to make loads of money.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
