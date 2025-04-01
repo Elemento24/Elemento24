@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Who among us has never looked up into the heavens on a starlit night, lost in wonder at the vastness of space and the beauty of the stars?</b>
-> <p><i>Jeb Bush</i></p>
+> <b>The foolish and the dead alone never change their opinions.</b>
+> <p><i>James Russell Lowell</i></p>
 
 <br>
