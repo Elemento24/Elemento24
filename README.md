@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any film I do is not going to change the way black women have been portrayed, or black people have been portrayed, in cinema since the days of D.W. Griffith.</b>
-> <p><i>Spike Lee</i></p>
+> <b>We should so provide for old age that it may have no urgent wants of this world to absorb it from meditation on the next. It is awful to see the lean hands of dotage making a coffer of the grave.</b>
+> <p><i>Pearl S. Buck</i></p>
 
 <br>
