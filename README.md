@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My nominee for Best Picture of the year - maybe the best picture ever, because it's essentially made up of and is an ecstatic love letter to all other movies - is Christian Marclay's endlessly enticing must-see masterpiece 'The Clock.'</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>The best time to plan a book is while you're doing the dishes.</b>
+> <p><i>Agatha Christie</i></p>
 
 <br>
