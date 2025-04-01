@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a child, I wanted only two things - to be left alone to read my library books, and to get away from my provincial hometown and go to London to be a writer. And I always knew that when I got there, I wanted to make loads of money.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>I think Serena Williams is the best tennis player of this generation, if not the best ever. It is amazing for her to be playing as well as she is at the age of 31.</b>
+> <p><i>Samantha Stosur</i></p>
 
 <br>
