@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Before the throne of the Almighty, man will be judged not by his acts but by his intentions. For God alone reads our hearts.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>At its best our age is an age of searchers and discoverers, and at its worst, an age that has domesticated despair and learned to live with it happily.</b>
+> <p><i>Flannery O'Connor</i></p>
 
 <br>
