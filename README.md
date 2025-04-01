@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At its best our age is an age of searchers and discoverers, and at its worst, an age that has domesticated despair and learned to live with it happily.</b>
-> <p><i>Flannery O'Connor</i></p>
+> <b>Age is the first limitation on roles that I've ever had to encounter, and I hit that awhile ago.</b>
+> <p><i>Jack Nicholson</i></p>
 
 <br>
