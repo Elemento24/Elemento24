@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most poetry in the modern age has retreated to the private sphere, turning its back on the political realm.</b>
-> <p><i>Terry Eagleton</i></p>
+> <b>I have watched people who have nothing to do with the film business, but who have become part of the circle for a short period of time. They can be truly devastated when the film wraps and people leave.</b>
+> <p><i>Jacqueline Bisset</i></p>
 
 <br>
