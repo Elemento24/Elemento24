@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The foolish and the dead alone never change their opinions.</b>
-> <p><i>James Russell Lowell</i></p>
+> <b>I was 16 years old, driving to LA, and sleeping in my car, just trying to make it happen.</b>
+> <p><i>Nick Cannon</i></p>
 
 <br>
