@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Autobiography begins with a sense of being alone. It is an orphan form.</b>
-> <p><i>John Berger</i></p>
+> <b>To change a habit, make a conscious decision, then act out the new behavior.</b>
+> <p><i>Maxwell Maltz</i></p>
 
 <br>
