@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Satire doesn't effect change.</b>
-> <p><i>P. J. O'Rourke</i></p>
+> <b>Who among us has never looked up into the heavens on a starlit night, lost in wonder at the vastness of space and the beauty of the stars?</b>
+> <p><i>Jeb Bush</i></p>
 
 <br>
