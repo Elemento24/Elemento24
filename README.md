@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Forty is the old age of youth, fifty is the youth of old age.</b>
-> <p><i>Hosea Ballou</i></p>
+> <b>What is man's ultimate direction in life? It is to look for love, truth, virtue, and beauty.</b>
+> <p><i>Shinichi Suzuki</i></p>
 
 <br>
