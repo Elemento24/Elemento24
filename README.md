@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I have these fantasies of just moving to a foreign country and coming back with a full head of hair. Or not even come back! Make a new life there with hair... Change my name, just see what happens.</b>
-> <p><i>Larry David</i></p>
+> <b>Energy and environmental regulation, transportation, and broadband policy all benefit when legislators have a basic grounding in the technical concepts behind business models, products, and innovation.</b>
+> <p><i>John Sununu</i></p>
 
 <br>
