@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beer, it's the best damn drink in the world.</b>
-> <p><i>Jack Nicholson</i></p>
+> <b>Progress is a nice word. But change is its motivator. And change has its enemies.</b>
+> <p><i>Robert Kennedy</i></p>
 
 <br>
