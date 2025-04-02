@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The price of success is hard work, dedication to the job at hand, and the determination that whether we win or lose, we have applied the best of ourselves to the task at hand.</b>
-> <p><i>Vince Lombardi</i></p>
+> <b>Forty is the old age of youth, fifty is the youth of old age.</b>
+> <p><i>Hosea Ballou</i></p>
 
 <br>
