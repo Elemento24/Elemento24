@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is spiritual. The music business is not.</b>
-> <p><i>Van Morrison</i></p>
+> <b>We are really on top of one another at the moment and I think it is amazing how we stay so close. Maybe that's the test. Why not totally put yourself together, rather than always wonder whether you actually like each other?</b>
+> <p><i>Linda McCartney</i></p>
 
 <br>
