@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think anything changes until ideas change. The usual American viewpoint is to believe that something is wrong with the person.</b>
-> <p><i>James Hillman</i></p>
+> <b>I think exercise tests us in so many ways, our skills, our hearts, our ability to bounce back after setbacks. This is the inner beauty of sports and competition, and it can serve us all well as adult athletes.</b>
+> <p><i>Peggy Fleming</i></p>
 
 <br>
