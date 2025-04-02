@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Energy and environmental regulation, transportation, and broadband policy all benefit when legislators have a basic grounding in the technical concepts behind business models, products, and innovation.</b>
-> <p><i>John Sununu</i></p>
+> <b>I may be alone in this, but I do sense the power of film, in that movies have the ability to literally change people's minds. That's pretty powerful stuff when you consider that.</b>
+> <p><i>Nicolas Cage</i></p>
 
 <br>
