@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is proof of a base and low mind for one to wish to think with the masses or majority, merely because the majority is the majority. Truth does not change because it is, or is not, believed by a majority of the people.</b>
-> <p><i>Giordano Bruno</i></p>
+> <b>A woman is gentle, soft, delicate, and a man's position is to protect her, help her up stairs, make sure she's in the car safely first. Take good care of your woman, and the sky's the limit!</b>
+> <p><i>Taraji P. Henson</i></p>
 
 <br>
