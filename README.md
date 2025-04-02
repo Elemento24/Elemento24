@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is the first limitation on roles that I've ever had to encounter, and I hit that awhile ago.</b>
-> <p><i>Jack Nicholson</i></p>
+> <b>It is proof of a base and low mind for one to wish to think with the masses or majority, merely because the majority is the majority. Truth does not change because it is, or is not, believed by a majority of the people.</b>
+> <p><i>Giordano Bruno</i></p>
 
 <br>
