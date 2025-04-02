@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best author will be the one who is ashamed to become a writer.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>Beer, it's the best damn drink in the world.</b>
+> <p><i>Jack Nicholson</i></p>
 
 <br>
