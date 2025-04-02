@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to work with kids and help develop them, show them the right way, the right morals and attitude into how to become a better footballer. Australia has many different cultures but I'd like to bring in the indigenous style, bring their competitiveness, athleticism and raw ability into the frame.</b>
-> <p><i>Timothy F. Cahill</i></p>
+> <b>If you've ever made change in the offering plate, you might be a redneck.</b>
+> <p><i>Jeff Foxworthy</i></p>
 
 <br>
