@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you've ever made change in the offering plate, you might be a redneck.</b>
-> <p><i>Jeff Foxworthy</i></p>
+> <b>If people in the media cannot decide whether they are in the business of reporting news or manufacturing propaganda, it is all the more important that the public understand that difference, and choose their news sources accordingly.</b>
+> <p><i>Thomas Sowell</i></p>
 
 <br>
