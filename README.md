@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is man's ultimate direction in life? It is to look for love, truth, virtue, and beauty.</b>
-> <p><i>Shinichi Suzuki</i></p>
+> <b>Music is spiritual. The music business is not.</b>
+> <p><i>Van Morrison</i></p>
 
 <br>
