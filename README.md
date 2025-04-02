@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing what some people read into songs.</b>
-> <p><i>Richard Thompson</i></p>
+> <b>I want to work with kids and help develop them, show them the right way, the right morals and attitude into how to become a better footballer. Australia has many different cultures but I'd like to bring in the indigenous style, bring their competitiveness, athleticism and raw ability into the frame.</b>
+> <p><i>Timothy F. Cahill</i></p>
 
 <br>
