@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yet what you need is not marches, demonstrations, rallies or wide associations, all of them are important. What you need is direct action. The sooner people understand that, the sooner we'll begin to change things.</b>
-> <p><i>Arthur Scargill</i></p>
+> <b>Vision is the art of seeing what is invisible to others.</b>
+> <p><i>Jonathan Swift</i></p>
 
 <br>
