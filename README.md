@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Editing yourself is like an irksome coin toss. You've got to strip yourself of super ego and operate from the id. Maybe I've got my Freud mixed up. It's just hard to trade a beauty shot for the performance with truth and a brightly lit zit.</b>
-> <p><i>Vera Farmiga</i></p>
+> <b>My mother encouraged it so much. She was so supportive. Even if as a kid, I would do the dumbest trick, which now that I look back on some things, she would love it, she would say that's amazing, or if I'd make the ugliest drawing, she would hang it up. She was amazing.</b>
+> <p><i>David Blaine</i></p>
 
 <br>
