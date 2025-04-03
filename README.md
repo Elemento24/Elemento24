@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So I think you have to marry for the right reasons, and marry the right person.</b>
-> <p><i>Anne Bancroft</i></p>
+> <b>The best time to plan a book is while you're doing the dishes.</b>
+> <p><i>Agatha Christie</i></p>
 
 <br>
