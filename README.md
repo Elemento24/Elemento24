@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I think talent as a writer is hard-wired in, it's all there, at least the basic elements of it. You can't change it any more than you can choose whether to be right handed or left handed.</b>
-> <p><i>Stephen King</i></p>
+> <b>You end up as you deserve. In old age you must put up with the face, the friends, the health, and the children you have earned.</b>
+> <p><i>Judith Viorst</i></p>
 
 <br>
