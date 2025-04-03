@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Going to a concert is so overwhelming and the energy is amazing.</b>
-> <p><i>Victoria Justice</i></p>
+> <b>Art is a collaboration between God and the artist, and the less the artist does the better.</b>
+> <p><i>Andre Gide</i></p>
 
 <br>
