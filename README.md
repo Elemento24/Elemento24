@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In less enlightened times, the best way to impress women was to own a hot car. But women wised up and realized it was better to buy their own hot cars so they wouldn't have to ride around with jerks.</b>
-> <p><i>Scott Adams</i></p>
+> <b>Going to a concert is so overwhelming and the energy is amazing.</b>
+> <p><i>Victoria Justice</i></p>
 
 <br>
