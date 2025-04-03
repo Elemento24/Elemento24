@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vision is the art of seeing what is invisible to others.</b>
-> <p><i>Jonathan Swift</i></p>
+> <b>We were astonished by the beauty and refinement of the art displayed by the objects surpassing all we could have imagined - the impression was overwhelming.</b>
+> <p><i>Howard Carter</i></p>
 
 <br>
