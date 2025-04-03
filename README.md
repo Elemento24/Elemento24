@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother asked me what I wanted for my birthday, so I said I wanted to read poetry with her.</b>
-> <p><i>Guy Johnson</i></p>
+> <b>You have to accept whatever comes and the only important thing is that you meet it with courage and with the best that you have to give.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
