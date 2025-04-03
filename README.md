@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, teamwork is the beauty of our sport, where you have five acting as one. You become selfless.</b>
-> <p><i>Mike Krzyzewski</i></p>
+> <b>In less enlightened times, the best way to impress women was to own a hot car. But women wised up and realized it was better to buy their own hot cars so they wouldn't have to ride around with jerks.</b>
+> <p><i>Scott Adams</i></p>
 
 <br>
