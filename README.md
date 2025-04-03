@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's the most amazing feeling to hold your child in your arms.</b>
-> <p><i>Chris O'Donnell</i></p>
+> <b>It is my personality alone that has brought back the waltz and made it a global craze.</b>
+> <p><i>Andre Rieu</i></p>
 
 <br>
