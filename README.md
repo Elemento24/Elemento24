@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age isn't so bad when you consider the alternative.</b>
-> <p><i>Maurice Chevalier</i></p>
+> <b>I just had my 30th birthday and we went turkey shooting. It's what I wanted to do, so we went.</b>
+> <p><i>Kelly Clarkson</i></p>
 
 <br>
