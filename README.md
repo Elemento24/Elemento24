@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we need one recognized, respected public figure to make a tough, blunt statement on just what Reagan's record is and what he might do to the country, let alone the Republican Party before Christmas.</b>
-> <p><i>Robert Teeter</i></p>
+> <b>My mother asked me what I wanted for my birthday, so I said I wanted to read poetry with her.</b>
+> <p><i>Guy Johnson</i></p>
 
 <br>
