@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother encouraged it so much. She was so supportive. Even if as a kid, I would do the dumbest trick, which now that I look back on some things, she would love it, she would say that's amazing, or if I'd make the ugliest drawing, she would hang it up. She was amazing.</b>
-> <p><i>David Blaine</i></p>
+> <b>I think we need one recognized, respected public figure to make a tough, blunt statement on just what Reagan's record is and what he might do to the country, let alone the Republican Party before Christmas.</b>
+> <p><i>Robert Teeter</i></p>
 
 <br>
