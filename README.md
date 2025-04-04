@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm 36 and if I met a woman of my own age and married her, I'd also be marrying her former life, her past. It might be OK for some people - I don't want to judge it or anything - but it's not for me. It would destroy my creativity.</b>
-> <p><i>Henry Rollins</i></p>
+> <b>Today I see beauty everywhere I go, in every face I see, in every single soul.</b>
+> <p><i>Kevyn Aucoin</i></p>
 
 <br>
