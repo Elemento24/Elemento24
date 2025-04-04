@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the unknown that excites the ardor of scholars, who, in the known alone, would shrivel up with boredom.</b>
-> <p><i>Wallace Stevens</i></p>
+> <b>I have a desire to create more film, more beauty, more art, more love, but I don't feel desperate. It's not about creating or building a career.</b>
+> <p><i>Lisa Bonet</i></p>
 
 <br>
