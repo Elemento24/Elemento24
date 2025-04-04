@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But one of the amazing things about documentary is that you can remake it every time you make one. There is no rule about how a documentary film has to be made.</b>
-> <p><i>Errol Morris</i></p>
+> <b>On stage I make love to twenty five thousand people and then I go home alone.</b>
+> <p><i>Janis Joplin</i></p>
 
 <br>
