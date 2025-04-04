@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In almost every profession - whether it's law or journalism, finance or medicine or academia or running a small business - people rely on confidential communications to do their jobs. We count on the space of trust that confidentiality provides. When someone breaches that trust, we are all worse off for it.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>A man is relieved and gay when he has put his heart into his work and done his best but what he has said or done otherwise shall give him no peace.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
