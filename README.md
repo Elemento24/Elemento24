@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In this world nothing can be said to be certain, except death and taxes.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>All cities do face similar, significant trends in the future... most importantly global warming and climate change.</b>
+> <p><i>Cate Blanchett</i></p>
 
 <br>
