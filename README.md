@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry is the art of substantiating shadows, and of lending existence to nothing.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>At home in Ireland, there's a habit of avoidance, an ironical attitude towards the authority figure.</b>
+> <p><i>Seamus Heaney</i></p>
 
 <br>
