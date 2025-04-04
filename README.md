@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man is relieved and gay when he has put his heart into his work and done his best but what he has said or done otherwise shall give him no peace.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>Old age is like everything else. To make a success of it, you've got to start young.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
