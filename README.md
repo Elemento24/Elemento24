@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We want to reinvent the phone. What's the killer app? The killer app is making calls! It's amazing how hard it is to make calls on most phones. We want to let you use contacts like never before - sync your iPhone with your PC or mac.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>I had no idea that he was going to write that, but I've always believed that insecurity was what would keep you always in your innocence, no matter what the business did.</b>
+> <p><i>Sally Kirkland</i></p>
 
 <br>
