@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On stage I make love to twenty five thousand people and then I go home alone.</b>
-> <p><i>Janis Joplin</i></p>
+> <b>The ruling ideas of each age have ever been the ideas of its ruling class.</b>
+> <p><i>Karl Marx</i></p>
 
 <br>
