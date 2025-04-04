@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today I see beauty everywhere I go, in every face I see, in every single soul.</b>
-> <p><i>Kevyn Aucoin</i></p>
+> <b>Change is such hard work.</b>
+> <p><i>Billy Crystal</i></p>
 
 <br>
