@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The doer alone learneth.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>It is the unknown that excites the ardor of scholars, who, in the known alone, would shrivel up with boredom.</b>
+> <p><i>Wallace Stevens</i></p>
 
 <br>
