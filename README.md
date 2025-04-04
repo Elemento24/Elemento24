@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is like everything else. To make a success of it, you've got to start young.</b>
-> <p><i>Theodore Roosevelt</i></p>
+> <b>In this world nothing can be said to be certain, except death and taxes.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
