@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is such hard work.</b>
-> <p><i>Billy Crystal</i></p>
+> <b>But one of the amazing things about documentary is that you can remake it every time you make one. There is no rule about how a documentary film has to be made.</b>
+> <p><i>Errol Morris</i></p>
 
 <br>
