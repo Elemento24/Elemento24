@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man is never completely alone in this world. At the worst, he has the company of a boy, a youth, and by and by a grown man - the one he used to be.</b>
-> <p><i>Cesare Pavese</i></p>
+> <b>I think my best work is when I'm kind of in charge.</b>
+> <p><i>Chris Rock</i></p>
 
 <br>
