@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman's beauty is one of her great missions.</b>
-> <p><i>Richard Le Gallienne</i></p>
+> <b>Beauty is in the eye of the beer holder.</b>
+> <p><i>Kinky Friedman</i></p>
 
 <br>
