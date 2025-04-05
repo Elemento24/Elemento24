@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anybody who really knows about the TV business knows that it would be impossible to just march in one day and say to your colleagues and bosses, 'Oh yes, I'm hosting my own show.'</b>
-> <p><i>Andy Cohen</i></p>
+> <b>It's so hard for women in this business. And I want to be doing this when I'm 50.</b>
+> <p><i>Sienna Miller</i></p>
 
 <br>
