@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today it is not big business that we have to fear. It is big government.</b>
-> <p><i>Wendell Phillips</i></p>
+> <b>What is comedy? Comedy is the art of making people laugh without making them puke.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
