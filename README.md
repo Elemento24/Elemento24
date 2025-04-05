@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always been aware that you have to get people listening before you can change their minds. Any artist's big fear is being ignored, so if you get debate, that's great.</b>
-> <p><i>Damien Hirst</i></p>
+> <b>When you ain't got no money, you gotta get an attitude.</b>
+> <p><i>Richard Pryor</i></p>
 
 <br>
