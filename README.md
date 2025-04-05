@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Lord had the wonderful advantage of being able to work alone.</b>
-> <p><i>Kofi Annan</i></p>
+> <b>Faith in oneself is the best and safest course.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
