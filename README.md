@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Summer of Love: Art of the Psychedelic Era,' the Whitney Museum's 40th-anniversary trip down counterculture memory lane, provides moments of buzzy fun, but it'll leave you only comfortably numb. For starters, it may be the whitest, straightest, most conservative show seen in a New York museum since psychedelia was new.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Anybody who really knows about the TV business knows that it would be impossible to just march in one day and say to your colleagues and bosses, 'Oh yes, I'm hosting my own show.'</b>
+> <p><i>Andy Cohen</i></p>
 
 <br>
