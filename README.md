@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All art is but imitation of nature.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>I have always been aware that you have to get people listening before you can change their minds. Any artist's big fear is being ignored, so if you get debate, that's great.</b>
+> <p><i>Damien Hirst</i></p>
 
 <br>
