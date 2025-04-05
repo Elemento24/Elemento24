@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.</b>
-> <p><i>Mark Twain</i></p>
+> <b>A man is never completely alone in this world. At the worst, he has the company of a boy, a youth, and by and by a grown man - the one he used to be.</b>
+> <p><i>Cesare Pavese</i></p>
 
 <br>
