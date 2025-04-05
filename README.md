@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Faith in oneself is the best and safest course.</b>
-> <p><i>Michelangelo</i></p>
+> <b>Once I got out of architecture school I decided not to be an architect, I just started my own little design studio.</b>
+> <p><i>Joseph Kosinski</i></p>
 
 <br>
