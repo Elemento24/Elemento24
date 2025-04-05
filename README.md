@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whether you were talking about Pillsbury, Burger King, Godfather's, the National Restaurant Association, in each one of those situations, I had a daunting problem that I had to solve. And I used the same business principles to approach the problem and, more importantly, solve the problem in every one of the situations.</b>
-> <p><i>Herman Cain</i></p>
+> <b>A woman's beauty is one of her great missions.</b>
+> <p><i>Richard Le Gallienne</i></p>
 
 <br>
