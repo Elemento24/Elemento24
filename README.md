@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think my best work is when I'm kind of in charge.</b>
-> <p><i>Chris Rock</i></p>
+> <b>Great art picks up where nature ends.</b>
+> <p><i>Marc Chagall</i></p>
 
 <br>
