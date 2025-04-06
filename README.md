@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At some point, I would like to write a book and other things, but I work best when there is some sort of deadline in my own mind, but not when fifty people or fifty million people are breathing down the back of my neck.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Everyone at home is so supportive. People recognise me, say how proud they are of me. It's awesome to hear, it's amazing to know I can touch so many people in a positive way.</b>
+> <p><i>Kirsty Coventry</i></p>
 
 <br>
