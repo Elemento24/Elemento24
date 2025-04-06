@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The price of success is hard work, dedication to the job at hand, and the determination that whether we win or lose, we have applied the best of ourselves to the task at hand.</b>
-> <p><i>Vince Lombardi</i></p>
+> <b>I feel lazy when I'm not working. I learned all my business sense from my dad. He always believed in me, and I think the last thing he said to me before he passed away was, 'I know you're gonna be OK. I'm not worried about you'.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
