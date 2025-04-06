@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is the learned game, correct and magnificent, of forms assembled in the light.</b>
-> <p><i>Le Corbusier</i></p>
+> <b>Shakespeare is all big themes, like the most amazing love, or the most scary war.</b>
+> <p><i>Anna Torv</i></p>
 
 <br>
