@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People can try to reinvent themselves. I don't think you can really change who you are, though, because who you are is pretty much where you came from and what you've done up to now.</b>
-> <p><i>Eminem</i></p>
+> <b>At some point, I would like to write a book and other things, but I work best when there is some sort of deadline in my own mind, but not when fifty people or fifty million people are breathing down the back of my neck.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
