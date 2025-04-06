@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shakespeare is all big themes, like the most amazing love, or the most scary war.</b>
-> <p><i>Anna Torv</i></p>
+> <b>Don't simply retire from something have something to retire to.</b>
+> <p><i>Harry Emerson Fosdick</i></p>
 
 <br>
