@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When science, art, literature, and philosophy are simply the manifestation of personality they are on a level where glorious and dazzling achievements are possible, which can make a man's name live for thousands of years.</b>
-> <p><i>Denis Diderot</i></p>
+> <b>I saw 'Taxi Driver,' and 'Taxi Driver' kind of saved my life. The scene where Robert De Niro is looking at himself in the mirror saying, 'You talkin' to me? You talkin' to me? Who the hell else are you talkin' to?' That's the scene that changed my life by changing my attitude about acting.</b>
+> <p><i>Michael Biehn</i></p>
 
 <br>
