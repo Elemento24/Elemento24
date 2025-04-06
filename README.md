@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Punctuality is one of the cardinal business virtues: always insist on it in your subordinates.</b>
-> <p><i>Don Marquis</i></p>
+> <b>Architecture is the learned game, correct and magnificent, of forms assembled in the light.</b>
+> <p><i>Le Corbusier</i></p>
 
 <br>
