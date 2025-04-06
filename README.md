@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was old enough to go to movies alone, I got to see 'Frankenstein' and 'Dracula' on the big screen. I just fell in love with them.</b>
-> <p><i>George A. Romero</i></p>
+> <b>When science, art, literature, and philosophy are simply the manifestation of personality they are on a level where glorious and dazzling achievements are possible, which can make a man's name live for thousands of years.</b>
+> <p><i>Denis Diderot</i></p>
 
 <br>
