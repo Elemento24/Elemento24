@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone at home is so supportive. People recognise me, say how proud they are of me. It's awesome to hear, it's amazing to know I can touch so many people in a positive way.</b>
-> <p><i>Kirsty Coventry</i></p>
+> <b>And then there's all these other creeps that surround your band and suck off you like leeches and try to manipulate you and your business. You have to watch like a hawk. I'm always ready to fight. I see it very much as a battle.</b>
+> <p><i>Shirley Manson</i></p>
 
 <br>
