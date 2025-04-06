@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The terror of the atom age is not the violence of the new power but the speed of man's adjustment to it, the speed of his acceptance.</b>
-> <p><i>E. B. White</i></p>
+> <b>Maybe I'll be a feminist in my old age.</b>
+> <p><i>Bjork</i></p>
 
 <br>
