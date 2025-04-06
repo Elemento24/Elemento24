@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel lazy when I'm not working. I learned all my business sense from my dad. He always believed in me, and I think the last thing he said to me before he passed away was, 'I know you're gonna be OK. I'm not worried about you'.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>Pebble Beach. It is tough and the lay out is amazing.</b>
+> <p><i>Natalie Gulbis</i></p>
 
 <br>
