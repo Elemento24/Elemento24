@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I finish an album and I find myself listening to it in the car, because it makes me feel a certain way, that's the time to try to let other people know about it.</b>
-> <p><i>Herb Alpert</i></p>
+> <b>The price of success is hard work, dedication to the job at hand, and the determination that whether we win or lose, we have applied the best of ourselves to the task at hand.</b>
+> <p><i>Vince Lombardi</i></p>
 
 <br>
