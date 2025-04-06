@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If people don't like me for whatever I do, for being me, then that's too bad. I don't want to change to be something that I'm not for other people to like me.</b>
-> <p><i>Vanessa Hudgens</i></p>
+> <b>It's necessary to start most work alone. But I'm tickled to death when I can pull somebody in or join someone, whether it's borrowing poetry or traveling with an associate.</b>
+> <p><i>Jenny Holzer</i></p>
 
 <br>
