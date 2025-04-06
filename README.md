@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is comedy? Comedy is the art of making people laugh without making them puke.</b>
-> <p><i>Steve Martin</i></p>
+> <b>When I finish an album and I find myself listening to it in the car, because it makes me feel a certain way, that's the time to try to let other people know about it.</b>
+> <p><i>Herb Alpert</i></p>
 
 <br>
