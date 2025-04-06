@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't simply retire from something have something to retire to.</b>
-> <p><i>Harry Emerson Fosdick</i></p>
+> <b>The terror of the atom age is not the violence of the new power but the speed of man's adjustment to it, the speed of his acceptance.</b>
+> <p><i>E. B. White</i></p>
 
 <br>
