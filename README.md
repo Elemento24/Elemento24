@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't change your beliefs, your life will be like this forever. Is that good news?</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>For time and the world do not stand still. Change is the law of life. And those who look only to the past or the present are certain to miss the future.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
