@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything will change. The only question is growing up or decaying.</b>
-> <p><i>Nikki Giovanni</i></p>
+> <b>Everyone thinks of changing the world, but no one thinks of changing himself.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
