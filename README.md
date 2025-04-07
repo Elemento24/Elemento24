@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When virtue and modesty enlighten her charms, the lustre of a beautiful woman is brighter than the stars of heaven, and the influence of her power it is in vain to resist.</b>
-> <p><i>Akhenaton</i></p>
+> <b>Do not rely completely on any other human being, however dear. We meet all life's greatest tests alone.</b>
+> <p><i>Agnes Macphail</i></p>
 
 <br>
