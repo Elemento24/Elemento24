@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The person who knows one thing and does it better than anyone else, even if it only be the art of raising lentils, receives the crown he merits. If he raises all his energy to that end, he is a benefactor of mankind and its rewarded as such.</b>
-> <p><i>Og Mandino</i></p>
+> <b>Listening to my regular favourites - Mozart, Beethoven, Brahms and so on - I always feel, quite misguidedly, that nothing can be too bad if such beauty and brilliance exists in the world.</b>
+> <p><i>Jane Asher</i></p>
 
 <br>
