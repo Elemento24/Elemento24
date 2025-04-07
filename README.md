@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very concerned for the future of the earth and its amazing creatures. We've got to be careful and make sure we don't foul our own nest.</b>
-> <p><i>John Lithgow</i></p>
+> <b>Being an actor is the loneliest thing in the world. You are all alone with your concentration and imagination, and that's all you have.</b>
+> <p><i>James Dean</i></p>
 
 <br>
