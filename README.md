@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is from the womb of art that criticism was born.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>The primary distinction of the artist is that he must actively cultivate that state which most men, necessarily, must avoid the state of being alone.</b>
+> <p><i>James Baldwin</i></p>
 
 <br>
