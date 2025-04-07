@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else.</b>
-> <p><i>Sam Walton</i></p>
+> <b>If an Internet company steals content, they shut it down. And let me tell you, Apple France, Yahoo France or Google France, none of them have gone out of business.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
