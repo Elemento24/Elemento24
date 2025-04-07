@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not rely completely on any other human being, however dear. We meet all life's greatest tests alone.</b>
-> <p><i>Agnes Macphail</i></p>
+> <b>Everything will change. The only question is growing up or decaying.</b>
+> <p><i>Nikki Giovanni</i></p>
 
 <br>
