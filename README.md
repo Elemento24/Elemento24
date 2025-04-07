@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The primary distinction of the artist is that he must actively cultivate that state which most men, necessarily, must avoid the state of being alone.</b>
-> <p><i>James Baldwin</i></p>
+> <b>I'm very concerned for the future of the earth and its amazing creatures. We've got to be careful and make sure we don't foul our own nest.</b>
+> <p><i>John Lithgow</i></p>
 
 <br>
