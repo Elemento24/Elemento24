@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I sailboat raced, I love to go out on my motorcycle alone, but I also love my family dearly. I love that aspect of my life as well.</b>
-> <p><i>Bob Seger</i></p>
+> <b>The person who knows one thing and does it better than anyone else, even if it only be the art of raising lentils, receives the crown he merits. If he raises all his energy to that end, he is a benefactor of mankind and its rewarded as such.</b>
+> <p><i>Og Mandino</i></p>
 
 <br>
