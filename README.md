@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That sort of half sigh, which, accompanied by two or three slight nods of the head, is pity's small change in general society.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>As life runs on, the road grows strange with faces new - and near the end. The milestones into headstones change, Neath every one a friend.</b>
+> <p><i>James Russell Lowell</i></p>
 
 <br>
