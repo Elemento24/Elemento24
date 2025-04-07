@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If an Internet company steals content, they shut it down. And let me tell you, Apple France, Yahoo France or Google France, none of them have gone out of business.</b>
-> <p><i>Harvey Weinstein</i></p>
+> <b>When virtue and modesty enlighten her charms, the lustre of a beautiful woman is brighter than the stars of heaven, and the influence of her power it is in vain to resist.</b>
+> <p><i>Akhenaton</i></p>
 
 <br>
