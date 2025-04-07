@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For time and the world do not stand still. Change is the law of life. And those who look only to the past or the present are certain to miss the future.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>Mission accomplished. The Museum of Modern Art's wide-open, tall-ceilinged, super-reinforced second floor was for all intents and purposes built to accommodate monumental installations and gigantic sculptures, should the need arise. It has arisen.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
