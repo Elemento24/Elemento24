@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As life runs on, the road grows strange with faces new - and near the end. The milestones into headstones change, Neath every one a friend.</b>
-> <p><i>James Russell Lowell</i></p>
+> <b>Fear is that thing that keeps you up there on that other plateau. Fear is that thing that just keeps you closed down, and quite frankly, alone.</b>
+> <p><i>Andrew Shue</i></p>
 
 <br>
