@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is when your age starts to show around your middle.</b>
-> <p><i>Bob Hope</i></p>
+> <b>As a kid, I always loved serialized books. It's the reason why people love 'Harry Potter.' Serialization is amazing. It works in television. It works in film and it works in books. Especially when you're a young kid, you get attached to these characters.</b>
+> <p><i>Mindy Kaling</i></p>
 
 <br>
