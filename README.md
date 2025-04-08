@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are all geniuses up to the age of ten.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>Before 'Twilight,' occasionally I would get the 'Hey are you that girl from that movie?' but no one knew my first and last name. The fans of the saga are amazing, and it's very flattering.</b>
+> <p><i>Nikki Reed</i></p>
 
 <br>
