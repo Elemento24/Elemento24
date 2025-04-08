@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man does not live by words alone, despite the fact that sometimes he has to eat them.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>I don't care whether people like me or dislike me. I'm not on earth to win a popularity contest. I'm here to be the best human being I possibly can be.</b>
+> <p><i>Tab Hunter</i></p>
 
 <br>
