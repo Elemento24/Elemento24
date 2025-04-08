@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being an actor is the loneliest thing in the world. You are all alone with your concentration and imagination, and that's all you have.</b>
-> <p><i>James Dean</i></p>
+> <b>Everything that has happened to me has been amazing and surprising.</b>
+> <p><i>R. L. Stine</i></p>
 
 <br>
