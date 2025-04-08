@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything that has happened to me has been amazing and surprising.</b>
-> <p><i>R. L. Stine</i></p>
+> <b>Middle age is when your age starts to show around your middle.</b>
+> <p><i>Bob Hope</i></p>
 
 <br>
