@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a kid, I always loved serialized books. It's the reason why people love 'Harry Potter.' Serialization is amazing. It works in television. It works in film and it works in books. Especially when you're a young kid, you get attached to these characters.</b>
-> <p><i>Mindy Kaling</i></p>
+> <b>The last real movie stars were probably Redford and Newman. And things were different then. There wasn't this amazing amount of magazines and information about them.</b>
+> <p><i>George Clooney</i></p>
 
 <br>
