@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The London games mark the 24th anniversary of my winning two golds and setting the world record in the heptathlon. Someone is going to want it records are made to be broken - it's only a matter of time. I hope mine will outlive me.</b>
-> <p><i>Jackie Joyner-Kersee</i></p>
+> <b>I believe that the majority of times the scale tilts toward the good. It's this amazing thing that rolls on and if we get in the flow of it, that's God. And if we fight it, if we swim the other way, we're swimming away from the purest expression of this life.</b>
+> <p><i>Michael J. Fox</i></p>
 
 <br>
