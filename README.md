@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What influenced me was Tori Amos, who was unapologetic about expressing anger through music, and Sinead O'Connor. Those two in particular were really moving for me, and very inspiring, before I wrote 'Jagged Little Pill.'</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>To know how to suggest is the great art of teaching. To attain it we must be able to guess what will interest we must learn to read the childish soul as we might a piece of music. Then, by simply changing the key, we keep up the attraction and vary the song.</b>
+> <p><i>Henri Frederic Amiel</i></p>
 
 <br>
