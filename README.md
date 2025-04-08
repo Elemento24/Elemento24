@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that the majority of times the scale tilts toward the good. It's this amazing thing that rolls on and if we get in the flow of it, that's God. And if we fight it, if we swim the other way, we're swimming away from the purest expression of this life.</b>
-> <p><i>Michael J. Fox</i></p>
+> <b>That's your best friend and your worst enemy - your own brain.</b>
+> <p><i>Fred Durst</i></p>
 
 <br>
