@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to serve chess through games, books that are works of art. I would like to bring the game closer to many people all over the world.</b>
-> <p><i>Garry Kasparov</i></p>
+> <b>We are all geniuses up to the age of ten.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
