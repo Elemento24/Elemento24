@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The last real movie stars were probably Redford and Newman. And things were different then. There wasn't this amazing amount of magazines and information about them.</b>
-> <p><i>George Clooney</i></p>
+> <b>Many a revolution started with the actions of a few. Only 56 men signed the Declaration of Independence. A few hanging together can lead a nation to change.</b>
+> <p><i>Wynton Marsalis</i></p>
 
 <br>
