@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To know how to suggest is the great art of teaching. To attain it we must be able to guess what will interest we must learn to read the childish soul as we might a piece of music. Then, by simply changing the key, we keep up the attraction and vary the song.</b>
-> <p><i>Henri Frederic Amiel</i></p>
+> <b>The London games mark the 24th anniversary of my winning two golds and setting the world record in the heptathlon. Someone is going to want it records are made to be broken - it's only a matter of time. I hope mine will outlive me.</b>
+> <p><i>Jackie Joyner-Kersee</i></p>
 
 <br>
