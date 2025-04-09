@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In fact, it is amazing how much European films - Italian, French, German and English - have recovered a certain territory of the audience in their countries over the last few years.</b>
-> <p><i>Wim Wenders</i></p>
+> <b>Art is not a study of positive reality, it is the seeking for ideal truth.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
