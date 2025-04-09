@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm one of those people who thinks that changing one's hair is the only part of the body that you can change at will.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>In fact, it is amazing how much European films - Italian, French, German and English - have recovered a certain territory of the audience in their countries over the last few years.</b>
+> <p><i>Wim Wenders</i></p>
 
 <br>
