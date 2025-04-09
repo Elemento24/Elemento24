@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art cannot result from sophisticated, frivolous, or superficial effects.</b>
-> <p><i>Hans Hofmann</i></p>
+> <b>A career is all very well, but no one lives by work alone.</b>
+> <p><i>Lorna Luft</i></p>
 
 <br>
