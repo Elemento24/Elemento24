@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So many women keep their anger inside and let it build until they explode and then people blow them off again.</b>
-> <p><i>Rosalind Wiseman</i></p>
+> <b>Consider what kind of car you get. Buy cars and other products that have the least impact environmentally.</b>
+> <p><i>Al Gore</i></p>
 
 <br>
