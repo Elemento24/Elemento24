@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To copy beauty forfeits all pretense to fame to copy faults is want of sense.</b>
-> <p><i>Charles Churchill</i></p>
+> <b>Were I called on to define, very briefly, the term Art, I should call it 'the reproduction of what the Senses perceive in Nature through the veil of the soul.' The mere imitation, however accurate, of what is in Nature, entitles no man to the sacred name of 'Artist.'</b>
+> <p><i>Edgar Allan Poe</i></p>
 
 <br>
