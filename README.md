@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You want to make sure this particular car is going to please the customer and then you're going to be rewarded with something that is going to please the shareholder.</b>
-> <p><i>Carlos Ghosn</i></p>
+> <b>To copy beauty forfeits all pretense to fame to copy faults is want of sense.</b>
+> <p><i>Charles Churchill</i></p>
 
 <br>
