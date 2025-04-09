@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Get in the race car do what I do then go home. We don't have freedom to do anything anymore.</b>
-> <p><i>Tony Stewart</i></p>
+> <b>The idea that maybe you don't have to own a car if you only need one occasionally may catch on, just like time-sharing caught on in real estate.</b>
+> <p><i>Steve Case</i></p>
 
 <br>
