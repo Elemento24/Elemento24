@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes the beauty is easy. Sometimes you don't have to try at all. Sometimes you can hear the wind blow in a handshake. Sometimes there's poetry written right on the bathroom wall.</b>
-> <p><i>Ani DiFranco</i></p>
+> <b>I just want to work forever. I absolutely love what I'm doing. I learn all the time from all these amazing artists.</b>
+> <p><i>Juno Temple</i></p>
 
 <br>
