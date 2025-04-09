@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The short words are best, and the old words are the best of all.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>I'm one of those people who thinks that changing one's hair is the only part of the body that you can change at will.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
