@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like being in houses alone.</b>
-> <p><i>Martin Scorsese</i></p>
+> <b>So many women keep their anger inside and let it build until they explode and then people blow them off again.</b>
+> <p><i>Rosalind Wiseman</i></p>
 
 <br>
