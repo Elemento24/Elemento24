@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Were I called on to define, very briefly, the term Art, I should call it 'the reproduction of what the Senses perceive in Nature through the veil of the soul.' The mere imitation, however accurate, of what is in Nature, entitles no man to the sacred name of 'Artist.'</b>
-> <p><i>Edgar Allan Poe</i></p>
+> <b>Come to West Virginia and we'll show you how to live... how to treat people. We're open for business. West Virginia is truly on the move.</b>
+> <p><i>Joe Manchin</i></p>
 
 <br>
