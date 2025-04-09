@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Consider what kind of car you get. Buy cars and other products that have the least impact environmentally.</b>
-> <p><i>Al Gore</i></p>
+> <b>You want to make sure this particular car is going to please the customer and then you're going to be rewarded with something that is going to please the shareholder.</b>
+> <p><i>Carlos Ghosn</i></p>
 
 <br>
