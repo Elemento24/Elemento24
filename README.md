@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just want to work forever. I absolutely love what I'm doing. I learn all the time from all these amazing artists.</b>
-> <p><i>Juno Temple</i></p>
+> <b>Get in the race car do what I do then go home. We don't have freedom to do anything anymore.</b>
+> <p><i>Tony Stewart</i></p>
 
 <br>
