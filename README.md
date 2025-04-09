@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whatever you may look like, marry a man your own age - as your beauty fades, so will his eyesight.</b>
-> <p><i>Phyllis Diller</i></p>
+> <b>Sometimes the beauty is easy. Sometimes you don't have to try at all. Sometimes you can hear the wind blow in a handshake. Sometimes there's poetry written right on the bathroom wall.</b>
+> <p><i>Ani DiFranco</i></p>
 
 <br>
