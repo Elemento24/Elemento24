@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not a study of positive reality, it is the seeking for ideal truth.</b>
-> <p><i>John Ruskin</i></p>
+> <b>But Apple really beats to a different drummer. I used to say that Apple should be the Sony of this business, but in reality, I think Apple should be the Apple of this business.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
