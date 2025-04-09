@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A career is all very well, but no one lives by work alone.</b>
-> <p><i>Lorna Luft</i></p>
+> <b>The short words are best, and the old words are the best of all.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
