@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps I know best why it is man alone who laughs he alone suffers so deeply that he had to invent laughter.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>Beauty is in the eye of the beholder.</b>
+> <p><i>Oliver Platt</i></p>
 
 <br>
