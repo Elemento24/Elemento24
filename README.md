@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Here's my Golden Rule for a tarnished age: Be fair with others, but keep after them until they're fair with you.</b>
-> <p><i>Alan Alda</i></p>
+> <b>I played with the same band for years and years and there's a beauty to having one solid core that you keep exploring. On the other hand, it's nice to throw yourself in different situations where you find out things about your own resources.</b>
+> <p><i>Grant-Lee Phillips</i></p>
 
 <br>
