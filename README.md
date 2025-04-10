@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children, dear and loving children, can alone console a woman for the loss of her beauty.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>It is not short of amazing, the power of a great idea to weld men together. There was in it a peculiar, intense, vital spirit if you will, that I have never felt before in any strike.</b>
+> <p><i>Ray Stannard Baker</i></p>
 
 <br>
