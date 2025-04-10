@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One cannot develop taste from what is of average quality but only from the very best.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>The body is your instrument in dance, but your art is outside that creature, the body.</b>
+> <p><i>Martha Graham</i></p>
 
 <br>
