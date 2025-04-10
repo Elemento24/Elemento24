@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I trust in nature for the stable laws of beauty and utility. Spring shall plant and autumn garner to the end of time.</b>
-> <p><i>Robert Browning</i></p>
+> <b>Old age is far more than white hair, wrinkles, the feeling that it is too late and the game finished, that the stage belongs to the rising generations. The true evil is not the weakening of the body, but the indifference of the soul.</b>
+> <p><i>Andre Maurois</i></p>
 
 <br>
