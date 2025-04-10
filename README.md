@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not short of amazing, the power of a great idea to weld men together. There was in it a peculiar, intense, vital spirit if you will, that I have never felt before in any strike.</b>
-> <p><i>Ray Stannard Baker</i></p>
+> <b>I do support a sex-positive attitude for young people. Use condoms, that's important. I love the idea that promiscuity can be healthy but it's got some dodgy crevasses. Ooh, that's a bad reference! But it's got some dangerous cavities there. You know what I'm saying.</b>
+> <p><i>Rachael Taylor</i></p>
 
 <br>
