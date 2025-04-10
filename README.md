@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I paint with shapes.</b>
-> <p><i>Alexander Calder</i></p>
+> <b>Here's my Golden Rule for a tarnished age: Be fair with others, but keep after them until they're fair with you.</b>
+> <p><i>Alan Alda</i></p>
 
 <br>
