@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best interpreter of the law is custom.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>I just change with the times. I really don't have a say in what's going on. Music was here before me.</b>
+> <p><i>Snoop Dogg</i></p>
 
 <br>
