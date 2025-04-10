@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is in the eye of the beholder.</b>
-> <p><i>Oliver Platt</i></p>
+> <b>One cannot develop taste from what is of average quality but only from the very best.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
