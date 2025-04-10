@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom FedExes a red velvet cake she makes from scratch to me every birthday.</b>
-> <p><i>Molly Sims</i></p>
+> <b>Catholics and evangelicals need to remain allied, and in solidarity, against the increasingly aggressive secularism of our age.</b>
+> <p><i>Gary Bauer</i></p>
 
 <br>
