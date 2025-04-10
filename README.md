@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body is your instrument in dance, but your art is outside that creature, the body.</b>
-> <p><i>Martha Graham</i></p>
+> <b>The best way to turn a woman's head is to tell her she has a beautiful profile.</b>
+> <p><i>Sacha Guitry</i></p>
 
 <br>
