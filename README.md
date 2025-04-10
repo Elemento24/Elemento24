@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Catholics and evangelicals need to remain allied, and in solidarity, against the increasingly aggressive secularism of our age.</b>
-> <p><i>Gary Bauer</i></p>
+> <b>I trust in nature for the stable laws of beauty and utility. Spring shall plant and autumn garner to the end of time.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
