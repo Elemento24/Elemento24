@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Aesthetic emotion puts man in a state favorable to the reception of erotic emotion. Art is the accomplice of love. Take love away and there is no longer art.</b>
-> <p><i>Remy de Gourmont</i></p>
+> <b>Age is a very high price to pay for maturity.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
