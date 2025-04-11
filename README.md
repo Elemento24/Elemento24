@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each of us have things and thoughts and descriptions of an amazing universe in our possession that kings in the 17th Century would have gone to war to possess.</b>
-> <p><i>Kary Mullis</i></p>
+> <b>To me, photography is the simultaneous recognition, in a fraction of a second, of the significance of an event.</b>
+> <p><i>Henri Cartier-Bresson</i></p>
 
 <br>
