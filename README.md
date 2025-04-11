@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is difficult to make our material condition better by the best law, but it is easy enough to ruin it by bad laws.</b>
-> <p><i>Theodore Roosevelt</i></p>
+> <b>Old age isn't so bad when you consider the alternative.</b>
+> <p><i>Maurice Chevalier</i></p>
 
 <br>
