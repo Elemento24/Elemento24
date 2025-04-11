@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The hardest thing to understand in the world is the income tax.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>The art of Peace I practice has room for each of the world's eight million gods, and I cooperate with them all. The God of Peace is very great and enjoins all that is divine and enlightened in every land.</b>
+> <p><i>Morihei Ueshiba</i></p>
 
 <br>
