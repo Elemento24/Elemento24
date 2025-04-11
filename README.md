@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part about being alone is that you really don't have to answer to anybody. You do what you want.</b>
-> <p><i>Justin Timberlake</i></p>
+> <b>My success just evolved from working hard at the business at hand each day.</b>
+> <p><i>Johnny Carson</i></p>
 
 <br>
