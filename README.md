@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, photography is the simultaneous recognition, in a fraction of a second, of the significance of an event.</b>
-> <p><i>Henri Cartier-Bresson</i></p>
+> <b>We start 'The Butler' in June and that's incredibly exciting for me because I get to work with the amazing Forest Whitaker again. It's a phenomenal script and a great, great role - I play his son. Oprah Winfrey is his wife and my mother. My character is a radical civil rights activist.</b>
+> <p><i>David Oyelowo</i></p>
 
 <br>
