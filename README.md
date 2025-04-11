@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best argument I know for an immortal life is the existence of a man who deserves one.</b>
-> <p><i>William James</i></p>
+> <b>The best part about being alone is that you really don't have to answer to anybody. You do what you want.</b>
+> <p><i>Justin Timberlake</i></p>
 
 <br>
