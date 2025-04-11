@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man who has never made a woman angry is a failure in life.</b>
-> <p><i>Christopher Morley</i></p>
+> <b>I think that from the time you start playing sports as a child you see that your responsibility to your team is to play the best that you can play as an individual... and yet, not take anything away from being part of a team.</b>
+> <p><i>Wayne Gretzky</i></p>
 
 <br>
