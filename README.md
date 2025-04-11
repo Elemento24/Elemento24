@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I compare it to being in a car accident. There's so much adrenaline rushing through you that you remember being in the accident but you don't remember any of the details.</b>
-> <p><i>Brooke Langton</i></p>
+> <b>I must try and break through the cliches about Latin America. Superpowers and other outsiders have fought over us for centuries in ways that have nothing to do with our problems. In reality we are all alone.</b>
+> <p><i>Gabriel Garcia Marquez</i></p>
 
 <br>
