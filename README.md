@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age isn't so bad when you consider the alternative.</b>
-> <p><i>Maurice Chevalier</i></p>
+> <b>A man who has never made a woman angry is a failure in life.</b>
+> <p><i>Christopher Morley</i></p>
 
 <br>
