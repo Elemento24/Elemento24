@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I avoid talking before the youth of the age as I would dancing before them: for if one's tongue don't move in the steps of the day, and thinks to please by its old graces, it is only an object of ridicule.</b>
-> <p><i>Horace Walpole</i></p>
+> <b>Between 1910 and 1950 approximately 350 lives of Jesus were published in the English language alone.</b>
+> <p><i>John Clayton</i></p>
 
 <br>
