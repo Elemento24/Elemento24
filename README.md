@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who laughs most, learns best.</b>
-> <p><i>John Cleese</i></p>
+> <b>The Border Ballads, for instance, and the Robin Hood Ballads, clearly suppose a state of society which is nothing but a very circumscribed and not very important heroic age.</b>
+> <p><i>Lascelles Abercrombie</i></p>
 
 <br>
