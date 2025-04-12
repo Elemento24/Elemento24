@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Border Ballads, for instance, and the Robin Hood Ballads, clearly suppose a state of society which is nothing but a very circumscribed and not very important heroic age.</b>
-> <p><i>Lascelles Abercrombie</i></p>
+> <b>People who lean on logic and philosophy and rational exposition end by starving the best part of the mind.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
