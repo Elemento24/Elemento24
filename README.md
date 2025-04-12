@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All I try to do is create an atmosphere that seems comfortable enough, that it removes tension and everyone feels free. If they feel free then behaviour happens, small moments happen and that's what ultimately works the best for me.</b>
-> <p><i>Barry Levinson</i></p>
+> <b>I cannot go to Montreal without going to Beauty's, my favorite place for breakfast, where I have the Mish-Mash omelet with hot dogs, salami, eggs, green peppers, and onions, and the best banana bread in the world. It's legendary!</b>
+> <p><i>Gail Simmons</i></p>
 
 <br>
