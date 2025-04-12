@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a grim outlook on the world, and in particular on humanity. Spent years denying it, but I am very misanthropic. And I live alone on a mountain for a reason.</b>
-> <p><i>Caleb Carr</i></p>
+> <b>I'm so happy to have been a part of that process and I would go straight back into the desert in a ton of chain mail for Ridley any day of the week. He's an amazing director and I can't wait to see the long version.</b>
+> <p><i>Orlando Bloom</i></p>
 
 <br>
