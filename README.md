@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm so happy to have been a part of that process and I would go straight back into the desert in a ton of chain mail for Ridley any day of the week. He's an amazing director and I can't wait to see the long version.</b>
-> <p><i>Orlando Bloom</i></p>
+> <b>I have no requirements for a style of architecture.</b>
+> <p><i>Michael Graves</i></p>
 
 <br>
