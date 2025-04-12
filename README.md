@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was producing on my own, I was doing it in order to - in a very patriarchal entertainment industry, let alone planet - very much hell-bent on trying to prove to myself, if nothing else, that I could do it as a woman.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
