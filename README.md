@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of Peace I practice has room for each of the world's eight million gods, and I cooperate with them all. The God of Peace is very great and enjoins all that is divine and enlightened in every land.</b>
-> <p><i>Morihei Ueshiba</i></p>
+> <b>At fifteen, beauty and talent do not exist there can only be promise of the coming woman.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
