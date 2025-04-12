@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Between 1910 and 1950 approximately 350 lives of Jesus were published in the English language alone.</b>
-> <p><i>John Clayton</i></p>
+> <b>I'd like to introduce someone who has just come into my life. I've admired him for 35 years. He's someone who represents integrity, honesty, art, and on top of that stuff I'm actually sleeping with him.</b>
+> <p><i>Shirley MacLaine</i></p>
 
 <br>
