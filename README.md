@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd like to introduce someone who has just come into my life. I've admired him for 35 years. He's someone who represents integrity, honesty, art, and on top of that stuff I'm actually sleeping with him.</b>
-> <p><i>Shirley MacLaine</i></p>
+> <b>He who laughs most, learns best.</b>
+> <p><i>John Cleese</i></p>
 
 <br>
