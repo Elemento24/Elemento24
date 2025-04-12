@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only thing I fear more than change is no change. The business of being static makes me nuts.</b>
-> <p><i>Twyla Tharp</i></p>
+> <b>When I was producing on my own, I was doing it in order to - in a very patriarchal entertainment industry, let alone planet - very much hell-bent on trying to prove to myself, if nothing else, that I could do it as a woman.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
