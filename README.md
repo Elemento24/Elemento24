@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think art is propaganda it should be something that liberates the soul, provokes the imagination and encourages people to go further. It celebrates humanity instead of manipulating it.</b>
-> <p><i>Keith Haring</i></p>
+> <b>The only thing I fear more than change is no change. The business of being static makes me nuts.</b>
+> <p><i>Twyla Tharp</i></p>
 
 <br>
