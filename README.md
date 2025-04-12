@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a screamer. I'm confrontational, but I don't think that translates into anger.</b>
-> <p><i>Rachel Maddow</i></p>
+> <b>Scholarship was one thing, drudgery another. I very soon concluded that nothing would induce me to read, let alone make notes on, hundreds and hundreds of very, very, very boring books.</b>
+> <p><i>Simon Raven</i></p>
 
 <br>
