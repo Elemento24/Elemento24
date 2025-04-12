@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At fifteen, beauty and talent do not exist there can only be promise of the coming woman.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>Being a blockhead is sometimes the best security against being cheated by a man of wit.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
