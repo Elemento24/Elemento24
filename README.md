@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The son has always felt like he was a footnote in one of the stories the father tells. The father is an amazing storyteller and one of the tales that he tells is how he met his wife.</b>
-> <p><i>Danny DeVito</i></p>
+> <b>What troubles me is the Internet and the electronic technology revolution. Shyness is fueled in part by so many people spending huge amounts of time alone, isolated on e-mail, in chat rooms, which reduces their face-to-face contact with other people.</b>
+> <p><i>Philip Zimbardo</i></p>
 
 <br>
