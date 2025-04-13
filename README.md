@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always keep a ball in the car. You never know.</b>
-> <p><i>Hakeem Olajuwon</i></p>
+> <b>He is the best man who, when making his plans, fears and reflects on everything that can happen to him, but in the moment of action is bold.</b>
+> <p><i>Herodotus</i></p>
 
 <br>
