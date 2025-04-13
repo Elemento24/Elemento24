@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger: an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>Handmade presents are scary because they reveal that you have too much free time.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
