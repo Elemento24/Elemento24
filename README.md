@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have tried to be a leader. I have tried in my role of being one of the first women at Google, let alone the first woman to have a baby, to really try to set the tone that this is a great place to work for diversity reasons.</b>
-> <p><i>Susan Wojcicki</i></p>
+> <b>I'm so excited for my first fragrance! I chose to partner with Dots because I love what they do for their customers, bringing them the hottest trends in fashion, accessories and fragrance at unbelievably low prices. It's amazing!</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
