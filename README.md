@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He is the best man who, when making his plans, fears and reflects on everything that can happen to him, but in the moment of action is bold.</b>
-> <p><i>Herodotus</i></p>
+> <b>It was just like a dream. I could have ended up with an album that's not all that different from anything else coming out of Nashville. Mutt made the difference. He took these songs, my attitude, my creativity, and colored them in a way that is unique.</b>
+> <p><i>Shania Twain</i></p>
 
 <br>
