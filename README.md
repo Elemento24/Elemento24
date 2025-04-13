@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think having land and not ruining it is the most beautiful art that anybody could ever want to own.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>You don't have to carry a designer bag that costs more than a car to look cool.</b>
+> <p><i>Kesha</i></p>
 
 <br>
