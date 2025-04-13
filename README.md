@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm so excited for my first fragrance! I chose to partner with Dots because I love what they do for their customers, bringing them the hottest trends in fashion, accessories and fragrance at unbelievably low prices. It's amazing!</b>
-> <p><i>Jordin Sparks</i></p>
+> <b>I had never been able to get a car that said how much I cared about the environment until I drove electric.</b>
+> <p><i>Alexandra Paul</i></p>
 
 <br>
