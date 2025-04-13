@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My last trip to New Orleans was for the fifth anniversary of Katrina, and I had the awesome opportunity to bring my family down. We all worked on a house together and met some of the families.</b>
-> <p><i>AnnaLynne McCord</i></p>
+> <b>The son has always felt like he was a footnote in one of the stories the father tells. The father is an amazing storyteller and one of the tales that he tells is how he met his wife.</b>
+> <p><i>Danny DeVito</i></p>
 
 <br>
