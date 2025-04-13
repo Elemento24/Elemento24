@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Handmade presents are scary because they reveal that you have too much free time.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>I always keep a ball in the car. You never know.</b>
+> <p><i>Hakeem Olajuwon</i></p>
 
 <br>
