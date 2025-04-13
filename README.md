@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was just like a dream. I could have ended up with an album that's not all that different from anything else coming out of Nashville. Mutt made the difference. He took these songs, my attitude, my creativity, and colored them in a way that is unique.</b>
-> <p><i>Shania Twain</i></p>
+> <b>Zest is the secret of all beauty. There is no beauty that is attractive without zest.</b>
+> <p><i>Christian Dior</i></p>
 
 <br>
