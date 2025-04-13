@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cannot go to Montreal without going to Beauty's, my favorite place for breakfast, where I have the Mish-Mash omelet with hot dogs, salami, eggs, green peppers, and onions, and the best banana bread in the world. It's legendary!</b>
-> <p><i>Gail Simmons</i></p>
+> <b>A girl's legs are her best friends... but even the best of friends must part.</b>
+> <p><i>Redd Foxx</i></p>
 
 <br>
