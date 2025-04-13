@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Turbulence is life force. It is opportunity. Let's love turbulence and use it for change.</b>
-> <p><i>Ramsey Clark</i></p>
+> <b>To array a man's will against his sickness is the supreme art of medicine.</b>
+> <p><i>Henry Ward Beecher</i></p>
 
 <br>
