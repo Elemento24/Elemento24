@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't have to carry a designer bag that costs more than a car to look cool.</b>
-> <p><i>Kesha</i></p>
+> <b>My last trip to New Orleans was for the fifth anniversary of Katrina, and I had the awesome opportunity to bring my family down. We all worked on a house together and met some of the families.</b>
+> <p><i>AnnaLynne McCord</i></p>
 
 <br>
