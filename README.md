@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The worst thing that happens to you may be the best thing for you if you don't let it get the best of you.</b>
-> <p><i>Will Rogers</i></p>
+> <b>Battle is the most magnificent competition in which a human being can indulge. It brings out all that is best it removes all that is base. All men are afraid in battle. The coward is the one who lets his fear overcome his sense of duty. Duty is the essence of manhood.</b>
+> <p><i>George S. Patton</i></p>
 
 <br>
