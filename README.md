@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Queen of Crafts herself, Martha Stewart, and I have the same birthday. I prefer to think it's the glue-gun wielding, perfect-tart-producing Martha and not the copper pan-throwing, jail-going Martha. But I suppose if I am going to share a calendar square with some of Martha, I have to share it with all of Martha.</b>
-> <p><i>Sloane Crosley</i></p>
+> <b>Business is in itself a power.</b>
+> <p><i>Garet Garrett</i></p>
 
 <br>
