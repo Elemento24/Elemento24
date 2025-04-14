@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the end of the day, my natural habitat is in a car and I am happiest in that environment.</b>
-> <p><i>Maria de Villota</i></p>
+> <b>Exploiting people's emotions of fear, envy and anxiety is not hope, it's not change, it's partisanship. We don't need partisanship. We don't need demagoguery, we need solutions.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
