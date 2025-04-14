@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business is in itself a power.</b>
-> <p><i>Garet Garrett</i></p>
+> <b>The only justice is to follow the sincere intuition of the soul, angry or gentle. Anger is just, and pity is just, but judgement is never just.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
