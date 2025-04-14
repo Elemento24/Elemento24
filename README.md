@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The day before the anniversary of D-Day, we lost a man who was equaled by few and surpassed by none as a leader in the cause of freedom: Ronald Reagan.</b>
-> <p><i>Mac Thornberry</i></p>
+> <b>I've been able to go on and have a successful career on Broadway and certainly the last five years in Las Vegas have been amazing.</b>
+> <p><i>David Cassidy</i></p>
 
 <br>
