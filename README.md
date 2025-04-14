@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People find themselves in ruts all the time. You're in a complacent lifestyle where you work 9 to 5 and then you add a mortgage and kids. You feel trapped, but guess what, brother? You constructed that life. If you're OK with it, there's nothing wrong with that. But if you've got unease, then you've got to make a change.</b>
-> <p><i>Jeremy Renner</i></p>
+> <b>I don't like staying in hotels. I like to be in my own bed. San Diego as a city is really awesome. The only hard part of it for me is that I'm away from my family and my house. But as far as shooting down there, we get amazing locations, and the crew is really, really stellar down there. They are really fun.</b>
+> <p><i>Kristen Bell</i></p>
 
 <br>
