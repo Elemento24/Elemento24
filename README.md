@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The principle of all successful effort is to try to do not what is absolutely the best, but what is easily within our power, and suited for our temperament and condition.</b>
-> <p><i>John Ruskin</i></p>
+> <b>The fast, flowing parts, the high-speed corners, that's where a Formula One car is at its best - changes of direction, pulling high g-forces left and right.</b>
+> <p><i>Jenson Button</i></p>
 
 <br>
