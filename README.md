@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like staying in hotels. I like to be in my own bed. San Diego as a city is really awesome. The only hard part of it for me is that I'm away from my family and my house. But as far as shooting down there, we get amazing locations, and the crew is really, really stellar down there. They are really fun.</b>
-> <p><i>Kristen Bell</i></p>
+> <b>It was an amazing adventure, it was my dream to be in an American musical... I really hope you are going to love what you are going to see.</b>
+> <p><i>Marion Cotillard</i></p>
 
 <br>
