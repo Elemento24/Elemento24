@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My personal view is that such total planning by the state is an absolute good and not simply a relative good... I do not myself think of the attitude I take as deriving from Marx - though this undoubtedly will be suggested - but from Fichte and Hegel.</b>
-> <p><i>John Grierson</i></p>
+> <b>I will argue that in the literal sense the programmed computer understands what the car and the adding machine understand, namely, exactly nothing.</b>
+> <p><i>John Searle</i></p>
 
 <br>
