@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a soft spot for art that, in terms of subject matter and material, is in bad taste.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I think we have to notice that the business processes we use right now for thinking and planning and budgeting and strategy are all delivered on very tight agendas.</b>
+> <p><i>Margaret J. Wheatley</i></p>
 
 <br>
