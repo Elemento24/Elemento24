@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will argue that in the literal sense the programmed computer understands what the car and the adding machine understand, namely, exactly nothing.</b>
-> <p><i>John Searle</i></p>
+> <b>It is amazing what you can accomplish if you do not care who gets the credit.</b>
+> <p><i>Harry S. Truman</i></p>
 
 <br>
