@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was an amazing adventure, it was my dream to be in an American musical... I really hope you are going to love what you are going to see.</b>
-> <p><i>Marion Cotillard</i></p>
+> <b>I have a soft spot for art that, in terms of subject matter and material, is in bad taste.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
