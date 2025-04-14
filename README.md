@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In days of doubt, in days of dreary musings on my country's fate, you alone are my comfort and support, oh great, powerful, righteous, and free Russian language!</b>
-> <p><i>Ivan Turgenev</i></p>
+> <b>At the end of the day, my natural habitat is in a car and I am happiest in that environment.</b>
+> <p><i>Maria de Villota</i></p>
 
 <br>
