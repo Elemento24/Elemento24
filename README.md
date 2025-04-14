@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Battle is the most magnificent competition in which a human being can indulge. It brings out all that is best it removes all that is base. All men are afraid in battle. The coward is the one who lets his fear overcome his sense of duty. Duty is the essence of manhood.</b>
-> <p><i>George S. Patton</i></p>
+> <b>Of course, everybody makes mistakes, and we've all been young and stupid. But people need to have a sense of respect, particularly in this business, because hundreds of people are ready to take your place at any time. Maybe some people should think about that.</b>
+> <p><i>Sophia Bush</i></p>
 
 <br>
