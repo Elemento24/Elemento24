@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we have to notice that the business processes we use right now for thinking and planning and budgeting and strategy are all delivered on very tight agendas.</b>
-> <p><i>Margaret J. Wheatley</i></p>
+> <b>The principle of all successful effort is to try to do not what is absolutely the best, but what is easily within our power, and suited for our temperament and condition.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
