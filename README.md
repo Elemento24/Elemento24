@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course, everybody makes mistakes, and we've all been young and stupid. But people need to have a sense of respect, particularly in this business, because hundreds of people are ready to take your place at any time. Maybe some people should think about that.</b>
-> <p><i>Sophia Bush</i></p>
+> <b>Thank you for leaving us alone but giving us enough attention to boost our egos.</b>
+> <p><i>Mick Jagger</i></p>
 
 <br>
