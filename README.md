@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The fast, flowing parts, the high-speed corners, that's where a Formula One car is at its best - changes of direction, pulling high g-forces left and right.</b>
-> <p><i>Jenson Button</i></p>
+> <b>The worst thing that happens to you may be the best thing for you if you don't let it get the best of you.</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
