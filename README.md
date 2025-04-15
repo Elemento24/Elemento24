@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When it comes down to it, it's about who you know, and who's a fan. It's about whether you're the right age, whether you're hot or not, whether the studio is into you or not.</b>
-> <p><i>Marlee Matlin</i></p>
+> <b>We live in an age where anonymity is growing in magnitude like a bomb going off.</b>
+> <p><i>Jock Sturges</i></p>
 
 <br>
