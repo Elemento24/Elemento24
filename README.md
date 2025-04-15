@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never travel without my Stetson, but the more I wear it the more I realise that no one wears hats any more. When I was a kid everybody wore hats, especially in Texas, but I get off the plane in Dallas now and I'm the only guy with a hat. It's amazing.</b>
-> <p><i>Larry Hagman</i></p>
+> <b>I don't care whether people like me or dislike me. I'm not on earth to win a popularity contest. I'm here to be the best human being I possibly can be.</b>
+> <p><i>Tab Hunter</i></p>
 
 <br>
