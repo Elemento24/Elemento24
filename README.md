@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't care whether people like me or dislike me. I'm not on earth to win a popularity contest. I'm here to be the best human being I possibly can be.</b>
-> <p><i>Tab Hunter</i></p>
+> <b>Liberalism is a really old British tradition and it has a completely different attitude towards the individual and the relationship between the individual and the state than the collectivist response of Labour, and particularly Old Labour, does.</b>
+> <p><i>Nick Clegg</i></p>
 
 <br>
