@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to own an NFL franchise. I understand the business of football.</b>
-> <p><i>Jon Bon Jovi</i></p>
+> <b>Old age: I fall asleep during the funerals of my friends.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
