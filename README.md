@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age: I fall asleep during the funerals of my friends.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>The only change is that baseball has turned Paige from a second class citizen to a second class immortal.</b>
+> <p><i>Satchel Paige</i></p>
 
 <br>
