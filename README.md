@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only justice is to follow the sincere intuition of the soul, angry or gentle. Anger is just, and pity is just, but judgement is never just.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>I've actually spent a lot of time researching beauty products, how they are produced and how they are sold.</b>
+> <p><i>Lauren Conrad</i></p>
 
 <br>
