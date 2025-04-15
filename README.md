@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is so much good in the worst of us, and so much bad in the best of us, that it ill behaves any of us to find fault with the rest of us.</b>
-> <p><i>James Truslow Adams</i></p>
+> <b>Toyota was the first to put a commercial fuel cell powered car on the road, and I have no doubt that Toyota will continue to be in the front lines in the development of competitive fuel cell vehicles.</b>
+> <p><i>Maurice Strong</i></p>
 
 <br>
