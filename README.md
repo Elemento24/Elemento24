@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The human soul needs actual beauty more than bread.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>The really frightening thing about middle age is the knowledge that you'll grow out of it.</b>
+> <p><i>Doris Day</i></p>
 
 <br>
