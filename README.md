@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Speak when you are angry - and you'll make the best speech you'll ever regret.</b>
-> <p><i>Laurence J. Peter</i></p>
+> <b>Unless and until Barack Obama addresses the full depth of Americans' anger with his full arsenal of policy smarts and political gifts, his presidency and, worse, our economy will be paralyzed.</b>
+> <p><i>Frank Rich</i></p>
 
 <br>
