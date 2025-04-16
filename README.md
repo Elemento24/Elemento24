@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The really frightening thing about middle age is the knowledge that you'll grow out of it.</b>
-> <p><i>Doris Day</i></p>
+> <b>Leadership is the art of getting someone else to do something you want done because he wants to do it.</b>
+> <p><i>Dwight D. Eisenhower</i></p>
 
 <br>
