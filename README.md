@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age does not protect you from love. But love, to some extent, protects you from age.</b>
-> <p><i>Jeanne Moreau</i></p>
+> <b>I don't know what the secret to longevity as an actress is. It's more than talent and beauty. Maybe it's the audience seeing itself in you.</b>
+> <p><i>Joan Blondell</i></p>
 
 <br>
