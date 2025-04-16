@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great art picks up where nature ends.</b>
-> <p><i>Marc Chagall</i></p>
+> <b>After I left the White House, I kept a foothold in the business of American politics as a talk-show host, analyst, commentator, speechmaker, and occasional writer. I was no longer a practitioner, but I was still a partisan, a Democrat, a blue-stater through and through.</b>
+> <p><i>Dee Dee Myers</i></p>
 
 <br>
