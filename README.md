@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most important decision I've made in business? The choices of people I have around me. When I first started I brought everybody with me, my homies from the neighborhood, criminals. I just said, 'Come on everybody, we made it.' Then I had to realize we didn't make it. I made it.</b>
-> <p><i>Snoop Dogg</i></p>
+> <b>Art is the child of Nature yes, her darling child, in whom we trace the features of the mother's face, her aspect and her attitude.</b>
+> <p><i>Beck</i></p>
 
 <br>
