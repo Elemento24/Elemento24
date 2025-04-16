@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The right really dominates radio, and it's amazing how much energy the right spends telling us that the press is slanted to the left when it really isn't. They want to shut other people up. They really don't understand the First Amendment.</b>
-> <p><i>Roger Ebert</i></p>
+> <b>Last week, the House of Representatives passed a resolution honoring the victims and heroes of September 11th. As we commemorate the anniversary of 9-11, we must also remember that the threat is still very real today.</b>
+> <p><i>Michael McCaul</i></p>
 
 <br>
