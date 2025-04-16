@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was little, I used to work with my dad on the engine of his car. Mostly this was a matter of me handing him wrenches.</b>
-> <p><i>Mireille Enos</i></p>
+> <b>Urs Fischer specializes in making jaws drop. Cutting giant holes in gallery walls, digging a crater in Gavin Brown's gallery floor in 2007, creating amazing hyperrealist wallpaper for a group show at Tony Shafrazi: It all percolates with uncanny destructiveness, operatic uncontrollability, and barbaric sculptural power.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
