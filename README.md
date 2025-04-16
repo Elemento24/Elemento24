@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Last week, the House of Representatives passed a resolution honoring the victims and heroes of September 11th. As we commemorate the anniversary of 9-11, we must also remember that the threat is still very real today.</b>
-> <p><i>Michael McCaul</i></p>
+> <b>One reason we resist making deliberate choices is that choice equals change and most of us, feeling the world is unpredictable enough, try to minimise the trauma of change in our personal lives.</b>
+> <p><i>Hugh Mackay</i></p>
 
 <br>
