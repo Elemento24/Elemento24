@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know what the secret to longevity as an actress is. It's more than talent and beauty. Maybe it's the audience seeing itself in you.</b>
-> <p><i>Joan Blondell</i></p>
+> <b>Speak when you are angry - and you'll make the best speech you'll ever regret.</b>
+> <p><i>Laurence J. Peter</i></p>
 
 <br>
