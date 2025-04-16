@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Leadership is the art of getting someone else to do something you want done because he wants to do it.</b>
-> <p><i>Dwight D. Eisenhower</i></p>
+> <b>Proportions are what makes the old Greek temples classic in their beauty. They are like huge blocks, from which the air has been literally hewn out between the columns.</b>
+> <p><i>Arne Jacobsen</i></p>
 
 <br>
