@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are times when the only access I have to the truest person that I am is when I'm alone and trying to solve a sentence. It's exciting, even when it's frustrating, even when I can't do it right.</b>
-> <p><i>Elizabeth Gilbert</i></p>
+> <b>The right really dominates radio, and it's amazing how much energy the right spends telling us that the press is slanted to the left when it really isn't. They want to shut other people up. They really don't understand the First Amendment.</b>
+> <p><i>Roger Ebert</i></p>
 
 <br>
