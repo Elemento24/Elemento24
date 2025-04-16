@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our scientific age demands that we provide definitions, measurements, and statistics in order to be taken seriously. Yet most of the important things in life cannot be precisely defined or measured. Can we define or measure love, beauty, friendship, or decency, for example?</b>
-> <p><i>Dennis Prager</i></p>
+> <b>The most important decision I've made in business? The choices of people I have around me. When I first started I brought everybody with me, my homies from the neighborhood, criminals. I just said, 'Come on everybody, we made it.' Then I had to realize we didn't make it. I made it.</b>
+> <p><i>Snoop Dogg</i></p>
 
 <br>
