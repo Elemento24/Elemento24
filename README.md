@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Proportions are what makes the old Greek temples classic in their beauty. They are like huge blocks, from which the air has been literally hewn out between the columns.</b>
-> <p><i>Arne Jacobsen</i></p>
+> <b>I choose a block of marble and chop off whatever I don't need.</b>
+> <p><i>Auguste Rodin</i></p>
 
 <br>
