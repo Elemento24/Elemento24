@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good acting is all in the writing. If it isn't on the page, then it really won't make any difference. You cannot act on force of personality alone.</b>
-> <p><i>Larry Hagman</i></p>
+> <b>When I was little, I used to work with my dad on the engine of his car. Mostly this was a matter of me handing him wrenches.</b>
+> <p><i>Mireille Enos</i></p>
 
 <br>
