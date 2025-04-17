@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cotton Owens was leading and daddy was second. They came up on me and I moved over to let them pass. Cotton went on, but daddy bumped me in the rear and my car went right into the wall.</b>
-> <p><i>Richard Petty</i></p>
+> <b>The really frightening thing about middle age is the knowledge that you'll grow out of it.</b>
+> <p><i>Doris Day</i></p>
 
 <br>
