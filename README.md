@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What has made America amazing has been the fact that throughout our history, throughout the more than 200 years of our history, there have been men and women of courage who stood up and decided it was more important to look out for the future of their children and their grandchildren than their own political futures.</b>
-> <p><i>Scott Walker</i></p>
+> <b>'Dallas' hit a chord back in the late Seventies and Eighties because it was the age of greed: here you have this unapologetic character who is mean and nasty and ruthless and does it all with an evil grin. I think people related to JR back then because we all have someone we know exactly like him. Everyone in the world knows a JR.</b>
+> <p><i>Larry Hagman</i></p>
 
 <br>
