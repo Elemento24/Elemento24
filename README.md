@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is like my dad's race team where we had one Legend car. If we wrecked it, we couldn't race the next week unless we had enough parts to put it back together again.</b>
-> <p><i>Kurt Busch</i></p>
+> <b>Change is the only constant. Hanging on is the only sin.</b>
+> <p><i>Denise McCluggage</i></p>
 
 <br>
