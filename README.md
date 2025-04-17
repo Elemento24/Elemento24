@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I choose a block of marble and chop off whatever I don't need.</b>
-> <p><i>Auguste Rodin</i></p>
+> <b>They think they can make fuel from horse manure - now, I don't know if your car will be able to get 30 miles to the gallon, but it's sure gonna put a stop to siphoning.</b>
+> <p><i>Billie Holiday</i></p>
 
 <br>
