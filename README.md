@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh who can tell the range of joy or set the bounds of beauty?</b>
-> <p><i>Sara Teasdale</i></p>
+> <b>To me - old age is always ten years older than I am.</b>
+> <p><i>John Burroughs</i></p>
 
 <br>
