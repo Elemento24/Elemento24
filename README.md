@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The really frightening thing about middle age is the knowledge that you'll grow out of it.</b>
-> <p><i>Doris Day</i></p>
+> <b>Oh who can tell the range of joy or set the bounds of beauty?</b>
+> <p><i>Sara Teasdale</i></p>
 
 <br>
