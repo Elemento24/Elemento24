@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They think they can make fuel from horse manure - now, I don't know if your car will be able to get 30 miles to the gallon, but it's sure gonna put a stop to siphoning.</b>
-> <p><i>Billie Holiday</i></p>
+> <b>I left school on my 15th birthday.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
