@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is the only constant. Hanging on is the only sin.</b>
-> <p><i>Denise McCluggage</i></p>
+> <b>Intelligent life on a planet comes of age when it first works out the reason for its own existence.</b>
+> <p><i>Richard Dawkins</i></p>
 
 <br>
