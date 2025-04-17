@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most high courts in other nations do not have discretion, such as we enjoy, in selecting the cases that the high court reviews. Our court is virtually alone in the amount of discretion it has.</b>
-> <p><i>Sandra Day O'Connor</i></p>
+> <b>These days, newish art can be priced between $10,000 and $25,000. When I tell artists that a new painting by a newish artist should go for around $1,200, they look at me like I'm a flesh-eating virus.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
