@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I have these fantasies of just moving to a foreign country and coming back with a full head of hair. Or not even come back! Make a new life there with hair... Change my name, just see what happens.</b>
-> <p><i>Larry David</i></p>
+> <b>While I'm not a celebrity, it's such a weird concept that society has cooked up for us. Astronauts and teachers are much more amazing than actors.</b>
+> <p><i>Joseph Gordon-Levitt</i></p>
 
 <br>
