@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, Jeff Buckley for me is one of the greatest singers I've ever heard. And the reason why is he has an amazing range, amazing emotional power in his voice. And the music he put around it also just had this passion and this soul to it and this spirit to it that very few artists have, and he passed at a very young age.</b>
-> <p><i>John Legend</i></p>
+> <b>In business, the competition will bite you if you keep running, if you stand still, they will swallow you.</b>
+> <p><i>Victor Kiam</i></p>
 
 <br>
