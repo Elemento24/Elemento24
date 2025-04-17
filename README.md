@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Intelligent life on a planet comes of age when it first works out the reason for its own existence.</b>
-> <p><i>Richard Dawkins</i></p>
+> <b>Cotton Owens was leading and daddy was second. They came up on me and I moved over to let them pass. Cotton went on, but daddy bumped me in the rear and my car went right into the wall.</b>
+> <p><i>Richard Petty</i></p>
 
 <br>
