@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Dallas' hit a chord back in the late Seventies and Eighties because it was the age of greed: here you have this unapologetic character who is mean and nasty and ruthless and does it all with an evil grin. I think people related to JR back then because we all have someone we know exactly like him. Everyone in the world knows a JR.</b>
-> <p><i>Larry Hagman</i></p>
+> <b>Jordan has a strange, haunting beauty and a sense of timelessness. Dotted with the ruins of empires once great, it is the last resort of yesterday in the world of tomorrow. I love every inch of it.</b>
+> <p><i>King Hussein I</i></p>
 
 <br>
