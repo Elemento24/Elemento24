@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a site is done with pleasure and a fun attitude, it's a great way to communicate with your fans.</b>
-> <p><i>Christopher Lambert</i></p>
+> <b>I've an enormous respect for my mother who at the age of 39 raised three children, and I grew up with my grandmother in the household. And so it was a really strong household of women - my poor brother! It was great growing up with so many generations of women.</b>
+> <p><i>Cate Blanchett</i></p>
 
 <br>
