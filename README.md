@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes you feel awkward being what you're best at, you feel like you have to be something new.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>Beyonce is the most amazing woman in the world.</b>
+> <p><i>Chris O'Dowd</i></p>
 
 <br>
