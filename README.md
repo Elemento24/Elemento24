@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The customs and fashions of men change like leaves on the bough, some of which go and others come.</b>
-> <p><i>Dante Alighieri</i></p>
+> <b>I come back to the same thing: We've got the greatest pipeline in the company's history in the next 12 months, and we've had the most amazing financial results possible over the last five years, and we're predicting being back at double-digit revenue growth in fiscal year '06.</b>
+> <p><i>Steve Ballmer</i></p>
 
 <br>
