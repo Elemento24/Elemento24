@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think about dying. I've come to realize we all die alone in one way or another.</b>
-> <p><i>Richard Pryor</i></p>
+> <b>All I want to do is change the world.</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
