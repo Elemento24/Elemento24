@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be open to the amazing changes which are occurring in the field that interest you.</b>
-> <p><i>Leigh Steinberg</i></p>
+> <b>For an introvert his environment is himself and can never be subject to startling or unforeseen change.</b>
+> <p><i>Quentin Crisp</i></p>
 
 <br>
