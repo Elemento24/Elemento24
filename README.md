@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing that makes its way more directly into the soul than beauty.</b>
-> <p><i>Joseph Addison</i></p>
+> <b>The prizes go to those who meet emergencies successfully. And the way to meet emergencies is to do each daily task the best we can.</b>
+> <p><i>William Feather</i></p>
 
 <br>
