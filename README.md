@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Speaking of Twitter, I don't even know if I composed a blog entry in 2009, as I was too busy parceling my every thought into cute 140-character sound bites. I used to only worry about being pithy for a living now some of my best lines are wasted on a free app!</b>
-> <p><i>Diablo Cody</i></p>
+> <b>Sometimes you feel awkward being what you're best at, you feel like you have to be something new.</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
