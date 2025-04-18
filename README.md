@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Usually when people are sad, they don't do anything. They just cry over their condition. But when they get angry, they bring about a change.</b>
-> <p><i>James Russell Lowell</i></p>
+> <b>Speaking of Twitter, I don't even know if I composed a blog entry in 2009, as I was too busy parceling my every thought into cute 140-character sound bites. I used to only worry about being pithy for a living now some of my best lines are wasted on a free app!</b>
+> <p><i>Diablo Cody</i></p>
 
 <br>
