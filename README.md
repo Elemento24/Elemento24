@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's my firm conviction that when Uncle Sam calls, by God we go, and we do the best that we can.</b>
-> <p><i>R. Lee Ermey</i></p>
+> <b>Time is the scarcest resource and unless it is managed nothing else can be managed.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
