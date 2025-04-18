@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was amazing to me that, all of a sudden, I was hearing my music on the radio and coming out of cars.</b>
-> <p><i>Lenny Kravitz</i></p>
+> <b>I'm not asking any of you to make drastic changes to every single one of your recipes or to totally change the way you do business. But what I am asking is that you consider reformulating your menu in pragmatic and incremental ways to create healthier versions of the foods that we all love.</b>
+> <p><i>Michelle Obama</i></p>
 
 <br>
