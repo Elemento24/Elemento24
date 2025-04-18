@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All I want to do is change the world.</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>The reason the art world doesn't respond to Kinkade is because none - not one - of his ideas about subject-matter, surface, color, composition, touch, scale, form, or skill is remotely original. They're all cliche and already told.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
