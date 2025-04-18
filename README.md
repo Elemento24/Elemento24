@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The prizes go to those who meet emergencies successfully. And the way to meet emergencies is to do each daily task the best we can.</b>
-> <p><i>William Feather</i></p>
+> <b>I worked at an ice cream parlor called Chadwicks. We wore old-timey outfits and had to bang a drum, play a kazoo, and sing 'Happy Birthday' to people while giving them free birthday sundaes. Lots of ice cream scooping and $1 tips.</b>
+> <p><i>Amy Poehler</i></p>
 
 <br>
