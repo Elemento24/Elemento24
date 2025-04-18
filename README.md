@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reason the art world doesn't respond to Kinkade is because none - not one - of his ideas about subject-matter, surface, color, composition, touch, scale, form, or skill is remotely original. They're all cliche and already told.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Art is not the application of a canon of beauty but what the instinct and the brain can conceive beyond any canon. When we love a woman we don't start measuring her limbs.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
