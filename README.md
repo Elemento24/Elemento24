@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When the people you love are gone, you're alone.</b>
-> <p><i>Keanu Reeves</i></p>
+> <b>Power and beauty come from a very deep place.</b>
+> <p><i>Brooke Burke</i></p>
 
 <br>
