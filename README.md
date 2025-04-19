@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All good criticism should be judged the way art is. You shouldn't read it the way you read history or science.</b>
-> <p><i>Leslie Fiedler</i></p>
+> <b>I had some vague memory of visiting Canberra as a lad, when we came up with my father by car. But when I made the long train journey from Sydney to Canberra and arrived at the little stop, I did wonder slightly whether this really was the national capital.</b>
+> <p><i>John Henry Carver</i></p>
 
 <br>
