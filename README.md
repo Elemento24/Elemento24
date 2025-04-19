@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For an introvert his environment is himself and can never be subject to startling or unforeseen change.</b>
-> <p><i>Quentin Crisp</i></p>
+> <b>Abstraction brings the world into more complex, variable relations it can extract beauty, alternative topographies, ugliness, and intense actualities from seeming nothingness.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
