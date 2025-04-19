@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Short words are best and the old words when short are best of all.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>All good criticism should be judged the way art is. You shouldn't read it the way you read history or science.</b>
+> <p><i>Leslie Fiedler</i></p>
 
 <br>
