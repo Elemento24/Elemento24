@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always had a sense that we are all pretty much alone in life, particularly in adolescence.</b>
-> <p><i>Robert Cormier</i></p>
+> <b>The best government is that which teaches us to govern ourselves.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
