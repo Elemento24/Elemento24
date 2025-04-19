@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is very important to generate a good attitude, a good heart, as much as possible. From this, happiness in both the short term and the long term for both yourself and others will come.</b>
-> <p><i>Dalai Lama</i></p>
+> <b>I think we'll be in pretty good shape. We've got the same car we ran in all the speedway races since 2001, and it's been a real good car for us. It's led every race we've been in.</b>
+> <p><i>Sterling Marlin</i></p>
 
 <br>
