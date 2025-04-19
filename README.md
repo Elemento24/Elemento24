@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Academy Awards was an amazing night. I know I kind of lost my mind a little bit. I apologize for that. That night went so fast I can't remember what I said or what happened.</b>
-> <p><i>Cuba Gooding, Jr.</i></p>
+> <b>Being successful at a very young age gave me the confidence and the capability to try out other things.</b>
+> <p><i>Joshua Lederberg</i></p>
 
 <br>
