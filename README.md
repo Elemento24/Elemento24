@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best government is that which teaches us to govern ourselves.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>The Academy Awards was an amazing night. I know I kind of lost my mind a little bit. I apologize for that. That night went so fast I can't remember what I said or what happened.</b>
+> <p><i>Cuba Gooding, Jr.</i></p>
 
 <br>
