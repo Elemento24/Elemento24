@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was dating my first boyfriend in high school for a long time, and we broke up before prom. I hadn't met anyone else that I really wanted to go with, and my friends have always been amazing. So I went with my friends and got a million photos with them!</b>
-> <p><i>Shay Mitchell</i></p>
+> <b>I think sometimes when children grow up, their parents grow up. Mine grew up with me. We coexist. I don't try to change them anymore, and I don't think they try to change me.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
