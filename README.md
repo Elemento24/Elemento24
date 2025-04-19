@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Abstraction brings the world into more complex, variable relations it can extract beauty, alternative topographies, ugliness, and intense actualities from seeming nothingness.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>When the people you love are gone, you're alone.</b>
+> <p><i>Keanu Reeves</i></p>
 
 <br>
