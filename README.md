@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think there's any artist of any value who doesn't doubt what they're doing.</b>
-> <p><i>Francis Ford Coppola</i></p>
+> <b>The new dynamics between brands and consumers, driven by social media, are proving to be a powerful impetus for change.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
