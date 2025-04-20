@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I view art as an inspirational tool.</b>
-> <p><i>Thomas Kincade</i></p>
+> <b>Cinema is still a very young art form with extraordinary techniques and very impressive special effects but sometimes it seems the soul has been taken out of things.</b>
+> <p><i>Catherine Deneuve</i></p>
 
 <br>
