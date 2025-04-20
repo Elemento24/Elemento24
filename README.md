@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Working with Omarion is pretty amazing. That's like my brother. He's really cool.</b>
-> <p><i>Teyana Taylor</i></p>
+> <b>In high school, during marathon phone conversations, cheap pizza dinners and long suburban car rides, I began to fall for boys because of who they actually were, or at least who I thought they might become.</b>
+> <p><i>J. Courtney Sullivan</i></p>
 
 <br>
