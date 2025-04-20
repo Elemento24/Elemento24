@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cinema is still a very young art form with extraordinary techniques and very impressive special effects but sometimes it seems the soul has been taken out of things.</b>
-> <p><i>Catherine Deneuve</i></p>
+> <b>I don't like to work with assistants. I'm already one too many the camera alone would be enough.</b>
+> <p><i>Alfred Eisenstaedt</i></p>
 
 <br>
