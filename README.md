@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A failure is not always a mistake, it may simply be the best one can do under the circumstances. The real mistake is to stop trying.</b>
-> <p><i>B. F. Skinner</i></p>
+> <b>Every year on your birthday, you get a chance to start new.</b>
+> <p><i>Sammy Hagar</i></p>
 
 <br>
