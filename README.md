@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I alone of English writers have consciously set myself to make music out of what I may call the sound of sense.</b>
-> <p><i>Robert Frost</i></p>
+> <b>The art of life is to live in the present moment, and to make that moment as perfect as we can by the realization that we are the instruments and expression of God Himself.</b>
+> <p><i>Emmet Fox</i></p>
 
 <br>
