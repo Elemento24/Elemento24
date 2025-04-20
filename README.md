@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I'm a bit less inhibited, and not thinking too much before speaking. It's not about being shameful, I'm just a bit more unabashedly myself because of this thing, and it probably started at age 15. I can be around people and say what I think without fear.</b>
-> <p><i>Kristen Stewart</i></p>
+> <b>It's been amazing to watch, because for 'Thor', which was always a mid-selling book, to be in the top ten for every single issue since the reboot is just a great compliment.</b>
+> <p><i>J. Michael Straczynski</i></p>
 
 <br>
