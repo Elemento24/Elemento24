@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The new dynamics between brands and consumers, driven by social media, are proving to be a powerful impetus for change.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.</b>
+> <p><i>Lao Tzu</i></p>
 
 <br>
