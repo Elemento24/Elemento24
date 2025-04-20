@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like to work with assistants. I'm already one too many the camera alone would be enough.</b>
-> <p><i>Alfred Eisenstaedt</i></p>
+> <b>A failure is not always a mistake, it may simply be the best one can do under the circumstances. The real mistake is to stop trying.</b>
+> <p><i>B. F. Skinner</i></p>
 
 <br>
