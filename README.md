@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What good mothers and fathers instinctively feel like doing for their babies is usually best after all.</b>
-> <p><i>Benjamin Spock</i></p>
+> <b>My brother got a .22 for his 12th birthday I got a .22. He got a hunting knife I got a hunting knife.</b>
+> <p><i>Stephanie Cutter</i></p>
 
 <br>
