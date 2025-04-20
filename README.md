@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love getting dressed up. Being a pop star is the most brilliant job for that. A lot of girls love shopping, but they might see the most amazing outfit and think, 'When am I going to wear that?', so it's my duty to exploit the fact I do have events I can wear these things to.</b>
-> <p><i>Sophie Ellis-Bextor</i></p>
+> <b>We have an amazing fan base all around the world that love 40FT.</b>
+> <p><i>Steve Brown</i></p>
 
 <br>
