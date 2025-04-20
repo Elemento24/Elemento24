@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been amazing to watch, because for 'Thor', which was always a mid-selling book, to be in the top ten for every single issue since the reboot is just a great compliment.</b>
-> <p><i>J. Michael Straczynski</i></p>
+> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
+> <p><i>Euripides</i></p>
 
 <br>
