@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.</b>
-> <p><i>Lao Tzu</i></p>
+> <b>True ease in writing comes from art, not chance, as those who move easiest have learned to dance.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
