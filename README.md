@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>True ease in writing comes from art, not chance, as those who move easiest have learned to dance.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>What good mothers and fathers instinctively feel like doing for their babies is usually best after all.</b>
+> <p><i>Benjamin Spock</i></p>
 
 <br>
