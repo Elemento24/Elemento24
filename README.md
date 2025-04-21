@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No architect troubled to design houses that suited people who were to live in them, because that would have meant building a whole range of different houses. It was far cheaper and, above all, timesaving to make them identical.</b>
-> <p><i>Michael Ende</i></p>
+> <b>Giving birth was the most amazing thing I've ever done. I'd been living in a Third World country, and I said, 'I'm going to just squat behind a tree.' I basically did that but in a chair in my living room. I didn't want a sterile hospital room. I didn't want doctors. I had a midwife.</b>
+> <p><i>Carolyn Murphy</i></p>
 
 <br>
