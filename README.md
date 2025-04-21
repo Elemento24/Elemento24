@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is possible that mankind is on the threshold of a golden age but, if so, it will be necessary first to slay the dragon that guards the door, and this dragon is religion.</b>
-> <p><i>Bertrand Russell</i></p>
+> <b>Wise anger is like fire from a flint: there is great ado to get it out and when it does come, it is out again immediately.</b>
+> <p><i>Edward Everett Hale</i></p>
 
 <br>
