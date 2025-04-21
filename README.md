@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Training in taekwondo for eight years and then being able to do it in a film was pretty amazing.</b>
-> <p><i>Dev Patel</i></p>
+> <b>Reading - the best state yet to keep absolute loneliness at bay.</b>
+> <p><i>William Styron</i></p>
 
 <br>
