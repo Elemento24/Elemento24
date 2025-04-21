@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I decided to be a singer, my mother warned me I'd be alone a lot. Basically we all are. Loneliness comes with life.</b>
-> <p><i>Whitney Houston</i></p>
+> <b>The traditional Christian attitude toward human personality was that human nature was essentially good and that it was formed and modified by social pressures and training.</b>
+> <p><i>Carroll Quigley</i></p>
 
 <br>
