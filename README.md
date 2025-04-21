@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art requires neither complaisance nor politeness nothing but faith, faith and freedom.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>Everything great in the world comes from neurotics. They alone have founded our religions and composed our masterpieces.</b>
+> <p><i>Marcel Proust</i></p>
 
 <br>
