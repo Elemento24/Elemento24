@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems to me there is a change in what audiences want to see. I can only hope that's correct, because there's an awful lot of people of my age around now and we outnumber the others.</b>
-> <p><i>Maggie Smith</i></p>
+> <b>When I go outside of L.A., no matter where it is, really anywhere I go, people will be stopping me or taking pictures or whatever it is. And it's great. It's amazing. I'm just lucky.</b>
+> <p><i>Michael Welch</i></p>
 
 <br>
