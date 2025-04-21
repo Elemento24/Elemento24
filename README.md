@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Although all the good arts serve to draw man's mind away from vices and lead it toward better things, this function can be more fully performed by this art, which also provides extraordinary intellectual pleasure.</b>
-> <p><i>Nicolaus Copernicus</i></p>
+> <b>I see 30 to 40 gallery shows a week, and no matter what kind of mood I'm in, no matter how bad the art is, I almost always feel better afterward. I can learn as much from bad art as from good.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
