@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been able to keep my private life separate from my business.</b>
-> <p><i>Ashley Tisdale</i></p>
+> <b>Training in taekwondo for eight years and then being able to do it in a film was pretty amazing.</b>
+> <p><i>Dev Patel</i></p>
 
 <br>
