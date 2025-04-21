@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I think is amazing is not that 85% of people who get married under the age of 25 get divorced, it's that 15% of them stay together. How did they manage to pull that off? You almost can't wait too long. It's the single simplest measure to predict divorce.</b>
-> <p><i>Elizabeth Gilbert</i></p>
+> <b>Although all the good arts serve to draw man's mind away from vices and lead it toward better things, this function can be more fully performed by this art, which also provides extraordinary intellectual pleasure.</b>
+> <p><i>Nicolaus Copernicus</i></p>
 
 <br>
