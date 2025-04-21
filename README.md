@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Scotland over many years we have cultivated through our justice system what I hope can be described as a 'culture of compassion.' On the other hand, there still exists in many parts of the U.S., if not nationally, an attitude towards the concept of justice which can only be described as a 'culture of vengeance.'</b>
-> <p><i>Keith O'Brien</i></p>
+> <b>If you hear a voice within you say 'you cannot paint,' then by all means paint, and that voice will be silenced.</b>
+> <p><i>Vincent Van Gogh</i></p>
 
 <br>
