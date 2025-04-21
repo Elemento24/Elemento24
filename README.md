@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wise anger is like fire from a flint: there is great ado to get it out and when it does come, it is out again immediately.</b>
-> <p><i>Edward Everett Hale</i></p>
+> <b>It seems to me there is a change in what audiences want to see. I can only hope that's correct, because there's an awful lot of people of my age around now and we outnumber the others.</b>
+> <p><i>Maggie Smith</i></p>
 
 <br>
