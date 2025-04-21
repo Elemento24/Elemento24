@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The traditional Christian attitude toward human personality was that human nature was essentially good and that it was formed and modified by social pressures and training.</b>
-> <p><i>Carroll Quigley</i></p>
+> <b>Art requires neither complaisance nor politeness nothing but faith, faith and freedom.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
