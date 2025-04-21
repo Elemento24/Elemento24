@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I see 30 to 40 gallery shows a week, and no matter what kind of mood I'm in, no matter how bad the art is, I almost always feel better afterward. I can learn as much from bad art as from good.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>No architect troubled to design houses that suited people who were to live in them, because that would have meant building a whole range of different houses. It was far cheaper and, above all, timesaving to make them identical.</b>
+> <p><i>Michael Ende</i></p>
 
 <br>
