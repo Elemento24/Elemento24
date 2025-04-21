@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything great in the world comes from neurotics. They alone have founded our religions and composed our masterpieces.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>It is possible that mankind is on the threshold of a golden age but, if so, it will be necessary first to slay the dragon that guards the door, and this dragon is religion.</b>
+> <p><i>Bertrand Russell</i></p>
 
 <br>
