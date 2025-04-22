@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One must not make oneself cheap here - that is a cardinal point - or else one is done. Whoever is most impertinent has the best chance.</b>
-> <p><i>Wolfgang Amadeus Mozart</i></p>
+> <b>I had amazing stuff happen right off the top. I thought this was how it worked. Hollywood is awesome! Cut to three years later: What happened?</b>
+> <p><i>Dana Fox</i></p>
 
 <br>
