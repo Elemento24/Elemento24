@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One's philosophy is not best expressed in words it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>There were two things going on: 1) I had already established in my own mind where I wanted to go with the next series, and having James around as a Grey Eminence would have complicated matters. He had had an amazing life and it was time to bid him good-bye.</b>
+> <p><i>Raymond E. Feist</i></p>
 
 <br>
