@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you ain't got no money, you gotta get an attitude.</b>
-> <p><i>Richard Pryor</i></p>
+> <b>In youth and beauty, wisdom is but rare!</b>
+> <p><i>Homer</i></p>
 
 <br>
