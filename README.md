@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All architecture is great architecture after sunset perhaps architecture is really a nocturnal art, like the art of fireworks.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>Geological change usually takes thousands of years to happen but we are seeing the climate changing not just in our lifetimes but also year by year.</b>
+> <p><i>James Lovelock</i></p>
 
 <br>
