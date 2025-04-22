@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Alone in the Dark was too much an action creature movie than a horror creature movie.</b>
-> <p><i>Uwe Boll</i></p>
+> <b>A man is rich in proportion to the number of things he can afford to let alone.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
