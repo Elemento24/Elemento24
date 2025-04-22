@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing is so intolerable to man as being fully at rest, without a passion, without business, without entertainment, without care.</b>
-> <p><i>Blaise Pascal</i></p>
+> <b>I think Alone in the Dark was too much an action creature movie than a horror creature movie.</b>
+> <p><i>Uwe Boll</i></p>
 
 <br>
