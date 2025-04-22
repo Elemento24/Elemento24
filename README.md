@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man is rich in proportion to the number of things he can afford to let alone.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Art is the beautiful way of doing things. Science is the effective way of doing things. Business is the economic way of doing things.</b>
+> <p><i>Elbert Hubbard</i></p>
 
 <br>
