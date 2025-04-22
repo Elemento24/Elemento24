@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I knew I was alone in a way that no earthling has ever been before.</b>
-> <p><i>Michael Collins</i></p>
+> <b>Nicole will come up in conversations where it's in a part of the conversation. Or we may be somewhere and I would tell some story about their mother and I. You know, we always honor her birthday.</b>
+> <p><i>O. J. Simpson</i></p>
 
 <br>
