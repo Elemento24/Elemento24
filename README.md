@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The face you have at age 25 is the face God gave you, but the face you have after 50 is the face you earned.</b>
-> <p><i>Cindy Crawford</i></p>
+> <b>We cannot make events. Our business is wisely to improve them.</b>
+> <p><i>Samuel Adams</i></p>
 
 <br>
