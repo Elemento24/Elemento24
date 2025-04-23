@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't let your ego get too close to your position, so that if your position gets shot down, your ego doesn't go with it.</b>
-> <p><i>Colin Powell</i></p>
+> <b>The art of medicine consists in amusing the patient while nature cures the disease.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
