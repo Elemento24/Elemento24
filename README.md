@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life, an age to the miserable, and a moment to the happy.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>Few businessmen are capable of being in politics, they don't understand the democratic process, they have neither the tolerance or the depth it takes. Democracy isn't a business.</b>
+> <p><i>Malcolm Forbes</i></p>
 
 <br>
