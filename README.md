@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only people who like to live alone more than comics are priests.</b>
-> <p><i>Colin Quinn</i></p>
+> <b>Life, an age to the miserable, and a moment to the happy.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
