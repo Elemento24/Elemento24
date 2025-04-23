@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always turned my anger inwards towards self-destruction.</b>
-> <p><i>Mackenzie Phillips</i></p>
+> <b>For changes to be of any true value, they've got to be lasting and consistent.</b>
+> <p><i>Tony Robbins</i></p>
 
 <br>
