@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Japanese architecture is traditionally based on wooden structures that need renovating on a regular basis.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>The only people who like to live alone more than comics are priests.</b>
+> <p><i>Colin Quinn</i></p>
 
 <br>
