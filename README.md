@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every science begins as philosophy and ends as art.</b>
-> <p><i>Will Durant</i></p>
+> <b>Beauty is a fragile gift.</b>
+> <p><i>Ovid</i></p>
 
 <br>
