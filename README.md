@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To array a man's will against his sickness is the supreme art of medicine.</b>
-> <p><i>Henry Ward Beecher</i></p>
+> <b>You cannot expect to achieve new goals or move beyond your present circumstances unless you change.</b>
+> <p><i>Les Brown</i></p>
 
 <br>
