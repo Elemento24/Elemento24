@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For changes to be of any true value, they've got to be lasting and consistent.</b>
-> <p><i>Tony Robbins</i></p>
+> <b>The face you have at age 25 is the face God gave you, but the face you have after 50 is the face you earned.</b>
+> <p><i>Cindy Crawford</i></p>
 
 <br>
