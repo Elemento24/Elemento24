@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look, everything that you experience as a kid is the foundation of how you are today. I was brought up in a working class family in Leeds and when it comes to money both my parents worked hard and instilled the same attitude into me.</b>
-> <p><i>Melanie Brown</i></p>
+> <b>I rememeber one time we were getting ready to go to South America and everything was packed up and in the car ready to go and I hid and I was crying because I really did not want to go, I wanted to play. I did not want to go.</b>
+> <p><i>Michael Jackson</i></p>
 
 <br>
