@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I rememeber one time we were getting ready to go to South America and everything was packed up and in the car ready to go and I hid and I was crying because I really did not want to go, I wanted to play. I did not want to go.</b>
-> <p><i>Michael Jackson</i></p>
+> <b>It's amazing to see places like Madison Square Garden on the schedule again.</b>
+> <p><i>Roger Andrew Taylor</i></p>
 
 <br>
