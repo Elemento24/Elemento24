@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You cannot expect to achieve new goals or move beyond your present circumstances unless you change.</b>
-> <p><i>Les Brown</i></p>
+> <b>She gave up beauty in her tender youth, gave all her hope and joy and pleasant ways she covered up her eyes lest they should gaze on vanity, and chose the bitter truth.</b>
+> <p><i>Christina Rossetti</i></p>
 
 <br>
