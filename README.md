@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of medicine consists in amusing the patient while nature cures the disease.</b>
-> <p><i>Voltaire</i></p>
+> <b>Every science begins as philosophy and ends as art.</b>
+> <p><i>Will Durant</i></p>
 
 <br>
