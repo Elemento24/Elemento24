@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When it becomes more difficult to suffer than to change... you will change.</b>
-> <p><i>Robert Anthony</i></p>
+> <b>A Bachelor of Arts is one who makes love to a lot of women, and yet has the art to remain a bachelor.</b>
+> <p><i>Helen Rowland</i></p>
 
 <br>
