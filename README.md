@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Try to keep your soul young and quivering right up to old age.</b>
-> <p><i>George Sand</i></p>
+> <b>Great perils have this beauty, that they bring to light the fraternity of strangers.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
