@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Soap and water and common sense are the best disinfectants.</b>
-> <p><i>William Osler</i></p>
+> <b>Women didn't want to be on the stage with other women because they didn't want their bodies to be compared. They didn't want another female act opening for them because of this weird competitive and tokenistic attitude.</b>
+> <p><i>Kathleen Hanna</i></p>
 
 <br>
