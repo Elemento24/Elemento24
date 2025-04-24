@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Women didn't want to be on the stage with other women because they didn't want their bodies to be compared. They didn't want another female act opening for them because of this weird competitive and tokenistic attitude.</b>
-> <p><i>Kathleen Hanna</i></p>
+> <b>Someday perhaps change will occur when times are ready for it instead of always when it is too late. Someday change will be accepted as life itself.</b>
+> <p><i>Shirley MacLaine</i></p>
 
 <br>
