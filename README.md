@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Brains don't really smell, but what's amazing about the brain is that it's almost like scrambled eggs or soft tofu, almost like a gel. The brain controls so much of what we do, but you could put your finger right through it.</b>
-> <p><i>Ellen Pompeo</i></p>
+> <b>She's 32, and she has three children. She loves to be pregnant but she doesn't want anymore children in her life. So she decided to help another couple. And she's just been amazing.</b>
+> <p><i>Cheryl Tiegs</i></p>
 
 <br>
