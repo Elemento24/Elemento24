@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I needed most was to love and to be loved, eager to be caught. Happily I wrapped those painful bonds around me and sure enough, I would be lashed with the red-hot pokers or jealousy, by suspicions and fear, by burst of anger and quarrels.</b>
-> <p><i>Saint Augustine</i></p>
+> <b>There are people who take rumors and embellish them in a way that can be devastating. And this pollution has to be eradicated by people in our business as best we can.</b>
+> <p><i>Bob Woodward</i></p>
 
 <br>
