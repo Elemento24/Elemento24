@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>She's 32, and she has three children. She loves to be pregnant but she doesn't want anymore children in her life. So she decided to help another couple. And she's just been amazing.</b>
-> <p><i>Cheryl Tiegs</i></p>
+> <b>The Supreme Court has insulted you over and over again, Lord. They've taken your Bible away from the schools. They've forbidden little children to pray. They've taken the knowledge of God as best they can, and organizations have come into court to take the knowledge of God out of the public square of America.</b>
+> <p><i>Pat Robertson</i></p>
 
 <br>
