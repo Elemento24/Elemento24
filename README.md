@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who is of calm and happy nature will hardly feel the pressure of age, but to him who is of an opposite disposition youth and age are equally a burden.</b>
-> <p><i>Plato</i></p>
+> <b>Try to keep your soul young and quivering right up to old age.</b>
+> <p><i>George Sand</i></p>
 
 <br>
