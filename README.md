@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am so sick of reading about another car bomb, another suicide bomber, another 10, 20, 30, 70, 100 people dead in a day, both Americans and Iraqis.</b>
-> <p><i>Rosanne Cash</i></p>
+> <b>We're all in this alone.</b>
+> <p><i>Lily Tomlin</i></p>
 
 <br>
