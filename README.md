@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We cannot make events. Our business is wisely to improve them.</b>
-> <p><i>Samuel Adams</i></p>
+> <b>The deferring of anger is the best antidote to anger.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
