@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people say it might be good for your career to die and then come back again. I have died many ways, car crashes, motorcycle crashes, etc. But, I am still alive.</b>
-> <p><i>Mark-Paul Gosselaar</i></p>
+> <b>Soap and water and common sense are the best disinfectants.</b>
+> <p><i>William Osler</i></p>
 
 <br>
