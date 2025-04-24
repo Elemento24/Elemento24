@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A Bachelor of Arts is one who makes love to a lot of women, and yet has the art to remain a bachelor.</b>
-> <p><i>Helen Rowland</i></p>
+> <b>There's nobody in the business strong enough to scare me.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
