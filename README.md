@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In order to effect great change, we need to look at how we can help those in our own communities as well as globally.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>My culture-deprived, aspirational mother dragged me once a month from our northern suburb - where the word art never came up - to the Art Institute of Chicago. I hated it.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
