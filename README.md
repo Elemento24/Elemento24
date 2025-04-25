@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Too many people say to their brokers, I can't deal with this. Take my money. Do what you want. That's the worst attitude you can have.</b>
-> <p><i>Maria Bartiromo</i></p>
+> <b>It was the best of times, it was the worst of times.</b>
+> <p><i>Charles Dickens</i></p>
 
 <br>
