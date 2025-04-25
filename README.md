@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you raise taxes on small business, from 35% to 40%, you will kill jobs.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>Golf is so popular simply because it is the best game in the world at which to be bad.</b>
+> <p><i>A. A. Milne</i></p>
 
 <br>
