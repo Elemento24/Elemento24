@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let's talk of a system that transforms all the social organisms into a work of art, in which the entire process of work is included... something in which the principle of production and consumption takes on a form of quality. It's a Gigantic project.</b>
-> <p><i>Joseph Beuys</i></p>
+> <b>Home, nowadays, is a place where part of the family waits till the rest of the family brings the car back.</b>
+> <p><i>Earl Wilson</i></p>
 
 <br>
