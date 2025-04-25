@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Home, nowadays, is a place where part of the family waits till the rest of the family brings the car back.</b>
-> <p><i>Earl Wilson</i></p>
+> <b>Do not trust people. They are capable of greatness.</b>
+> <p><i>Stanislaw Lem</i></p>
 
 <br>
