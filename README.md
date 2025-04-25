@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was the best of times, it was the worst of times.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>I have Graham Greene's telephone number, but I wouldn't dream of using it. I don't seek out writers because we all want to be alone.</b>
+> <p><i>Patricia Highsmith</i></p>
 
 <br>
