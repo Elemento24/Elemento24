@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No face which we can give to a matter will stead us so well at last as the truth. This alone wears well.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Design must reflect the practical and aesthetic in business but above all... good design must primarily serve people.</b>
+> <p><i>Thomas J. Watson</i></p>
 
 <br>
