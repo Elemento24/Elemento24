@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every time a student walks past a really urgent, expressive piece of architecture that belongs to his college, it can help reassure him that he does have that mind, does have that soul.</b>
-> <p><i>Louis Kahn</i></p>
+> <b>I don't like people who have never fallen or stumbled. Their virtue is lifeless and it isn't of much value. Life hasn't revealed its beauty to them.</b>
+> <p><i>Boris Pasternak</i></p>
 
 <br>
