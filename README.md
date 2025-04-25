@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>From an early age I didn't buy into the value systems of working hard in a nine-to-five job. I thought creativity, friendship and loyalty and pushing the boundaries of what was acceptable was much more interesting.</b>
-> <p><i>Adam Clayton</i></p>
+> <b>And remember don't high post when you're far from home, and high posting when you're all alone.</b>
+> <p><i>Mos Def</i></p>
 
 <br>
