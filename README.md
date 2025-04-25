@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not trust people. They are capable of greatness.</b>
-> <p><i>Stanislaw Lem</i></p>
+> <b>Art for art's sake is a philosophy of the well-fed.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
