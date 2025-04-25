@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I developed a nutty attitude where I'd think, If some guy really loves me he doesn't care if I'm fat. I'd come up with all these stupid reasons why it would be OK to be fat.</b>
-> <p><i>Kirstie Alley</i></p>
+> <b>Real beauty knocks you a little bit off kilter.</b>
+> <p><i>David Byrne</i></p>
 
 <br>
