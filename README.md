@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Golf is so popular simply because it is the best game in the world at which to be bad.</b>
-> <p><i>A. A. Milne</i></p>
+> <b>Medicine is a science of uncertainty and an art of probability.</b>
+> <p><i>William Osler</i></p>
 
 <br>
