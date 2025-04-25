@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to win against the intolerable is to tolerate them, for this they have seldom dealt with. Your indulgence may soften their malice and open their eyes to more honorable ways.</b>
-> <p><i>Bryant H. McGill</i></p>
+> <b>So I did in fact spend two and a half years in the Middlesbrough car park practising skills. But if you spend four or five or six hours a day practising, you get better.</b>
+> <p><i>Craig Johnston</i></p>
 
 <br>
