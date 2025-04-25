@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Real beauty knocks you a little bit off kilter.</b>
-> <p><i>David Byrne</i></p>
+> <b>The best way to win against the intolerable is to tolerate them, for this they have seldom dealt with. Your indulgence may soften their malice and open their eyes to more honorable ways.</b>
+> <p><i>Bryant H. McGill</i></p>
 
 <br>
