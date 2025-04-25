@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just do the best you can. No one can do more than that.</b>
-> <p><i>John Wooden</i></p>
+> <b>Let's talk of a system that transforms all the social organisms into a work of art, in which the entire process of work is included... something in which the principle of production and consumption takes on a form of quality. It's a Gigantic project.</b>
+> <p><i>Joseph Beuys</i></p>
 
 <br>
