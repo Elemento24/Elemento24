@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A dream without ambition is like a car without gas... you're not going anywhere.</b>
-> <p><i>Sean Hampton</i></p>
+> <b>From an early age I didn't buy into the value systems of working hard in a nine-to-five job. I thought creativity, friendship and loyalty and pushing the boundaries of what was acceptable was much more interesting.</b>
+> <p><i>Adam Clayton</i></p>
 
 <br>
