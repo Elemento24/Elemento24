@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like people who have never fallen or stumbled. Their virtue is lifeless and it isn't of much value. Life hasn't revealed its beauty to them.</b>
-> <p><i>Boris Pasternak</i></p>
+> <b>Just do the best you can. No one can do more than that.</b>
+> <p><i>John Wooden</i></p>
 
 <br>
