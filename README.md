@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is youth without levity, and age without decay.</b>
-> <p><i>Doris Day</i></p>
+> <b>Art cannot result from sophisticated, frivolous, or superficial effects.</b>
+> <p><i>Hans Hofmann</i></p>
 
 <br>
