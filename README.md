@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is whatever gives joy.</b>
-> <p><i>Edna St. Vincent Millay</i></p>
+> <b>A city building, you experience when you walk a suburban building, you experience when you drive.</b>
+> <p><i>Helmut Jahn</i></p>
 
 <br>
