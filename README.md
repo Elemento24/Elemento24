@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The things we remember best are those better forgotten.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>Satire doesn't effect change.</b>
+> <p><i>P. J. O'Rourke</i></p>
 
 <br>
