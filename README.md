@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are people in the public sector with a range of experiences that have no equivalent in business, but are essential to governing, like keeping a kid in school or helping someone get and hold a job. The value of those skills can't easily be measured against a bottom line.</b>
-> <p><i>Dee Dee Myers</i></p>
+> <b>Fame changes a lot of things, but it can't change a lightbulb.</b>
+> <p><i>Gilda Radner</i></p>
 
 <br>
