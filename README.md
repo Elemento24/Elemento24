@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart.</b>
-> <p><i>Helen Keller</i></p>
+> <b>I was a very sickly kid. While I was in the hospital at age 7, my Dad brought me a stack of comic books to keep me occupied. I was hooked.</b>
+> <p><i>Len Wein</i></p>
 
 <br>
