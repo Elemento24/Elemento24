@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The last time money left the art world, intrepid types maxed out their credit cards and opened galleries, and a few of them have become the best in the world.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It has always been difficult for Man to realize that his life is all an art. It has been more difficult to conceive it so than to act it so. For that is always how he has more or less acted it.</b>
+> <p><i>Havelock Ellis</i></p>
 
 <br>
