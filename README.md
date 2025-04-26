@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people I've been exposed to have been people of amazing integrity.</b>
-> <p><i>Amy Grant</i></p>
+> <b>I have a Volvo S60R and it's a pretty fast car, the R says it all.</b>
+> <p><i>Josie Maran</i></p>
 
 <br>
