@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would have probably stolen cars - it would have given me the same adrenaline rush as racing.</b>
-> <p><i>Valentino Rossi</i></p>
+> <b>I hate the actor and audience business. An author should be in among the crowd, kicking their shins or cheering them on to some mischief or merriment.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
