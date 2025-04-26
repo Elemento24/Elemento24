@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art cannot result from sophisticated, frivolous, or superficial effects.</b>
-> <p><i>Hans Hofmann</i></p>
+> <b>Consider the perverse effect cap and trade has on altruistic actions. Say you decide to buy a small, high-efficiency car. That reduces your emissions, but not your country's. Instead it allows somebody else to buy a bigger S.U.V. - because the total emissions are set by the cap.</b>
+> <p><i>James Hansen</i></p>
 
 <br>
