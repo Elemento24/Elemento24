@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was a very sickly kid. While I was in the hospital at age 7, my Dad brought me a stack of comic books to keep me occupied. I was hooked.</b>
-> <p><i>Len Wein</i></p>
+> <b>Middle age is youth without levity, and age without decay.</b>
+> <p><i>Doris Day</i></p>
 
 <br>
