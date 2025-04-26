@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't have anything to say about other people's art and their work.</b>
-> <p><i>Dolly Parton</i></p>
+> <b>I would have probably stolen cars - it would have given me the same adrenaline rush as racing.</b>
+> <p><i>Valentino Rossi</i></p>
 
 <br>
