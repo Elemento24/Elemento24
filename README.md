@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It has always been difficult for Man to realize that his life is all an art. It has been more difficult to conceive it so than to act it so. For that is always how he has more or less acted it.</b>
-> <p><i>Havelock Ellis</i></p>
+> <b>Before 'Schindler's List,' I wouldn't have believed movies had a lot of power for social change.</b>
+> <p><i>Liam Neeson</i></p>
 
 <br>
