@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is about not knowing, having to change, taking the moment and making the best of it, without knowing what's going to happen next.</b>
-> <p><i>Gilda Radner</i></p>
+> <b>The people I've been exposed to have been people of amazing integrity.</b>
+> <p><i>Amy Grant</i></p>
 
 <br>
