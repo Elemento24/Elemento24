@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Before 'Schindler's List,' I wouldn't have believed movies had a lot of power for social change.</b>
-> <p><i>Liam Neeson</i></p>
+> <b>The things we remember best are those better forgotten.</b>
+> <p><i>Baltasar Gracian</i></p>
 
 <br>
