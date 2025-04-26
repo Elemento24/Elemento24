@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Traditionally, Medicare's assurance has been that for the elderly and persons with disabilities that they will not be alone when confronted with the full burden of their health care costs.</b>
-> <p><i>Mike Fitzpatrick</i></p>
+> <b>The last time money left the art world, intrepid types maxed out their credit cards and opened galleries, and a few of them have become the best in the world.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
