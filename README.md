@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A city building, you experience when you walk a suburban building, you experience when you drive.</b>
-> <p><i>Helmut Jahn</i></p>
+> <b>The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart.</b>
+> <p><i>Helen Keller</i></p>
 
 <br>
