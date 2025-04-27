@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lead singers not only do the majority of the work, but their personalities are singled out and taken as the general attitude of the unit.</b>
-> <p><i>Martha Reeves</i></p>
+> <b>Any work that aspires, however humbly, to the condition of art should carry its justification in every line.</b>
+> <p><i>Joseph Conrad</i></p>
 
 <br>
