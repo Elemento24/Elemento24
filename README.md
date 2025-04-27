@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any work that aspires, however humbly, to the condition of art should carry its justification in every line.</b>
-> <p><i>Joseph Conrad</i></p>
+> <b>For me the Anita series is built like a mystery series, which means that as much as possible each book stands alone, so you have a mystery to solve from the beginning to the end of the book.</b>
+> <p><i>Laurell K. Hamilton</i></p>
 
 <br>
