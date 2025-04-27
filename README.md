@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love Rauschenberg. I love that he created a turning point in visual history, that he redefined the idea of beauty, that he combined painting, sculpture, photography, and everyday life with such gall, and that he was interested in, as he put it, 'the ability to conceive failure as progress.'</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>There are very few dance companies in the world and you have to be phenomenal. You have to not be injured. You have to have a really strong mind to deal with the dance world. People who can do it are amazing to me. You cannot have a life outside of dance.</b>
+> <p><i>Neve Campbell</i></p>
 
 <br>
