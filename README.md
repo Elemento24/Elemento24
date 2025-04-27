@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Andrew Stanton is such an amazing, creative mind.</b>
-> <p><i>Lynn Collins</i></p>
+> <b>You can change friends but not neighbours.</b>
+> <p><i>Atal Bihari Vajpayee</i></p>
 
 <br>
