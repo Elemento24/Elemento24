@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me the Anita series is built like a mystery series, which means that as much as possible each book stands alone, so you have a mystery to solve from the beginning to the end of the book.</b>
-> <p><i>Laurell K. Hamilton</i></p>
+> <b>The faults of a superior person are like the sun and moon. They have their faults, and everyone sees them they change and everyone looks up to them.</b>
+> <p><i>Confucius</i></p>
 
 <br>
