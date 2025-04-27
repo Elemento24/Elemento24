@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of my best leading men have been dogs and horses.</b>
-> <p><i>Elizabeth Taylor</i></p>
+> <b>Beauty is the lover's gift.</b>
+> <p><i>William Congreve</i></p>
 
 <br>
