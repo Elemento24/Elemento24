@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The faults of a superior person are like the sun and moon. They have their faults, and everyone sees them they change and everyone looks up to them.</b>
-> <p><i>Confucius</i></p>
+> <b>I think Andrew Stanton is such an amazing, creative mind.</b>
+> <p><i>Lynn Collins</i></p>
 
 <br>
