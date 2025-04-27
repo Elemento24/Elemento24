@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now, personally, I like a car with some sort of character.</b>
-> <p><i>Richard Hammond</i></p>
+> <b>Lead singers not only do the majority of the work, but their personalities are singled out and taken as the general attitude of the unit.</b>
+> <p><i>Martha Reeves</i></p>
 
 <br>
