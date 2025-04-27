@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The incestuous relationship between government and big business thrives in the dark.</b>
-> <p><i>Jack Anderson</i></p>
+> <b>I was impressed by Hendrix. His attitude was brilliant. Even the way he walked was amazing.</b>
+> <p><i>Ritchie Blackmore</i></p>
 
 <br>
