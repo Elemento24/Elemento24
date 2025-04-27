@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate the actor and audience business. An author should be in among the crowd, kicking their shins or cheering them on to some mischief or merriment.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>Now, personally, I like a car with some sort of character.</b>
+> <p><i>Richard Hammond</i></p>
 
 <br>
