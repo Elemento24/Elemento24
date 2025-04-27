@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're unhappy, you should change what you're doing.</b>
-> <p><i>Marc Andreessen</i></p>
+> <b>Making money is art and working is art and good business is the best art.</b>
+> <p><i>Andy Warhol</i></p>
 
 <br>
