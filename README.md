@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The leverage and influence social media gives citizens are rapidly spreading into the business world.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>If you're unhappy, you should change what you're doing.</b>
+> <p><i>Marc Andreessen</i></p>
 
 <br>
