@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My house is my refuge, an emotional piece of architecture, not a cold piece of convenience.</b>
-> <p><i>Luis Barragan</i></p>
+> <b>The incestuous relationship between government and big business thrives in the dark.</b>
+> <p><i>Jack Anderson</i></p>
 
 <br>
