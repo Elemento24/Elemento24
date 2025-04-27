@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are very few dance companies in the world and you have to be phenomenal. You have to not be injured. You have to have a really strong mind to deal with the dance world. People who can do it are amazing to me. You cannot have a life outside of dance.</b>
-> <p><i>Neve Campbell</i></p>
+> <b>Some of my best leading men have been dogs and horses.</b>
+> <p><i>Elizabeth Taylor</i></p>
 
 <br>
