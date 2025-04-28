@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The higher the building the lower the morals.</b>
-> <p><i>Noel Coward</i></p>
+> <b>He who keeps his cool best wins.</b>
+> <p><i>Norman Cousins</i></p>
 
 <br>
