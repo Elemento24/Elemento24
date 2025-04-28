@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who keeps his cool best wins.</b>
-> <p><i>Norman Cousins</i></p>
+> <b>On the political front, of course it's a zero-sum game. If it's all white males holding positions, you bring 10 women in, then it's, 'Women are coming!' Get 10 blacks and it's, 'Blacks are coming!' 'Hispanics are coming!' Zero-sum game. The seatmates might change but the chairs don't move. In the economy, the number of chairs can actually increase.</b>
+> <p><i>Jesse Jackson</i></p>
 
 <br>
