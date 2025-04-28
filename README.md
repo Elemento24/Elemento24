@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The car business is a lot like football. In football, you have to win once a week. In the car business, you have to win every day.</b>
-> <p><i>Tom Dempsey</i></p>
+> <b>A cardinal principle of Total Quality escapes too many managers: you cannot continuously improve interdependent systems and processes until you progressively perfect interdependent, interpersonal relationships.</b>
+> <p><i>Stephen Covey</i></p>
 
 <br>
