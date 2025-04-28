@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a young black boy, it made me proud to see black leaders that did something amazing and made the world change.</b>
-> <p><i>John Legend</i></p>
+> <b>The higher the building the lower the morals.</b>
+> <p><i>Noel Coward</i></p>
 
 <br>
