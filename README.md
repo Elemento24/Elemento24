@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't understand the details of your business you are going to fail.</b>
-> <p><i>Jeff Bezos</i></p>
+> <b>My grandparents got married at a very young age, and a lot of what I think about marriage is based on their relationship.</b>
+> <p><i>Kyle Chandler</i></p>
 
 <br>
