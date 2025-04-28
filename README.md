@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business schools reward difficult complex behavior more than simple behavior, but simple behavior is more effective.</b>
-> <p><i>Warren Buffett</i></p>
+> <b>A lot of people, including business leaders, think the future belongs to China. Globalization is not a zero-sum game, but we need to hone our skills to stay in play.</b>
+> <p><i>Jon Meacham</i></p>
 
 <br>
