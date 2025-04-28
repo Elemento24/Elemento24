@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My grandparents got married at a very young age, and a lot of what I think about marriage is based on their relationship.</b>
-> <p><i>Kyle Chandler</i></p>
+> <b>Probably nothing serious or worthwhile can be accomplished without one's willingness to be alone for sustained periods of time, which is not to say that one must live alone, obsessively.</b>
+> <p><i>Joyce Carol Oates</i></p>
 
 <br>
