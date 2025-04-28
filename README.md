@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most beautiful thing we can experience is the mysterious. It is the source of all true art and science.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>The business schools reward difficult complex behavior more than simple behavior, but simple behavior is more effective.</b>
+> <p><i>Warren Buffett</i></p>
 
 <br>
