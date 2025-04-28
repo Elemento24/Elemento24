@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only real failure in life is not to be true to the best one knows.</b>
-> <p><i>Buddha</i></p>
+> <b>Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old.</b>
+> <p><i>Franz Kafka</i></p>
 
 <br>
