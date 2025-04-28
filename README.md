@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is indeed a good gift of God but that the good may not think it a great good, God dispenses it even to the wicked.</b>
-> <p><i>Saint Augustine</i></p>
+> <b>If you don't understand the details of your business you are going to fail.</b>
+> <p><i>Jeff Bezos</i></p>
 
 <br>
