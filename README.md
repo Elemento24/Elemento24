@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beginning is the most important part of the work.</b>
-> <p><i>Plato</i></p>
+> <b>It is strange to be known so universally and yet to be so lonely.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
