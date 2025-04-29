@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have very high expectations of myself. I'm a very competitive person but competitive with myself. I want to be the best that I can be and if that means that I'm eventually better than everyone else then so be it.</b>
-> <p><i>Wentworth Miller</i></p>
+> <b>Old age and the passage of time teach all things.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
