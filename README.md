@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age and the passage of time teach all things.</b>
-> <p><i>Sophocles</i></p>
+> <b>A gift, with a kind countenance, is a double present.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
