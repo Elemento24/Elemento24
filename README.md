@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is strange to be known so universally and yet to be so lonely.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>At some point in life the world's beauty becomes enough. You don't need to photograph, paint or even remember it. It is enough.</b>
+> <p><i>Toni Morrison</i></p>
 
 <br>
