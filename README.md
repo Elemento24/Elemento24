@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My imagination completely controls me, and forever feeds the fire that burns with dark red light in my heart by bringing me the best dreams. I've always had a wild imagination, a big heart and a tortured soul so I feel that dark fantasy, love and horror are in my blood.</b>
-> <p><i>Kim Elizabeth</i></p>
+> <b>More and more couples are having this negotiation or discussion, but I'm still amazed at the number who aren't and where the cultural norm sort of kicks in and they just assume that mom's got to be the one who stays home, not dad.</b>
+> <p><i>James Levine</i></p>
 
 <br>
