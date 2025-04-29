@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On the political front, of course it's a zero-sum game. If it's all white males holding positions, you bring 10 women in, then it's, 'Women are coming!' Get 10 blacks and it's, 'Blacks are coming!' 'Hispanics are coming!' Zero-sum game. The seatmates might change but the chairs don't move. In the economy, the number of chairs can actually increase.</b>
-> <p><i>Jesse Jackson</i></p>
+> <b>For the greater beauty of the instrument, the balls representing the planets are to be of considerable bigness but so contrived, that they may be taken off at pleasure, and others, much smaller, and fitter for some purposes, put in their places.</b>
+> <p><i>David Rittenhouse</i></p>
 
 <br>
