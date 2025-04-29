@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man of eighty has outlived probably three new schools of painting, two of architecture and poetry and a hundred in dress.</b>
-> <p><i>Lord Byron</i></p>
+> <b>The best part about being with a group is that you don't have to do everything alone. You're with your friends.</b>
+> <p><i>Justin Timberlake</i></p>
 
 <br>
