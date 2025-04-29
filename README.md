@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A gift, with a kind countenance, is a double present.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>Campaign behavior for wives: Always be on time. Do as little talking as humanly possible. Lean back in the parade car so everybody can see the president.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
