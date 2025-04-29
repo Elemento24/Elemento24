@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think a simple rule of business is, if you do the things that are easier first, then you can actually make a lot of progress.</b>
-> <p><i>Mark Zuckerberg</i></p>
+> <b>Just as a cautious businessman avoids investing all his capital in one concern, so wisdom would probably admonish us also not to anticipate all our happiness from one quarter alone.</b>
+> <p><i>Sigmund Freud</i></p>
 
 <br>
