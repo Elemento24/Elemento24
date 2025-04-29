@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Campaign behavior for wives: Always be on time. Do as little talking as humanly possible. Lean back in the parade car so everybody can see the president.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>My imagination completely controls me, and forever feeds the fire that burns with dark red light in my heart by bringing me the best dreams. I've always had a wild imagination, a big heart and a tortured soul so I feel that dark fantasy, love and horror are in my blood.</b>
+> <p><i>Kim Elizabeth</i></p>
 
 <br>
