@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not sure I make old bones in parliament. It's an amazing experience to have had but I can't see myself being Mother of the House.</b>
-> <p><i>Louise Mensch</i></p>
+> <b>Oh, my God, this amazing cool breeze is coming through my window and the sun is shining. I'm happy.</b>
+> <p><i>Liv Tyler</i></p>
 
 <br>
