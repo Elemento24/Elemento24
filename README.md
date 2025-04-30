@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty can't amuse you, but brainwork - reading, writing, thinking - can.</b>
-> <p><i>Helen Gurley Brown</i></p>
+> <b>I think in art, but especially in films, people are trying to confirm their own existences.</b>
+> <p><i>Jim Morrison</i></p>
 
 <br>
