@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think in art, but especially in films, people are trying to confirm their own existences.</b>
-> <p><i>Jim Morrison</i></p>
+> <b>I have always paid income tax. I object only when it reaches a stage when I am threatened with having nothing left for my old age - which is due to start next Tuesday or Wednesday.</b>
+> <p><i>Noel Coward</i></p>
 
 <br>
