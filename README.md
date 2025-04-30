@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All anger is not sinful, because some degree of it, and on some occasions, is inevitable. But it becomes sinful and contradicts the rule of Scripture when it is conceived upon slight and inadequate provocation, and when it continues long.</b>
-> <p><i>Wilson Mizner</i></p>
+> <b>The curious paradox is that when I accept myself just as I am, then I can change.</b>
+> <p><i>Carl Rogers</i></p>
 
 <br>
