@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One problem with age is that patience begins to ebb.</b>
-> <p><i>Carl Hiaasen</i></p>
+> <b>Beauty can't amuse you, but brainwork - reading, writing, thinking - can.</b>
+> <p><i>Helen Gurley Brown</i></p>
 
 <br>
