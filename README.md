@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ought to be a worldwide cultural taskforce that just stops you when you have ideas like combining The Red Desert with an armored car heist movie.</b>
-> <p><i>Steven Soderbergh</i></p>
+> <b>All anger is not sinful, because some degree of it, and on some occasions, is inevitable. But it becomes sinful and contradicts the rule of Scripture when it is conceived upon slight and inadequate provocation, and when it continues long.</b>
+> <p><i>Wilson Mizner</i></p>
 
 <br>
