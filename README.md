@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The essential function of art is moral. But a passionate, implicit morality, not didactic. A morality which changes the blood, rather than the mind.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>One problem with age is that patience begins to ebb.</b>
+> <p><i>Carl Hiaasen</i></p>
 
 <br>
