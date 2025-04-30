@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just as a cautious businessman avoids investing all his capital in one concern, so wisdom would probably admonish us also not to anticipate all our happiness from one quarter alone.</b>
-> <p><i>Sigmund Freud</i></p>
+> <b>Business, more than any other occupation, is a continual dealing with the future it is a continual calculation, an instinctive exercise in foresight.</b>
+> <p><i>Henry R. Luce</i></p>
 
 <br>
