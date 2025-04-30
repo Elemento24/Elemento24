@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am not trying to change the world. I am just offering my gift that God gave me, and if somebody is moved by it, that's beautiful.</b>
-> <p><i>Lenny Kravitz</i></p>
+> <b>Every day, every birthday candle I blow out, every penny I throw over my shoulder in a wishing well, every time my daughter says, 'Let's make a wish on a star,' there's one thing I wish for: wisdom.</b>
+> <p><i>Rene Russo</i></p>
 
 <br>
