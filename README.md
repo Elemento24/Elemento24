@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We may need to change the way we think. As in Israel, I think there should be a mandatory draft, where you go away for the service of your country for three years.</b>
-> <p><i>Steven Tyler</i></p>
+> <b>My formula for living is quite simple. I get up in the morning and I go to bed at night. In between, I occupy myself as best I can.</b>
+> <p><i>Cary Grant</i></p>
 
 <br>
