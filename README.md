@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today it is not big business that we have to fear. It is big government.</b>
-> <p><i>Wendell Phillips</i></p>
+> <b>This nation has always struggled with how it was going to deal with poor people and people of color. Every few years you will see some great change in the way that they approach this. We've had the war on poverty that never really got into waging a real war on poverty.</b>
+> <p><i>Maxine Waters</i></p>
 
 <br>
