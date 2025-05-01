@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't be an art critic. Paint. There lies salvation.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>True art is characterized by an irresistible urge in the creative artist.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
