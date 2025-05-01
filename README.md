@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This nation has always struggled with how it was going to deal with poor people and people of color. Every few years you will see some great change in the way that they approach this. We've had the war on poverty that never really got into waging a real war on poverty.</b>
-> <p><i>Maxine Waters</i></p>
+> <b>We may need to change the way we think. As in Israel, I think there should be a mandatory draft, where you go away for the service of your country for three years.</b>
+> <p><i>Steven Tyler</i></p>
 
 <br>
