@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architects in the past have tended to concentrate their attention on the building as a static object. I believe dynamics are more important: the dynamics of people, their interaction with spaces and environmental condition.</b>
-> <p><i>John Portman</i></p>
+> <b>Before now, I've always taken my mixes out to the car and listened to them in the parking lot. I still do that, but more so now I'm listening to it on the Beat box, and I think people should give it at least a listen and check it out and see what it is.</b>
+> <p><i>Dr. Dre</i></p>
 
 <br>
