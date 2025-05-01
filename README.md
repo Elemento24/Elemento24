@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a responsibility to nurture and shepherd my talent and when I'm living the parts of my life not related to that I feel I have the right to be left alone.</b>
-> <p><i>Ashley Judd</i></p>
+> <b>The best part of beauty is that which no picture can express.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
