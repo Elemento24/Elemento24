@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My formula for living is quite simple. I get up in the morning and I go to bed at night. In between, I occupy myself as best I can.</b>
-> <p><i>Cary Grant</i></p>
+> <b>Architects in the past have tended to concentrate their attention on the building as a static object. I believe dynamics are more important: the dynamics of people, their interaction with spaces and environmental condition.</b>
+> <p><i>John Portman</i></p>
 
 <br>
