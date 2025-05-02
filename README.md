@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I get into bed at night, I hope I don't get into it alone!</b>
-> <p><i>Calvin Klein</i></p>
+> <b>If the United Nations once admits that international disputes can be settled by using force, then we will have destroyed the foundation of the organization and our best hope of establishing a world order.</b>
+> <p><i>Dwight D. Eisenhower</i></p>
 
 <br>
