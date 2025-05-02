@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never lend your car to anyone to whom you have given birth.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>Hesitation increases in relation to risk in equal proportion to age.</b>
+> <p><i>Ernest Hemingway</i></p>
 
 <br>
