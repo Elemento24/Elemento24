@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you get half a million, at a certain stage you probably will get 4 million people, if they are able to hear it. The touring thing is unbelievable. It really is amazing from what we did the last tour even to what we are doing now.</b>
-> <p><i>John Mayer</i></p>
+> <b>Success has a simple formula: do your best, and people may like it.</b>
+> <p><i>Sam Ewing</i></p>
 
 <br>
