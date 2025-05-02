@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is now defined by your bones sticking out of your decolletage. For that to be the standard is really perilous for women.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>There is danger that we lose sight of what our friend is absolutely, while considering what she is to us alone.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
