@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our main business is not to see what lies dimly at a distance, but to do what lies clearly at hand.</b>
-> <p><i>Thomas Carlyle</i></p>
+> <b>Every job has its downside. For example, being in a band the travel part of it - getting picked up from your house in a car, going to the airport, getting on a plane, going from the airplane to a van, then going from the van to a hotel.</b>
+> <p><i>Dave Lombardo</i></p>
 
 <br>
