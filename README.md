@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every job has its downside. For example, being in a band the travel part of it - getting picked up from your house in a car, going to the airport, getting on a plane, going from the airplane to a van, then going from the van to a hotel.</b>
-> <p><i>Dave Lombardo</i></p>
+> <b>It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change.</b>
+> <p><i>Charles Darwin</i></p>
 
 <br>
