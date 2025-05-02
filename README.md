@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the United Nations once admits that international disputes can be settled by using force, then we will have destroyed the foundation of the organization and our best hope of establishing a world order.</b>
-> <p><i>Dwight D. Eisenhower</i></p>
+> <b>Beauty is now defined by your bones sticking out of your decolletage. For that to be the standard is really perilous for women.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
