@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm glad that my parents missed one thing that was really unbelievable. They saw me hit this great success. It was a blast and we had a lot of laughs. And it was just an amazing time. They passed away. And then after I got, you know, famous, all these haters came out of nowhere.</b>
-> <p><i>Dane Cook</i></p>
+> <b>The pursuit of beauty is much more dangerous nonsense than the pursuit of truth or goodness, because it affords a stronger temptation to the ego.</b>
+> <p><i>Northrop Frye</i></p>
 
 <br>
