@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't fear change - embrace it.</b>
-> <p><i>Anthony J. D'Angelo</i></p>
+> <b>I didn't know a time when there wasn't a war because I spent all my time from the age of two or three to eight in a coal cellar really.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
