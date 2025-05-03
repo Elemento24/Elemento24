@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To keep the heart unwrinkled, to be hopeful, kindly, cheerful, reverent that is to triumph over old age.</b>
-> <p><i>Amos Bronson Alcott</i></p>
+> <b>The man who makes everything that leads to happiness depends upon himself, and not upon other men, has adopted the very best plan for living happily. This is the man of moderation, the man of manly character and of wisdom.</b>
+> <p><i>Plato</i></p>
 
 <br>
