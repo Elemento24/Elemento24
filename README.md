@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nature scarcely ever gives us the very best for that we must have recourse to art.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>I'm glad that my parents missed one thing that was really unbelievable. They saw me hit this great success. It was a blast and we had a lot of laughs. And it was just an amazing time. They passed away. And then after I got, you know, famous, all these haters came out of nowhere.</b>
+> <p><i>Dane Cook</i></p>
 
 <br>
