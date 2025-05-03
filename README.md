@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't look my age, I don't feel my age and I don't act my age. To me age is just a number.</b>
-> <p><i>Joan Collins</i></p>
+> <b>Don't simply retire from something have something to retire to.</b>
+> <p><i>Harry Emerson Fosdick</i></p>
 
 <br>
