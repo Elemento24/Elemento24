@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't simply retire from something have something to retire to.</b>
-> <p><i>Harry Emerson Fosdick</i></p>
+> <b>The problem with being sure that God is on your side is that you can't change your mind, because God sure isn't going to change His.</b>
+> <p><i>Roger Ebert</i></p>
 
 <br>
