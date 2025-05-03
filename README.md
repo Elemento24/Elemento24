@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The problem with being sure that God is on your side is that you can't change your mind, because God sure isn't going to change His.</b>
-> <p><i>Roger Ebert</i></p>
+> <b>The winner's edge is not in a gifted birth, a high IQ, or in talent. The winner's edge is all in the attitude, not aptitude. Attitude is the criterion for success.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
