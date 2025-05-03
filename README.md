@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With production alone as the goal, industry in North America was dominated by the assembly line, standardization for mass consumption.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>Beauty doesn't matter because in the end, we all lose our looks and all we have is our heart.</b>
+> <p><i>Ann Curry</i></p>
 
 <br>
