@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had an amazing childhood.</b>
-> <p><i>Abbie Cornish</i></p>
+> <b>I don't think I could play a character that I couldn't relate to somehow. I'm not unfamiliar with frustration, anger, shame, helplessness and a load of other emotions that make up our psycho-soup. I try to focus on that frustration, that sense of unfairness, and multiply it.</b>
+> <p><i>Terry O'Quinn</i></p>
 
 <br>
