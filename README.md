@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now I know that Wal-Mart's policies do not reflect the best way of doing business and the values that I think are important in America.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>With production alone as the goal, industry in North America was dominated by the assembly line, standardization for mass consumption.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
