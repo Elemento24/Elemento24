@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the best thing I can do is to be a distraction. A husband lives and breathes his work all day long. If he comes home to more table thumping, how can the poor man ever relax?</b>
-> <p><i>Jackie Kennedy</i></p>
+> <b>Now I know that Wal-Mart's policies do not reflect the best way of doing business and the values that I think are important in America.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
