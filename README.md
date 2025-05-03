@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To change what you get you must change who you are.</b>
-> <p><i>Vernon Howard</i></p>
+> <b>Americans are the most generous country on the planet. I've worked in Europe, I've worked in Australia. There is no where else where you get absolutely no attitude for being a foreigner. If you do your job well, they embrace you.</b>
+> <p><i>Hugh Jackman</i></p>
 
 <br>
