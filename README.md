@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to pretend that my art has nothing to do with me.</b>
-> <p><i>Roy Lichtenstein</i></p>
+> <b>Every time I see something terrible, it's like I see it at age 19. I keep a freshness that way.</b>
+> <p><i>Ralph Nader</i></p>
 
 <br>
