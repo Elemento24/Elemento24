@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Nina Simone has had an amazing journey. She was spicy and she had attitude and she didn't care, she wanted her money in a paper bag and don't mess with me and I've been doing some research on that so.</b>
-> <p><i>Nia Long</i></p>
+> <b>These women whose antics we smirk at good-naturedly in the pap-traps put themselves out there at least partly on their beauty they are in showbiz, and showing what they've got is part of their business as much as it is for male show-ponies from the Chippendales to George Clooney.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
