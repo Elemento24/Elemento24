@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>These women whose antics we smirk at good-naturedly in the pap-traps put themselves out there at least partly on their beauty they are in showbiz, and showing what they've got is part of their business as much as it is for male show-ponies from the Chippendales to George Clooney.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>You have to master not only the art of listening to your head, you must also master listening to your heart and listening to your gut.</b>
+> <p><i>Carly Fiorina</i></p>
 
 <br>
