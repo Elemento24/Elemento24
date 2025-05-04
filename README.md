@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Two packed houses. I guess the theater sat 2,700 people every night so it was an amazing experience.</b>
-> <p><i>Blair Underwood</i></p>
+> <b>You'd like more people to recognise what you do is special. But I take the attitude that the best thing I can do for my sport is to be the best at it. The best way people will come to recognise that track and field is a great sport is to see athletes excelling at it. Which is what I intend to do.</b>
+> <p><i>Maurice Greene</i></p>
 
 <br>
