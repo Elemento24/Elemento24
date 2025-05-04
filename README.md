@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to master not only the art of listening to your head, you must also master listening to your heart and listening to your gut.</b>
-> <p><i>Carly Fiorina</i></p>
+> <b>I like making pies. I have a bunch of fruit trees in my backyard. My loquat tree sprouted, and I like making loquat pie. They're really hard to peel and everything, and it took me forever, but they make the best pies. They're amazing.</b>
+> <p><i>Kristen Stewart</i></p>
 
 <br>
