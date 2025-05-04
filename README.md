@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like making pies. I have a bunch of fruit trees in my backyard. My loquat tree sprouted, and I like making loquat pie. They're really hard to peel and everything, and it took me forever, but they make the best pies. They're amazing.</b>
-> <p><i>Kristen Stewart</i></p>
+> <b>Girls shouldn't worry about being the equal of men in the business world.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
