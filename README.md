@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You'd like more people to recognise what you do is special. But I take the attitude that the best thing I can do for my sport is to be the best at it. The best way people will come to recognise that track and field is a great sport is to see athletes excelling at it. Which is what I intend to do.</b>
-> <p><i>Maurice Greene</i></p>
+> <b>About astrology and palmistry: they are good because they make people vivid and full of possibilities. They are communism at its best. Everybody has a birthday and almost everybody has a palm.</b>
+> <p><i>Kurt Vonnegut</i></p>
 
 <br>
