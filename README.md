@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Girls shouldn't worry about being the equal of men in the business world.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>Bob Altman had this relaxed but serious attitude. Everybody loved him. I wanted him to adopt me.</b>
+> <p><i>Steve Buscemi</i></p>
 
 <br>
