@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Victorian architecture in the United States was copied straight from England.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>I've always had a 'Work hard, play hard' attitude to life - I still do - but sometimes you get involved in something that needs a calm, methodical approach.</b>
+> <p><i>Damian Lewis</i></p>
 
 <br>
