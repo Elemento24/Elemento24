@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I share the anger, but, ultimately, to govern this country, it takes more than anger. It takes experience. It takes positions that reflect the best values of the American people.</b>
-> <p><i>Joe Lieberman</i></p>
+> <b>We virtually never feel our age, but thinking that we should can lead to disaster.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
