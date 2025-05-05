@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is nature's brag, and must be shown in courts, at feasts, and high solemnities, where most may wonder at the workmanship.</b>
-> <p><i>John Milton</i></p>
+> <b>Simply by not owning three medium-sized castles in Tuscany I have saved enough money in the last forty years on insurance premiums alone to buy a medium-sized castle in Tuscany.</b>
+> <p><i>Ludwig Mies van der Rohe</i></p>
 
 <br>
