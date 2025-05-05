@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the most beautiful deception of all. And although people try to incorporate the everyday events of life in it, we must hope that it will remain a deception lest it become a utilitarian thing, sad as a factory.</b>
-> <p><i>Claude Debussy</i></p>
+> <b>I share the anger, but, ultimately, to govern this country, it takes more than anger. It takes experience. It takes positions that reflect the best values of the American people.</b>
+> <p><i>Joe Lieberman</i></p>
 
 <br>
