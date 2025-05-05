@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nice to be here? At my age it's nice to be anywhere.</b>
-> <p><i>George Burns</i></p>
+> <b>In the country of pain we are each alone.</b>
+> <p><i>May Sarton</i></p>
 
 <br>
