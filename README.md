@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We virtually never feel our age, but thinking that we should can lead to disaster.</b>
-> <p><i>Martha Beck</i></p>
+> <b>The art of medicine consists in amusing the patient while nature cures the disease.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
