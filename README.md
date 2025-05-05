@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of medicine consists in amusing the patient while nature cures the disease.</b>
-> <p><i>Voltaire</i></p>
+> <b>Not to expose your true feelings to an adult seems to be instinctive from the age of seven or eight onwards.</b>
+> <p><i>George Orwell</i></p>
 
 <br>
