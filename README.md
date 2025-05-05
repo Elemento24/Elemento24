@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always had a 'Work hard, play hard' attitude to life - I still do - but sometimes you get involved in something that needs a calm, methodical approach.</b>
-> <p><i>Damian Lewis</i></p>
+> <b>All we ask is to be let alone.</b>
+> <p><i>Jefferson Davis</i></p>
 
 <br>
