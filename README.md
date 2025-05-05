@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business is always interfering with pleasure - but it makes other pleasures possible.</b>
-> <p><i>William Feather</i></p>
+> <b>Men of age object too much, consult too long, adventure too little, repent too soon, and seldom drive business home to the full period, but content themselves with a mediocrity of success.</b>
+> <p><i>Dale Carnegie</i></p>
 
 <br>
