@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Simply by not owning three medium-sized castles in Tuscany I have saved enough money in the last forty years on insurance premiums alone to buy a medium-sized castle in Tuscany.</b>
-> <p><i>Ludwig Mies van der Rohe</i></p>
+> <b>Growing up in New York has influenced my style so much, and I have an amazing relationship with my stylist, Estee Stanley. We have so much fun with the whole process. She picks out dresses, I try things on and play dress up, and we get creative to see what works.</b>
+> <p><i>Lea Michele</i></p>
 
 <br>
