@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best director is the one you don't see.</b>
-> <p><i>Billy Wilder</i></p>
+> <b>Believe it or not, lots of people change their majors and abandon their dreams just to avoid a couple of math classes in college.</b>
+> <p><i>Danica McKellar</i></p>
 
 <br>
