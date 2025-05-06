@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture theory is very interesting.</b>
-> <p><i>David Byrne</i></p>
+> <b>You fall into my arms. You are the good gift of destruction's path, When life sickens more than disease. And boldness is the root of beauty. Which draws us together.</b>
+> <p><i>Boris Pasternak</i></p>
 
 <br>
