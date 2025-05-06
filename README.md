@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And while the law of competition may be sometimes hard for the individual, it is best for the race, because it ensures the survival of the fittest in every department.</b>
-> <p><i>Andrew Carnegie</i></p>
+> <b>For me, growing up, the downside of it was that as a kid you don't want to stand out. You don't want to have a famous father let alone get a job because of your famous father, you know? But I'm a product of nepotism. That's how I got my foot in the door, through my dad.</b>
+> <p><i>Jeff Bridges</i></p>
 
 <br>
