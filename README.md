@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So if one day the result becomes 3-3, for me it doesn't change my mind, because it's football, it's normal. What is not normal is that we haven't been scoring enough goals playing such good football as we've been playing in the last few weeks.</b>
-> <p><i>Jose Mourinho</i></p>
+> <b>Excellence is an art won by training and habituation. We do not act rightly because we have virtue or excellence, but we rather have those because we have acted rightly. We are what we repeatedly do. Excellence, then, is not an act but a habit.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
