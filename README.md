@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me, growing up, the downside of it was that as a kid you don't want to stand out. You don't want to have a famous father let alone get a job because of your famous father, you know? But I'm a product of nepotism. That's how I got my foot in the door, through my dad.</b>
-> <p><i>Jeff Bridges</i></p>
+> <b>Magic is the oldest part of the show business profession. It can now be used as a forward-thinking tool to build a child's confidence. It has been an amazing part in many entertainers' lives, including Steve Martin and the late Johnny Carson.</b>
+> <p><i>Criss Angel</i></p>
 
 <br>
