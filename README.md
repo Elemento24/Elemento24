@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Making checklists of things you're looking for in a person is the numero uno thing you can do to guarantee you'll be alone forever.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>Men are but children of a larger growth, Our appetites as apt to change as theirs, And full as craving too, and full as vain.</b>
+> <p><i>Diane Arbus</i></p>
 
 <br>
