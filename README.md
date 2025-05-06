@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Read the best books first, or you may not have a chance to read them at all.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>And while the law of competition may be sometimes hard for the individual, it is best for the race, because it ensures the survival of the fittest in every department.</b>
+> <p><i>Andrew Carnegie</i></p>
 
 <br>
