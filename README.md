@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You fall into my arms. You are the good gift of destruction's path, When life sickens more than disease. And boldness is the root of beauty. Which draws us together.</b>
-> <p><i>Boris Pasternak</i></p>
+> <b>It wasn't a secret that I was gay. I'd come out to my parents during my junior year of high school, on the day that I also wrecked the family car.</b>
+> <p><i>Mary Cheney</i></p>
 
 <br>
