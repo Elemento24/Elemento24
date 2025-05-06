@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men are but children of a larger growth, Our appetites as apt to change as theirs, And full as craving too, and full as vain.</b>
-> <p><i>Diane Arbus</i></p>
+> <b>If you ever have the good fortune to meet Tippi Hedren, she's an amazing woman. You can't quite believe she is the age she is.</b>
+> <p><i>Toby Jones</i></p>
 
 <br>
