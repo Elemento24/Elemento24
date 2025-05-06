@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A dream without ambition is like a car without gas... you're not going anywhere.</b>
-> <p><i>Sean Hampton</i></p>
+> <b>Works of art, in my opinion, are the only objects in the material universe to possess internal order, and that is why, though I don't believe that only art matters, I do believe in Art for Art's sake.</b>
+> <p><i>E. M. Forster</i></p>
 
 <br>
