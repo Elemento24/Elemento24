@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It wasn't a secret that I was gay. I'd come out to my parents during my junior year of high school, on the day that I also wrecked the family car.</b>
-> <p><i>Mary Cheney</i></p>
+> <b>Because sorry to say, women run the house. They run the family. They hold things up. I mean, it's like you don't ever see your mom get sick because she handles everything. And it's kind of amazing I think to show people just how strong women are.</b>
+> <p><i>Sophia Bush</i></p>
 
 <br>
