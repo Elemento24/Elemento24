@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went to school for engineering, I studied jazz. So I always had this kind of creative side and technical side, and I thought architecture might be the way to combine them, so I went to architecture school in New York.</b>
-> <p><i>Joseph Kosinski</i></p>
+> <b>There are people who take rumors and embellish them in a way that can be devastating. And this pollution has to be eradicated by people in our business as best we can.</b>
+> <p><i>Bob Woodward</i></p>
 
 <br>
