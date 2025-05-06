@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you ever have the good fortune to meet Tippi Hedren, she's an amazing woman. You can't quite believe she is the age she is.</b>
-> <p><i>Toby Jones</i></p>
+> <b>When I was in my early 20s, I had my hair permed. Bad idea! It turned into total frizz. My advice to women is, if you have nice hair already, don't get a perm, leave your hair alone!</b>
+> <p><i>Mariska Hargitay</i></p>
 
 <br>
