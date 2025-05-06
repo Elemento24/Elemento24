@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Magic is the oldest part of the show business profession. It can now be used as a forward-thinking tool to build a child's confidence. It has been an amazing part in many entertainers' lives, including Steve Martin and the late Johnny Carson.</b>
-> <p><i>Criss Angel</i></p>
+> <b>Beauty for some provides escape, who gain a happiness in eyeing the gorgeous buttocks of the ape or Autumn sunsets exquisitely dying.</b>
+> <p><i>Langston Hughes</i></p>
 
 <br>
