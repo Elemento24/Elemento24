@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are welcome to your intellectual pastimes and books and art and newspapers welcome, too, to your bars and your whisky that only makes me ill. Here am I in the forest, quite content.</b>
-> <p><i>Knut Hamsun</i></p>
+> <b>Opinions are made to be changed - or how is truth to be got at?</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
