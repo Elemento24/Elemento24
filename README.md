@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You're safer in the race car than you are in cars going to and from the track.</b>
-> <p><i>Mario Andretti</i></p>
+> <b>In an era ruled by materialism and unstable geopolitics, art must be restored to the center of public education.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
