@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most beautiful thing we can experience is the mysterious. It is the source of all true art and science.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>Patience is the art of concealing your impatience.</b>
+> <p><i>Guy Kawasaki</i></p>
 
 <br>
