@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tell you, it was kind of two-fold. I fortunately had a lot of support. My coach was amazing - he told me to focus on being prepared and that is what I did. Every athlete is nervous - any athlete who tells you they're not nervous isn't telling you the truth. I was as prepared as I could be.</b>
-> <p><i>Carl Lewis</i></p>
+> <b>My parents were really, really cool about supporting what I wanted to do at a really young age. I think I was about 10 when I caught the bug. They would drive me down to New York if there were auditions. When I was 12, I did this show on Broadway called 'High Society,' so we moved to New York for the run of that.</b>
+> <p><i>Anna Kendrick</i></p>
 
 <br>
