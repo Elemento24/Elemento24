@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The anger of a person who is strong, can always bide its time.</b>
-> <p><i>James Whitcomb Riley</i></p>
+> <b>It took me so many years to move out. I'm definitely a bit of a Peter Pan, reluctant to grow up. It all seemed really nice at home-why change it? Part of me would prefer not to have any responsibility whatsoever.</b>
+> <p><i>Helena Bonham Carter</i></p>
 
 <br>
