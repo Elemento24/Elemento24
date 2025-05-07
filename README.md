@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best luck of all is the luck you make for yourself.</b>
-> <p><i>Douglas MacArthur</i></p>
+> <b>I'm not one of those women who thinks beauty is a curse.</b>
+> <p><i>Diane Kruger</i></p>
 
 <br>
