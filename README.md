@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You just can't get too focused on worrying about what's going to happen in the next quarter. You have to worry about where the business is headed long-term.</b>
-> <p><i>James Sinegal</i></p>
+> <b>Bill Gates is a relative newcomer to the fight against global warming, but he's already shifting the debate over climate change.</b>
+> <p><i>Jeff Goodell</i></p>
 
 <br>
