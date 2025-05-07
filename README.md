@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're writing, you're starting in private. It can really be this amazing, private, freeing experience. Forget that it's for other people - that comes in later.</b>
-> <p><i>Lena Dunham</i></p>
+> <b>Change your opinions, keep to your principles change your leaves, keep intact your roots.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
