@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bill Gates is a relative newcomer to the fight against global warming, but he's already shifting the debate over climate change.</b>
-> <p><i>Jeff Goodell</i></p>
+> <b>You're safer in the race car than you are in cars going to and from the track.</b>
+> <p><i>Mario Andretti</i></p>
 
 <br>
