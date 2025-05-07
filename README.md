@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because sorry to say, women run the house. They run the family. They hold things up. I mean, it's like you don't ever see your mom get sick because she handles everything. And it's kind of amazing I think to show people just how strong women are.</b>
-> <p><i>Sophia Bush</i></p>
+> <b>Art has the power to transform, to illuminate, to educate, inspire and motivate.</b>
+> <p><i>Harvey Fierstein</i></p>
 
 <br>
