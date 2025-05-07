@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It took me so many years to move out. I'm definitely a bit of a Peter Pan, reluctant to grow up. It all seemed really nice at home-why change it? Part of me would prefer not to have any responsibility whatsoever.</b>
-> <p><i>Helena Bonham Carter</i></p>
+> <b>I tell you, it was kind of two-fold. I fortunately had a lot of support. My coach was amazing - he told me to focus on being prepared and that is what I did. Every athlete is nervous - any athlete who tells you they're not nervous isn't telling you the truth. I was as prepared as I could be.</b>
+> <p><i>Carl Lewis</i></p>
 
 <br>
