@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change your opinions, keep to your principles change your leaves, keep intact your roots.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>Anger may repast with thee for an hour, but not repose for a night the continuance of anger is hatred, the continuance of hatred turns malice.</b>
+> <p><i>Francis Quarles</i></p>
 
 <br>
