@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As somebody who, in my second marriage, insisted on a prenuptial agreement, I can also testify that sometimes it is an act of love to chart the exit strategy before you enter the union, in order to make sure that not only you, but your partner as well, knows that there will be no World War III should hearts and minds, for any sad reason, change.</b>
-> <p><i>Elizabeth Gilbert</i></p>
+> <b>To write a story about New York that only deals with people in your age and socioeconomic bracket, that feels dishonest to me. So much of New York comes from everyone bumping into each other.</b>
+> <p><i>Josh Radnor</i></p>
 
 <br>
