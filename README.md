@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No, in Lethal Weapon I was a taxi cab driver that Mel jumps in front of the taxi and pulls me out of the car and steals the taxi. Then I did some other indie driving for some of the car sequences.</b>
-> <p><i>David R. Ellis</i></p>
+> <b>As somebody who, in my second marriage, insisted on a prenuptial agreement, I can also testify that sometimes it is an act of love to chart the exit strategy before you enter the union, in order to make sure that not only you, but your partner as well, knows that there will be no World War III should hearts and minds, for any sad reason, change.</b>
+> <p><i>Elizabeth Gilbert</i></p>
 
 <br>
