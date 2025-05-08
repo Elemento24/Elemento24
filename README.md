@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There was an age, however, when the transition from savagery to civilization, with all its impressive outward manifestations in art and architecture, took place for the first time.</b>
-> <p><i>James H. Breasted</i></p>
+> <b>He was thinking alone, and seriously racking his brain to find a direction for this single force four times multiplied, with which he did not doubt, as with the lever for which Archimedes sought, they should succeed in moving the world, when some one tapped gently at his door.</b>
+> <p><i>Alexandre Dumas</i></p>
 
 <br>
