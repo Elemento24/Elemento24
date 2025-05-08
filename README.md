@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To write a story about New York that only deals with people in your age and socioeconomic bracket, that feels dishonest to me. So much of New York comes from everyone bumping into each other.</b>
-> <p><i>Josh Radnor</i></p>
+> <b>There was an age, however, when the transition from savagery to civilization, with all its impressive outward manifestations in art and architecture, took place for the first time.</b>
+> <p><i>James H. Breasted</i></p>
 
 <br>
