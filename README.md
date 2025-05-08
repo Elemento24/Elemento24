@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Allowing children to show their guilt, show their grief, show their anger, takes the sting out of the situation.</b>
-> <p><i>Martha Beck</i></p>
+> <b>Any revival in which I am involved is liable to change.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
