@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We gave up some of our country to the white men, thinking that then we could have peace. We were mistaken. The white man would not let us alone.</b>
-> <p><i>Chief Joseph</i></p>
+> <b>Mom was 50 when my Dad died. She got on a bus every weekday for years, and rode 40 miles each morning to Madison. She earned a new degree and learned new skills to start her small business. It wasn't just a new livelihood. It was a new life.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
