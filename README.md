@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've worked on films where the budgets are almost limitless and you're in trailers that are bigger than a hotel room. You're taken care of and the food is amazing, the quality of the job is amazing and then you work on smaller things but it never dictates my happiness or my willingness to go to work.</b>
-> <p><i>Dominic Monaghan</i></p>
+> <b>Art is moral passion married to entertainment. Moral passion without entertainment is propaganda, and entertainment without moral passion is television.</b>
+> <p><i>Rita Mae Brown</i></p>
 
 <br>
