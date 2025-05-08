@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He was thinking alone, and seriously racking his brain to find a direction for this single force four times multiplied, with which he did not doubt, as with the lever for which Archimedes sought, they should succeed in moving the world, when some one tapped gently at his door.</b>
-> <p><i>Alexandre Dumas</i></p>
+> <b>I've worked on films where the budgets are almost limitless and you're in trailers that are bigger than a hotel room. You're taken care of and the food is amazing, the quality of the job is amazing and then you work on smaller things but it never dictates my happiness or my willingness to go to work.</b>
+> <p><i>Dominic Monaghan</i></p>
 
 <br>
