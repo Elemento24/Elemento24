@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Too many Christians have a commitment of convenience. They'll stay faithful as long as it's safe and doesn't involve risk, rejection, or criticism. Instead of standing alone in the face of challenge or temptation, they check to see which way their friends are going.</b>
-> <p><i>Charles Stanley</i></p>
+> <b>It's tough because a lot of my friends in normal life, a lot of my friends in the entertainment business, and a lot of my friends in the wrestling business are gay. Just to say something spiteful and hurtful, I don't get it... if it was true and I was gay, I'd embrace it, and I'd tell you guys about it and I'd celebrate it.</b>
+> <p><i>Hulk Hogan</i></p>
 
 <br>
