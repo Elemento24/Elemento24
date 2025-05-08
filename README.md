@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Testing oneself is best when done alone.</b>
-> <p><i>Jimmy Carter</i></p>
+> <b>The best lack all conviction, while the worst are full of passionate intensity.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
