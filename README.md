@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Family trips to Yellowstone and to what are now national parks in Southern Utah, driving the primitive roads and cars of that day, were real adventures.</b>
-> <p><i>Paul D. Boyer</i></p>
+> <b>We now have an opportunity, though, to do something we didn't do in the industrial age, and that is to get a leg up on this, to bring the public in quickly, to have an informed debate.</b>
+> <p><i>Jeremy Rifkin</i></p>
 
 <br>
