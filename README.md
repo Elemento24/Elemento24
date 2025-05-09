@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tend to foster drama via bleakness. If I want the reader to feel sympathy for a character, I cleave the character in half, on his birthday. And then it starts raining. And he's made of sugar.</b>
-> <p><i>George Saunders</i></p>
+> <b>Its attitude, which it has preached and practiced, is skepticism. Now, it finds, the public is applying that skepticism to the press.</b>
+> <p><i>Thomas Griffith</i></p>
 
 <br>
