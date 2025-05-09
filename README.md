@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is only one thing for us to do, and that is to do our level best right where we are every day of our lives To use our best judgment, and then to trust the rest to that Power which holds the forces of the universe in his hands.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>I have the same attitude with work - I like to go to work, I like to work really hard I, like to give everything my all, I like to try things that are new, you know.</b>
+> <p><i>Rosie Huntington-Whiteley</i></p>
 
 <br>
