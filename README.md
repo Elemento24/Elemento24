@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think anything changes until ideas change. The usual American viewpoint is to believe that something is wrong with the person.</b>
-> <p><i>James Hillman</i></p>
+> <b>A positive attitude can really make dreams come true - it did for me.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
