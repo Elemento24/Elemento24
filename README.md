@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old wood best to burn, old wine to drink, old friends to trust, and old authors to read.</b>
-> <p><i>Athenaeus</i></p>
+> <b>Going online and asking questions is the best way to learn.</b>
+> <p><i>Tom Felton</i></p>
 
 <br>
