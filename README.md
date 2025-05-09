@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Going online and asking questions is the best way to learn.</b>
-> <p><i>Tom Felton</i></p>
+> <b>I pretty much borrow my entire beauty regime from my mom.</b>
+> <p><i>Rashida Jones</i></p>
 
 <br>
