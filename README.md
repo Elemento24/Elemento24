@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Publishing is in a kind of Jurassic age.</b>
-> <p><i>Paulo Coelho</i></p>
+> <b>I tend to foster drama via bleakness. If I want the reader to feel sympathy for a character, I cleave the character in half, on his birthday. And then it starts raining. And he's made of sugar.</b>
+> <p><i>George Saunders</i></p>
 
 <br>
