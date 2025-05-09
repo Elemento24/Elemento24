@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success breeds volume, and it's just amazing how many young writers, artists, and musicians there are in town.</b>
-> <p><i>Steven Curtis Chapman</i></p>
+> <b>There is only one thing for us to do, and that is to do our level best right where we are every day of our lives To use our best judgment, and then to trust the rest to that Power which holds the forces of the universe in his hands.</b>
+> <p><i>Orison Swett Marden</i></p>
 
 <br>
