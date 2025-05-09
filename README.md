@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A positive attitude can really make dreams come true - it did for me.</b>
-> <p><i>David Bailey</i></p>
+> <b>I wish I'd gotten sober at a younger age.</b>
+> <p><i>Janice Dickinson</i></p>
 
 <br>
