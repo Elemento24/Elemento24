@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you spend enough time in or around Washington, you'll meet amazing people who work for the government.</b>
-> <p><i>Judy Woodruff</i></p>
+> <b>Death be not proud, though some have called thee Mighty and dreadful, for thou art not so. For, those, whom thou think'st thou dost overthrow. Die not, poor death, nor yet canst thou kill me.</b>
+> <p><i>John Donne</i></p>
 
 <br>
