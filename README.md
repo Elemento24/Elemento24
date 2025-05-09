@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best lack all conviction, while the worst are full of passionate intensity.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>Old wood best to burn, old wine to drink, old friends to trust, and old authors to read.</b>
+> <p><i>Athenaeus</i></p>
 
 <br>
