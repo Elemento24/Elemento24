@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not the beauty of a building you should look at its the construction of the foundation that will stand the test of time.</b>
-> <p><i>David Allan Coe</i></p>
+> <b>I don't think anything changes until ideas change. The usual American viewpoint is to believe that something is wrong with the person.</b>
+> <p><i>James Hillman</i></p>
 
 <br>
