@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best revenge is to live on and prove yourself.</b>
-> <p><i>Eddie Vedder</i></p>
+> <b>Architecture, of all the arts, is the one which acts the most slowly, but the most surely, on the soul.</b>
+> <p><i>Ernest Dimnet</i></p>
 
 <br>
