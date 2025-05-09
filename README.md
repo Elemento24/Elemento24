@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have the same attitude with work - I like to go to work, I like to work really hard I, like to give everything my all, I like to try things that are new, you know.</b>
-> <p><i>Rosie Huntington-Whiteley</i></p>
+> <b>No, in Lethal Weapon I was a taxi cab driver that Mel jumps in front of the taxi and pulls me out of the car and steals the taxi. Then I did some other indie driving for some of the car sequences.</b>
+> <p><i>David R. Ellis</i></p>
 
 <br>
