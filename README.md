@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Looking back on those games, I probably hustled out of position as much as I hustled into position since I really never had any real training. I was working on instincts alone.</b>
-> <p><i>Jim Evans</i></p>
+> <b>I am an unconventional beauty. I grew up in a high school where if you didn't have a nose job and money and if you weren't thin, you weren't cool, popular, beautiful. I was always told that I wasn't pretty enough to be on television.</b>
+> <p><i>Lea Michele</i></p>
 
 <br>
