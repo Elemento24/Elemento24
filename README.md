@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I saw 'Taxi Driver,' and 'Taxi Driver' kind of saved my life. The scene where Robert De Niro is looking at himself in the mirror saying, 'You talkin' to me? You talkin' to me? Who the hell else are you talkin' to?' That's the scene that changed my life by changing my attitude about acting.</b>
-> <p><i>Michael Biehn</i></p>
+> <b>Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else you are the one who gets burned.</b>
+> <p><i>Buddha</i></p>
 
 <br>
