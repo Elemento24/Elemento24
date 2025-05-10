@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My therapist says I still haven't got in touch with my anger. Maybe one day I'm going to explode. But I'm still really happy. I know it looks like a strange and painful upbringing - all those experiences led me to the paths that I'm on now.</b>
-> <p><i>Drew Barrymore</i></p>
+> <b>There is something in the pang of change More than the heart can bear, Unhappiness remembering happiness.</b>
+> <p><i>Euripedes</i></p>
 
 <br>
