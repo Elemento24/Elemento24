@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am an unconventional beauty. I grew up in a high school where if you didn't have a nose job and money and if you weren't thin, you weren't cool, popular, beautiful. I was always told that I wasn't pretty enough to be on television.</b>
-> <p><i>Lea Michele</i></p>
+> <b>The progress of evolution from President Washington to President Grant was alone evidence to upset Darwin.</b>
+> <p><i>Henry Adams</i></p>
 
 <br>
