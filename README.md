@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The foolish and the dead alone never change their opinions.</b>
-> <p><i>James Russell Lowell</i></p>
+> <b>I was a queen, and you took away my crown a wife, and you killed my husband a mother, and you deprived me of my children. My blood alone remains: take it, but do not make me suffer long.</b>
+> <p><i>Marie Antoinette</i></p>
 
 <br>
