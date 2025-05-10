@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is something in the pang of change More than the heart can bear, Unhappiness remembering happiness.</b>
-> <p><i>Euripedes</i></p>
+> <b>I think it's pretty crazy to say you've been typecast at the age of 20 before you've even really started getting going.</b>
+> <p><i>Tom Felton</i></p>
 
 <br>
