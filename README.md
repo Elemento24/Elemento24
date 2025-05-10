@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it has something to do with being British. We don't take ourselves as seriously as some other countries do. I think a lot of people take themselves far too seriously I find that a very tedious attitude.</b>
-> <p><i>Joan Collins</i></p>
+> <b>Fashion is only the attempt to realize art in living forms and social intercourse.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
