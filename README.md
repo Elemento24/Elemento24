@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is about public space held by buildings.</b>
-> <p><i>Richard Rogers</i></p>
+> <b>Looking back on those games, I probably hustled out of position as much as I hustled into position since I really never had any real training. I was working on instincts alone.</b>
+> <p><i>Jim Evans</i></p>
 
 <br>
