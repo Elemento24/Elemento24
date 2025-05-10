@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the tough things about being an actor, probably the hardest thing, is getting your foot in the door, and my father handled that for me at a very early age.</b>
-> <p><i>Jeff Bridges</i></p>
+> <b>Any work of architecture that has with it some discussion, some polemic, I think is good. It shows that people are interested, people are involved.</b>
+> <p><i>Richard Meier</i></p>
 
 <br>
