@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any work of architecture that has with it some discussion, some polemic, I think is good. It shows that people are interested, people are involved.</b>
-> <p><i>Richard Meier</i></p>
+> <b>The foolish and the dead alone never change their opinions.</b>
+> <p><i>James Russell Lowell</i></p>
 
 <br>
