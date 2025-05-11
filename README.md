@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When thou art above measure angry, bethink thee how momentary is man's life.</b>
-> <p><i>Marcus Aurelius</i></p>
+> <b>Change brings opportunities. On the other hand, change can be confusing.</b>
+> <p><i>Michael Porter</i></p>
 
 <br>
