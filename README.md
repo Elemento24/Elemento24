@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I'm trying not to be cynical - I don't want to be one of those people who has a cool opportunity and blows it. It's really amazing what's happening to me.</b>
-> <p><i>Shannyn Sossamon</i></p>
+> <b>I've always looked the same. Since I was a child, I hated having to deal with my hair. I hated having to change my clothes. As a kid, I had a sailor shirt and the same old corduroy pants, and that's what I wanted to wear everyday.</b>
+> <p><i>Patti Smith</i></p>
 
 <br>
