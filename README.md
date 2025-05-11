@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do read books. I suppose it's more or less the same thing, but at least I'm alone and I'm an individual. I can stop anytime I want, which I frequently do.</b>
-> <p><i>Jack Vance</i></p>
+> <b>Music is spiritual. The music business is not.</b>
+> <p><i>Van Morrison</i></p>
 
 <br>
