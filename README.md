@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all love musical architecture there's no doubt about that.</b>
-> <p><i>Levon Helm</i></p>
+> <b>In practice we, in the world, must do business with each other.</b>
+> <p><i>David Mamet</i></p>
 
 <br>
