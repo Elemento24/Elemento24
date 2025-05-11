@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.</b>
-> <p><i>Paul Getty</i></p>
+> <b>Since obscenity is the truth of our passion today, it is the only stuff of art - or almost the only stuff.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
