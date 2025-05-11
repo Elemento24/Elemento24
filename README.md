@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Statistics suggest that when customers complain, business owners and managers ought to get excited about it. The complaining customer represents a huge opportunity for more business.</b>
-> <p><i>Zig Ziglar</i></p>
+> <b>The Left Elite only pretend to be concerned about what's best for everyone else because it is the most effective way to manipulate you and your children into their abyss.</b>
+> <p><i>Tammy Bruce</i></p>
 
 <br>
