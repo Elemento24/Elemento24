@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way I see it, you should live everyday like its your birthday.</b>
-> <p><i>Paris Hilton</i></p>
+> <b>The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.</b>
+> <p><i>Paul Getty</i></p>
 
 <br>
