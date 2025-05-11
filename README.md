@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Americans chose a free enterprise system designed to provide a quality of opportunity, not compel a quality of results. And that is why this is only place in the world where you can open up a business in the spare bedroom of your home.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>When thou art above measure angry, bethink thee how momentary is man's life.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
