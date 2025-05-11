@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm just attracted to playing people who are ostensible unlikable. That's not to say that there's something in there that makes you care. It might be that you just find them so awful that you just can't stop watching, like a car crash.</b>
-> <p><i>Steve Coogan</i></p>
+> <b>The biggest danger to the European Union comes not from those who advocate change, but from those who denounce new thinking as heresy. In its long history Europe has experience of heretics who turned out to have a point.</b>
+> <p><i>David Cameron</i></p>
 
 <br>
