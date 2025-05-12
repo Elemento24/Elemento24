@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am especially grateful that I have been able to keep my own style over the decades, in spite of the many changes that have taken place in the world of fashion and in its business.</b>
-> <p><i>Valentino Garavani</i></p>
+> <b>Creative ideas flourish best in a shop which preserves some spirit of fun. Nobody is in business for fun, but that does not mean there cannot be fun in business.</b>
+> <p><i>Leo Burnett</i></p>
 
 <br>
