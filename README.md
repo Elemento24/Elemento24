@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Finds progress, man's distinctive mark alone, Not God's, and not the beast's God is, they are, Man partly is, and wholly hopes to be.</b>
-> <p><i>Robert Browning</i></p>
+> <b>Desperation is the perfume of the young actor. It's so satisfying to have gotten rid of it. If you keep smelling it, it can drive you crazy. In this business a lot of people go nuts, go eccentric, even end up dead from it. Not my plan.</b>
+> <p><i>Uma Thurman</i></p>
 
 <br>
