@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've known Shawn for several years. And he's just an amazing talent. He's a great writer, a marvelous, marvelous guitar player, and plays really good fiddle.</b>
-> <p><i>Guy Clark</i></p>
+> <b>We tried not to age, but time had its rage.</b>
+> <p><i>Pete Townshend</i></p>
 
 <br>
