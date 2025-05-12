@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You will reciprocally promise love, loyalty and matrimonial honesty. We only want for you this day that these words constitute the principle of your entire life and that with the help of divine grace you will observe these solemn vows that today, before God, you formulate.</b>
-> <p><i>Pope John Paul II</i></p>
+> <b>My dad was working abroad, in Iraq, and he was a doctor. We used to go and visit him, in Baghdad, off and on. For the first ten years of my life, we used to go backwards and forwards to Baghdad, so that was quite amazing. I spent a lot of time traveling around the Middle East.</b>
+> <p><i>Andy Serkis</i></p>
 
 <br>
