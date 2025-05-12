@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When we seek to discover the best in others, we somehow bring out the best in ourselves.</b>
-> <p><i>William Arthur Ward</i></p>
+> <b>Love of beauty is taste. The creation of beauty is art.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
