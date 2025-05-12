@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm the lead singer of the Beach Boys and an ambassador of this amazing music that touched a generation.</b>
-> <p><i>Mike Love</i></p>
+> <b>When we seek to discover the best in others, we somehow bring out the best in ourselves.</b>
+> <p><i>William Arthur Ward</i></p>
 
 <br>
