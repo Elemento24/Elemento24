@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We tried not to age, but time had its rage.</b>
-> <p><i>Pete Townshend</i></p>
+> <b>The best beauty advice I ever received is to keep skin hydrated and limit harsh exposure to the sun. If you are set on the tanned look, there are plenty of great creams that will give you a healthy-looking glow.</b>
+> <p><i>Erica Durance</i></p>
 
 <br>
