@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Desperation is the perfume of the young actor. It's so satisfying to have gotten rid of it. If you keep smelling it, it can drive you crazy. In this business a lot of people go nuts, go eccentric, even end up dead from it. Not my plan.</b>
-> <p><i>Uma Thurman</i></p>
+> <b>Sadly, we do a much better job of making people feel guilty than we do of delivering them from the guilt we create. We need to confess this and change our ways.</b>
+> <p><i>Tony Campolo</i></p>
 
 <br>
