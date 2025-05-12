@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me the Anita series is built like a mystery series, which means that as much as possible each book stands alone, so you have a mystery to solve from the beginning to the end of the book.</b>
-> <p><i>Laurell K. Hamilton</i></p>
+> <b>I am especially grateful that I have been able to keep my own style over the decades, in spite of the many changes that have taken place in the world of fashion and in its business.</b>
+> <p><i>Valentino Garavani</i></p>
 
 <br>
