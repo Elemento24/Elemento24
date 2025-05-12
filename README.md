@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change brings opportunities. On the other hand, change can be confusing.</b>
-> <p><i>Michael Porter</i></p>
+> <b>Being a child at home alone in the summer is a high-risk occupation. If you call your mother at work thirteen times an hour, she can hurt you.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
