@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My beauty icon is Angelina Jolie.</b>
-> <p><i>Ashley Benson</i></p>
+> <b>I don't have clear-cut positions. I get baffled by things. I have viewpoints. Sometimes they change.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
