@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that generally music should be a positive thing, I like Bob Marley's attitude: he said that his goal in life was to single handedly fight all the evil in the world with nothing but music, and when he went to a place he didn't go to play, he went to conquer.</b>
-> <p><i>Jon Fishman</i></p>
+> <b>You will reciprocally promise love, loyalty and matrimonial honesty. We only want for you this day that these words constitute the principle of your entire life and that with the help of divine grace you will observe these solemn vows that today, before God, you formulate.</b>
+> <p><i>Pope John Paul II</i></p>
 
 <br>
