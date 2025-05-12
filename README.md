@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being a child at home alone in the summer is a high-risk occupation. If you call your mother at work thirteen times an hour, she can hurt you.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>If it's true that our species is alone in the universe, then I'd have to say the universe aimed rather low and settled for very little.</b>
+> <p><i>George Carlin</i></p>
 
 <br>
