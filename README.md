@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The automobile, both a cause and an effect of this decentralization, is ideally suited for our vast landscape and our generally confused and contrary commuting patterns.</b>
-> <p><i>Brock Yates</i></p>
+> <b>My beauty icon is Angelina Jolie.</b>
+> <p><i>Ashley Benson</i></p>
 
 <br>
