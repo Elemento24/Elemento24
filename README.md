@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Does art have a future? Performance genres like opera, theater, music and dance are thriving all over the world, but the visual arts have been in slow decline for nearly 40 years. No major figure of profound influence has emerged in painting or sculpture since the waning of Pop Art and the birth of Minimalism in the early 1970s.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>Winning a competition in architecture is a ticket to oblivion. It's just an idea. Ninety-nine per cent never get built.</b>
+> <p><i>Daniel Libeskind</i></p>
 
 <br>
