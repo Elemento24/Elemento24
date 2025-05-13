@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, Freddie Mercury is a really huge rock star in my head. I've always thought he was just so tough and such an amazing entertainer, really a contradiction in many ways as well. So he was incredible.</b>
-> <p><i>Karen O</i></p>
+> <b>I have the best husband in the world. He's very involved.</b>
+> <p><i>Heidi Klum</i></p>
 
 <br>
