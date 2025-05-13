@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like the idea of accessibility, coming from a lower-middle-class background myself, I feel like beauty and products should be accessible to all women over the world.</b>
-> <p><i>Diane Kruger</i></p>
+> <b>In general I was a good kid. It usually took a lot to make me mad. But once I reached the boiling point, I lost all rational control. Totally without thinking, when my anger was aroused, I grabbed the nearest brick, rock, or stick to bash someone. It was as if I had no conscious will in the matter.</b>
+> <p><i>Benjamin Carson</i></p>
 
 <br>
