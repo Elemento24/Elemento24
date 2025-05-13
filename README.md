@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Childhood obesity is best tackled at home through improved parental involvement, increased physical exercise, better diet and restraint from eating.</b>
-> <p><i>Bob Filner</i></p>
+> <b>Well, Freddie Mercury is a really huge rock star in my head. I've always thought he was just so tough and such an amazing entertainer, really a contradiction in many ways as well. So he was incredible.</b>
+> <p><i>Karen O</i></p>
 
 <br>
