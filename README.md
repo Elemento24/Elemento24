@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't but know that if you can capture the emotions of the audience as well as their minds, the play will work better, because it's a narrative art form.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>Childhood obesity is best tackled at home through improved parental involvement, increased physical exercise, better diet and restraint from eating.</b>
+> <p><i>Bob Filner</i></p>
 
 <br>
