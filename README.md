@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, I always say white is not a colour, white is an attitude, and if you haven't got trillions of dollars in the bank that you don't need, you can't be white.</b>
-> <p><i>Dick Gregory</i></p>
+> <b>Bitterness is like cancer. It eats upon the host. But anger is like fire. It burns it all clean.</b>
+> <p><i>Maya Angelou</i></p>
 
 <br>
