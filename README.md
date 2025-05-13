@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ours is an excessively conscious age. We know so much, we feel so little.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>Surround yourself with good people. Whether they're the best or not, people are capable of learning if they've got good hearts and they're good souls.</b>
+> <p><i>Kid Rock</i></p>
 
 <br>
