@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In general I was a good kid. It usually took a lot to make me mad. But once I reached the boiling point, I lost all rational control. Totally without thinking, when my anger was aroused, I grabbed the nearest brick, rock, or stick to bash someone. It was as if I had no conscious will in the matter.</b>
-> <p><i>Benjamin Carson</i></p>
+> <b>You can't but know that if you can capture the emotions of the audience as well as their minds, the play will work better, because it's a narrative art form.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
