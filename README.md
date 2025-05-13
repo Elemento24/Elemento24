@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bitterness is like cancer. It eats upon the host. But anger is like fire. It burns it all clean.</b>
-> <p><i>Maya Angelou</i></p>
+> <b>Do not meddle in the affairs of wizards, for they are subtle and quick to anger.</b>
+> <p><i>J. R. R. Tolkien</i></p>
 
 <br>
