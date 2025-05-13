@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do you like my suit? I think this is an amazing suit, don't you think?</b>
-> <p><i>Tom Selleck</i></p>
+> <b>No matter how many modern parts I do, people still refer to me as Mrs. Costume Drama. Fight Club is a studio pic, and I've done very few of those. I've got a feeling it's going to change things for me.</b>
+> <p><i>Helena Bonham Carter</i></p>
 
 <br>
