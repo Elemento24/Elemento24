@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Literature isn't a moral beauty contest. Its power arises from the authority and audacity with which the impersonation is pulled off the belief it inspires is what counts.</b>
-> <p><i>Philip Roth</i></p>
+> <b>My view is pensioners don't have the one option that people of working age have. They can't really increase their income, because they are no longer able to work.</b>
+> <p><i>Iain Duncan Smith</i></p>
 
 <br>
