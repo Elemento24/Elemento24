@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not meddle in the affairs of wizards, for they are subtle and quick to anger.</b>
-> <p><i>J. R. R. Tolkien</i></p>
+> <b>Do you like my suit? I think this is an amazing suit, don't you think?</b>
+> <p><i>Tom Selleck</i></p>
 
 <br>
