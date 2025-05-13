@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Winning a competition in architecture is a ticket to oblivion. It's just an idea. Ninety-nine per cent never get built.</b>
-> <p><i>Daniel Libeskind</i></p>
+> <b>You know, I always say white is not a colour, white is an attitude, and if you haven't got trillions of dollars in the bank that you don't need, you can't be white.</b>
+> <p><i>Dick Gregory</i></p>
 
 <br>
