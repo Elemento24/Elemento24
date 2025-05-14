@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to look like a deer in headlights on the red carpet. You step out of the car and it's bedlam. Everyone's got crazy eyes.</b>
-> <p><i>Emily Blunt</i></p>
+> <b>I learned to change my accent in England, your accent identifies you very strongly with a class, and I did not want to be held back.</b>
+> <p><i>Sting</i></p>
 
 <br>
