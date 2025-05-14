@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time does not change us. It just unfolds us.</b>
-> <p><i>Max Frisch</i></p>
+> <b>For many my behavior has been a major disappointment, my behavior has caused considerable worry to my business partners, and everyone involved in my business, but most importantly to the young people we influence, I apologize.</b>
+> <p><i>Tiger Woods</i></p>
 
 <br>
