@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the many things nobody ever tells you about middle age is that it's such a nice change from being young.</b>
-> <p><i>William Feather</i></p>
+> <b>Art enables us to find ourselves and lose ourselves at the same time.</b>
+> <p><i>Thomas Merton</i></p>
 
 <br>
