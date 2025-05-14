@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For many my behavior has been a major disappointment, my behavior has caused considerable worry to my business partners, and everyone involved in my business, but most importantly to the young people we influence, I apologize.</b>
-> <p><i>Tiger Woods</i></p>
+> <b>My mother was a professional sick person she took a lot of pain pills. There are many people like that. It's just how they are used to getting attention. I always remember she's the daughter of alcoholics who'd leave her alone at Christmas time.</b>
+> <p><i>Jim Carrey</i></p>
 
 <br>
