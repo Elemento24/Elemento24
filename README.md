@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Non-disclosure in the Internet Age is quickly perceived as a breach of trust. Government, corporations and each of us as individuals must recalibrate how we live and share our lives appropriate to the information now available and the expectations of others.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Most sets of values would give rise to universes that, although they might be very beautiful, would contain no one able to wonder at that beauty.</b>
+> <p><i>Stephen Hawking</i></p>
 
 <br>
