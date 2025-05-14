@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way to get things done is not to mind who gets the credit for doing them.</b>
-> <p><i>Benjamin Jowett</i></p>
+> <b>Non-disclosure in the Internet Age is quickly perceived as a breach of trust. Government, corporations and each of us as individuals must recalibrate how we live and share our lives appropriate to the information now available and the expectations of others.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
