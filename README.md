@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most sets of values would give rise to universes that, although they might be very beautiful, would contain no one able to wonder at that beauty.</b>
-> <p><i>Stephen Hawking</i></p>
+> <b>I used to look like a deer in headlights on the red carpet. You step out of the car and it's bedlam. Everyone's got crazy eyes.</b>
+> <p><i>Emily Blunt</i></p>
 
 <br>
