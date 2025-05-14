@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art enables us to find ourselves and lose ourselves at the same time.</b>
-> <p><i>Thomas Merton</i></p>
+> <b>Japanese architecture is very much copied in this country and in Europe.</b>
+> <p><i>Minoru Yamasaki</i></p>
 
 <br>
