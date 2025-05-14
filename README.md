@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The arts are an even better barometer of what is happening in our world than the stock market or the debates in congress.</b>
-> <p><i>Hendrik Willem Van Loon</i></p>
+> <b>Skill without imagination is craftsmanship and gives us many useful objects such as wickerwork picnic baskets. Imagination without skill gives us modern art.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
