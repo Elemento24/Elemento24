@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My general attitude to life is to enjoy every minute of every day. I never do anything with a feeling of, 'Oh God, I've got to do this today.'</b>
-> <p><i>Richard Branson</i></p>
+> <b>One of the many things nobody ever tells you about middle age is that it's such a nice change from being young.</b>
+> <p><i>William Feather</i></p>
 
 <br>
