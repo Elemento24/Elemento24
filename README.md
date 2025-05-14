@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned to change my accent in England, your accent identifies you very strongly with a class, and I did not want to be held back.</b>
-> <p><i>Sting</i></p>
+> <b>The best scientist is open to experience and begins with romance - the idea that anything is possible.</b>
+> <p><i>Ray Bradbury</i></p>
 
 <br>
