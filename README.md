@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rock isn't art, it's the way ordinary people talk.</b>
-> <p><i>Billy Idol</i></p>
+> <b>The deferring of anger is the best antidote to anger.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
