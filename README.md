@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is a shipwreck.</b>
-> <p><i>Charles de Gaulle</i></p>
+> <b>Walmart is an amazing story of entrepreneurship and, as one of the world's most powerful brands, touches millions of lives every day.</b>
+> <p><i>Marissa Mayer</i></p>
 
 <br>
