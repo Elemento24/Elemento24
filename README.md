@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's an honor putting art above politics. Politics can be seductive in terms of things reductive to the soul.</b>
-> <p><i>Robert Redford</i></p>
+> <b>Old age is a shipwreck.</b>
+> <p><i>Charles de Gaulle</i></p>
 
 <br>
