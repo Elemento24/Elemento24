@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Familiarity is a magician that is cruel to beauty but kind to ugliness.</b>
-> <p><i>Ouida</i></p>
+> <b>If you are lonely when you're alone, you are in bad company.</b>
+> <p><i>Jean-Paul Sartre</i></p>
 
 <br>
