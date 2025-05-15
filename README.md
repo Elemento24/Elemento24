@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children under five are the poorest age group in America, and one in four infants, toddlers and preschoolers are poor during the years of greatest brain development.</b>
-> <p><i>Marian Wright Edelman</i></p>
+> <b>I worked for this company that repossessed cars. Sure enough, the day after I quit, they repossessed my car, but that would probably be my strangest job to date. You have to work your way up to become a hardcore repo man.</b>
+> <p><i>Romany Malco</i></p>
 
 <br>
