@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My buildings will be my legacy... they will speak for me long after I'm gone.</b>
-> <p><i>Julia Morgan</i></p>
+> <b>Beauty is everything.</b>
+> <p><i>Jorja Fox</i></p>
 
 <br>
