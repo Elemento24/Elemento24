@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you are lonely when you're alone, you are in bad company.</b>
-> <p><i>Jean-Paul Sartre</i></p>
+> <b>A man can be himself only so long as he is alone.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
