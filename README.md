@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So if you're a robot and you're living on this planet, you can do things that you can't do in real life - things that you wished you could do: like fly like have a car that flies like have furniture that is alive.</b>
-> <p><i>William Joyce</i></p>
+> <b>With my daughter, we do arts and crafts, we read a lot, we listen to music, and we cut the strings off balloons and bounce them around after birthday parties.</b>
+> <p><i>Lisa Loeb</i></p>
 
 <br>
