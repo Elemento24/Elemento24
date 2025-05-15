@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Walmart is an amazing story of entrepreneurship and, as one of the world's most powerful brands, touches millions of lives every day.</b>
-> <p><i>Marissa Mayer</i></p>
+> <b>I get all fired up about aging in America.</b>
+> <p><i>Willard Scott</i></p>
 
 <br>
