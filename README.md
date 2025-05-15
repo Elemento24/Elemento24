@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get all fired up about aging in America.</b>
-> <p><i>Willard Scott</i></p>
+> <b>Birdie is amazing and such an incredible child and I'm having such a great time being a mom but I still want to have a career and I still look forward to auditions and parts, and when I don't get them I'm disappointed.</b>
+> <p><i>Busy Philipps</i></p>
 
 <br>
