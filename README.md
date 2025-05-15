@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hope and change? We're not doing that anymore. They're doing attack and blame. And so, I just think people are going to see through this. They want real leadership. They want us to get this country on the right track.</b>
-> <p><i>Paul Ryan</i></p>
+> <b>Familiarity is a magician that is cruel to beauty but kind to ugliness.</b>
+> <p><i>Ouida</i></p>
 
 <br>
