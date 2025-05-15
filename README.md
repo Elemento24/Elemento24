@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best scientist is open to experience and begins with romance - the idea that anything is possible.</b>
-> <p><i>Ray Bradbury</i></p>
+> <b>Art is our chief means of breaking bread with the dead.</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
