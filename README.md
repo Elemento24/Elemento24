@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On Memorial Day, I was out floating on Lake Norman and came across Denny Hamlin. We struck up a conversation, and one of the first things we were talking about was how much it helped him when he started racing the Cup car and how much it helped his Nationwide program.</b>
-> <p><i>Danica Patrick</i></p>
+> <b>It's pretty cool to be able to hang out with the President and have the race-winning car on the South Lawn.</b>
+> <p><i>Buddy Rice</i></p>
 
 <br>
