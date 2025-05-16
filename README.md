@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first love is art, and I see a lot of things in an artistic way.</b>
-> <p><i>Robert Carlyle</i></p>
+> <b>I don't know why I've always been so captivated by architecture.</b>
+> <p><i>Tim Gunn</i></p>
 
 <br>
