@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in a country that used to have a can-do attitude, and now we have a 'what-can-you-do-for-me?' attitude, and what I try to do is find ways that we can develop common ground.</b>
-> <p><i>Benjamin Carson</i></p>
+> <b>With all the hybrid stuff and things like that, I think that's a fabulous direction to go with cars in that sense. As someone who grew up around muscle cars, I'll never not be able to not love a muscle car. Not that I don't care about the environment, that's not it. But I adore muscle cars.</b>
+> <p><i>Michael Symon</i></p>
 
 <br>
