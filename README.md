@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The fact is that a car used by Gerry Adams and myself during the course of the Mitchell review was bugged by elements within British military intelligence.</b>
-> <p><i>Martin McGuinness</i></p>
+> <b>When it comes down to it, it's about who you know, and who's a fan. It's about whether you're the right age, whether you're hot or not, whether the studio is into you or not.</b>
+> <p><i>Marlee Matlin</i></p>
 
 <br>
