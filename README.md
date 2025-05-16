@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe there are three keys to success. For me it is keeping my priorities in order: It's my faith and my family, and then the business.</b>
-> <p><i>Kathy Ireland</i></p>
+> <b>The pilot looked at his cues of attitude and speed and orientation and so on and responded as he would from the same cues in an airplane, but there was no way it flew the same. The simulators had showed us that.</b>
+> <p><i>Alan Shepard</i></p>
 
 <br>
