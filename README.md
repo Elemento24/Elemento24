@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know why I've always been so captivated by architecture.</b>
-> <p><i>Tim Gunn</i></p>
+> <b>I believe there are three keys to success. For me it is keeping my priorities in order: It's my faith and my family, and then the business.</b>
+> <p><i>Kathy Ireland</i></p>
 
 <br>
