@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to tell President Obama how to make a speech. He's a much better speech maker than I am. But I think always to tell the truth in a sometimes blatant way, even though it might be temporarily unpopular, is the best approach.</b>
-> <p><i>Jimmy Carter</i></p>
+> <b>I'd like to state that Spike Lee is not saying that African American culture is just for black people alone to enjoy and cherish. Culture is for everybody.</b>
+> <p><i>Spike Lee</i></p>
 
 <br>
