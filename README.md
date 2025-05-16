@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really like where Tony Robbins says that we're all hypnotized to see beauty this one specific way, and it's true.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>I don't want to tell President Obama how to make a speech. He's a much better speech maker than I am. But I think always to tell the truth in a sometimes blatant way, even though it might be temporarily unpopular, is the best approach.</b>
+> <p><i>Jimmy Carter</i></p>
 
 <br>
