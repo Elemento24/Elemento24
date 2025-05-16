@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pilot looked at his cues of attitude and speed and orientation and so on and responded as he would from the same cues in an airplane, but there was no way it flew the same. The simulators had showed us that.</b>
-> <p><i>Alan Shepard</i></p>
+> <b>Essex is an amazing county, with its own set of rules. It's a completely different world.</b>
+> <p><i>Denise Van Outen</i></p>
 
 <br>
