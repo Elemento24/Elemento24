@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like any business, the oil industry runs on the basic premise of supply and demand. The more supply - the lower the price. The higher the demand - the higher price. In other words, the more people who can buy oil, the higher the price of oil.</b>
-> <p><i>Ron Wyden</i></p>
+> <b>Especially in the car ride to and from gym. I find myself spacing out a lot, just visualizing what the Olympics would be like and just having such great role models.</b>
+> <p><i>Aly Raisman</i></p>
 
 <br>
