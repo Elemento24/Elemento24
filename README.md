@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd like to state that Spike Lee is not saying that African American culture is just for black people alone to enjoy and cherish. Culture is for everybody.</b>
-> <p><i>Spike Lee</i></p>
+> <b>Well, I was already so happy being chosen to do the issue itself, that when I got on the cover, it was even more of a surprise and even more amazing to me.</b>
+> <p><i>Heidi Klum</i></p>
 
 <br>
