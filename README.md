@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In fact, it is amazing how much European films - Italian, French, German and English - have recovered a certain territory of the audience in their countries over the last few years.</b>
-> <p><i>Wim Wenders</i></p>
+> <b>The funniest racism is the racism between minorities. It's something you don't see dramatized, but almost every minority I know who's my age, they have these funny stories about their parents stereotyping other minorities.</b>
+> <p><i>Mindy Kaling</i></p>
 
 <br>
