@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a right to my anger, and I don't want anybody telling me I shouldn't be, that it's not nice to be, and that something's wrong with me because I get angry.</b>
-> <p><i>Maxine Waters</i></p>
+> <b>It is not with architecture that one can disseminate any political ideology.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
