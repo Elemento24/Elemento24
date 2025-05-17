@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't believe in happy endings, but I do believe in happy travels, because ultimately, you die at a very young age, or you live long enough to watch your friends die. It's a mean thing, life.</b>
-> <p><i>George Clooney</i></p>
+> <b>Perhaps our own opposition to even the level of European integration we have now, let alone any more, is well known.</b>
+> <p><i>Nigel Farage</i></p>
 
 <br>
