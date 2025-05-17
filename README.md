@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>True art is characterized by an irresistible urge in the creative artist.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>After all my various relationships I find myself now home alone.</b>
+> <p><i>Francesca Annis</i></p>
 
 <br>
