@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After all my various relationships I find myself now home alone.</b>
-> <p><i>Francesca Annis</i></p>
+> <b>Some people are born with a brain that has this weird, magical mathematical thing that makes them an amazing jazz musician.</b>
+> <p><i>Andy Richter</i></p>
 
 <br>
