@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest remedy for anger is delay.</b>
-> <p><i>Thomas Paine</i></p>
+> <b>The competitor to be feared is one who never bothers about you at all, but goes on making his own business better all the time.</b>
+> <p><i>Henry Ford</i></p>
 
 <br>
