@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people are born with a brain that has this weird, magical mathematical thing that makes them an amazing jazz musician.</b>
-> <p><i>Andy Richter</i></p>
+> <b>I've always been fascinated with the juxtaposition of technology in music, not only in recording, but in the keyboard. It's amazing the way you can apply technology to an art form.</b>
+> <p><i>Geoff Downes</i></p>
 
 <br>
