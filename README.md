@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps our own opposition to even the level of European integration we have now, let alone any more, is well known.</b>
-> <p><i>Nigel Farage</i></p>
+> <b>I think the fact that I made enough noise in the world that I might be remembered is an amazing achievement. You can't ask for more than that.</b>
+> <p><i>Nas</i></p>
 
 <br>
