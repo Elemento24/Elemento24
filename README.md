@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The competitor to be feared is one who never bothers about you at all, but goes on making his own business better all the time.</b>
-> <p><i>Henry Ford</i></p>
+> <b>I've made movies that I thought were good. I've made movies that I thought were okay, but then I was very good. And sometimes you're in a movie and you think, I wish more people saw that - because you're good. And it just works out that the movie gets lost. But that's show business.</b>
+> <p><i>Christopher Walken</i></p>
 
 <br>
