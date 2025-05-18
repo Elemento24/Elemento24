@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's so amazing, standing on the corner -this happened in Washington, D.C. - and somebody comes by in a Cadillac and you hear 'Manic Monday' on the radio, and you don't even know this person, and they're listening to it and singing along with it. Wow! Blows your mind.</b>
-> <p><i>Debbi Peterson</i></p>
+> <b>I mean, the whole idea of movies was it was special to go to see - you went to a movie theater to see something that was magical and amazing, in a very special location.</b>
+> <p><i>Bob Balaban</i></p>
 
 <br>
