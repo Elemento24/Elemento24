@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Chinese government wants me to say that for many centuries Tibet has been part of China. Even if I make that statement, many people would just laugh. And my statement will not change past history. History is history.</b>
-> <p><i>Dalai Lama</i></p>
+> <b>Yeah, I left Idaho at 17. You know, I graduated high school a year early and just, you know, the typical story, packed up my car and moved out.</b>
+> <p><i>Aaron Paul</i></p>
 
 <br>
