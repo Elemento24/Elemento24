@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My father gave me the greatest gift anyone could give another person, he believed in me.</b>
-> <p><i>Jim Valvano</i></p>
+> <b>By 1969, when I celebrated 45 years in the music business, I also had 45 people in our musical family.</b>
+> <p><i>Lawrence Welk</i></p>
 
 <br>
