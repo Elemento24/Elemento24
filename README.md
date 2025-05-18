@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Opinions are made to be changed - or how is truth to be got at?</b>
-> <p><i>Lord Byron</i></p>
+> <b>I fell in love with Erica Kane the summer before my freshman year of high school. Like all red-blooded teen American boys, I'd come home from water polo practice and eat a box of Entenmann's Pop'Ems donut holes in front of the TV while obsessively fawning over 'All My Children' and Erica, her clothes, and her narcissistic attitude.</b>
+> <p><i>Andy Cohen</i></p>
 
 <br>
