@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are going to be little victories that we claim, even if it's finishing 15th and putting the car back in hauler without a scratch on it.</b>
-> <p><i>Kurt Busch</i></p>
+> <b>Opinions are made to be changed - or how is truth to be got at?</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
