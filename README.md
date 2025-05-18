@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We will see that our new attitude toward liquor has been given to us without any thought or effort on our part. It just comes! That is the miracle of it.</b>
-> <p><i>William Griffith Wilson</i></p>
+> <b>In recent years, I've been writing because I'm fortunate enough to work in the world of food television, to travel and taste and learn about cooking from the best chefs in the business.</b>
+> <p><i>Ted Allen</i></p>
 
 <br>
