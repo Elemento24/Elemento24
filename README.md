@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything officers go through in any chase anywhere in the country, but amped up 100 times! I'm right in the thick of things in a car going like 80 miles an hour, and doing 360s in the middle of the road. It was a wild ride.</b>
-> <p><i>Amy Weber</i></p>
+> <b>All of Koons's best art - the encased vacuum cleaners, the stainless-steel Rabbit (the late-twentieth century's signature work of Simulationist sculpture), the amazing gleaming Balloon Dog, and the cast-iron re-creation of a Civil War mortar exhibited last month at the Armory - has simultaneously flaunted extreme realism, idealism, and fantasy.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
