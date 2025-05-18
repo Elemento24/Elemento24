@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A bachelor never quite gets over the idea that he is a thing of beauty and a boy forever.</b>
-> <p><i>Helen Rowland</i></p>
+> <b>There are going to be little victories that we claim, even if it's finishing 15th and putting the car back in hauler without a scratch on it.</b>
+> <p><i>Kurt Busch</i></p>
 
 <br>
