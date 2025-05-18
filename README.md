@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I got a Valentine's Day card from my girl. It said, 'Take my heart! Take my arms! Take my lips!' Which is just like her. Keeping the best part for herself.</b>
-> <p><i>Robert Orben</i></p>
+> <b>Everything officers go through in any chase anywhere in the country, but amped up 100 times! I'm right in the thick of things in a car going like 80 miles an hour, and doing 360s in the middle of the road. It was a wild ride.</b>
+> <p><i>Amy Weber</i></p>
 
 <br>
