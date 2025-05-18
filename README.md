@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember the first time I felt that I was sharing the stage with someone spectacular was dancing with Beyonce. It was the dancers, the band, Beyonce and me in front of thousands of people. That was sick. It was pretty amazing that I got to travel the world with someone like her.</b>
-> <p><i>Harry Shum, Jr.</i></p>
+> <b>I got a Valentine's Day card from my girl. It said, 'Take my heart! Take my arms! Take my lips!' Which is just like her. Keeping the best part for herself.</b>
+> <p><i>Robert Orben</i></p>
 
 <br>
