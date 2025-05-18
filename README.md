@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All of Koons's best art - the encased vacuum cleaners, the stainless-steel Rabbit (the late-twentieth century's signature work of Simulationist sculpture), the amazing gleaming Balloon Dog, and the cast-iron re-creation of a Civil War mortar exhibited last month at the Armory - has simultaneously flaunted extreme realism, idealism, and fantasy.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>When I was in New York, I was making a living. We had a summer house and a car that I could put in a garage. That's something for a stage actor.</b>
+> <p><i>William H. Macy</i></p>
 
 <br>
