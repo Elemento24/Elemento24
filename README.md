@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was in New York, I was making a living. We had a summer house and a car that I could put in a garage. That's something for a stage actor.</b>
-> <p><i>William H. Macy</i></p>
+> <b>Remember, always give your best. Never get discouraged. Never be petty. Always remember, others may hate you. But those who hate you don't win unless you hate them. And then you destroy yourself.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
