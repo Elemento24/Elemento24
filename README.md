@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You need a whole community to raise a child. I have raised two children, alone.</b>
-> <p><i>Toni Morrison</i></p>
+> <b>Liberal that I am, I support health-care reform on its merits alone. My liberal blood boils, for example, when I read that half of the personal bankruptcies in this country are brought on, in part, by medical expenses.</b>
+> <p><i>Thomas Frank</i></p>
 
 <br>
