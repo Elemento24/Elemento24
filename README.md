@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's like, once you've seen Tom Hanks win the Golden Globes, the Oscars, you've seen his wife, what kind of car he drives, when you watch his movies, you can't fully get really lost in them.</b>
-> <p><i>Justin Theroux</i></p>
+> <b>The best kids are going to become the best. But the best thing about it is that you're going to learn lessons in playing those sports about winning and losing and teamwork and teammates and arguments and everything else that are going to affect you positively for the rest of your life.</b>
+> <p><i>Carl Lewis</i></p>
 
 <br>
