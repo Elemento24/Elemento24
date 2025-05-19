@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's double-edged: it's amazing that they're bringing me in and showing people new ideas, and at the same time it's a little hard because seventy percent of the time or even higher I'm not going to get those roles.</b>
-> <p><i>Rachel True</i></p>
+> <b>Man can certainly flee from God... but he cannot escape him. He can certainly hate God and be hateful to God, but he cannot change into its opposite the eternal love of God which triumphs even in his hate.</b>
+> <p><i>Karl Barth</i></p>
 
 <br>
