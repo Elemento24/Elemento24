@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that Scottish people, like Canadians, are often misunderstood and what I like about my Scottish friends and relatives is how quickly it can go from love to anger. It's a great dynamic.</b>
-> <p><i>Mike Myers</i></p>
+> <b>The heart of the jealous knows the best and most satisfying love, that of the other's bed, where the rival perfects the lover's imperfections.</b>
+> <p><i>Djuna Barnes</i></p>
 
 <br>
