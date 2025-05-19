@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And at five o'clock in the morning we left to drive to Old Tucson, and I sat with my mouth open in the van. I was stunned by the beauty of that country.</b>
-> <p><i>Erika Slezak</i></p>
+> <b>Age should not have its face lifted, but it should rather teach the world to admire wrinkles as the etchings of experience and the firm line of character.</b>
+> <p><i>Clarence Day</i></p>
 
 <br>
