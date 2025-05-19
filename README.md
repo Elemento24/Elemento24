@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The great art of life is sensation, to feel that we exist, even in pain.</b>
-> <p><i>Lord Byron</i></p>
+> <b>You need a whole community to raise a child. I have raised two children, alone.</b>
+> <p><i>Toni Morrison</i></p>
 
 <br>
