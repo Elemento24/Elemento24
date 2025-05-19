@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no doubt that America remains the premier political, economic, military power in the world, and I both expect and count on it remaining so, because I think that's certainly in our best interest but also the best interests of the world.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>I didn't come from a trailer park. I grew up middle class and my dad had money and my mom made my lunch. I got a car when I was sixteen. I'm proud of that.</b>
+> <p><i>Kid Rock</i></p>
 
 <br>
