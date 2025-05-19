@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Amidst all the clutter, beyond all the obstacles, aside from all the static, are the goals set. Put your head down, do the best job possible, let the flak pass, and work towards those goals.</b>
-> <p><i>Donald Rumsfeld</i></p>
+> <b>Some of the greatest actors have turned superheroes into a serious business: Michael Keaton and Jack Nicholson in 'Batman' Ian McKellen and Patrick Stewart, the first venerable knights of the X-Men, who have now passed the baton to Michael Fassbender and James McAvoy.</b>
+> <p><i>Tom Hiddleston</i></p>
 
 <br>
