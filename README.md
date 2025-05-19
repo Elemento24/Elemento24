@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best kids are going to become the best. But the best thing about it is that you're going to learn lessons in playing those sports about winning and losing and teamwork and teammates and arguments and everything else that are going to affect you positively for the rest of your life.</b>
-> <p><i>Carl Lewis</i></p>
+> <b>There is no doubt that America remains the premier political, economic, military power in the world, and I both expect and count on it remaining so, because I think that's certainly in our best interest but also the best interests of the world.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
