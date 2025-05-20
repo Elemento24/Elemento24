@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Actually, the year anniversary of what you just heard, my son Grahame and I are going to be in a play together, and I'm acting for the first time in front of an audience that doesn't consist of a high school drama class.</b>
-> <p><i>Phil Lesh</i></p>
+> <b>But men are men the best sometimes forget.</b>
+> <p><i>William Shakespeare</i></p>
 
 <br>
