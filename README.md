@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no time for cut-and-dried monotony. There is time for work. And time for love. That leaves no other time!</b>
-> <p><i>Coco Chanel</i></p>
+> <b>My buildings don't speak in words but by means of their own spaciousness.</b>
+> <p><i>Thom Mayne</i></p>
 
 <br>
