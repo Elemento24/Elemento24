@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't drink, smoke, or drive a car, you're a tax evader.</b>
-> <p><i>Thomas S. Foley</i></p>
+> <b>The TV business is uglier than most things. It is normally perceived as some kind of cruel and shallow money trench through the heart of the journalism industry, a long plastic hallway where thieves and pimps run free and good men die like dogs, for no good reason.</b>
+> <p><i>Hunter S. Thompson</i></p>
 
 <br>
