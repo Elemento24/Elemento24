@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>From 18 to 22, I was alone, living in L.A. with a bunch of friends, partying.</b>
-> <p><i>Heath Ledger</i></p>
+> <b>Competition among insurers would bring down the cost of health care insurance, just as it brings down the cost of car or homeowners insurance.</b>
+> <p><i>Andrew P. Harris</i></p>
 
 <br>
