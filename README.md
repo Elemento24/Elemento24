@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>English people don't have very good diction. In France you have to pronounce very particularly and clearly, and learning French at an early age helped me enormously.</b>
-> <p><i>Vivien Leigh</i></p>
+> <b>It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
