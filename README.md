@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Competition among insurers would bring down the cost of health care insurance, just as it brings down the cost of car or homeowners insurance.</b>
-> <p><i>Andrew P. Harris</i></p>
+> <b>The Dolls were an attitude. If nothing else they were a great attitude.</b>
+> <p><i>Johnny Thunders</i></p>
 
 <br>
