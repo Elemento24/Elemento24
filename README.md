@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The principle of art is to pause, not bypass.</b>
-> <p><i>Jerzy Kosinski</i></p>
+> <b>Really, each era has its own false nostalgia. We all put a picket fence up around something. For my generation it was the '50s, and for other generations it will be something else. Change is scary for everyone, as is complexity, contradiction, and an uncertain future.</b>
+> <p><i>Gary Ross</i></p>
 
 <br>
