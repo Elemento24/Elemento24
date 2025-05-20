@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But men are men the best sometimes forget.</b>
-> <p><i>William Shakespeare</i></p>
+> <b>From 18 to 22, I was alone, living in L.A. with a bunch of friends, partying.</b>
+> <p><i>Heath Ledger</i></p>
 
 <br>
