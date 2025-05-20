@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As an editor, I read Charlotte Rogan's amazing debut novel, 'The Lifeboat,' when it was still in manuscript. I read it in one night, and I really wanted my company to publish it, but we lost it to another house. It's such a wonderful combination of beautiful writing and suspenseful storytelling.</b>
-> <p><i>Karen Thompson Walker</i></p>
+> <b>The principle of art is to pause, not bypass.</b>
+> <p><i>Jerzy Kosinski</i></p>
 
 <br>
