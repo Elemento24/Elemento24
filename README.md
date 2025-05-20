@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>The forties, seventies, and the nineties, when money was scarce, were great periods, when the art world retracted but it was also reborn.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
