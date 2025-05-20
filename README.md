@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best government is a benevolent tyranny tempered by an occasional assassination.</b>
-> <p><i>Voltaire</i></p>
+> <b>There is no time for cut-and-dried monotony. There is time for work. And time for love. That leaves no other time!</b>
+> <p><i>Coco Chanel</i></p>
 
 <br>
