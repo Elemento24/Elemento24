@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The TV business is uglier than most things. It is normally perceived as some kind of cruel and shallow money trench through the heart of the journalism industry, a long plastic hallway where thieves and pimps run free and good men die like dogs, for no good reason.</b>
-> <p><i>Hunter S. Thompson</i></p>
+> <b>I've never been more in love with anyone nearly half my age than I am today. I'd get married in a minute if I weren't still married to somebody else.</b>
+> <p><i>Rod Stewart</i></p>
 
 <br>
