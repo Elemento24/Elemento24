@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never took guitar lessons. I took classical piano lessons from the age of six when we lived in Holland.</b>
-> <p><i>Eddie Van Halen</i></p>
+> <b>I'm addicted to laughing. I go to see a lot of comedy shows. I'm addicted to playing really loud and obnoxious rock music in my car. I'm addicted to beautiful clothes and shoes. I just love gorgeous stuff and work hard to acquire pretty things, shiny things. I'm addicted to shiny things!</b>
+> <p><i>Nadia Giosia</i></p>
 
 <br>
