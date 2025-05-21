@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Stop living a day at a time and stop worrying about age.</b>
-> <p><i>Helen Reddy</i></p>
+> <b>Everything will change. The only question is growing up or decaying.</b>
+> <p><i>Nikki Giovanni</i></p>
 
 <br>
