@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>About the time we can make the ends meet, somebody moves the ends.</b>
-> <p><i>Herbert Hoover</i></p>
+> <b>I never took guitar lessons. I took classical piano lessons from the age of six when we lived in Holland.</b>
+> <p><i>Eddie Van Halen</i></p>
 
 <br>
