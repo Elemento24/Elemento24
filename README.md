@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to get old gracefully. I want to have good posture, I want to be healthy and be an example to my children.</b>
-> <p><i>Sting</i></p>
+> <b>It can be hard in this business, especially when you're very young, to figure out who you can and can't trust.</b>
+> <p><i>Christina Aguilera</i></p>
 
 <br>
