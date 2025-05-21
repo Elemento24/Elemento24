@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men make history and not the other way around. In periods where there is no leadership, society stands still. Progress occurs when courageous, skillful leaders seize the opportunity to change things for the better.</b>
-> <p><i>Harry S. Truman</i></p>
+> <b>A muscle is like a car. If you want it to run well early in the morning, you have to warm it up.</b>
+> <p><i>Florence Griffith Joyner</i></p>
 
 <br>
