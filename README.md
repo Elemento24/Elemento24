@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Luck, like a Russian car, generally only works if you push it.</b>
-> <p><i>Tom Holt</i></p>
+> <b>There is the good and the bad, the great and the low, the just and the unjust. I swear to you that all that will never change.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
