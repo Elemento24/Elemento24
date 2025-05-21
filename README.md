@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty seen is never lost, God's colors all are fast.</b>
-> <p><i>John Greenleaf Whittier</i></p>
+> <b>Believe me, that was a happy age, before the days of architects, before the days of builders.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
