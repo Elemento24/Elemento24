@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Jeffrey Deitch is the Jeff Koons of art dealers. Not because he's the biggest, best, or the richest of his kind. But because in some ways he's the weirdest (which is saying a lot when you're talking about the wonderful, wicked, lovable, and annoying creatures known as art dealers).</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Beauty seen is never lost, God's colors all are fast.</b>
+> <p><i>John Greenleaf Whittier</i></p>
 
 <br>
