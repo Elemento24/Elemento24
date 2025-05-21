@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why does a woman work ten years to change a man's habits and then complain that he's not the man she married?</b>
-> <p><i>Barbra Streisand</i></p>
+> <b>About the time we can make the ends meet, somebody moves the ends.</b>
+> <p><i>Herbert Hoover</i></p>
 
 <br>
