@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hawaii was beautiful of course, we played at Turtle Bay an amazing resort right on the ocean.</b>
-> <p><i>Natalie Gulbis</i></p>
+> <b>If any man claims the Negro should be content... let him say he would willingly change the color of his skin and go to live in the Negro section of a large city. Then and only then has he a right to such a claim.</b>
+> <p><i>Robert Kennedy</i></p>
 
 <br>
