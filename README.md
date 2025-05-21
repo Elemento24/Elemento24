@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All humanity is passion without passion, religion, history, novels, art would be ineffectual.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>Hawaii was beautiful of course, we played at Turtle Bay an amazing resort right on the ocean.</b>
+> <p><i>Natalie Gulbis</i></p>
 
 <br>
