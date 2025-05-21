@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything will change. The only question is growing up or decaying.</b>
-> <p><i>Nikki Giovanni</i></p>
+> <b>Business is war. I go out there, I want to kill the competitors. I want to make their lives miserable. I want to steal their market share. I want them to fear me and I want everyone on my team thinking we're going to win.</b>
+> <p><i>Kevin O'Leary</i></p>
 
 <br>
