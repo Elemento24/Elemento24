@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It goes without saying that you should never have more children than you have car windows.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>I want to get old gracefully. I want to have good posture, I want to be healthy and be an example to my children.</b>
+> <p><i>Sting</i></p>
 
 <br>
