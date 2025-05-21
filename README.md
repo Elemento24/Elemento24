@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm addicted to laughing. I go to see a lot of comedy shows. I'm addicted to playing really loud and obnoxious rock music in my car. I'm addicted to beautiful clothes and shoes. I just love gorgeous stuff and work hard to acquire pretty things, shiny things. I'm addicted to shiny things!</b>
-> <p><i>Nadia Giosia</i></p>
+> <b>It goes without saying that you should never have more children than you have car windows.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
