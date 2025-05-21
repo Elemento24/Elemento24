@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A muscle is like a car. If you want it to run well early in the morning, you have to warm it up.</b>
-> <p><i>Florence Griffith Joyner</i></p>
+> <b>Luck, like a Russian car, generally only works if you push it.</b>
+> <p><i>Tom Holt</i></p>
 
 <br>
