@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It can be hard in this business, especially when you're very young, to figure out who you can and can't trust.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>We should so provide for old age that it may have no urgent wants of this world to absorb it from meditation on the next. It is awful to see the lean hands of dotage making a coffer of the grave.</b>
+> <p><i>Pearl S. Buck</i></p>
 
 <br>
