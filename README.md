@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He has spent his life best who has enjoyed it most. God will take care that we do not enjoy it any more than is good for us.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>You can't walk alone. Many have given the illusion, but none have really walked alone. Man is not made that way. Each man is bedded in his people, their history, their culture, and their values.</b>
+> <p><i>Peter Abrahams</i></p>
 
 <br>
