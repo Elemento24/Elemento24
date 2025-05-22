@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all have to find beauty within us, as opposed to just our exterior.</b>
-> <p><i>Shay Mitchell</i></p>
+> <b>But I'm trying not to be cynical - I don't want to be one of those people who has a cool opportunity and blows it. It's really amazing what's happening to me.</b>
+> <p><i>Shannyn Sossamon</i></p>
 
 <br>
