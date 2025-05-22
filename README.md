@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our prayers should be for blessings in general, for God knows best what is good for us.</b>
-> <p><i>Socrates</i></p>
+> <b>Let me be absolutely clear. Israel is a strong friend of Israel's. It will be a strong friend of Israel's under a McCain administration. It will be a strong friend of Israel's under an Obama administration. So that policy is not going to change.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
