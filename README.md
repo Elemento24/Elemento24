@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom said the only reason men are alive is for lawn care and vehicle maintenance.</b>
-> <p><i>Tim Allen</i></p>
+> <b>The NFL has been an amazing page in this chapter of my life. I pray that all successive adventures offer me the same potential for growth, success and most importantly fun.</b>
+> <p><i>Ricky Williams</i></p>
 
 <br>
