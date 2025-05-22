@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty set up distance between other people and me. It warped their behavior.</b>
-> <p><i>Candice Bergen</i></p>
+> <b>If in my youth I had realized that the sustaining splendour of beauty of with which I was in love would one day flood back into my heart, there to ignite a flame that would torture me without end, how gladly would I have put out the light in my eyes.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
