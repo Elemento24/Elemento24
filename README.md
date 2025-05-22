@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our hearts were drunk with a beauty Our eyes could never see.</b>
-> <p><i>George William Russell</i></p>
+> <b>Having a positive mental attitude is asking how something can be done rather than saying it can't be done.</b>
+> <p><i>Bo Bennett</i></p>
 
 <br>
