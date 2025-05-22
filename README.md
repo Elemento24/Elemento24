@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If in my youth I had realized that the sustaining splendour of beauty of with which I was in love would one day flood back into my heart, there to ignite a flame that would torture me without end, how gladly would I have put out the light in my eyes.</b>
-> <p><i>Michelangelo</i></p>
+> <b>Our prayers should be for blessings in general, for God knows best what is good for us.</b>
+> <p><i>Socrates</i></p>
 
 <br>
