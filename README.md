@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the best friend. An educated person is respected everywhere. Education beats the beauty and the youth.</b>
-> <p><i>Chanakya</i></p>
+> <b>Revenge is often like biting a dog because the dog bit you.</b>
+> <p><i>Austin O'Malley</i></p>
 
 <br>
