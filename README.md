@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having a positive mental attitude is asking how something can be done rather than saying it can't be done.</b>
-> <p><i>Bo Bennett</i></p>
+> <b>We all have to find beauty within us, as opposed to just our exterior.</b>
+> <p><i>Shay Mitchell</i></p>
 
 <br>
