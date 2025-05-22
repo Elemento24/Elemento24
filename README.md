@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>From 18 to 22, I was alone, living in L.A. with a bunch of friends, partying.</b>
-> <p><i>Heath Ledger</i></p>
+> <b>He has spent his life best who has enjoyed it most. God will take care that we do not enjoy it any more than is good for us.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
