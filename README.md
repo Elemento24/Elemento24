@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people seem to understand this - that life and change take time - but I am not one of those people.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>My mom said the only reason men are alive is for lawn care and vehicle maintenance.</b>
+> <p><i>Tim Allen</i></p>
 
 <br>
