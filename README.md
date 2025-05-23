@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to resolve any problem in the human world is for all sides to sit down and talk.</b>
-> <p><i>Dalai Lama</i></p>
+> <b>I think that Phil Kaufman is one of the best directors that I have come across.</b>
+> <p><i>Clive Owen</i></p>
 
 <br>
