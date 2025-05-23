@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had this really great amazing thing happen where I almost finished the book and I really needed to come up with an ending and I decided to go back and re-read the book and see if I could come up with an ending.</b>
-> <p><i>Cory Doctorow</i></p>
+> <b>We have a powerful potential in out youth, and we must have the courage to change old ideas and practices so that we may direct their power toward good ends.</b>
+> <p><i>Mary McLeod Bethune</i></p>
 
 <br>
