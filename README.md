@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you can't get rid of the skeleton in your closet, you'd best teach it to dance.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>Nancy Lopez has always been a role model of mine... so to have the opportunity to play for her and spend time with her has been amazing.</b>
+> <p><i>Natalie Gulbis</i></p>
 
 <br>
