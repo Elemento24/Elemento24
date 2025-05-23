@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best preparation for tomorrow is doing your best today.</b>
-> <p><i>H. Jackson Brown, Jr.</i></p>
+> <b>The low points I had all helped make up my character, so I probably wouldn't want to do away with them because I like being flawed and I like having them help me grow and change and become better and stronger.</b>
+> <p><i>Drew Barrymore</i></p>
 
 <br>
