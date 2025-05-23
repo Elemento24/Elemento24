@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ted Danson is amazing. He's incredible.</b>
-> <p><i>Alison Brie</i></p>
+> <b>The best preparation for tomorrow is doing your best today.</b>
+> <p><i>H. Jackson Brown, Jr.</i></p>
 
 <br>
