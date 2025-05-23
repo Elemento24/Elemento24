@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The low points I had all helped make up my character, so I probably wouldn't want to do away with them because I like being flawed and I like having them help me grow and change and become better and stronger.</b>
-> <p><i>Drew Barrymore</i></p>
+> <b>In the first 50 years of the filibuster, it was used only 35 times. But the last Congress alone had 112 cloture motions filed, plus threats of more. This is the tyranny of the minority.</b>
+> <p><i>Peter Fenn</i></p>
 
 <br>
