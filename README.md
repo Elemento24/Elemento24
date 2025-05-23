@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the first 50 years of the filibuster, it was used only 35 times. But the last Congress alone had 112 cloture motions filed, plus threats of more. This is the tyranny of the minority.</b>
-> <p><i>Peter Fenn</i></p>
+> <b>Our prayers should be for blessings in general, for God knows best what is good for us.</b>
+> <p><i>Socrates</i></p>
 
 <br>
