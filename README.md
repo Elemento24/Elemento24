@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is well for the world that in most of us, by the age of thirty, the character has set like plaster, and will never soften again.</b>
-> <p><i>William James</i></p>
+> <b>Most small business owners are not particularly sophisticated business people. That's not a criticism they're passionate about cutting hair or cooking food, and that's why they got in the business, not because they have an MBA.</b>
+> <p><i>Andrew Mason</i></p>
 
 <br>
