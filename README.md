@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that Phil Kaufman is one of the best directors that I have come across.</b>
-> <p><i>Clive Owen</i></p>
+> <b>In real life, one of my friends was killed in a car accident during our sophomore year.</b>
+> <p><i>Beverley Mitchell</i></p>
 
 <br>
