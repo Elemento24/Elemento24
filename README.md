@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our prayers should be for blessings in general, for God knows best what is good for us.</b>
-> <p><i>Socrates</i></p>
+> <b>It is well for the world that in most of us, by the age of thirty, the character has set like plaster, and will never soften again.</b>
+> <p><i>William James</i></p>
 
 <br>
