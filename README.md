@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude is never to be satisfied, never enough, never.</b>
-> <p><i>Duke Ellington</i></p>
+> <b>My relationship with my mom is so amazing. We never got to have that stage that people go through, like when you're 13 and you think you're too cool for your parents. When you're embarrassed by them and stuff. We never went through that because I was constantly working and she constantly had to be there.</b>
+> <p><i>Hilary Duff</i></p>
 
 <br>
