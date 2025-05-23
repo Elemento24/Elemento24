@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nancy Lopez has always been a role model of mine... so to have the opportunity to play for her and spend time with her has been amazing.</b>
-> <p><i>Natalie Gulbis</i></p>
+> <b>Ted Danson is amazing. He's incredible.</b>
+> <p><i>Alison Brie</i></p>
 
 <br>
