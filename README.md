@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's an unseen force which lets birds know when you've just washed your car.</b>
-> <p><i>Denis Norden</i></p>
+> <b>I mean Buckingham Palace has never hired a professional public relations outfit let alone a Madison Avenue type and they would throw up their hands in horror at the very idea.</b>
+> <p><i>Anthony Holden</i></p>
 
 <br>
