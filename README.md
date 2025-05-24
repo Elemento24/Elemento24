@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change happens by listening and then starting a dialogue with the people who are doing something you don't believe is right.</b>
-> <p><i>Jane Goodall</i></p>
+> <b>Kids are brought into show business because they are cute and see truth and they're very bright. But there's a sense of doing it because you want the adults to be approving of you. You want to make them happy.</b>
+> <p><i>Anna Chlumsky</i></p>
 
 <br>
