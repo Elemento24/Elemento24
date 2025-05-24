@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of my relationships were people in the business. Having said that, me and Tim don't really talk that much about work. He comes into my bit of the house every so often to vent but we don't really have very high, cultured conversations.</b>
-> <p><i>Helena Bonham Carter</i></p>
+> <b>I believe I could have had a career in the music industry without 'X Factor,' but it was an amazing platform that propelled me to where I am now.</b>
+> <p><i>Leona Lewis</i></p>
 
 <br>
