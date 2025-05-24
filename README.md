@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps our own opposition to even the level of European integration we have now, let alone any more, is well known.</b>
-> <p><i>Nigel Farage</i></p>
+> <b>Change happens by listening and then starting a dialogue with the people who are doing something you don't believe is right.</b>
+> <p><i>Jane Goodall</i></p>
 
 <br>
