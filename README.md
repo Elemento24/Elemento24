@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The prospect of success in achieving our most cherished dream is not without its terrors. Who is more deprived and alone than the man who has achieved his dream?</b>
-> <p><i>Brendan Francis</i></p>
+> <b>I like to have Chinese furniture in my home as a constant and painful reminder of how much has been destroyed in China. The contrast between the beauty of the past and the ugliness of the modern is nowhere sharper than in China.</b>
+> <p><i>Jung Chang</i></p>
 
 <br>
