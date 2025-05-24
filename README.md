@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have tried to be a leader. I have tried in my role of being one of the first women at Google, let alone the first woman to have a baby, to really try to set the tone that this is a great place to work for diversity reasons.</b>
-> <p><i>Susan Wojcicki</i></p>
+> <b>The alarm rings 4:45, again at 5, but I wake up 4:30 naturally. Shower, shave, orange juice, perk my own coffee, hear the news, and the CBS car arrives 5:30.</b>
+> <p><i>Charlie Rose</i></p>
 
 <br>
