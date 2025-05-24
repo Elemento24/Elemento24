@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to have Chinese furniture in my home as a constant and painful reminder of how much has been destroyed in China. The contrast between the beauty of the past and the ugliness of the modern is nowhere sharper than in China.</b>
-> <p><i>Jung Chang</i></p>
+> <b>It is only with burning anger that we can speak of this attack by counter-revolutionary reactionary elements against the capital of our country, against our people's democratic order and the power of the working class.</b>
+> <p><i>Janos Kadar</i></p>
 
 <br>
