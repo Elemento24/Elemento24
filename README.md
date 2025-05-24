@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is only with burning anger that we can speak of this attack by counter-revolutionary reactionary elements against the capital of our country, against our people's democratic order and the power of the working class.</b>
-> <p><i>Janos Kadar</i></p>
+> <b>For me from a pretty young age up until about 21 years old hallucinogenics had a huge place in my life.</b>
+> <p><i>Jon Fishman</i></p>
 
 <br>
