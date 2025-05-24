@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I worked hard all my life as far as this music business. I dreamed of the day when I could go to New York and feel comfortable and they could come out here and be comfortable.</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>Most of my relationships were people in the business. Having said that, me and Tim don't really talk that much about work. He comes into my bit of the house every so often to vent but we don't really have very high, cultured conversations.</b>
+> <p><i>Helena Bonham Carter</i></p>
 
 <br>
