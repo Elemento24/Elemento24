@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Laugh and the world laughs with you, snore and you sleep alone.</b>
-> <p><i>Anthony Burgess</i></p>
+> <b>No one is in control of your happiness but you therefore, you have the power to change anything about yourself or your life that you want to change.</b>
+> <p><i>Barbara de Angelis</i></p>
 
 <br>
