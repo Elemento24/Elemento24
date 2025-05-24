@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe I could have had a career in the music industry without 'X Factor,' but it was an amazing platform that propelled me to where I am now.</b>
-> <p><i>Leona Lewis</i></p>
+> <b>I shall not change my course because those who assume to be better than I desire it.</b>
+> <p><i>Victoria Woodhull</i></p>
 
 <br>
