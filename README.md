@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I shall not change my course because those who assume to be better than I desire it.</b>
-> <p><i>Victoria Woodhull</i></p>
+> <b>Of middle age the best that can be said is that a middle-aged person has likely learned how to have a little fun in spite of his troubles.</b>
+> <p><i>Don Marquis</i></p>
 
 <br>
