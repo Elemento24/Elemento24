@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was in N.W.A. and didn't get paid all the money I was owed, that's when the business side of showbiz hit me.</b>
-> <p><i>Ice Cube</i></p>
+> <b>A small group of thoughtful people could change the world. Indeed, it's the only thing that ever has.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
