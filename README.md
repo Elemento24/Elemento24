@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me from a pretty young age up until about 21 years old hallucinogenics had a huge place in my life.</b>
-> <p><i>Jon Fishman</i></p>
+> <b>When I was in N.W.A. and didn't get paid all the money I was owed, that's when the business side of showbiz hit me.</b>
+> <p><i>Ice Cube</i></p>
 
 <br>
