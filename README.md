@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A small group of thoughtful people could change the world. Indeed, it's the only thing that ever has.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>Most bands don't even last fourteen months let alone fourteen years.</b>
+> <p><i>Peter Steele</i></p>
 
 <br>
