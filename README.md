@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another belief of mine that everyone else my age is an adult, whereas I am merely in disguise.</b>
-> <p><i>Margaret Atwood</i></p>
+> <b>Times and conditions change so rapidly that we must keep our aim constantly focused on the future.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
