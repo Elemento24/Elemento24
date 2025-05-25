@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Artists don't talk about art. Artists talk about work. If I have anything to say to young writers, it's stop thinking of writing as art. Think of it as work.</b>
-> <p><i>Paddy Chayefsky</i></p>
+> <b>I'm 40 and I just got my first beauty campaign with Clairol Nice and Easy.</b>
+> <p><i>Teri Hatcher</i></p>
 
 <br>
