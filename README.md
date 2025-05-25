@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our economic system, run for profit and waste and based primarily on the extractive industries, is the cause of climate change. We have wasted the earth's treasure and we can no longer exploit it cheaply.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>I tried for a while to be an agricultural worker and was hopelessly bored. I would stand around in heaps of manure and sing about the beauty of the work I wasn't doing.</b>
+> <p><i>Theodore Bikel</i></p>
 
 <br>
