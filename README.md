@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel fortunate. I've really gotten to work with amazing talented people, and to learn from them, which is why I'm doing this. If I can work with the best director I'm going to do it.</b>
-> <p><i>Armie Hammer</i></p>
+> <b>I'm a typical middle child. I'm the mediator. The one that makes everything OK, puts their own needs aside to make sure everybody's happy. It's hard to change your nature, even with years and years of therapy.</b>
+> <p><i>Jennifer Jason Leigh</i></p>
 
 <br>
