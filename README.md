@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Watching Bernadette Peters perform is like an acting class. She's amazing.</b>
-> <p><i>Jenna Ushkowitz</i></p>
+> <b>The Word of fire burns today On the lips of our prophets in an evil age.</b>
+> <p><i>Margaret Walker</i></p>
 
 <br>
