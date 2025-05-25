@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dynamism is a function of change.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>Everyone has an invisible sign hanging from their neck saying, 'Make me feel important.' Never forget this message when working with people.</b>
+> <p><i>Mary Kay Ash</i></p>
 
 <br>
