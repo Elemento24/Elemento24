@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tried for a while to be an agricultural worker and was hopelessly bored. I would stand around in heaps of manure and sing about the beauty of the work I wasn't doing.</b>
-> <p><i>Theodore Bikel</i></p>
+> <b>Another belief of mine that everyone else my age is an adult, whereas I am merely in disguise.</b>
+> <p><i>Margaret Atwood</i></p>
 
 <br>
