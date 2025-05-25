@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm 40 and I just got my first beauty campaign with Clairol Nice and Easy.</b>
-> <p><i>Teri Hatcher</i></p>
+> <b>There's a sense of aliveness that comes from connection, shared experience. And you see it in every place. You see it when ball players jump up and down, gather at home plate, hugging, and it's not just because they're winning, it's that shared moment, that feeling of - we enter the world alone, we leave alone.</b>
+> <p><i>Peter Guber</i></p>
 
 <br>
