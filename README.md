@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are thwarted, it is your own attitude that is out of order.</b>
-> <p><i>Meister Eckhart</i></p>
+> <b>Amidst all the clutter, beyond all the obstacles, aside from all the static, are the goals set. Put your head down, do the best job possible, let the flak pass, and work towards those goals.</b>
+> <p><i>Donald Rumsfeld</i></p>
 
 <br>
