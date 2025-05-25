@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Amidst all the clutter, beyond all the obstacles, aside from all the static, are the goals set. Put your head down, do the best job possible, let the flak pass, and work towards those goals.</b>
-> <p><i>Donald Rumsfeld</i></p>
+> <b>Artists don't talk about art. Artists talk about work. If I have anything to say to young writers, it's stop thinking of writing as art. Think of it as work.</b>
+> <p><i>Paddy Chayefsky</i></p>
 
 <br>
