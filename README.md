@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like things that are kind of eclectic, when one thing doesn't go with another. That's why I love Rome. The town itself is that way. It's where Fascist architecture meets classic Renaissance, where the ancient bangs up against the contemporary. It has a touch of everything. That's my style, and that's what my work is about.</b>
-> <p><i>Giambattista Valli</i></p>
+> <b>When one by one our ties are torn, and friend from friend is snatched forlorn when man is left alone to mourn, oh! then how sweet it is to die!</b>
+> <p><i>Anna Letitia Barbauld</i></p>
 
 <br>
