@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never have more children than you have car windows.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>Dynamism is a function of change.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
