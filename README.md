@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The day before my 16th birthday I got my guitar.</b>
-> <p><i>Stevie Nicks</i></p>
+> <b>Muslims have a very bad attitude to homosexuality, they're very intolerant.</b>
+> <p><i>Pim Fortuyn</i></p>
 
 <br>
