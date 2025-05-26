@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of leadership is saying no, not saying yes. It is very easy to say yes.</b>
-> <p><i>Tony Blair</i></p>
+> <b>I have two younger sisters and I'm such an advocate of owning who you are as a person. Don't be ashamed or intimidated. Never feel like you are not amazing.</b>
+> <p><i>Khloe Kardashian</i></p>
 
 <br>
