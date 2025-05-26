@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have two younger sisters and I'm such an advocate of owning who you are as a person. Don't be ashamed or intimidated. Never feel like you are not amazing.</b>
-> <p><i>Khloe Kardashian</i></p>
+> <b>The giant white cube is now impeding rather than enhancing the rhythms of art. It preprograms a viewer's journey, shifts the emphasis from process to product, and lacks individuality and openness. It's not that art should be seen only in rutty bombed-out environments, but it should seem alive.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
