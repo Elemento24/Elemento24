@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I started out modeling at a young age and surrounded myself with different brilliant minds. I have so many people to get educated from, and I've been a sponge.</b>
-> <p><i>Kellan Lutz</i></p>
+> <b>Folks, the most insidious part of this whole health care scheme is that all of these vast medical expenditures will become nothing more than government budget items. We individuals will no longer exist. The relationship between a government and citizen will change forever.</b>
+> <p><i>Rush Limbaugh</i></p>
 
 <br>
