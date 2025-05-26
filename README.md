@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The giant white cube is now impeding rather than enhancing the rhythms of art. It preprograms a viewer's journey, shifts the emphasis from process to product, and lacks individuality and openness. It's not that art should be seen only in rutty bombed-out environments, but it should seem alive.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It's a joke to think that anyone is one thing. We're all such complex creatures. But if I'm going to be a poster child for anything, anger's a gorgeous emotion. It gets a bad rap, but it can make great changes happen.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
