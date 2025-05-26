@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As soon as someone tells me: 'You're rather sexy,' I wish I could disappear. If somebody says: 'You were voted the world's sexiest man,' I have no idea what that means. How do I respond? 'Thank you' is the best you can do. George Clooney is the world's sexiest man, anyway.</b>
-> <p><i>Daniel Craig</i></p>
+> <b>The network is opening up some amazing possibilities for us to reinvent content, reinvent collaboration.</b>
+> <p><i>Tim O'Reilly</i></p>
 
 <br>
