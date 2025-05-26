@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way to get the best of an argument is to avoid it.</b>
-> <p><i>Dale Carnegie</i></p>
+> <b>I like the idea of accessibility, coming from a lower-middle-class background myself, I feel like beauty and products should be accessible to all women over the world.</b>
+> <p><i>Diane Kruger</i></p>
 
 <br>
