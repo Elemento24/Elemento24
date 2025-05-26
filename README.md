@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Experience taught me a few things. One is to listen to your gut, no matter how good something sounds on paper. The second is that you're generally better off sticking with what you know. And the third is that sometimes your best investments are the ones you don't make.</b>
-> <p><i>Donald Trump</i></p>
+> <b>Rigid, the skeleton of habit alone upholds the human frame.</b>
+> <p><i>Virginia Woolf</i></p>
 
 <br>
