@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But the beauty of Einstein's equations, for example, is just as real to anyone who's experienced it as the beauty of music. We've learned in the 20th century that the equations that work have inner harmony.</b>
-> <p><i>Edward Witten</i></p>
+> <b>I don't think about art when I'm working. I try to think about life.</b>
+> <p><i>Jean-Michel Basquiat</i></p>
 
 <br>
