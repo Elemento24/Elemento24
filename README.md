@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ten to 20 years out, driving your car will be viewed as equivalently immoral as smoking cigarettes around other people is today.</b>
-> <p><i>Marc Andreessen</i></p>
+> <b>I want to be alone.</b>
+> <p><i>Greta Garbo</i></p>
 
 <br>
