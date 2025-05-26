@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>First of all, plain and simple, you have no real idea of what it means to be famous until you become famous. It's a double-edged sword. Obviously there are a lot of amazing things about fame, but there are also a lot of challenging things about it.</b>
-> <p><i>Michelle Pfeiffer</i></p>
+> <b>But the beauty of Einstein's equations, for example, is just as real to anyone who's experienced it as the beauty of music. We've learned in the 20th century that the equations that work have inner harmony.</b>
+> <p><i>Edward Witten</i></p>
 
 <br>
