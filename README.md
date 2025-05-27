@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I try to contrast life today is full of contrast... We have to change.</b>
-> <p><i>Gianni Versace</i></p>
+> <b>When I decided to be a singer, my mother warned me I'd be alone a lot. Basically we all are.</b>
+> <p><i>Whitney Houston</i></p>
 
 <br>
