@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One must not make oneself cheap here - that is a cardinal point - or else one is done. Whoever is most impertinent has the best chance.</b>
-> <p><i>Wolfgang Amadeus Mozart</i></p>
+> <b>To me - old age is always ten years older than I am.</b>
+> <p><i>John Burroughs</i></p>
 
 <br>
