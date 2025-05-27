@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me - old age is always ten years older than I am.</b>
-> <p><i>John Burroughs</i></p>
+> <b>Working with Omarion is pretty amazing. That's like my brother. He's really cool.</b>
+> <p><i>Teyana Taylor</i></p>
 
 <br>
