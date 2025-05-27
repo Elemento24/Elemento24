@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just think that people take me a little more seriously as a brunette. I don't know if that's just because of a societal preconceived notion that all blondes are stupid, but it's a different kind of attitude.</b>
-> <p><i>Kate Bosworth</i></p>
+> <b>Aging has a wonderful beauty and we should have respect for that.</b>
+> <p><i>Eartha Kitt</i></p>
 
 <br>
