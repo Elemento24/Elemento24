@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To teach how to live without certainty and yet without being paralysed by hesitation is perhaps the chief thing that philosophy, in our age, can do for those who study it.</b>
-> <p><i>Bertrand Russell</i></p>
+> <b>If truth is beauty, how come no one has their hair done in the library?</b>
+> <p><i>Lily Tomlin</i></p>
 
 <br>
