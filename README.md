@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm definitely doing better. I never realized that I would get the support that I've gotten from everybody - from my fans, to people that I've idolized my whole life. So it's overwhelming, it's amazing and I believe that everything happens for a reason so I'm in a really good place right now.</b>
-> <p><i>Pia Toscano</i></p>
+> <b>My view is that you still, in order to win from the Labour perspective, have to have a strong alliance with business as well as the unions. You have got to be very much in the centre ground on things like public sector reform.</b>
+> <p><i>Tony Blair</i></p>
 
 <br>
