@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are only three things that can kill a farmer: lightning, rolling over in a tractor, and old age.</b>
-> <p><i>Bill Bryson</i></p>
+> <b>There are things I can't force. I must adjust. There are times when the greatest change needed is a change of my viewpoint.</b>
+> <p><i>Denis Diderot</i></p>
 
 <br>
