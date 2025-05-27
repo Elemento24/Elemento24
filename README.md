@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Also, if you want to reach people, theatre is not always the best way to do it.</b>
-> <p><i>Harvey Fierstein</i></p>
+> <b>There are only three things that can kill a farmer: lightning, rolling over in a tractor, and old age.</b>
+> <p><i>Bill Bryson</i></p>
 
 <br>
