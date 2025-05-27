@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Working with Omarion is pretty amazing. That's like my brother. He's really cool.</b>
-> <p><i>Teyana Taylor</i></p>
+> <b>It is not the beauty of a building you should look at its the construction of the foundation that will stand the test of time.</b>
+> <p><i>David Allan Coe</i></p>
 
 <br>
