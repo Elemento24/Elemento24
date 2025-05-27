@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all have a social mask, right? We put it on, we go out, put our best foot forward, our best image. But behind that social mask is a personal truth, what we really, really believe about who we are and what we're capable of.</b>
-> <p><i>Phil McGraw</i></p>
+> <b>Also, if you want to reach people, theatre is not always the best way to do it.</b>
+> <p><i>Harvey Fierstein</i></p>
 
 <br>
