@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we have become obsessed with beauty and personally I'm really saddened by the way women mutilate their faces today in search of that.</b>
-> <p><i>Halle Berry</i></p>
+> <b>You can change your world by changing your words... Remember, death and life are in the power of the tongue.</b>
+> <p><i>Joel Osteen</i></p>
 
 <br>
