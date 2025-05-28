@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hawaii was beautiful of course, we played at Turtle Bay an amazing resort right on the ocean.</b>
-> <p><i>Natalie Gulbis</i></p>
+> <b>The way life manages information involves a logical structure that differs fundamentally from mere complex chemistry. Therefore chemistry alone will not explain life's origin, any more than a study of silicon, copper and plastic will explain how a computer can execute a program.</b>
+> <p><i>Paul Davies</i></p>
 
 <br>
