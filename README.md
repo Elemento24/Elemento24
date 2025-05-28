@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have some worse scenarios for which we need to prepare as companies. For the moment, we're planning for the worst, and the worst is now, and the car market is down more than 15 percent in France. There is so much uncertainty.</b>
-> <p><i>Carlos Ghosn</i></p>
+> <b>It is old age, rather than death, that is to be contrasted with life. Old age is life's parody, whereas death transforms life into a destiny: in a way it preserves it by giving it the absolute dimension. Death does away with time.</b>
+> <p><i>Simone de Beauvoir</i></p>
 
 <br>
