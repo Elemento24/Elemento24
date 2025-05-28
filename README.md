@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is old age, rather than death, that is to be contrasted with life. Old age is life's parody, whereas death transforms life into a destiny: in a way it preserves it by giving it the absolute dimension. Death does away with time.</b>
-> <p><i>Simone de Beauvoir</i></p>
+> <b>To look almost pretty is an acquisition of higher delight to a girl who has been looking plain for the first fifteen years of her life than a beauty from her cradle can ever receive.</b>
+> <p><i>Jane Austen</i></p>
 
 <br>
