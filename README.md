@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age and sickness bring out the essential characteristics of a man.</b>
-> <p><i>Felix Frankfurter</i></p>
+> <b>We have some worse scenarios for which we need to prepare as companies. For the moment, we're planning for the worst, and the worst is now, and the car market is down more than 15 percent in France. There is so much uncertainty.</b>
+> <p><i>Carlos Ghosn</i></p>
 
 <br>
