@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I walk into a kids' store, and it's amazing, the types of instruments - little squeaky things, rattling things, spinning tops.</b>
-> <p><i>Evelyn Glennie</i></p>
+> <b>The most beautiful thing we can experience is the mysterious. It is the source of all true art and science.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
