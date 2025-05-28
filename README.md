@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was seventeen, I worked as a counsellor at a co-ed sleep-away camp for eight weeks. I loved it but it could be harrowing - it was far too much responsibility for someone my age.</b>
-> <p><i>Harlan Coben</i></p>
+> <b>We are living in the machine age. For the first time in history the comedian has been compelled to supply himself with jokes and comedy material to compete with the machine. Whether he knows it or not, the comedian is on a treadmill to oblivion.</b>
+> <p><i>Fred Allen</i></p>
 
 <br>
