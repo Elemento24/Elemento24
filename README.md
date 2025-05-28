@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most beautiful thing we can experience is the mysterious. It is the source of all true art and science.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>True ease in writing comes from art, not chance, as those who move easiest have learned to dance.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
