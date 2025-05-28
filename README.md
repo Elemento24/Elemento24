@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are things I can't force. I must adjust. There are times when the greatest change needed is a change of my viewpoint.</b>
-> <p><i>Denis Diderot</i></p>
+> <b>I hate fishing, and I can't imagine why anyone would want to hike when you can get in the car and drive.</b>
+> <p><i>Joseph Barbera</i></p>
 
 <br>
