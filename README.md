@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age appears to be best in four things old wood best to burn, old wine to drink, old friends to trust, and old authors to read.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>Hawaii was beautiful of course, we played at Turtle Bay an amazing resort right on the ocean.</b>
+> <p><i>Natalie Gulbis</i></p>
 
 <br>
