@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is only a means to life, to the life more abundant. It is not in itself the life more abundant. It merely points the way, something which is overlooked not only by the public, but very often by the artist himself. In becoming an end it defeats itself.</b>
-> <p><i>Henry Miller</i></p>
+> <b>When I was seventeen, I worked as a counsellor at a co-ed sleep-away camp for eight weeks. I loved it but it could be harrowing - it was far too much responsibility for someone my age.</b>
+> <p><i>Harlan Coben</i></p>
 
 <br>
