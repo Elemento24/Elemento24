@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Raising a small child as a woman while travelling 10 months out of the year would, I believe, be something I would not be able or even want to do, although with the amazing example of Leila, I am no longer so sure.</b>
-> <p><i>Lara St. John</i></p>
+> <b>Art is only a means to life, to the life more abundant. It is not in itself the life more abundant. It merely points the way, something which is overlooked not only by the public, but very often by the artist himself. In becoming an end it defeats itself.</b>
+> <p><i>Henry Miller</i></p>
 
 <br>
