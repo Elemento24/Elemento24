@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way life manages information involves a logical structure that differs fundamentally from mere complex chemistry. Therefore chemistry alone will not explain life's origin, any more than a study of silicon, copper and plastic will explain how a computer can execute a program.</b>
-> <p><i>Paul Davies</i></p>
+> <b>Old age and sickness bring out the essential characteristics of a man.</b>
+> <p><i>Felix Frankfurter</i></p>
 
 <br>
