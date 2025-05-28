@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate fishing, and I can't imagine why anyone would want to hike when you can get in the car and drive.</b>
-> <p><i>Joseph Barbera</i></p>
+> <b>The best of artists has no conception that the marble alone does not contain within itself.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
