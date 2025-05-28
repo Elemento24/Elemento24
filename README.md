@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are living in the machine age. For the first time in history the comedian has been compelled to supply himself with jokes and comedy material to compete with the machine. Whether he knows it or not, the comedian is on a treadmill to oblivion.</b>
-> <p><i>Fred Allen</i></p>
+> <b>You know, for 300 years it's been kind of the same. There are restaurants in New Orleans that the menu hasn't changed in 125 years, so how is one going to change or evolve the food?</b>
+> <p><i>Emeril Lagasse</i></p>
 
 <br>
