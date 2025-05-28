@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can change your world by changing your words... Remember, death and life are in the power of the tongue.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>I don't think meals have any business being deductible. I'm for separation of calories and corporations.</b>
+> <p><i>Ralph Nader</i></p>
 
 <br>
