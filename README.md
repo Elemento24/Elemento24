@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>More than art, more than literature, music is universally accessible.</b>
-> <p><i>Billy Joel</i></p>
+> <b>I have a 6-year-old, and his thing is to turn on Radio Disney in the car, and I get such an allergic reaction to listening to that music and the context into which it falls. I'm really working on him about that.</b>
+> <p><i>Aimee Mann</i></p>
 
 <br>
