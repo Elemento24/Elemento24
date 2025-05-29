@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A healthy attitude is contagious but don't wait to catch it from others. Be a carrier.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>Your 40s are a major trough. About the age of 50, feelings of satisfaction begin to rebound and keep rising into your 50s, 60s and 70s, with health being a major factor.</b>
+> <p><i>Jane Pauley</i></p>
 
 <br>
