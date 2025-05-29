@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a 6-year-old, and his thing is to turn on Radio Disney in the car, and I get such an allergic reaction to listening to that music and the context into which it falls. I'm really working on him about that.</b>
-> <p><i>Aimee Mann</i></p>
+> <b>A healthy attitude is contagious but don't wait to catch it from others. Be a carrier.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
