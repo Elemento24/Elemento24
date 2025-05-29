@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think meals have any business being deductible. I'm for separation of calories and corporations.</b>
-> <p><i>Ralph Nader</i></p>
+> <b>More than art, more than literature, music is universally accessible.</b>
+> <p><i>Billy Joel</i></p>
 
 <br>
