@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Punishment may make us obey the orders we are given, but at best it will only teach an obedience to authority, not a self-control which enhances our self-respect.</b>
-> <p><i>Bruno Bettelheim</i></p>
+> <b>Information technology and business are becoming inextricably interwoven. I don't think anybody can talk meaningfully about one without the talking about the other.</b>
+> <p><i>Bill Gates</i></p>
 
 <br>
