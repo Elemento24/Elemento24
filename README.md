@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No, Arrested Development was such an amazing experience in every way, and you know it was very unique in that it was a show that received a lot of critical acclaim, and yet we didn't ever achieve the ratings that we wanted.</b>
-> <p><i>Will Arnett</i></p>
+> <b>I don't know if it has set in or not. Honestly, it's crazy. It's such an amazing honor. I remember thinking back to being in my room waiting for the call to see if I got the part. It's like winning the lottery. I'm proud to be a member of such an amazing cast - that's the best award of all.</b>
+> <p><i>Hailee Steinfeld</i></p>
 
 <br>
