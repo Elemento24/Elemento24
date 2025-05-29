@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My size has helped make me an amazing performer too. The cliche of the Funny Fat Friend: I absolutely was that character - I am that character... It's a complicated bag of tools I acquired, and I've put them all to work onstage.</b>
-> <p><i>Beth Ditto</i></p>
+> <b>In this business, my business, I get to meet all kinds of incredible people, fascinating people, glamorous people and sexy people and highly intellectual people. And you meet them and you go 'interesting, interesting, interesting'. They're interesting, but not very many people stop you in your tracks.</b>
+> <p><i>Madonna Ciccone</i></p>
 
 <br>
