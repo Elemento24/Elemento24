@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm still a Welsh girl at heart so I'm staying in the U.K. for the Olympics, it's such an exciting time for Britain so it's amazing to be a part of it.</b>
-> <p><i>Katherine Jenkins</i></p>
+> <b>Old age is just a record of one's whole life.</b>
+> <p><i>Muhammad Ali</i></p>
 
 <br>
