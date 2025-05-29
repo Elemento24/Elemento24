@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cinema is still a very young art form with extraordinary techniques and very impressive special effects but sometimes it seems the soul has been taken out of things.</b>
-> <p><i>Catherine Deneuve</i></p>
+> <b>Since 'Idol' I've gotten used to having an amazing hair and make-up team around me, so I'm starting to get picky. I know what I like now and I'm happy to say 'Could we maybe change that?' if I don't like something. I don't yell or anything, but I think I could definitely start to act a little diva-ish when it comes to my look.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
