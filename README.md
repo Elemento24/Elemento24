@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's sad that women characters have lost so much ground in popular movies. Didn't 'Thelma and Louise' prove that women want to see women doing things on film? Thelma and Louise were in a classic car they were being chased by cops they shot up a truck - and women loved it.</b>
-> <p><i>Robin Quivers</i></p>
+> <b>There are some things you learn best in calm, and some in storm.</b>
+> <p><i>Willa Cather</i></p>
 
 <br>
