@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since change is constant, you wonder if people crave death because it's the only way they can get anything really finished.</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>The best remedy for those who are afraid, lonely or unhappy is to go outside, somewhere where they can be quiet, alone with the heavens, nature and God. Because only then does one feel that all is as it should be.</b>
+> <p><i>Anne Frank</i></p>
 
 <br>
