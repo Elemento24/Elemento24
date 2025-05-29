@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are some things you learn best in calm, and some in storm.</b>
-> <p><i>Willa Cather</i></p>
+> <b>No, Arrested Development was such an amazing experience in every way, and you know it was very unique in that it was a show that received a lot of critical acclaim, and yet we didn't ever achieve the ratings that we wanted.</b>
+> <p><i>Will Arnett</i></p>
 
 <br>
