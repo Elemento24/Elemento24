@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm so secluded. Very alone.</b>
-> <p><i>Yves Saint Laurent</i></p>
+> <b>Politicians also have a love affair with the 'small business exemption.' Too much paperwork? Too heavy a burden? Not enough time? Just exempt small businesses from the rule. It sounds so pro-growth. Instead it's an admission that the costs of a regulation just can't be justified.</b>
+> <p><i>John Sununu</i></p>
 
 <br>
