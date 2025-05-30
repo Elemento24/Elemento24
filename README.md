@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having gone through so many of the personal things I've gone through, its about creating an (online) space for girls to be heard. I don't profess to have all the answers. But Ask Elizabeth is a space where girls are not alone.</b>
-> <p><i>Elizabeth Berkley</i></p>
+> <b>I'm so secluded. Very alone.</b>
+> <p><i>Yves Saint Laurent</i></p>
 
 <br>
