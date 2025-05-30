@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An art which isn't based on feeling isn't an art at all.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>As a result of the digital age and the decline of first-class mail, there is no question that the Postal Service must change and develop a new business model.</b>
+> <p><i>Bernie Sanders</i></p>
 
 <br>
