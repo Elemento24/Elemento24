@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since 'Idol' I've gotten used to having an amazing hair and make-up team around me, so I'm starting to get picky. I know what I like now and I'm happy to say 'Could we maybe change that?' if I don't like something. I don't yell or anything, but I think I could definitely start to act a little diva-ish when it comes to my look.</b>
-> <p><i>Jordin Sparks</i></p>
+> <b>But every great scripture, whether Hebrew, Indian, Persian, or Chinese, apart from its religious value will be found to have some rare and special beauty of its own and in this respect the original Bible stands very high as a monument of sublime poetry and of artistic prose.</b>
+> <p><i>Lafcadio Hearn</i></p>
 
 <br>
