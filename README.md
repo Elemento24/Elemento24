@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me, I don't expect to have a really amazing meal each time I dine out. Having a good meal with your loved ones - that's what makes the experience.</b>
-> <p><i>Wolfgang Puck</i></p>
+> <b>Art has the power to transform, to illuminate, to educate, inspire and motivate.</b>
+> <p><i>Harvey Fierstein</i></p>
 
 <br>
