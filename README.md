@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a very difficult thing for people to accept, seeing women act out anger on the screen. We're more accustomed to seeing men expressing rage and women crying.</b>
-> <p><i>Rebecca De Mornay</i></p>
+> <b>If you want to go to the mall, you have to take security. But it's always cool. The kids are amazing.</b>
+> <p><i>Aaliyah</i></p>
 
 <br>
