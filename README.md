@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our second phase was to develop a school curriculum that teaches tolerance, respect for differences, conflict resolution, anger management, and other attributes of peace.</b>
-> <p><i>Eddie Bernice Johnson</i></p>
+> <b>Does an architecture to assuage the spirit have a place?</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
