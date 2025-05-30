@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let your mind alone, and see what happens.</b>
-> <p><i>Virgil Thomson</i></p>
+> <b>I also had to work through the violation of my date rape, my unhealthy relationships with men, my anger toward the people involved in the scandal, and those who exploited me afterwards.</b>
+> <p><i>Donna Rice</i></p>
 
 <br>
