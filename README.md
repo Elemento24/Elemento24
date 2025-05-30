@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A supermodel needed to be able to be on 'Sports Illustrated,' to be able to walk runways, to be able to do beauty ads, to be on covers. And the girls now can no longer be on covers and be in the ads because your actresses have taken over all the jobs. I don't know what happened, but we want our jobs back.</b>
-> <p><i>Kim Alexis</i></p>
+> <b>An art which isn't based on feeling isn't an art at all.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
