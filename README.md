@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did a lot of gasoline commercials - Hess, Texaco. I was part of the family in the car, the little brat in the back.</b>
-> <p><i>Ricky Schroder</i></p>
+> <b>Of course art world ethics are important. But museums are no purer than any other institution or business. Academics aren't necessarily more high-minded than gallerists.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
