@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think everybody can agree that you can hear a certain song and it will put you in a certain mood, and that's just the beauty of music and I am so inspired by that.</b>
-> <p><i>Shaun White</i></p>
+> <b>An art whose medium is language will always show a high degree of critical creativeness, for speech is itself a critique of life: it names, it characterizes, it passes judgment, in that it creates.</b>
+> <p><i>Thomas Mann</i></p>
 
 <br>
