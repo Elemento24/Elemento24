@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Liturgy is like a strong tree whose beauty is derived from the continuous renewal of its leaves, but whose strength comes from the old trunk, with solid roots in the ground.</b>
-> <p><i>Pope Paul VI</i></p>
+> <b>My hand is the extension of the thinking process - the creative process.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
