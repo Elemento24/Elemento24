@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Does an architecture to assuage the spirit have a place?</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>All in the Family was intellectual it was art.</b>
+> <p><i>Carroll O'Connor</i></p>
 
 <br>
