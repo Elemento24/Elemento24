@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They are amazing kids so we let them make decisions but also have discipline.</b>
-> <p><i>Kelly Preston</i></p>
+> <b>Know what's weird? Day by day, nothing seems to change. But pretty soon, everything's different.</b>
+> <p><i>Bill Watterson</i></p>
 
 <br>
