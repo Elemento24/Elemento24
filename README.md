@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Weird people follow you in the streets, you can't sit alone in a restaurant or a cafe and read a book in peace, and I think everybody values those moments of being alone.</b>
-> <p><i>Winona Ryder</i></p>
+> <b>This is what I asked for, and in this day and age that's what actually goes on. But what hurts me the most is that I work just as hard as any other actress around my age, like Scarlett Johansson, but I just don't get the opportunities that they get because people are so distracted by the mess that I created in my life.</b>
+> <p><i>Lindsay Lohan</i></p>
 
 <br>
