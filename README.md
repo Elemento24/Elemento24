@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Lord gets his best soldiers out of the highlands of affliction.</b>
-> <p><i>Charles Spurgeon</i></p>
+> <b>People are always angry at America. They're absolutely certain that America either caused their problems or is deliberately not fixing their problems. But the anger is always directed at America and never at Americans.</b>
+> <p><i>P. J. O'Rourke</i></p>
 
 <br>
