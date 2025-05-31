@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Talk is by far the most accessible of pleasures. It costs nothing in money, it is all profit, it completes our education, founds and fosters our friendships, and can be enjoyed at any age and in almost any state of health.</b>
-> <p><i>Robert Louis Stevenson</i></p>
+> <b>But it seems that the judging maybe they shouldn't at least see the practices all week long. That can taint the way they go into the judging and the outlook of what's going to happen, instead of just watching those four minutes and judging on those minutes alone.</b>
+> <p><i>Nancy Kerrigan</i></p>
 
 <br>
