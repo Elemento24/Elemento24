@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Painting, sculpture and architecture are finished, but the art habit continues.</b>
-> <p><i>Robert Smithson</i></p>
+> <b>They are amazing kids so we let them make decisions but also have discipline.</b>
+> <p><i>Kelly Preston</i></p>
 
 <br>
