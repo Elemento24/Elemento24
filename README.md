@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nearly all the best things that came to me in life have been unexpected, unplanned by me.</b>
-> <p><i>Carl Sandburg</i></p>
+> <b>My attitude toward men who mess around is simple: If you find 'em, kill 'em.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
