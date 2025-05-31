@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My goal was never to just create a company. A lot of people misinterpret that, as if I don't care about revenue or profit or any of those things. But what not being just a company means to me is not being just that - building something that actually makes a really big change in the world.</b>
-> <p><i>Mark Zuckerberg</i></p>
+> <b>I did a lot of gasoline commercials - Hess, Texaco. I was part of the family in the car, the little brat in the back.</b>
+> <p><i>Ricky Schroder</i></p>
 
 <br>
