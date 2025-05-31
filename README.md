@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An art whose medium is language will always show a high degree of critical creativeness, for speech is itself a critique of life: it names, it characterizes, it passes judgment, in that it creates.</b>
-> <p><i>Thomas Mann</i></p>
+> <b>Nearly all the best things that came to me in life have been unexpected, unplanned by me.</b>
+> <p><i>Carl Sandburg</i></p>
 
 <br>
