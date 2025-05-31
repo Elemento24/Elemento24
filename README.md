@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is what I asked for, and in this day and age that's what actually goes on. But what hurts me the most is that I work just as hard as any other actress around my age, like Scarlett Johansson, but I just don't get the opportunities that they get because people are so distracted by the mess that I created in my life.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>My goal was never to just create a company. A lot of people misinterpret that, as if I don't care about revenue or profit or any of those things. But what not being just a company means to me is not being just that - building something that actually makes a really big change in the world.</b>
+> <p><i>Mark Zuckerberg</i></p>
 
 <br>
