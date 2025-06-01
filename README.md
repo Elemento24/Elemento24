@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That they may have a little peace, even the best dogs are compelled to snarl occasionally.</b>
-> <p><i>William Feather</i></p>
+> <b>Yes, I am seeking a husband. As soon as the right man asks me, I shall say, It is not good for a woman to live alone.</b>
+> <p><i>Anna Held</i></p>
 
 <br>
