@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is folly for an eminent man to think of escaping censure, and a weakness to be affected with it. All the illustrious persons of antiquity, and indeed of every age in the world, have passed through this fiery persecution.</b>
-> <p><i>Joseph Addison</i></p>
+> <b>There's great sadness and life doesn't work out like you would want, on a lot of levels, but there's no need to feel all alone. This happens to everybody, so there's no self-pity. This is the ride that humans are on, and all of it is essential for our natural part of it.</b>
+> <p><i>Mike Mills</i></p>
 
 <br>
