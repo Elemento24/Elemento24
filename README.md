@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prosperous farmers mean more employment, more prosperity for the workers and the business men of every industrial area in the whole country.</b>
-> <p><i>Franklin D. Roosevelt</i></p>
+> <b>I believe that children are our future. Teach them well and let them lead the way. Show them all the beauty they possess inside.</b>
+> <p><i>Whitney Houston</i></p>
 
 <br>
