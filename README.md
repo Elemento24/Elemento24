@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's your mental attitude. So many of us start dreading age in high school and that's a waste of a lovely life. 'Oh... I'm 30, oh, I'm 40, oh, 50.' Make the most of it.</b>
-> <p><i>Betty White</i></p>
+> <b>I've also seen that great men are often lonely. This is understandable, because they have built such high standards for themselves that they often feel alone. But that same loneliness is part of their ability to create.</b>
+> <p><i>Yousuf Karsh</i></p>
 
 <br>
