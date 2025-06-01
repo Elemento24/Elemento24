@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is everlasting And dust is for a time.</b>
-> <p><i>Marianne Moore</i></p>
+> <b>It is folly for an eminent man to think of escaping censure, and a weakness to be affected with it. All the illustrious persons of antiquity, and indeed of every age in the world, have passed through this fiery persecution.</b>
+> <p><i>Joseph Addison</i></p>
 
 <br>
