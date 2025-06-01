@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If there is anything that a man can do well, I say let him do it. Give him a chance.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>I think it's your mental attitude. So many of us start dreading age in high school and that's a waste of a lovely life. 'Oh... I'm 30, oh, I'm 40, oh, 50.' Make the most of it.</b>
+> <p><i>Betty White</i></p>
 
 <br>
