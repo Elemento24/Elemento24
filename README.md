@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Punishment may make us obey the orders we are given, but at best it will only teach an obedience to authority, not a self-control which enhances our self-respect.</b>
-> <p><i>Bruno Bettelheim</i></p>
+> <b>Art doesn't transform. It just plain forms.</b>
+> <p><i>Roy Lichtenstein</i></p>
 
 <br>
