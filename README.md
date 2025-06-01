@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no more difficult art to acquire than the art of observation, and for some men it is quite as difficult to record an observation in brief and plain language.</b>
-> <p><i>William Osler</i></p>
+> <b>Art is the most beautiful deception of all. And although people try to incorporate the everyday events of life in it, we must hope that it will remain a deception lest it become a utilitarian thing, sad as a factory.</b>
+> <p><i>Claude Debussy</i></p>
 
 <br>
