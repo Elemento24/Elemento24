@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the most beautiful deception of all. And although people try to incorporate the everyday events of life in it, we must hope that it will remain a deception lest it become a utilitarian thing, sad as a factory.</b>
-> <p><i>Claude Debussy</i></p>
+> <b>I love art dealers. In some ways, they're my favorite people in the art world. Really. I love that they put their money where their taste is, create their own aesthetic universes, support artists, employ people, and do all of this while letting us see art for free. Many are visionaries.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
