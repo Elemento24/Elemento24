@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A special kind of beauty exists which is born in language, of language, and for language.</b>
-> <p><i>Gaston Bachelard</i></p>
+> <b>I want art to make me think. In order to do that, it may piss me off, or make me uncomfortable. That promotes awareness and change, or at least some discussion.</b>
+> <p><i>Pink</i></p>
 
 <br>
