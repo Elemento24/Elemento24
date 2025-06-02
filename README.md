@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A well regulated militia, composed of the body of the people, trained in arms, is the best most natural defense of a free country.</b>
-> <p><i>James Madison</i></p>
+> <b>Time plays a role in almost every decision. And some decisions define your attitude about time.</b>
+> <p><i>John Cale</i></p>
 
 <br>
