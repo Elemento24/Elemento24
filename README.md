@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every beauty which is seen here by persons of perception resembles more than anything else that celestial source from which we all are come.</b>
-> <p><i>Michelangelo</i></p>
+> <b>Those who remember Washington's cold war culture in the 1980s will recall the shocked reactions to Reagan's intervention. People interested in foreign policy were astonished when in 1985 he met alone at Geneva - alone, not a single strategic thinker at his elbow! - with the Soviet Communist master Gorbachev.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
