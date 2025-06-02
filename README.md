@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're doing your best, you won't have any time to worry about failure.</b>
-> <p><i>H. Jackson Brown, Jr.</i></p>
+> <b>The essential function of art is moral. But a passionate, implicit morality, not didactic. A morality which changes the blood, rather than the mind.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
