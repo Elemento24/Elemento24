@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The essential function of art is moral. But a passionate, implicit morality, not didactic. A morality which changes the blood, rather than the mind.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>Every beauty which is seen here by persons of perception resembles more than anything else that celestial source from which we all are come.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
