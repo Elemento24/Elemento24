@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are in danger of making our cities places where business goes on but where life, in its real sense, is lost.</b>
-> <p><i>Hubert H. Humphrey</i></p>
+> <b>The best augury of a man's success in his profession is that he thinks it the finest in the world.</b>
+> <p><i>George Eliot</i></p>
 
 <br>
