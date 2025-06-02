@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always loved music. You know, my parents said I started singing when I was 4, in the car.</b>
-> <p><i>Bob Seger</i></p>
+> <b>As a team, you need to come from behind every once in awhile just to do it. Good for the attitude. It makes it exciting. And when everybody knows you have to throw it... that makes it fun too.</b>
+> <p><i>Dan Marino</i></p>
 
 <br>
