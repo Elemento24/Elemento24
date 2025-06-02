@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you put gas in your car you are making a political statement, because you are supporting the empires that control and continue the destruction of some countries.</b>
-> <p><i>Javier Bardem</i></p>
+> <b>I always loved music. You know, my parents said I started singing when I was 4, in the car.</b>
+> <p><i>Bob Seger</i></p>
 
 <br>
