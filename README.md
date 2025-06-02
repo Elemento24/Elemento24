@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I knew I was alone in a way that no earthling has ever been before.</b>
-> <p><i>Michael Collins</i></p>
+> <b>Anger and hate against one we love steels our hearts, but contempt or pity leaves us silent and ashamed.</b>
+> <p><i>Edgar Rice Burroghs</i></p>
 
 <br>
