@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time plays a role in almost every decision. And some decisions define your attitude about time.</b>
-> <p><i>John Cale</i></p>
+> <b>I have worked very hard on being aware of my childhood but moving forward and not letting it bring me down emotionally. That is a hard thing - especially when you have children of your own and you remember what happened to you at that age.</b>
+> <p><i>Samantha Morton</i></p>
 
 <br>
