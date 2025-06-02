@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Smiling is definitely one of the best beauty remedies. If you have a good sense of humor and a good approach to life, that's beautiful.</b>
-> <p><i>Rashida Jones</i></p>
+> <b>We are in danger of making our cities places where business goes on but where life, in its real sense, is lost.</b>
+> <p><i>Hubert H. Humphrey</i></p>
 
 <br>
