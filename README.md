@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's sad, actually, because my anxiety keeps me from enjoying things as much as I should at this age.</b>
-> <p><i>Amanda Seyfried</i></p>
+> <b>If you're doing your best, you won't have any time to worry about failure.</b>
+> <p><i>H. Jackson Brown, Jr.</i></p>
 
 <br>
