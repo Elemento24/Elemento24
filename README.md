@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best augury of a man's success in his profession is that he thinks it the finest in the world.</b>
-> <p><i>George Eliot</i></p>
+> <b>When you put gas in your car you are making a political statement, because you are supporting the empires that control and continue the destruction of some countries.</b>
+> <p><i>Javier Bardem</i></p>
 
 <br>
