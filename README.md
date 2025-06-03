@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the business world today, failure is apparently not an option. We need to change this attitude toward failure - and celebrate the idea that only by falling on our collective business faces do we learn enough to succeed down the road.</b>
-> <p><i>Naveen Jain</i></p>
+> <b>Show me a man who lives alone and has a perpetually clean kitchen, and 8 times out of 9 I'll show you a man with detestable spiritual qualities.</b>
+> <p><i>Charles Bukowski</i></p>
 
 <br>
