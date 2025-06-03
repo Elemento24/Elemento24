@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today's developer is a poor substitute for the committed entrepreneur of the last century for whom the work of architecture represented a chance to celebrate the worth of his enterprise.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>I believe that children are our future. Teach them well and let them lead the way. Show them all the beauty they possess inside.</b>
+> <p><i>Whitney Houston</i></p>
 
 <br>
