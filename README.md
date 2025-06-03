@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Show me a man who lives alone and has a perpetually clean kitchen, and 8 times out of 9 I'll show you a man with detestable spiritual qualities.</b>
-> <p><i>Charles Bukowski</i></p>
+> <b>Despite what anti-aging ads say, growing older can be better. I feel better in my skin, 100 percent. You have greater effects of gravity, but the better sense of yourself you have is something I wouldn't trade. Women who lie about their age - 'why?'</b>
+> <p><i>Demi Moore</i></p>
 
 <br>
