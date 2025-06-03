@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no racial or ethnic involvement in Thanksgiving, and people who may be very distant from the Christian system can see the beauty and the positive spirit that comes from the holiday.</b>
-> <p><i>John Clayton</i></p>
+> <b>I don't think we should be about the business of denying voters in Michigan and Florida the right to be heard.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
