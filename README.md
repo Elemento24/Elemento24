@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think we should be about the business of denying voters in Michigan and Florida the right to be heard.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>In Hollywood, you play a mom, and the next thing you know, you're on 'The Golden Girls.' They age you so fast.</b>
+> <p><i>Gabrielle Union</i></p>
 
 <br>
