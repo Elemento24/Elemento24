@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By making a comeback, I'm changing the attitude of people toward me. If I'd known that people would react so enthusiastically, I'd have done it years ago.</b>
-> <p><i>Mark Spitz</i></p>
+> <b>Today's developer is a poor substitute for the committed entrepreneur of the last century for whom the work of architecture represented a chance to celebrate the worth of his enterprise.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
