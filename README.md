@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's show business. No show, no business.</b>
-> <p><i>Dick Wolf</i></p>
+> <b>If being an egomaniac means I believe in what I do and in my art or music, then in that respect you can call me that... I believe in what I do, and I'll say it.</b>
+> <p><i>John Lennon</i></p>
 
 <br>
