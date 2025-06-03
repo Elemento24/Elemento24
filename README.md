@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's the subject of life - to get rich? All of those fellows out there getting rich could be dancing around the real subject of life.</b>
-> <p><i>Paul A. Volcker</i></p>
+> <b>In the business world today, failure is apparently not an option. We need to change this attitude toward failure - and celebrate the idea that only by falling on our collective business faces do we learn enough to succeed down the road.</b>
+> <p><i>Naveen Jain</i></p>
 
 <br>
