@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Very few people possess true artistic ability. It is therefore both unseemly and unproductive to irritate the situation by making an effort. If you have a burning, restless urge to write or paint, simply eat something sweet and the feeling will pass.</b>
-> <p><i>Fran Lebowitz</i></p>
+> <b>There is no racial or ethnic involvement in Thanksgiving, and people who may be very distant from the Christian system can see the beauty and the positive spirit that comes from the holiday.</b>
+> <p><i>John Clayton</i></p>
 
 <br>
