@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A gun can be dangerous. But a gun can protect you, you can hunt for food with it - you know, the tool itself is a tool. The intention of the party using the tool is a part of the process, right? You know: the knife cuts the steak, stabs the person, saves somebody from danger, cuts somebody out of a car.</b>
-> <p><i>Peter Guber</i></p>
+> <b>Ah, mon cher, for anyone who is alone, without God and without a master, the weight of days is dreadful.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
