@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even one voice can be heard loudly all over the world in this day and age.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>Wolfgang Tillman's stunning large-scale pictures, being shown for the first time, were so offhand I failed to see them as art.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
