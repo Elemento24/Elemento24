@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wolfgang Tillman's stunning large-scale pictures, being shown for the first time, were so offhand I failed to see them as art.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It's show business. No show, no business.</b>
+> <p><i>Dick Wolf</i></p>
 
 <br>
