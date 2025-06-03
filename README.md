@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that children are our future. Teach them well and let them lead the way. Show them all the beauty they possess inside.</b>
-> <p><i>Whitney Houston</i></p>
+> <b>Even one voice can be heard loudly all over the world in this day and age.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
