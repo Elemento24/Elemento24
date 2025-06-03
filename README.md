@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned from a very young age that if I pursued the things that truly excited me, that they would reward in more important ways, like happiness.</b>
-> <p><i>Brandon Boyd</i></p>
+> <b>Very few people possess true artistic ability. It is therefore both unseemly and unproductive to irritate the situation by making an effort. If you have a burning, restless urge to write or paint, simply eat something sweet and the feeling will pass.</b>
+> <p><i>Fran Lebowitz</i></p>
 
 <br>
