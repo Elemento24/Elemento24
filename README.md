@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If children are not introduced to music at an early age, I believe something fundamental is actually being taken from them.</b>
-> <p><i>Luciano Pavarotti</i></p>
+> <b>I don't know what the secret to longevity as an actress is. It's more than talent and beauty. Maybe it's the audience seeing itself in you.</b>
+> <p><i>Joan Blondell</i></p>
 
 <br>
