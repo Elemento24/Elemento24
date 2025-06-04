@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best measure of a man's honesty isn't his income tax return. It's the zero adjust on his bathroom scale.</b>
-> <p><i>Arthur C. Clarke</i></p>
+> <b>Virtue is not left to stand alone. He who practices it will have neighbors.</b>
+> <p><i>Confucius</i></p>
 
 <br>
