@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know what the secret to longevity as an actress is. It's more than talent and beauty. Maybe it's the audience seeing itself in you.</b>
-> <p><i>Joan Blondell</i></p>
+> <b>The best measure of a man's honesty isn't his income tax return. It's the zero adjust on his bathroom scale.</b>
+> <p><i>Arthur C. Clarke</i></p>
 
 <br>
