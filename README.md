@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Women are so unforgiving of themselves. We don't recognize our own beauty because we're too busy comparing ourselves to other people.</b>
-> <p><i>Kelly Osbourne</i></p>
+> <b>I tend to stay up late, not because I'm partying but because it's the only time of the day when I'm alone and don't have to be performing.</b>
+> <p><i>Jim Carrey</i></p>
 
 <br>
