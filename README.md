@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Me and my friend Ioan Gruffudd are like chalk and cheese when it comes to clothes. He lives for his clothes and has an amazing wardrobe. If we're going out I'll turn up at his house and say, 'I haven't got anything to wear,' and he'll tut and sigh and then lend me something swanky.</b>
-> <p><i>Matthew Rhys</i></p>
+> <b>I love clothes, but I don't know what to put on myself, let alone others. I have a lot of help getting dressed.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
