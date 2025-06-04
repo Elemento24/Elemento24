@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best of us must sometimes eat our words.</b>
-> <p><i>J. K. Rowling</i></p>
+> <b>We may think there is willpower involved, but more likely... change is due to want power. Wanting the new addiction more than the old one. Wanting the new me in preference to the person I am now.</b>
+> <p><i>George A. Sheehan</i></p>
 
 <br>
