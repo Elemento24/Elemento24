@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist is a dreamer consenting to dream of the actual world.</b>
-> <p><i>George Santayana</i></p>
+> <b>One new feature or fresh take can change everything.</b>
+> <p><i>Neil Young</i></p>
 
 <br>
