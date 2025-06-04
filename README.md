@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tend to stay up late, not because I'm partying but because it's the only time of the day when I'm alone and don't have to be performing.</b>
-> <p><i>Jim Carrey</i></p>
+> <b>Whatever poet, orator or sage may say of it, old age is still old age.</b>
+> <p><i>Sinclair Lewis</i></p>
 
 <br>
