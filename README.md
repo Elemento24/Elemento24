@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Moby Dick - that book is so amazing. I just realized that it starts with two characters meeting in bed that's how my book begins, too, but I hadn't noticed the parallel before, two characters forced to share a bed, reluctantly.</b>
-> <p><i>Michael Chabon</i></p>
+> <b>Me and my friend Ioan Gruffudd are like chalk and cheese when it comes to clothes. He lives for his clothes and has an amazing wardrobe. If we're going out I'll turn up at his house and say, 'I haven't got anything to wear,' and he'll tut and sigh and then lend me something swanky.</b>
+> <p><i>Matthew Rhys</i></p>
 
 <br>
