@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whatever poet, orator or sage may say of it, old age is still old age.</b>
-> <p><i>Sinclair Lewis</i></p>
+> <b>Is art really the priesthood that demands the pure in heart who belong to it wholly?</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
