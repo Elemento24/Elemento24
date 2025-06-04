@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One new feature or fresh take can change everything.</b>
-> <p><i>Neil Young</i></p>
+> <b>The way you continue to be a successful business is you don't wait for the car to go off the cliff. You have to manage yourself. And make sure you do it in the right way so you are not making decisions in crisis.</b>
+> <p><i>Roger Goodell</i></p>
 
 <br>
