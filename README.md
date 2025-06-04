@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Virtue is not left to stand alone. He who practices it will have neighbors.</b>
-> <p><i>Confucius</i></p>
+> <b>I'm only wanted by directors for the image I give off, and it makes me angry. I always wanted to be an actor and not a beauty pageant winner.</b>
+> <p><i>Jude Law</i></p>
 
 <br>
