@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love clothes, but I don't know what to put on myself, let alone others. I have a lot of help getting dressed.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>A lot of the songs start with an image. I was sitting there playing the guitar and I pictured this old, dirty green car, with the window rolled down, in the hot, hot, hot Texas heat, and this beautiful woman I knew when I was a kid sitting behind the wheel, looking out at me.</b>
+> <p><i>Edie Brickell</i></p>
 
 <br>
