@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't beat the beehive for glam punkette attitude.</b>
-> <p><i>Rob Sheffield</i></p>
+> <b>Sadly, we do a much better job of making people feel guilty than we do of delivering them from the guilt we create. We need to confess this and change our ways.</b>
+> <p><i>Tony Campolo</i></p>
 
 <br>
