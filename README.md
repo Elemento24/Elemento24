@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother asked me what I wanted for my birthday, so I said I wanted to read poetry with her.</b>
-> <p><i>Guy Johnson</i></p>
+> <b>You know, if you're Guy Kawasaki and you create a car that gets 500 miles a gallon with zero emissions, people on the Internet would say: 'I could have done that in half an hour, and it's been done before. What's the big deal? I expected something more from him.' Meanwhile, they didn't do it, right? They're still living at home with their mothers.</b>
+> <p><i>Guy Kawasaki</i></p>
 
 <br>
