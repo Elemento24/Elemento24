@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just hit my 75th birthday, I'm feeling great!</b>
-> <p><i>Colin Powell</i></p>
+> <b>I love Rauschenberg. I love that he created a turning point in visual history, that he redefined the idea of beauty, that he combined painting, sculpture, photography, and everyday life with such gall, and that he was interested in, as he put it, 'the ability to conceive failure as progress.'</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
