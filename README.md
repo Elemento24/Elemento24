@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They put chains on me they chained my waist, my legs. Put me in the back of a squad car, and I literally blacked out. I didn't even - there's whole pieces missing.</b>
-> <p><i>Jim Bakker</i></p>
+> <b>My son is now an 'entrepreneur.' That's what you're called when you don't have a job.</b>
+> <p><i>Ted Turner</i></p>
 
 <br>
