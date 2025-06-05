@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
-> <p><i>Euripides</i></p>
+> <b>I nearly died of double bronchial pneumonia at the age of five.</b>
+> <p><i>Roger Moore</i></p>
 
 <br>
