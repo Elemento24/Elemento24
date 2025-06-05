@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I needed most was to love and to be loved, eager to be caught. Happily I wrapped those painful bonds around me and sure enough, I would be lashed with the red-hot pokers or jealousy, by suspicions and fear, by burst of anger and quarrels.</b>
-> <p><i>Saint Augustine</i></p>
+> <b>You can't beat the beehive for glam punkette attitude.</b>
+> <p><i>Rob Sheffield</i></p>
 
 <br>
