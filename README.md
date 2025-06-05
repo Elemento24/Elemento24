@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we're in good hands. There's definitely much more momentum in bringing in good things to help support the show. Everyone's got a good attitude about it and I think that makes all the difference.</b>
-> <p><i>Crystal Chappell</i></p>
+> <b>They put chains on me they chained my waist, my legs. Put me in the back of a squad car, and I literally blacked out. I didn't even - there's whole pieces missing.</b>
+> <p><i>Jim Bakker</i></p>
 
 <br>
