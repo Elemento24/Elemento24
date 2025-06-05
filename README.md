@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way you continue to be a successful business is you don't wait for the car to go off the cliff. You have to manage yourself. And make sure you do it in the right way so you are not making decisions in crisis.</b>
-> <p><i>Roger Goodell</i></p>
+> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
+> <p><i>Euripides</i></p>
 
 <br>
