@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whoever, fleeing marriage and the sorrows that women cause, does not wish to wed comes to a deadly old age.</b>
-> <p><i>Hesiod</i></p>
+> <b>There are many things we do not want about the world. Let us not just mourn them. Let us change them.</b>
+> <p><i>Ferdinand Marcos</i></p>
 
 <br>
