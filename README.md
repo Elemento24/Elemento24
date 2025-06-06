@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I make art, I think about its ability to connect with others, to bring them into the process.</b>
-> <p><i>Jim Hodges</i></p>
+> <b>No real social change has ever been brought about without a revolution... revolution is but thought carried into action.</b>
+> <p><i>Emma Goldman</i></p>
 
 <br>
