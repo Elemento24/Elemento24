@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best weapon of a dictatorship is secrecy, but the best weapon of a democracy should be the weapon of openness.</b>
-> <p><i>Niels Bohr</i></p>
+> <b>People are surprised at how down-to-earth I am. I like to stay home on Friday nights and listen to 'The Art of Happiness' by the Dalai Lama.</b>
+> <p><i>Carmen Electra</i></p>
 
 <br>
