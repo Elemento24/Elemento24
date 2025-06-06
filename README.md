@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No real social change has ever been brought about without a revolution... revolution is but thought carried into action.</b>
-> <p><i>Emma Goldman</i></p>
+> <b>A fool's brain digests philosophy into folly, science into superstition, and art into pedantry. Hence University education.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
