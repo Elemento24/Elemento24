@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, old age is always fifteen years older than I am.</b>
-> <p><i>Bernard Baruch</i></p>
+> <b>Childhood itself is scarcely more lovely than a cheerful, kindly, sunshiny old age.</b>
+> <p><i>Lydia M. Child</i></p>
 
 <br>
