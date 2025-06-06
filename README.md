@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are very few dance companies in the world and you have to be phenomenal. You have to not be injured. You have to have a really strong mind to deal with the dance world. People who can do it are amazing to me. You cannot have a life outside of dance.</b>
-> <p><i>Neve Campbell</i></p>
+> <b>Life is the art of being well deceived and in order that the deception may succeed it must be habitual and uninterrupted.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
