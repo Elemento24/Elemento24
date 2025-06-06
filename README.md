@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Walking is the best possible exercise. Habituate yourself to walk very fast.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>Understand why casinos and racetracks stay in business - the gambler always loses over the long term.</b>
+> <p><i>Marilyn vos Savant</i></p>
 
 <br>
