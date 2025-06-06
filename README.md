@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are many things we do not want about the world. Let us not just mourn them. Let us change them.</b>
-> <p><i>Ferdinand Marcos</i></p>
+> <b>Walking is the best possible exercise. Habituate yourself to walk very fast.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
