@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even if I have to stand alone, I will not be afraid to stand alone. I'm going to fight for you. I'm going to fight for what's right. I'm going to fight to hold people accountable.</b>
-> <p><i>Barbara Boxer</i></p>
+> <b>I think people feel threatened by homosexuality. The problem isn't about gay people, the problem is about the attitude towards gay people. People think that all gays are Hannibal Lecters. But gay people are sons and daughters, politicians and doctors, American heroes and daughters of American heroes.</b>
+> <p><i>Hollis Stacy</i></p>
 
 <br>
