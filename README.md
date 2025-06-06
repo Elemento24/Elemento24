@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Civilization had too many rules for me, so I did my best to rewrite them.</b>
-> <p><i>Bill Cosby</i></p>
+> <b>The best weapon of a dictatorship is secrecy, but the best weapon of a democracy should be the weapon of openness.</b>
+> <p><i>Niels Bohr</i></p>
 
 <br>
