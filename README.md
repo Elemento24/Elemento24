@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is the art of being well deceived and in order that the deception may succeed it must be habitual and uninterrupted.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>Even if I have to stand alone, I will not be afraid to stand alone. I'm going to fight for you. I'm going to fight for what's right. I'm going to fight to hold people accountable.</b>
+> <p><i>Barbara Boxer</i></p>
 
 <br>
