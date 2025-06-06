@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Kids are great. That's one of the best things about our business, all the kids you get to meet. It's a shame they have to grow up to be regular people and come to the games and call you names.</b>
-> <p><i>Charles Barkley</i></p>
+> <b>There's one more thing I want to say. It's a touchy subject. Black beauty. Black sensuality. We live in a culture where the beauty of black people isn't always as celebrated as other types. I'd like to help change that if I can!</b>
+> <p><i>Jody Watley</i></p>
 
 <br>
