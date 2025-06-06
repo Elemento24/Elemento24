@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Childhood itself is scarcely more lovely than a cheerful, kindly, sunshiny old age.</b>
-> <p><i>Lydia M. Child</i></p>
+> <b>There are very few dance companies in the world and you have to be phenomenal. You have to not be injured. You have to have a really strong mind to deal with the dance world. People who can do it are amazing to me. You cannot have a life outside of dance.</b>
+> <p><i>Neve Campbell</i></p>
 
 <br>
