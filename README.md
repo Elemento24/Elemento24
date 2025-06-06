@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are surprised at how down-to-earth I am. I like to stay home on Friday nights and listen to 'The Art of Happiness' by the Dalai Lama.</b>
-> <p><i>Carmen Electra</i></p>
+> <b>To me, old age is always fifteen years older than I am.</b>
+> <p><i>Bernard Baruch</i></p>
 
 <br>
