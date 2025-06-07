@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't live without my beauty products. I love to be in my bathroom with my candles lit, morning, noon and night. I like taking hot baths and hot showers, using my body scrubs and lotions.</b>
-> <p><i>Traci Bingham</i></p>
+> <b>The future belongs to those who believe in the beauty of their dreams.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
