@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shanghai set out to take over from Hong Kong and I think it's done that. It's got the most amazing futuristic skyline which rivals and even betters Tokyo.</b>
-> <p><i>Paul Oakenfold</i></p>
+> <b>I've always been fascinated with the juxtaposition of technology in music, not only in recording, but in the keyboard. It's amazing the way you can apply technology to an art form.</b>
+> <p><i>Geoff Downes</i></p>
 
 <br>
