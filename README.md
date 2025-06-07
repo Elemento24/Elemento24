@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, old age is always fifteen years older than I am.</b>
-> <p><i>Bernard Baruch</i></p>
+> <b>I love a lot of things, and I'm pretty much obsessive about most things I do, whether it be gardening, or architecture, or music. I'd be an obsessive hairdresser.</b>
+> <p><i>Gates McFadden</i></p>
 
 <br>
