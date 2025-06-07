@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The future belongs to those who believe in the beauty of their dreams.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>I longed to arrest all beauty that came before me, and at length the longing has been satisfied.</b>
+> <p><i>Julia Margaret Cameron</i></p>
 
 <br>
