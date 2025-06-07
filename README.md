@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I longed to arrest all beauty that came before me, and at length the longing has been satisfied.</b>
-> <p><i>Julia Margaret Cameron</i></p>
+> <b>Nobody minded what you did in bed or what you said about God, a very civilized attitude in 1948.</b>
+> <p><i>Simon Raven</i></p>
 
 <br>
