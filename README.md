@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Teach your children how to behave with animals. Adopt a pet. Don't go buy one. Please. That's a sin. Let's get these puppy mills out of business.</b>
-> <p><i>Shelley Morrison</i></p>
+> <b>The best plan now is to have as many bosses as possible. I call it boss diversity. If you work for a company and you have one boss and that boss doesn't like you or wants to get rid of you, you're in trouble. But if you work for yourself, you have lots of bosses, who are your customers, and if a few of them decide they don't like you, that's okay.</b>
+> <p><i>Scott Adams</i></p>
 
 <br>
