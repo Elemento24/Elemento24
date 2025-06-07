@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The creed of a true saint is to make the best of life, and to make the most of it.</b>
-> <p><i>Edwin Hubbel Chapin</i></p>
+> <b>I am auditioning again - getting back to theatre would be amazing.</b>
+> <p><i>Harry Melling</i></p>
 
 <br>
