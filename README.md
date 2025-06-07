@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Madden NFL franchise holds a special place in popular culture and the cover is a coveted position for players all over the league. I'm honored to be the first cover athlete chosen by Madden NFL fans and it's a great way to cap off an amazing year for the Saints and the city of New Orleans.</b>
-> <p><i>Drew Brees</i></p>
+> <b>I can't live without my beauty products. I love to be in my bathroom with my candles lit, morning, noon and night. I like taking hot baths and hot showers, using my body scrubs and lotions.</b>
+> <p><i>Traci Bingham</i></p>
 
 <br>
