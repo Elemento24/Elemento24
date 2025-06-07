@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best proof of love is trust.</b>
-> <p><i>Joyce Brothers</i></p>
+> <b>Teach your children how to behave with animals. Adopt a pet. Don't go buy one. Please. That's a sin. Let's get these puppy mills out of business.</b>
+> <p><i>Shelley Morrison</i></p>
 
 <br>
