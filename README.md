@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You need only reflect that one of the best ways to get yourself a reputation as a dangerous citizen these days is to go about repeating the very phrases which our founding fathers used in the struggle for independence.</b>
-> <p><i>Charles A. Beard</i></p>
+> <b>Youth cannot know how age thinks and feels. But old men are guilty if they forget what it was to be young.</b>
+> <p><i>J. K. Rowling</i></p>
 
 <br>
