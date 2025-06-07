@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been fascinated with the juxtaposition of technology in music, not only in recording, but in the keyboard. It's amazing the way you can apply technology to an art form.</b>
-> <p><i>Geoff Downes</i></p>
+> <b>Not since the steam engine has any invention disrupted business models like the Internet. Whole industries including music distribution, yellow-pages directories, landline telephones, and fax machines have been radically reordered by the digital revolution.</b>
+> <p><i>John Sununu</i></p>
 
 <br>
