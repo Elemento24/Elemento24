@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the past few years, we've been doing amazing stuff with desserts. Pastry chefs have been using herbs and spices in their desserts. So vanilla cake doesn't have to be just vanilla, it can have a little thyme. Or you could have a custard with a little lavender in it, which is just amazing.</b>
-> <p><i>Ron Ben-Israel</i></p>
+> <b>I've never had any illusions about being a lead actor in films, because lead actors have to be of a certain kind. Apart from the beauty of looks and figure, which I cannot claim to have, there's just a particular kind of ordinary-Joe quality that a film star needs to have.</b>
+> <p><i>Stephen Fry</i></p>
 
 <br>
