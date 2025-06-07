@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am auditioning again - getting back to theatre would be amazing.</b>
-> <p><i>Harry Melling</i></p>
+> <b>The best proof of love is trust.</b>
+> <p><i>Joyce Brothers</i></p>
 
 <br>
