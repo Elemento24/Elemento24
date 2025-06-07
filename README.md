@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was trying to impress Kate I was trying to cook these amazing fancy dinners and what would happen was I would burn something, something would overspill, something would catch on fire and she would be sitting in the background trying to help, and basically taking control of the whole situation, so I was quite glad she was there at the time.</b>
-> <p><i>Prince William</i></p>
+> <b>In the past few years, we've been doing amazing stuff with desserts. Pastry chefs have been using herbs and spices in their desserts. So vanilla cake doesn't have to be just vanilla, it can have a little thyme. Or you could have a custard with a little lavender in it, which is just amazing.</b>
+> <p><i>Ron Ben-Israel</i></p>
 
 <br>
