@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not since the steam engine has any invention disrupted business models like the Internet. Whole industries including music distribution, yellow-pages directories, landline telephones, and fax machines have been radically reordered by the digital revolution.</b>
-> <p><i>John Sununu</i></p>
+> <b>You need only reflect that one of the best ways to get yourself a reputation as a dangerous citizen these days is to go about repeating the very phrases which our founding fathers used in the struggle for independence.</b>
+> <p><i>Charles A. Beard</i></p>
 
 <br>
