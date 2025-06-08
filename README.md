@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In football you always get judged on your last game. Whoever you are, or how amazing you are, it's the last game that everyone has seen.</b>
-> <p><i>Thierry Henry</i></p>
+> <b>Man does not live by soap alone and hygiene, or even health, is not much good unless you can take a healthy view of it or, better still, feel a healthy indifference to it.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
