@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After working for years in Hollywood where the actors have taken over, it was a real relief to get down there and not only have some children, but also have some actors that had no attitude.</b>
-> <p><i>Phillip Noyce</i></p>
+> <b>And I want to do it the right way, like everybody else, not just a famous figurehead that gets a job because he is a famous basketball player. I want to really learn the business.</b>
+> <p><i>Shaquille O'Neal</i></p>
 
 <br>
