@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best plan now is to have as many bosses as possible. I call it boss diversity. If you work for a company and you have one boss and that boss doesn't like you or wants to get rid of you, you're in trouble. But if you work for yourself, you have lots of bosses, who are your customers, and if a few of them decide they don't like you, that's okay.</b>
-> <p><i>Scott Adams</i></p>
+> <b>You can judge your age by the amount of pain you feel when you come in contact with a new idea.</b>
+> <p><i>Pearl S. Buck</i></p>
 
 <br>
