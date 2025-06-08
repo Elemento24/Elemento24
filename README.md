@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I want to do it the right way, like everybody else, not just a famous figurehead that gets a job because he is a famous basketball player. I want to really learn the business.</b>
-> <p><i>Shaquille O'Neal</i></p>
+> <b>I didn't grow up thinking of movies as film, or art, but as movies, something to do on a Saturday afternoon.</b>
+> <p><i>Sydney Pollack</i></p>
 
 <br>
