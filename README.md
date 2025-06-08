@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mr. Janet Reno? I think Mr. Janet Reno... I think he's one of the best hunting dogs in the world.</b>
-> <p><i>Ted Nugent</i></p>
+> <b>In football you always get judged on your last game. Whoever you are, or how amazing you are, it's the last game that everyone has seen.</b>
+> <p><i>Thierry Henry</i></p>
 
 <br>
