@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Honestly, I'd love to be remembered as one of the best to ever pick up a mic, but if I'm doing my part to lessen some racial tension I feel good about what I'm doing.</b>
-> <p><i>Eminem</i></p>
+> <b>Envy is the art of counting the other fellow's blessings instead of your own.</b>
+> <p><i>Harold Coffin</i></p>
 
 <br>
