@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty for some provides escape, who gain a happiness in eyeing the gorgeous buttocks of the ape or Autumn sunsets exquisitely dying.</b>
-> <p><i>Langston Hughes</i></p>
+> <b>Although my family - parents and sister - all work in the personnel management business, their real passion is performing, amateur operatic societies and so on.</b>
+> <p><i>Michael Sheen</i></p>
 
 <br>
