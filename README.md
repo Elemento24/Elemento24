@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my job, people tell you that all the time: 'This shoot was great. You look amazing.' But you never know what they say when you turn away.</b>
-> <p><i>Heidi Klum</i></p>
+> <b>Change will never happen when people lack the ability and courage to see themselves for who they are.</b>
+> <p><i>Bryant H. McGill</i></p>
 
 <br>
