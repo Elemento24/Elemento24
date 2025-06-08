@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The day I won an Emmy was also the day my father passed away. I received a call from my sister on the way to the ceremony and had to turn my car around and catch the first flight back to Karachi.</b>
-> <p><i>Sharmeen Obaid-Chinoy</i></p>
+> <b>Any revival in which I am involved is liable to change.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
