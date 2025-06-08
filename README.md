@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can judge your age by the amount of pain you feel when you come in contact with a new idea.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>Yes, 85 percent of the art you see isn't any good. But everyone has a different opinion about which 85 percent is bad. That in turn creates fantastically unstable interplay and argument.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
