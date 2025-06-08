@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As I get older I'm more and more comfortable being alone.</b>
-> <p><i>Sienna Miller</i></p>
+> <b>Honestly, I'd love to be remembered as one of the best to ever pick up a mic, but if I'm doing my part to lessen some racial tension I feel good about what I'm doing.</b>
+> <p><i>Eminem</i></p>
 
 <br>
