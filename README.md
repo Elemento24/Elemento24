@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change will never happen when people lack the ability and courage to see themselves for who they are.</b>
-> <p><i>Bryant H. McGill</i></p>
+> <b>Mr. Churchill is proud of Britain's stand alone, after France had fallen and before America entered the War.</b>
+> <p><i>Eamon de Valera</i></p>
 
 <br>
