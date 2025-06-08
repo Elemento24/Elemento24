@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Envy is the art of counting the other fellow's blessings instead of your own.</b>
-> <p><i>Harold Coffin</i></p>
+> <b>Mr. Janet Reno? I think Mr. Janet Reno... I think he's one of the best hunting dogs in the world.</b>
+> <p><i>Ted Nugent</i></p>
 
 <br>
