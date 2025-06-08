@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any revival in which I am involved is liable to change.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>After working for years in Hollywood where the actors have taken over, it was a real relief to get down there and not only have some children, but also have some actors that had no attitude.</b>
+> <p><i>Phillip Noyce</i></p>
 
 <br>
