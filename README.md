@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can love more than one person in your life, but things will be different. There'll be a different dynamic. Needs and desires change.</b>
-> <p><i>Francesca Annis</i></p>
+> <b>The day I won an Emmy was also the day my father passed away. I received a call from my sister on the way to the ceremony and had to turn my car around and catch the first flight back to Karachi.</b>
+> <p><i>Sharmeen Obaid-Chinoy</i></p>
 
 <br>
