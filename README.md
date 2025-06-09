@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps a hundred people assembled one evening, May 15, 1876, at the time when the country was celebrating the hundredth anniversary of its political independence.</b>
-> <p><i>Felix Adler</i></p>
+> <b>You have a career, and you start as a business person. And you work your way, you reach this peak, and you know the time's going to come when you go back down.</b>
+> <p><i>Miranda Lambert</i></p>
 
 <br>
