@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Blind Curve,' the book I'm working on now, sprang from a crazy incident that happened to me last year while on my book tour. I was pulled out of my car for a minor traffic violation - an incident that escalated into my being thrown into cuffs and told I was going to jail. Except in my story, the hero doesn't get off as easily as I did.</b>
-> <p><i>Andrew Gross</i></p>
+> <b>Negroes - Sweet and docile, Meek, humble, and kind: Beware the day - They change their mind.</b>
+> <p><i>Langston Hughes</i></p>
 
 <br>
