@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty, to me is about being comfortable in your own skin.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>Perhaps a hundred people assembled one evening, May 15, 1876, at the time when the country was celebrating the hundredth anniversary of its political independence.</b>
+> <p><i>Felix Adler</i></p>
 
 <br>
