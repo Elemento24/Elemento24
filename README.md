@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love clothes, but I don't know what to put on myself, let alone others. I have a lot of help getting dressed.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>Youth is a blunder Manhood a struggle, Old Age a regret.</b>
+> <p><i>Benjamin Disraeli</i></p>
 
 <br>
