@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each moment of a happy lover's hour is worth an age of dull and common life.</b>
-> <p><i>Aphra Behn</i></p>
+> <b>It is far better to be alone, than to be in bad company.</b>
+> <p><i>George Washington</i></p>
 
 <br>
