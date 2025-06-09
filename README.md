@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And from the first time I picked up a basketball at age eight - I had a lot of difficulty when I first picked up a basketball, because I was a scrub - there were things that I liked about it.</b>
-> <p><i>Julius Erving</i></p>
+> <b>Sometimes you could be in an unhappy relationship you are very much in love with someone, but it's making you unhappy and you think things can change and you can work it out.</b>
+> <p><i>Vanessa Paradis</i></p>
 
 <br>
