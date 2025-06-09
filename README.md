@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In fact, in many ways my mother was quite hippy-dippy, serving macrobiotic food and reading 'Zen and the Art of Motorcycle Maintenance.'</b>
-> <p><i>Kristin Scott Thomas</i></p>
+> <b>We have an amazing fan base all around the world that love 40FT.</b>
+> <p><i>Steve Brown</i></p>
 
 <br>
