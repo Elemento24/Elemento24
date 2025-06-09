@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We do not look in our great cities for our best morality.</b>
-> <p><i>Jane Austen</i></p>
+> <b>Admiration of the proletariat, like that of dams, power stations, and aeroplanes, is part of the ideology of the machine age.</b>
+> <p><i>Bertrand Russell</i></p>
 
 <br>
