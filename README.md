@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Negroes - Sweet and docile, Meek, humble, and kind: Beware the day - They change their mind.</b>
-> <p><i>Langston Hughes</i></p>
+> <b>In fact, in many ways my mother was quite hippy-dippy, serving macrobiotic food and reading 'Zen and the Art of Motorcycle Maintenance.'</b>
+> <p><i>Kristin Scott Thomas</i></p>
 
 <br>
