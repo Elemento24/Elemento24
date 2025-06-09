@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like charity, I believe glamour should begin at home.</b>
-> <p><i>Loretta Young</i></p>
+> <b>And from the first time I picked up a basketball at age eight - I had a lot of difficulty when I first picked up a basketball, because I was a scrub - there were things that I liked about it.</b>
+> <p><i>Julius Erving</i></p>
 
 <br>
