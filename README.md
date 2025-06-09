@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that parents need to make nutrition education a priority in their home environment. It's crucial for good health and longevity to instill in your children sound eating habits from an early age.</b>
-> <p><i>Cat Cora</i></p>
+> <b>I love clothes, but I don't know what to put on myself, let alone others. I have a lot of help getting dressed.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
