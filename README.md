@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Admiration of the proletariat, like that of dams, power stations, and aeroplanes, is part of the ideology of the machine age.</b>
-> <p><i>Bertrand Russell</i></p>
+> <b>Each moment of a happy lover's hour is worth an age of dull and common life.</b>
+> <p><i>Aphra Behn</i></p>
 
 <br>
