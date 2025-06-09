@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As we look forward to freedom, the shining city on the hill and the best days of America lying ahead, it is the men and women in uniform who protect, defend and make us proud to whom we should look and give thanks every night.</b>
-> <p><i>Robin Hayes</i></p>
+> <b>Remember, each one of us has the power to change the world. Just start thinking peace, and the message will spread quicker than you think.</b>
+> <p><i>Yoko Ono</i></p>
 
 <br>
