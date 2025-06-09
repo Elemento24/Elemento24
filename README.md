@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth is a blunder Manhood a struggle, Old Age a regret.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>And I believe that the best buy in public health today must be a combination of regular physical exercise and a healthy diet.</b>
+> <p><i>Julie Bishop</i></p>
 
 <br>
