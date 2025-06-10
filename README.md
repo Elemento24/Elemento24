@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be content with what you are, and wish not change nor dread your last day, nor long for it.</b>
-> <p><i>Marcus Aurelius</i></p>
+> <b>Blessed are they who have the gift of making friends, for it is one of God's best gifts. It involves many things, but above all, the power of going out of one's self, and appreciating whatever is noble and loving in another.</b>
+> <p><i>Thomas Hughes</i></p>
 
 <br>
