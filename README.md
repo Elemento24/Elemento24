@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My friends, love is better than anger. Hope is better than fear. Optimism is better than despair. So let us be loving, hopeful and optimistic. And we'll change the world.</b>
-> <p><i>Jack Layton</i></p>
+> <b>A lot of directors idealize their leading ladies or turn them into these objects of sexuality and beauty.</b>
+> <p><i>Diane Kruger</i></p>
 
 <br>
