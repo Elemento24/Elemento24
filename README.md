@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems that when you get to a certain age you almost give yourself permission to misbehave and say what you think. People allow it, with very old people.</b>
-> <p><i>Julie Walters</i></p>
+> <b>My friends, love is better than anger. Hope is better than fear. Optimism is better than despair. So let us be loving, hopeful and optimistic. And we'll change the world.</b>
+> <p><i>Jack Layton</i></p>
 
 <br>
