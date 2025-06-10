@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Blessed are they who have the gift of making friends, for it is one of God's best gifts. It involves many things, but above all, the power of going out of one's self, and appreciating whatever is noble and loving in another.</b>
-> <p><i>Thomas Hughes</i></p>
+> <b>Art, like morality, consists in drawing the line somewhere.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
