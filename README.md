@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes you could be in an unhappy relationship you are very much in love with someone, but it's making you unhappy and you think things can change and you can work it out.</b>
-> <p><i>Vanessa Paradis</i></p>
+> <b>The idea of avant-garde art is a very suspicious thing to me, the idea that poetry is new and it keeps being new the way Chevrolets every year are new.</b>
+> <p><i>Robert Morgan</i></p>
 
 <br>
