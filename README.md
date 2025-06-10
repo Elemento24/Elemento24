@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ours is an excessively conscious age. We know so much, we feel so little.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>Surely being a Professional Beauty - let alone an ageing one - is one of the most insecure and doomed careers imaginable.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
