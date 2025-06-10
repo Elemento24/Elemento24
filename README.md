@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have to struggle against the conservatives from all sides, not only the right-wingers, but also the left-wing conservatives who don't want to change anything.</b>
-> <p><i>Jacques Delors</i></p>
+> <b>I feel the 21st century is another new age. Not only can we collaborate again with nature, but we have to. It's an emergency.</b>
+> <p><i>Bjork</i></p>
 
 <br>
