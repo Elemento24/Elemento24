@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For 'Around the World in 80 Plates' we got to travel all over, having what was like a cross between a culinary competition and races. And in each country we had a chef Ambassador. We went to London, Barcelona, Bologna, Hong Kong, Thailand, Morocco... It was amazing.</b>
-> <p><i>Curtis Stone</i></p>
+> <b>I'm definitely the most tech-savvy in my family. My wife wouldn't have a clue, as far as getting the computer working. All of my kids, it's amazing. Like everybody's kids, they're more savvy than I am, probably.</b>
+> <p><i>Chris O'Donnell</i></p>
 
 <br>
