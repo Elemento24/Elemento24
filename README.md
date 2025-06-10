@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of directors idealize their leading ladies or turn them into these objects of sexuality and beauty.</b>
-> <p><i>Diane Kruger</i></p>
+> <b>Acquire the habit of speaking to God as if you were alone with Him, familiarly and with confidence and love, as to the dearest and most loving of friends.</b>
+> <p><i>Alphonsus Liguori</i></p>
 
 <br>
