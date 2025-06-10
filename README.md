@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art, like morality, consists in drawing the line somewhere.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>A great attitude does much more than turn on the lights in our worlds it seems to magically connect us to all sorts of serendipitous opportunities that were somehow absent before the change.</b>
+> <p><i>Earl Nightingale</i></p>
 
 <br>
