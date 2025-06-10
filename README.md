@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel the 21st century is another new age. Not only can we collaborate again with nature, but we have to. It's an emergency.</b>
-> <p><i>Bjork</i></p>
+> <b>Good business leaders create a vision, articulate the vision, passionately own the vision, and relentlessly drive it to completion.</b>
+> <p><i>Jack Welch</i></p>
 
 <br>
