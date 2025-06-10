@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am just absolutely convinced that the best formula for giving us peace and preserving the American way of life is freedom, limited government, and minding our own business overseas.</b>
-> <p><i>Ron Paul</i></p>
+> <b>So the first thing that I thought about was, 'How is this car going to handle?' But then after I'd been driving with it and practicing with it and I accomplished that, then I just kind of sat back.</b>
+> <p><i>Sean William Scott</i></p>
 
 <br>
