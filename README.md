@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Acquire the habit of speaking to God as if you were alone with Him, familiarly and with confidence and love, as to the dearest and most loving of friends.</b>
-> <p><i>Alphonsus Liguori</i></p>
+> <b>We have to struggle against the conservatives from all sides, not only the right-wingers, but also the left-wing conservatives who don't want to change anything.</b>
+> <p><i>Jacques Delors</i></p>
 
 <br>
