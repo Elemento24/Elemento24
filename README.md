@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So the first thing that I thought about was, 'How is this car going to handle?' But then after I'd been driving with it and practicing with it and I accomplished that, then I just kind of sat back.</b>
-> <p><i>Sean William Scott</i></p>
+> <b>For 'Around the World in 80 Plates' we got to travel all over, having what was like a cross between a culinary competition and races. And in each country we had a chef Ambassador. We went to London, Barcelona, Bologna, Hong Kong, Thailand, Morocco... It was amazing.</b>
+> <p><i>Curtis Stone</i></p>
 
 <br>
