@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A friendship founded on business is better than a business founded on friendship.</b>
-> <p><i>John D. Rockefeller</i></p>
+> <b>I believed my story would be helpful to young women my daughter's age, who are still in the process of forming themselves as women, and in need of encouragement to remain true to themselves.</b>
+> <p><i>Joyce Maynard</i></p>
 
 <br>
