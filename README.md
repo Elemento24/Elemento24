@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems that when you have cancer you are a brave battler against the disease, but when you have Alzheimer's you are an old fart. That's how people see you. It makes you feel quite alone.</b>
-> <p><i>Terry Pratchett</i></p>
+> <b>My therapist says I still haven't got in touch with my anger. Maybe one day I'm going to explode. But I'm still really happy. I know it looks like a strange and painful upbringing - all those experiences led me to the paths that I'm on now.</b>
+> <p><i>Drew Barrymore</i></p>
 
 <br>
