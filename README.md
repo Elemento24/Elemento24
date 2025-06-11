@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is like those ruins which smash themselves on what they fall.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>Inside myself is a place where I live all alone and that is where I renew my springs that never dry up.</b>
+> <p><i>Pearl S. Buck</i></p>
 
 <br>
