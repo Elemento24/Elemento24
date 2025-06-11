@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is the worst of woes that wait on age? What stamps the wrinkle deeper on the brow? To view each loved one blotted from life's page, And be alone on earth, as I am now.</b>
-> <p><i>Lord Byron</i></p>
+> <b>What I find most upsetting about this new all-consuming beauty culture is that the obsession with good looks, and how you can supposedly attain them, is almost entirely female-driven.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
