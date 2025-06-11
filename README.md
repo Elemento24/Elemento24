@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But every great scripture, whether Hebrew, Indian, Persian, or Chinese, apart from its religious value will be found to have some rare and special beauty of its own and in this respect the original Bible stands very high as a monument of sublime poetry and of artistic prose.</b>
-> <p><i>Lafcadio Hearn</i></p>
+> <b>I film quite a bit of footage, then edit. Changes before your eyes, things you can do and things you can't. My attitude is always 'let it keep rolling.'</b>
+> <p><i>Terrence Malick</i></p>
 
 <br>
