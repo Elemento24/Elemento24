@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Despite the demands of this job, one of the things my wife and I try to do is to spend time together alone. And one of the things we really enjoy doing together is seeing a good movie.</b>
-> <p><i>Warren Christopher</i></p>
+> <b>I'm definitely the most tech-savvy in my family. My wife wouldn't have a clue, as far as getting the computer working. All of my kids, it's amazing. Like everybody's kids, they're more savvy than I am, probably.</b>
+> <p><i>Chris O'Donnell</i></p>
 
 <br>
