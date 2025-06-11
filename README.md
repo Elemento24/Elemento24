@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My age and health will never allow me to realize the dream of art I've been pursuing all my life.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>I don't want to rap about my car. How generic is that? Be creative.</b>
+> <p><i>Andy Milonakis</i></p>
 
 <br>
