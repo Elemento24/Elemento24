@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I find most upsetting about this new all-consuming beauty culture is that the obsession with good looks, and how you can supposedly attain them, is almost entirely female-driven.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>I will never be an old man. To me, old age is always 15 years older than I am.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
