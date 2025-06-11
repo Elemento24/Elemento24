@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of what we call management consists of making it difficult for people to get their work done.</b>
-> <p><i>Peter Drucker</i></p>
+> <b>My professional life has been a constant record of disillusion, and many things that seem wonderful to most men are the every-day commonplaces of my business.</b>
+> <p><i>Harry Houdini</i></p>
 
 <br>
