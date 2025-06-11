@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good business leaders create a vision, articulate the vision, passionately own the vision, and relentlessly drive it to completion.</b>
-> <p><i>Jack Welch</i></p>
+> <b>Let us permit nature to have her way. She understands her business better than we do.</b>
+> <p><i>Michel de Montaigne</i></p>
 
 <br>
