@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let us permit nature to have her way. She understands her business better than we do.</b>
-> <p><i>Michel de Montaigne</i></p>
+> <b>Most of what we call management consists of making it difficult for people to get their work done.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
