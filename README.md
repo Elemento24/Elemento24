@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm definitely the most tech-savvy in my family. My wife wouldn't have a clue, as far as getting the computer working. All of my kids, it's amazing. Like everybody's kids, they're more savvy than I am, probably.</b>
-> <p><i>Chris O'Donnell</i></p>
+> <b>Anger is like those ruins which smash themselves on what they fall.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
