@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My professional life has been a constant record of disillusion, and many things that seem wonderful to most men are the every-day commonplaces of my business.</b>
-> <p><i>Harry Houdini</i></p>
+> <b>And currently, there are four to five new works in the pipeline for upcoming celebrations such as the Sydney 2000 Olympics, Australian Federation, my 50th Birthday, and Sydney Dance Company's 25th Anniversary.</b>
+> <p><i>Graeme Murphy</i></p>
 
 <br>
