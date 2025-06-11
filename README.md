@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sayles could pull a performance out of a dog. I'm serious. He was just amazing. The world could fall apart and he remained on neutral.</b>
-> <p><i>Elizabeth Pena</i></p>
+> <b>I like to read books and be alone I'm not social butterfly person.</b>
+> <p><i>Hope Solo</i></p>
 
 <br>
