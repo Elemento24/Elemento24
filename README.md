@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grant that I may not pray alone with the mouth help me that I may pray from the depths of my heart.</b>
-> <p><i>Martin Luther</i></p>
+> <b>Democracy functions best when we have an active citizenry.</b>
+> <p><i>Rick Perry</i></p>
 
 <br>
