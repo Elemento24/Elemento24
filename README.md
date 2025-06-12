@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the true test of a pop song, for me, and I've talked to a lot of other writers about this, is you take your demo, you pop it in your car and you drive down Sunset Blvd. to Santa Monica, and that's the Hollywood car test.</b>
-> <p><i>Ryan Tedder</i></p>
+> <b>The art of the parenthesis is one of the greatest secrets of eloquence in Society.</b>
+> <p><i>Nicolas Chamfort</i></p>
 
 <br>
