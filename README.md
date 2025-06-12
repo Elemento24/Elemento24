@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth cannot know how age thinks and feels. But old men are guilty if they forget what it was to be young.</b>
-> <p><i>J. K. Rowling</i></p>
+> <b>Strength of character may be learned at work, but beauty of character is learned at home.</b>
+> <p><i>Henry Drummond</i></p>
 
 <br>
