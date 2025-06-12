@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Democracy functions best when we have an active citizenry.</b>
-> <p><i>Rick Perry</i></p>
+> <b>I always feel like the art's there and I just see it, so it's not really a lot of work.</b>
+> <p><i>Damien Hirst</i></p>
 
 <br>
