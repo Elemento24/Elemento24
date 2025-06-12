@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always loved aesthetics. Not particularly fashion, but an idea of beauty.</b>
-> <p><i>Miuccia Prada</i></p>
+> <b>Find joy in everything you choose to do. Every job, relationship, home... it's your responsibility to love it, or change it.</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
