@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Strength of character may be learned at work, but beauty of character is learned at home.</b>
-> <p><i>Henry Drummond</i></p>
+> <b>I lead no party I follow no leader. I have given the best part of my life to careful study of Islam, its law and polity, its culture, its history and its literature.</b>
+> <p><i>Muhammad Iqbal</i></p>
 
 <br>
