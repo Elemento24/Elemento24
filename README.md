@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have the power to make this the best generation of mankind in the history of the world or to make it the last.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>Morality is simply the attitude we adopt towards people whom we personally dislike.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
