@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The amazing fact is that America is founded on a document. It's a work in progress. It can be tested by each generation.</b>
-> <p><i>Christopher Hitchens</i></p>
+> <b>We have the power to make this the best generation of mankind in the history of the world or to make it the last.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
