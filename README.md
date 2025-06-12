@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought I was going to be killed. The casualties were so heavy, it was just a given. I learned to take each day, each mission, as it came. That's an attitude I've carried into my professional life. I take each case, each job, as it comes.</b>
-> <p><i>Elliot Richardson</i></p>
+> <b>Grant that I may not pray alone with the mouth help me that I may pray from the depths of my heart.</b>
+> <p><i>Martin Luther</i></p>
 
 <br>
