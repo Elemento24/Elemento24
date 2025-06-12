@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Morality is simply the attitude we adopt towards people whom we personally dislike.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>I always loved aesthetics. Not particularly fashion, but an idea of beauty.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
