@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We cannot make events. Our business is wisely to improve them.</b>
-> <p><i>Samuel Adams</i></p>
+> <b>I know it sounds a bit corny, but I do think that beauty and sexiness come from within.</b>
+> <p><i>Rachel Stevens</i></p>
 
 <br>
