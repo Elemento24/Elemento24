@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A great age of literature is perhaps always a great age of translations.</b>
-> <p><i>Ezra Pound</i></p>
+> <b>If anything I try to write something that would be more difficult to film. I tend to see film as competition and would like instead to do what books do best.</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
