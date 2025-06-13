@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tried to bake a cake for my mother's birthday - it took me four hours. It was terrible, and I cried for three days.</b>
-> <p><i>Rachael Ray</i></p>
+> <b>Willingness to change is a strength, even if it means plunging part of the company into total confusion for a while.</b>
+> <p><i>Jack Welch</i></p>
 
 <br>
