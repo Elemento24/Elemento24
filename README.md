@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Praise or blame has but a momentary effect on the man whose love of beauty in the abstract makes him a severe critic on his own works.</b>
-> <p><i>John Keats</i></p>
+> <b>Sometimes I feel like I'm not only the engine but the caboose. I have to be in the front car and pull forward, and at the same time run around behind and push everybody along with me.</b>
+> <p><i>Sandra Lee</i></p>
 
 <br>
