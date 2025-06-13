@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of the trouble in this world has been caused by folks who can't mind their own business, because they have no business of their own to mind, any more than a smallpox virus has.</b>
-> <p><i>William S. Burroughs</i></p>
+> <b>Here's the thing that I think about life - if you manage to get into a space where you don't need that much, where the overhead of your life is not that great and you're pretty happy and relaxed without that much stuff, you are really liberated because you never have to say yes to something because you want another refrigerator or car!</b>
+> <p><i>Brit Marling</i></p>
 
 <br>
