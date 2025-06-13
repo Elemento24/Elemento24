@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diplomacy is the art of saying 'Nice doggie' until you can find a rock.</b>
-> <p><i>Will Rogers</i></p>
+> <b>Art requires neither complaisance nor politeness nothing but faith, faith and freedom.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
