@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be.</b>
-> <p><i>Alan Watts</i></p>
+> <b>Success cannot come from standstill men. Methods change and men must change with them.</b>
+> <p><i>James Cash Penney</i></p>
 
 <br>
