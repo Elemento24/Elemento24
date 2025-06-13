@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There must be a day or two in a man's life when he is the precise age for something important.</b>
-> <p><i>Franklin P. Adams</i></p>
+> <b>I may be kindly, I am ordinarily gentle, but in my line of business I am obliged to will terribly what I will at all.</b>
+> <p><i>Catherine the Great</i></p>
 
 <br>
