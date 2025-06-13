@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps I know best why it is man alone who laughs he alone suffers so deeply that he had to invent laughter.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>Music is God's gift to man, the only art of Heaven given to earth, the only art of earth we take to Heaven.</b>
+> <p><i>Walter Savage Landor</i></p>
 
 <br>
