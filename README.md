@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is God's gift to man, the only art of Heaven given to earth, the only art of earth we take to Heaven.</b>
-> <p><i>Walter Savage Landor</i></p>
+> <b>There must be a day or two in a man's life when he is the precise age for something important.</b>
+> <p><i>Franklin P. Adams</i></p>
 
 <br>
