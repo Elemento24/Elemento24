@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who has done his best for his own time has lived for all times.</b>
-> <p><i>Friedrich Schiller</i></p>
+> <b>A great age of literature is perhaps always a great age of translations.</b>
+> <p><i>Ezra Pound</i></p>
 
 <br>
