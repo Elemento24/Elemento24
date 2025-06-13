@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I may be kindly, I am ordinarily gentle, but in my line of business I am obliged to will terribly what I will at all.</b>
-> <p><i>Catherine the Great</i></p>
+> <b>But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be.</b>
+> <p><i>Alan Watts</i></p>
 
 <br>
