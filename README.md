@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I drive a car that has pleather seats.</b>
-> <p><i>Kathy Freston</i></p>
+> <b>I learned you have to fight for yourself in the picture business.</b>
+> <p><i>Loretta Young</i></p>
 
 <br>
