@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wanted to do two things when I was growing up, about your age. I wanted to play in the NBA, and I wanted to be a businessman after my basketball career was over, and that is what I am doing now.</b>
-> <p><i>Magic Johnson</i></p>
+> <b>Courtesy is a silver lining around the dark clouds of civilization it is the best part of refinement and in many ways, an art of heroic beauty in the vast gallery of man's cruelty and baseness.</b>
+> <p><i>Bryant H. McGill</i></p>
 
 <br>
