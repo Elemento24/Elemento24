@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first car was a 1976 Toyota Corolla Liftback in red, like the one in 'The Blues Brothers.' I painted a Union Jack on the roof. I was absolutely in love with it until I destroyed it, which broke my heart!</b>
-> <p><i>Richard Hammond</i></p>
+> <b>Secure our borders first. Let us know and let us make sure the American people know that we're taking care of the important business of dealing with the illegal immigration into this country. You cannot begin to address the concerns of the people who are already here unless and until you have made certain that no more are coming in behind them.</b>
+> <p><i>Michael Steele</i></p>
 
 <br>
