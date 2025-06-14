@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even if people do wrong, we're social animals, so what can we do about stopping them doing the same things in future? Saying people are 'bad' or 'evil' is just an unwillingness to engage an unwillingness to try to empathise. That sanctimonious attitude doesn't help anyone.</b>
-> <p><i>Denise Mina</i></p>
+> <b>I wanted to do two things when I was growing up, about your age. I wanted to play in the NBA, and I wanted to be a businessman after my basketball career was over, and that is what I am doing now.</b>
+> <p><i>Magic Johnson</i></p>
 
 <br>
