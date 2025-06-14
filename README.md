@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a man's character is to be abused there's nobody like a relative to do the business.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>Even if people do wrong, we're social animals, so what can we do about stopping them doing the same things in future? Saying people are 'bad' or 'evil' is just an unwillingness to engage an unwillingness to try to empathise. That sanctimonious attitude doesn't help anyone.</b>
+> <p><i>Denise Mina</i></p>
 
 <br>
