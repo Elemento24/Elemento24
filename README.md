@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you have that window of opportunity called a crisis, move as quickly as you can, get as much done as you can. There's a momentum for change that's very compelling.</b>
-> <p><i>Anne M. Mulcahy</i></p>
+> <b>Children under five are the poorest age group in America, and one in four infants, toddlers and preschoolers are poor during the years of greatest brain development.</b>
+> <p><i>Marian Wright Edelman</i></p>
 
 <br>
