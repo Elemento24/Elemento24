@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Normal is getting dressed in clothes that you buy for work, driving through traffic in a car that you are still paying for, in order to get to a job that you need so you can pay for the clothes, car and the house that you leave empty all day in order to afford to live in it.</b>
-> <p><i>Ellen Goodman</i></p>
+> <b>If you're lucky enough to have a pretty girl love you and share herself and sleep with you, make that your secret. The best way to spoil love is by talking to too many people about it.</b>
+> <p><i>Rip Torn</i></p>
 
 <br>
