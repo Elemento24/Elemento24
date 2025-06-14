@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Heat cannot be separated from fire, or beauty from The Eternal.</b>
-> <p><i>Dante Alighieri</i></p>
+> <b>I may climb perhaps to no great heights, but I will climb alone.</b>
+> <p><i>Cyrano de Bergerac</i></p>
 
 <br>
