@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're lucky enough to have a pretty girl love you and share herself and sleep with you, make that your secret. The best way to spoil love is by talking to too many people about it.</b>
-> <p><i>Rip Torn</i></p>
+> <b>It is tragic that people who are incarcerated are unable to vote. They are probably the most important voices to listen to because they can tell us what we need to change.</b>
+> <p><i>Margaret Cho</i></p>
 
 <br>
