@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of writing is the art of discovering what you believe.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>It's amazing the hours you pull when you're the lead of a show.</b>
+> <p><i>Jamie Luner</i></p>
 
 <br>
