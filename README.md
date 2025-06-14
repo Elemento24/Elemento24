@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is the recipe for successful achievement? To my mind there are just four essential ingredients: Choose a career you love, give it the best there is in you, seize your opportunities, and be a member of the team.</b>
-> <p><i>Benjamin Franklin Fairless</i></p>
+> <b>The art of writing is the art of discovering what you believe.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
