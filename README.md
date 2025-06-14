@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Secure our borders first. Let us know and let us make sure the American people know that we're taking care of the important business of dealing with the illegal immigration into this country. You cannot begin to address the concerns of the people who are already here unless and until you have made certain that no more are coming in behind them.</b>
-> <p><i>Michael Steele</i></p>
+> <b>Every few seconds it changes - up an eighth, down an eighth - it's like playing a slot machine. I lose $20 million, I gain $20 million.</b>
+> <p><i>Ted Turner</i></p>
 
 <br>
