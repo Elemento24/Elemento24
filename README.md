@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is tragic that people who are incarcerated are unable to vote. They are probably the most important voices to listen to because they can tell us what we need to change.</b>
-> <p><i>Margaret Cho</i></p>
+> <b>If a man's character is to be abused there's nobody like a relative to do the business.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
