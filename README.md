@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My son is now an 'entrepreneur.' That's what you're called when you don't have a job.</b>
-> <p><i>Ted Turner</i></p>
+> <b>One of the best parts of growing older? You can flirt all you like since you've become harmless.</b>
+> <p><i>Liz Smith</i></p>
 
 <br>
