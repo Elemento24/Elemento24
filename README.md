@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wives are young men's mistresses, companions for middle age, and old men's nurses.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>I was already on pole, then by half a second and then one second and I just kept going. Suddenly I was nearly two seconds faster than anybody else, including my team mate with the same car.</b>
+> <p><i>Ayrton Senna</i></p>
 
 <br>
