@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man is born alone and dies alone and he experiences the good and bad consequences of his karma alone and he goes alone to hell or the Supreme abode.</b>
-> <p><i>Chanakya</i></p>
+> <b>I've managed to keep a clear head and remain sane in this business because I remain a kid off-camera.</b>
+> <p><i>Leonardo DiCaprio</i></p>
 
 <br>
