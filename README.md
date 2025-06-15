@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look at the sky. We are not alone. The whole universe is friendly to us and conspires only to give the best to those who dream and work.</b>
-> <p><i>Abdul Kalam</i></p>
+> <b>Tommie Aaron taught me how to have a good attitude, to be easy going and not get uptight.</b>
+> <p><i>Dale Murphy</i></p>
 
 <br>
