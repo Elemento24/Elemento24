@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Tommie Aaron taught me how to have a good attitude, to be easy going and not get uptight.</b>
-> <p><i>Dale Murphy</i></p>
+> <b>I realized the other day that I've lived in New York longer than I've lived anywhere else. It's amazing: I am a New Yorker. It's strange I never thought I would be.</b>
+> <p><i>David Bowie</i></p>
 
 <br>
