@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age imprints more wrinkles in the mind than it does on the face.</b>
-> <p><i>Michel de Montaigne</i></p>
+> <b>The characteristic political attitude of today is not one of positive belief, but of despair.</b>
+> <p><i>Herbert Read</i></p>
 
 <br>
