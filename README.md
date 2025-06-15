@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Make the best use of what is in your power, and take the rest as it happens.</b>
-> <p><i>Epictetus</i></p>
+> <b>I lived on the top of one hill and the school was at the top of another hill. Nobody ever went to school by car - we didn't have any cars during the war. So that to and from school was itself a training.</b>
+> <p><i>Roger Bannister</i></p>
 
 <br>
