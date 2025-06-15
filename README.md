@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is one other business where the customer is always wrong and that's the media.</b>
-> <p><i>Rush Limbaugh</i></p>
+> <b>My first feeling about the paper and the attitude is that it is absurd.</b>
+> <p><i>Arthur Holly Compton</i></p>
 
 <br>
