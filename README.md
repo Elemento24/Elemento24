@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Happiness must be cultivated. It is like character. It is not a thing to be safely let alone for a moment, or it will run to weeds.</b>
-> <p><i>Elizabeth Stuart Phelps</i></p>
+> <b>Look at the sky. We are not alone. The whole universe is friendly to us and conspires only to give the best to those who dream and work.</b>
+> <p><i>Abdul Kalam</i></p>
 
 <br>
