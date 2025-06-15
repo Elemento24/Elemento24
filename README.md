@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like the fact that in ancient Chinese art the great painters always included a deliberate flaw in their work: human creation is never perfect.</b>
-> <p><i>Madeleine L'Engle</i></p>
+> <b>Age imprints more wrinkles in the mind than it does on the face.</b>
+> <p><i>Michel de Montaigne</i></p>
 
 <br>
