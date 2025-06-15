@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The characteristic political attitude of today is not one of positive belief, but of despair.</b>
-> <p><i>Herbert Read</i></p>
+> <b>Wives are young men's mistresses, companions for middle age, and old men's nurses.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
