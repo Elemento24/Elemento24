@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For I must tell you that we artists cannot tread the path of Beauty without Eros keeping company with us and appointing himself as our guide.</b>
-> <p><i>Thomas Mann</i></p>
+> <b>Happiness must be cultivated. It is like character. It is not a thing to be safely let alone for a moment, or it will run to weeds.</b>
+> <p><i>Elizabeth Stuart Phelps</i></p>
 
 <br>
