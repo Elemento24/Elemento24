@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I walk into a kids' store, and it's amazing, the types of instruments - little squeaky things, rattling things, spinning tops.</b>
-> <p><i>Evelyn Glennie</i></p>
+> <b>A man is born alone and dies alone and he experiences the good and bad consequences of his karma alone and he goes alone to hell or the Supreme abode.</b>
+> <p><i>Chanakya</i></p>
 
 <br>
