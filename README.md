@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of 'spacing' children many years apart lies in the fact that parents have time to learn the mistakes that were made with the older ones - which permits them to make exactly the opposite mistakes with the younger ones.</b>
-> <p><i>Sydney J. Harris</i></p>
+> <b>In writing and politicking, it's best not to think about it, just do it.</b>
+> <p><i>Gore Vidal</i></p>
 
 <br>
