@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I lived on the top of one hill and the school was at the top of another hill. Nobody ever went to school by car - we didn't have any cars during the war. So that to and from school was itself a training.</b>
-> <p><i>Roger Bannister</i></p>
+> <b>I like the fact that in ancient Chinese art the great painters always included a deliberate flaw in their work: human creation is never perfect.</b>
+> <p><i>Madeleine L'Engle</i></p>
 
 <br>
