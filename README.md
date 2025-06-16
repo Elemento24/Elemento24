@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children are amazing, and while I go to places like Princeton and Harvard and Yale, and of course I teach at Columbia, NYU, and that's nice and I love students, but the most fun of all are the real little ones, the young ones.</b>
-> <p><i>David Dinkins</i></p>
+> <b>I tried for a while to be an agricultural worker and was hopelessly bored. To me it was meaningless. I would stand around in heaps of manure and sings about the beauty of the work I wasn't doing.</b>
+> <p><i>Theodore Bikel</i></p>
 
 <br>
