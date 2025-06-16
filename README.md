@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tried for a while to be an agricultural worker and was hopelessly bored. To me it was meaningless. I would stand around in heaps of manure and sings about the beauty of the work I wasn't doing.</b>
-> <p><i>Theodore Bikel</i></p>
+> <b>Vampires have always held a very seductive kind of lore and have always been some variety of attractive, whether it's attractiveness that's born of just the physical attributes that they have - this kind of ethereal beauty or translucent pallor - or whether it is more to do with the way they carry themselves.</b>
+> <p><i>Colin Farrell</i></p>
 
 <br>
