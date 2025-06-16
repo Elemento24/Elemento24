@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Insurgents have capitalized on popular resentment and anger towards the United States and the Iraqi government to build their own political, financial and military support, and the faith of Iraqi citizens in their new government has been severely undermined.</b>
-> <p><i>Tom Lantos</i></p>
+> <b>Writing is a solitary occupation. Family, friends, and society are the natural enemies of the writer. He must be alone, uninterrupted, and slightly savage if he is to sustain and complete an undertaking.</b>
+> <p><i>Jessamyn West</i></p>
 
 <br>
