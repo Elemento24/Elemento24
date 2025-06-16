@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like it or not, the world evolves, priorities change and so do you.</b>
-> <p><i>Marilu Henner</i></p>
+> <b>Children are amazing, and while I go to places like Princeton and Harvard and Yale, and of course I teach at Columbia, NYU, and that's nice and I love students, but the most fun of all are the real little ones, the young ones.</b>
+> <p><i>David Dinkins</i></p>
 
 <br>
