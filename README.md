@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As winter strips the leaves from around us, so that we may see the distant regions they formerly concealed, so old age takes away our enjoyments only to enlarge the prospect of the coming eternity.</b>
-> <p><i>Jean Paul</i></p>
+> <b>People must insist on the right to say no, to be alone, to stand out from the herd. Creative artists can say all this in their own way and in their own field, by hard, rigorous work.</b>
+> <p><i>Tahar Ben Jelloun</i></p>
 
 <br>
