@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.</b>
-> <p><i>Lao Tzu</i></p>
+> <b>An American, a Negro... two souls, two thoughts, two unreconciled strivings two warring ideals in one dark body, whose dogged strength alone keeps it from being torn asunder.</b>
+> <p><i>W. E. B. Du Bois</i></p>
 
 <br>
