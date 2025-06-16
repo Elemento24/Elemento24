@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vampires are so old that they don't need to impress anyone anymore. They're comfortable in their own skin. It's this enigmatic strength that's very romantic and old-fashioned. I think it goes back to something of a Victorian attitude of finding a strong man who's going to look after his woman.</b>
-> <p><i>Stephen Moyer</i></p>
+> <b>As winter strips the leaves from around us, so that we may see the distant regions they formerly concealed, so old age takes away our enjoyments only to enlarge the prospect of the coming eternity.</b>
+> <p><i>Jean Paul</i></p>
 
 <br>
