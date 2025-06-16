@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you're offered things, it makes it so much easier to be indecisive. And it's silly because you can pass on some really amazing things.</b>
-> <p><i>Alicia Silverstone</i></p>
+> <b>In Scotland over many years we have cultivated through our justice system what I hope can be described as a 'culture of compassion.' On the other hand, there still exists in many parts of the U.S., if not nationally, an attitude towards the concept of justice which can only be described as a 'culture of vengeance.'</b>
+> <p><i>Keith O'Brien</i></p>
 
 <br>
