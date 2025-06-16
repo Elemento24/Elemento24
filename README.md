@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I finally faced the fact that it isn't a crime not having friends. Being alone means you have fewer problems.</b>
-> <p><i>Whitney Houston</i></p>
+> <b>It is art that makes life, makes interest, makes importance and I know of no substitute whatever for the force and beauty of its process.</b>
+> <p><i>Max Eastman</i></p>
 
 <br>
