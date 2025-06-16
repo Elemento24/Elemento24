@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the best parts of growing older? You can flirt all you like since you've become harmless.</b>
-> <p><i>Liz Smith</i></p>
+> <b>Insurgents have capitalized on popular resentment and anger towards the United States and the Iraqi government to build their own political, financial and military support, and the faith of Iraqi citizens in their new government has been severely undermined.</b>
+> <p><i>Tom Lantos</i></p>
 
 <br>
