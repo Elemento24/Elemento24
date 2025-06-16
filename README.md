@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vampires have always held a very seductive kind of lore and have always been some variety of attractive, whether it's attractiveness that's born of just the physical attributes that they have - this kind of ethereal beauty or translucent pallor - or whether it is more to do with the way they carry themselves.</b>
-> <p><i>Colin Farrell</i></p>
+> <b>A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.</b>
+> <p><i>Lao Tzu</i></p>
 
 <br>
