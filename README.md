@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a reality that in this business there's an expectation of being thin. But having a baby is a reality too, and it's more important for me to make milk than to fit into those tiny pants. So that's just going to have to wait.</b>
-> <p><i>Emily Procter</i></p>
+> <b>Vampires are so old that they don't need to impress anyone anymore. They're comfortable in their own skin. It's this enigmatic strength that's very romantic and old-fashioned. I think it goes back to something of a Victorian attitude of finding a strong man who's going to look after his woman.</b>
+> <p><i>Stephen Moyer</i></p>
 
 <br>
