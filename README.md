@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to argue with my wife about her car - or my driving.</b>
-> <p><i>Dale Earnhardt</i></p>
+> <b>Like it or not, the world evolves, priorities change and so do you.</b>
+> <p><i>Marilu Henner</i></p>
 
 <br>
