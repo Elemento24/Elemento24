@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is art that makes life, makes interest, makes importance and I know of no substitute whatever for the force and beauty of its process.</b>
-> <p><i>Max Eastman</i></p>
+> <b>I remember driving to North Carolina when I was a little girl in a snowstorm to get down to my mom's family in the Carolinas. There were chains on the car - it was the late sixties - and we were just singing in the car. Christmas carols.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
