@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember driving to North Carolina when I was a little girl in a snowstorm to get down to my mom's family in the Carolinas. There were chains on the car - it was the late sixties - and we were just singing in the car. Christmas carols.</b>
-> <p><i>Tori Amos</i></p>
+> <b>When you're offered things, it makes it so much easier to be indecisive. And it's silly because you can pass on some really amazing things.</b>
+> <p><i>Alicia Silverstone</i></p>
 
 <br>
