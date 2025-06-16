@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never say never, but the thought of electively cutting oneself is beyond my grasp, and I also object to it politically. Denying the lines on our faces makes a comment about age and wisdom I don't care to make.</b>
-> <p><i>Debra Winger</i></p>
+> <b>I finally faced the fact that it isn't a crime not having friends. Being alone means you have fewer problems.</b>
+> <p><i>Whitney Houston</i></p>
 
 <br>
