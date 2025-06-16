@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is necessary to change a person is to change his awareness of himself.</b>
-> <p><i>Abraham Maslow</i></p>
+> <b>I don't want to argue with my wife about her car - or my driving.</b>
+> <p><i>Dale Earnhardt</i></p>
 
 <br>
