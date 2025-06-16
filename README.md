@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The kids are old enough now - I just want to let them be kids. I don't want to comment on them too much. They're at an age where I just want to let them be kids.</b>
-> <p><i>Eminem</i></p>
+> <b>What is necessary to change a person is to change his awareness of himself.</b>
+> <p><i>Abraham Maslow</i></p>
 
 <br>
