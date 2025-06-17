@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I look at Jagger and the like and if I see a good attitude I'll admire it but I wouldn't copy their style.</b>
-> <p><i>Michael Hutchence</i></p>
+> <b>Do what you love to do and give it your very best. Whether it's business or baseball, or the theater, or any field. If you don't love what you're doing and you can't give it your best, get out of it. Life is too short. You'll be an old man before you know it.</b>
+> <p><i>Al Lopez</i></p>
 
 <br>
