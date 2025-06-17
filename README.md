@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We couldn't get the car back until well after the end of the race and we had very little time for repairs.</b>
-> <p><i>John Surtees</i></p>
+> <b>The forgotten man... He works, he votes, generally he prays, but his chief business in life is to pay.</b>
+> <p><i>William Graham Sumner</i></p>
 
 <br>
