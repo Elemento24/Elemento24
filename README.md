@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My whole family actually, but my parents. I had such a normal and amazing childhood. I've been so lucky. My parents are cool and normal. They don't talk about the business and I still have stuff to do at their house.</b>
-> <p><i>Kaley Cuoco</i></p>
+> <b>I look at Jagger and the like and if I see a good attitude I'll admire it but I wouldn't copy their style.</b>
+> <p><i>Michael Hutchence</i></p>
 
 <br>
