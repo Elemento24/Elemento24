@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want the Arabic Granada, that which is art, which is all that seems to me beauty and emotion.</b>
-> <p><i>Isaac Albeniz</i></p>
+> <b>In every country and every age, the priest had been hostile to Liberty.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
