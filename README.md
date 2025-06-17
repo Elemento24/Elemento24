@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am of a healthy long lived race, and our minds improve with age.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>I love everybody. One of the great things about me is that I have a very positive attitude.</b>
+> <p><i>Imelda Marcos</i></p>
 
 <br>
