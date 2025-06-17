@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In every country and every age, the priest had been hostile to Liberty.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>When a parent shows up with an attitude of entitlement, understand that under it is a boatload of anxiety.</b>
+> <p><i>Robert Evans</i></p>
 
 <br>
