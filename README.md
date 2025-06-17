@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything great in the world comes from neurotics. They alone have founded our religions and composed our masterpieces.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>I like England more than I did when I left. It's become a bit of a better country in the last ten years, in the attitude of it. A bit more Americanized, which is both good and bad. At least when you order a cup of coffee they don't give you a hard time.</b>
+> <p><i>Teddy Thompson</i></p>
 
 <br>
