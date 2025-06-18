@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All married couples should learn the art of battle as they should learn the art of making love. Good battle is objective and honest - never vicious or cruel. Good battle is healthy and constructive, and brings to a marriage the principles of equal partnership.</b>
-> <p><i>Ann Landers</i></p>
+> <b>You can survive with anger, but you can't live with it forever.</b>
+> <p><i>Ariel Dorfman</i></p>
 
 <br>
