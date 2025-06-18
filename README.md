@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I film quite a bit of footage, then edit. Changes before your eyes, things you can do and things you can't. My attitude is always 'let it keep rolling.'</b>
-> <p><i>Terrence Malick</i></p>
+> <b>Oh literature, oh the glorious Art, how it preys upon the marrow in our bones. It scoops the stuffing out of us, and chucks us aside. Alas!</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
