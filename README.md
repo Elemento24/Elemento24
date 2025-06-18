@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't change your beliefs, your life will be like this forever. Is that good news?</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>I would like to attend college in the future when I have time. I have always been interested in architecture, so perhaps I would pursue a degree in that or business.</b>
+> <p><i>James Maslow</i></p>
 
 <br>
