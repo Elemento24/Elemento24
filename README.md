@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would like to attend college in the future when I have time. I have always been interested in architecture, so perhaps I would pursue a degree in that or business.</b>
-> <p><i>James Maslow</i></p>
+> <b>A work of art that contains theories is like an object on which the price tag has been left.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
