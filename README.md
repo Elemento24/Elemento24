@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The question of whether or to what extent human activities are causing global warming is not a matter of ideology, let alone of belief. The issue is simply one of risk management.</b>
-> <p><i>Malcolm Turnbull</i></p>
+> <b>Her beauty didn't do her any good and she couldn't use it in any positive way or manipulative way. I just hope that people will look and see and believe in that hope of love, that hope of freedom, even if it was just for a limited time.</b>
+> <p><i>Diane Kruger</i></p>
 
 <br>
