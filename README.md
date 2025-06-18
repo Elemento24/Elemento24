@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I sing in the car if I'm in LA, because you're like soundproofed.</b>
-> <p><i>Jimmy Fallon</i></p>
+> <b>I film quite a bit of footage, then edit. Changes before your eyes, things you can do and things you can't. My attitude is always 'let it keep rolling.'</b>
+> <p><i>Terrence Malick</i></p>
 
 <br>
