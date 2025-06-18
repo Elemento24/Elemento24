@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh literature, oh the glorious Art, how it preys upon the marrow in our bones. It scoops the stuffing out of us, and chucks us aside. Alas!</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>If you don't change your beliefs, your life will be like this forever. Is that good news?</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
