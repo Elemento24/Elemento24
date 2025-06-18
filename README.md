@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you explode onto the scene at a very young age, there are so many people pulling you in different directions. It takes time to recalibrate and see what's important.</b>
-> <p><i>Clive Owen</i></p>
+> <b>We incorporated new tastes and flavors into our kids' diets from a very early age, which helped to develop their palates and prevented them from becoming picky eaters. We don't buy junk food and give them options of fresh fruit, yogurt, raw almonds, or dried whole grain cereals for snack time.</b>
+> <p><i>Cat Cora</i></p>
 
 <br>
