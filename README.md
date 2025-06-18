@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A work of art that contains theories is like an object on which the price tag has been left.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>The beauty is that through disappointment you can gain clarity, and with clarity comes conviction and true originality.</b>
+> <p><i>Conan O'Brien</i></p>
 
 <br>
