@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Far away there in the sunshine are my highest aspirations. I may not reach them, but I can look up and see their beauty, believe in them, and try to follow where they lead.</b>
-> <p><i>Louisa May Alcott</i></p>
+> <b>When hospitality becomes an art it loses its very soul.</b>
+> <p><i>Max Beerbohm</i></p>
 
 <br>
