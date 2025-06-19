@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Accept business only at a price permitting thoroughness. Then do a thorough job, regardless of cost to us.</b>
-> <p><i>Arthur C. Nielsen</i></p>
+> <b>Appropriation is the idea that ate the art world. Go to any Chelsea gallery or international biennial and you'll find it. It's there in paintings of photographs, photographs of advertising, sculpture with ready-made objects, videos using already-existing film.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
