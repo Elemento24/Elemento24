@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Appropriation is the idea that ate the art world. Go to any Chelsea gallery or international biennial and you'll find it. It's there in paintings of photographs, photographs of advertising, sculpture with ready-made objects, videos using already-existing film.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Love implies anger. The man who is angered by nothing cares about nothing.</b>
+> <p><i>Edward Abbey</i></p>
 
 <br>
