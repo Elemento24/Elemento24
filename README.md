@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Solidarity is an attitude of resistance, I suppose, or it should be.</b>
-> <p><i>Christopher Hitchens</i></p>
+> <b>Accept business only at a price permitting thoroughness. Then do a thorough job, regardless of cost to us.</b>
+> <p><i>Arthur C. Nielsen</i></p>
 
 <br>
