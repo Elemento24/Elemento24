@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I imagine my children are going to save me from my vanity and be my passion and fill whatever fears I have of the amazing time I'm having right now being gone.</b>
-> <p><i>Gwen Stefani</i></p>
+> <b>That's the beauty of music. You can take a theme from a Bach sacred chorale and improvise. It doesn't make any difference where the theme comes from the treatment of it can be jazz.</b>
+> <p><i>Dave Brubeck</i></p>
 
 <br>
