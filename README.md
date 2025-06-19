@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing how the public steadfastly refuse to attend the third day of a match when so often the last day produces the best and most exciting cricket.</b>
-> <p><i>Frank Woolley</i></p>
+> <b>I think I'm actually quite a materialistic person, I value what it takes to make a car or build a nice house. Money does change things, but how it changes people depends on how they react to it.</b>
+> <p><i>Roland Gift</i></p>
 
 <br>
