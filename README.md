@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When hospitality becomes an art it loses its very soul.</b>
-> <p><i>Max Beerbohm</i></p>
+> <b>How incessant and great are the ills with which a prolonged old age is replete.</b>
+> <p><i>C. S. Lewis</i></p>
 
 <br>
