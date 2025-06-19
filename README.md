@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's nice to just embrace the natural beauty within you.</b>
-> <p><i>Victoria Justice</i></p>
+> <b>The way to get things done is not to mind who gets the credit for doing them.</b>
+> <p><i>Benjamin Jowett</i></p>
 
 <br>
