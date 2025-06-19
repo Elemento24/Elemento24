@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm in the acting business. That's the ego business.</b>
-> <p><i>Betty White</i></p>
+> <b>It's nice to just embrace the natural beauty within you.</b>
+> <p><i>Victoria Justice</i></p>
 
 <br>
