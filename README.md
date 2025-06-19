@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our humor turns our anger into a fine art.</b>
-> <p><i>Mary Kay Blakely</i></p>
+> <b>Solidarity is an attitude of resistance, I suppose, or it should be.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
