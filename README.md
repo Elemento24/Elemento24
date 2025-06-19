@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you realize that all things change, there is nothing you will try to hold on to. If you are not afraid of dying, there is nothing you cannot achieve.</b>
-> <p><i>Lao Tzu</i></p>
+> <b>I think that people don't know how to do anything anymore. My father was a janitor. He could take a car apart and put it back together. He could build a house in the back yard. Today, if you ask people what they know, they say, 'I know how to hire someone.'</b>
+> <p><i>Walter Mosley</i></p>
 
 <br>
