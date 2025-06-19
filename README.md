@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's the beauty of music. You can take a theme from a Bach sacred chorale and improvise. It doesn't make any difference where the theme comes from the treatment of it can be jazz.</b>
-> <p><i>Dave Brubeck</i></p>
+> <b>If you realize that all things change, there is nothing you will try to hold on to. If you are not afraid of dying, there is nothing you cannot achieve.</b>
+> <p><i>Lao Tzu</i></p>
 
 <br>
