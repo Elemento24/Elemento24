@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture arouses sentiments in man. The architect's task therefore, is to make those sentiments more precise.</b>
-> <p><i>Adolf Loos</i></p>
+> <b>The monarchy is foremost a business, and it's important to them that the British public continue to finance the excessive luxurious lifestyles of the now quite enormous, wasteful and useless 'royal' family. I find it very sad.</b>
+> <p><i>Steven Patrick Morrissey</i></p>
 
 <br>
