@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Then stirs the feeling infinite, so felt In solitude, where we are least alone.</b>
-> <p><i>Lord Byron</i></p>
+> <b>In aid, the proper attitude is one omitting gratitude.</b>
+> <p><i>Marya Mannes</i></p>
 
 <br>
