@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be the business never so painful, you may have it done for money.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>Yes, I guess you could say I am a loner, but I feel more lonely in a crowed room with boring people than I feel on my own.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
