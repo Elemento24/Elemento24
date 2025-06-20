@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've chosen my wedding ring large and heavy to continue forever. But exactly because of that all the time that Dave and I have an argument I feel it like handcuffs, and on anger time I throw it in a basket. Poor Dave, he bought me three wedding rings already!</b>
-> <p><i>Carmen Miranda</i></p>
+> <b>The low points I had all helped make up my character, so I probably wouldn't want to do away with them because I like being flawed and I like having them help me grow and change and become better and stronger.</b>
+> <p><i>Drew Barrymore</i></p>
 
 <br>
