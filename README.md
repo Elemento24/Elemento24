@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty, of course, is the most important requirement and the paramount asset of the applicant.</b>
-> <p><i>Florenz Ziegfeld</i></p>
+> <b>I am prepared for the worst, but hope for the best.</b>
+> <p><i>Benjamin Disraeli</i></p>
 
 <br>
