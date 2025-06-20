@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am aware that in presenting myself as the advocate of the Indians and their rights, I shall stand very much alone.</b>
-> <p><i>Sam Houston</i></p>
+> <b>I think it's hard, the fact that there's a certain age that we can't have kids anymore.</b>
+> <p><i>Courteney Cox</i></p>
 
 <br>
