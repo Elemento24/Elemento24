@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am prepared for the worst, but hope for the best.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>Then stirs the feeling infinite, so felt In solitude, where we are least alone.</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
