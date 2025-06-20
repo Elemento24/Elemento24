@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man is a fool if he drinks before he reaches the age of 50, and a fool if he doesn't afterward.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>About astrology and palmistry: they are good because they make people vivid and full of possibilities. They are communism at its best. Everybody has a birthday and almost everybody has a palm.</b>
+> <p><i>Kurt Vonnegut</i></p>
 
 <br>
