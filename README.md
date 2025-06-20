@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes, I guess you could say I am a loner, but I feel more lonely in a crowed room with boring people than I feel on my own.</b>
-> <p><i>Henry Rollins</i></p>
+> <b>As an actor, to have achieved financial stability is amazing. But I always have this weird fear that I'm not going to get any more work it's about not having enough money.</b>
+> <p><i>Paul Giamatti</i></p>
 
 <br>
