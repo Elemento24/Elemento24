@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's hard, the fact that there's a certain age that we can't have kids anymore.</b>
-> <p><i>Courteney Cox</i></p>
+> <b>The comic book world is a tough business.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
