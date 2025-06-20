@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The low points I had all helped make up my character, so I probably wouldn't want to do away with them because I like being flawed and I like having them help me grow and change and become better and stronger.</b>
-> <p><i>Drew Barrymore</i></p>
+> <b>Architecture arouses sentiments in man. The architect's task therefore, is to make those sentiments more precise.</b>
+> <p><i>Adolf Loos</i></p>
 
 <br>
