@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>About astrology and palmistry: they are good because they make people vivid and full of possibilities. They are communism at its best. Everybody has a birthday and almost everybody has a palm.</b>
-> <p><i>Kurt Vonnegut</i></p>
+> <b>I was dating my first boyfriend in high school for a long time, and we broke up before prom. I hadn't met anyone else that I really wanted to go with, and my friends have always been amazing. So I went with my friends and got a million photos with them!</b>
+> <p><i>Shay Mitchell</i></p>
 
 <br>
