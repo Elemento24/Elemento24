@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you can build a business up big enough, it's respectable.</b>
-> <p><i>Will Rogers</i></p>
+> <b>I am aware that in presenting myself as the advocate of the Indians and their rights, I shall stand very much alone.</b>
+> <p><i>Sam Houston</i></p>
 
 <br>
