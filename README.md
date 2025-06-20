@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The monarchy is foremost a business, and it's important to them that the British public continue to finance the excessive luxurious lifestyles of the now quite enormous, wasteful and useless 'royal' family. I find it very sad.</b>
-> <p><i>Steven Patrick Morrissey</i></p>
+> <b>It may be hard for an egg to turn into a bird: it would be a jolly sight harder for it to learn to fly while remaining an egg. We are like eggs at present. And you cannot go on indefinitely being just an ordinary, decent egg. We must be hatched or go bad.</b>
+> <p><i>C. S. Lewis</i></p>
 
 <br>
