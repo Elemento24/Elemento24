@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whatever my individual desires were to be free, I was not alone. There were many others who felt the same way.</b>
-> <p><i>Rosa Parks</i></p>
+> <b>We pay when old for the excesses of youth.</b>
+> <p><i>J. B. Priestley</i></p>
 
 <br>
