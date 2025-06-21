@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Raising children is an incredibly hard and risky business in which no cumulative wisdom is gained: each generation repeats the mistakes the previous one made.</b>
-> <p><i>Bill Cosby</i></p>
+> <b>I'm totally into new age and self-help books. I used to work in a bookstore and that's the section they gave me, and I got way into it. I just loved the power of positive thinking, letting yourself go.</b>
+> <p><i>Jason Mraz</i></p>
 
 <br>
