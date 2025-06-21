@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To live alone is the fate of all great souls.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>Raising children is an incredibly hard and risky business in which no cumulative wisdom is gained: each generation repeats the mistakes the previous one made.</b>
+> <p><i>Bill Cosby</i></p>
 
 <br>
