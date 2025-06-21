@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We think of enterprise architecture as the process we use for fully describing and mapping business functionality and business requirements and relating them to information systems requirements.</b>
-> <p><i>Tony Scott</i></p>
+> <b>Having a positive mental attitude is asking how something can be done rather than saying it can't be done.</b>
+> <p><i>Bo Bennett</i></p>
 
 <br>
