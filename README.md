@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate the outdoors. To me the outdoors is where the car is.</b>
-> <p><i>Will Durst</i></p>
+> <b>My goal is to be one with the music. I just dedicate my whole life to this art.</b>
+> <p><i>Jimi Hendrix</i></p>
 
 <br>
