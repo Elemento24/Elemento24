@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I decided to be a singer, my mother warned me I'd be alone a lot. Basically we all are.</b>
-> <p><i>Whitney Houston</i></p>
+> <b>Whatever my individual desires were to be free, I was not alone. There were many others who felt the same way.</b>
+> <p><i>Rosa Parks</i></p>
 
 <br>
