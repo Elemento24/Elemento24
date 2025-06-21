@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Acting is magical. Change your look and your attitude, and you can be anyone.</b>
-> <p><i>Alicia Witt</i></p>
+> <b>Like anything else that happens on its own, the act of writing is beyond currency. Money is great stuff to have, but when it comes to the act of creation, the best thing is not to think of money too much. It constipates the whole process.</b>
+> <p><i>Stephen King</i></p>
 
 <br>
