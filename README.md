@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If thou art a man, admire those who attempt great things, even though they fail.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>We think of enterprise architecture as the process we use for fully describing and mapping business functionality and business requirements and relating them to information systems requirements.</b>
+> <p><i>Tony Scott</i></p>
 
 <br>
