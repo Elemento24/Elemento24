@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm totally into new age and self-help books. I used to work in a bookstore and that's the section they gave me, and I got way into it. I just loved the power of positive thinking, letting yourself go.</b>
-> <p><i>Jason Mraz</i></p>
+> <b>Taking joy in living is a woman's best cosmetic.</b>
+> <p><i>Rosalind Russell</i></p>
 
 <br>
