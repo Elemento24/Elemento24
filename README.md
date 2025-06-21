@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My goal is to be one with the music. I just dedicate my whole life to this art.</b>
-> <p><i>Jimi Hendrix</i></p>
+> <b>When we are no longer able to change a situation - we are challenged to change ourselves.</b>
+> <p><i>Viktor E. Frankl</i></p>
 
 <br>
