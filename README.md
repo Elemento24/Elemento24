@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having a positive mental attitude is asking how something can be done rather than saying it can't be done.</b>
-> <p><i>Bo Bennett</i></p>
+> <b>Acting is magical. Change your look and your attitude, and you can be anyone.</b>
+> <p><i>Alicia Witt</i></p>
 
 <br>
