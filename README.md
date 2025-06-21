@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be told that one can be dependent on one's parents until age 26 should strike a young person who wants to grow up as demeaning, not as something to celebrate.</b>
-> <p><i>Dennis Prager</i></p>
+> <b>If thou art a man, admire those who attempt great things, even though they fail.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
