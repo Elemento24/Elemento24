@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love my family very much. I wish I could see them a little more often than I do. But we understand because we're a show business family and we all work.</b>
-> <p><i>Michael Jackson</i></p>
+> <b>Laws are generally found to be nets of such a texture, as the little creep through, the great break through, and the middle-sized are alone entangled in it.</b>
+> <p><i>William Shenstone</i></p>
 
 <br>
