@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Taking joy in living is a woman's best cosmetic.</b>
-> <p><i>Rosalind Russell</i></p>
+> <b>I hate the outdoors. To me the outdoors is where the car is.</b>
+> <p><i>Will Durst</i></p>
 
 <br>
