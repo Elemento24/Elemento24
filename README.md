@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Laws are generally found to be nets of such a texture, as the little creep through, the great break through, and the middle-sized are alone entangled in it.</b>
-> <p><i>William Shenstone</i></p>
+> <b>To live alone is the fate of all great souls.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
