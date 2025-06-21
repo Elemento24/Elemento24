@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When we are no longer able to change a situation - we are challenged to change ourselves.</b>
-> <p><i>Viktor E. Frankl</i></p>
+> <b>The art of leadership is saying no, not saying yes. It is very easy to say yes.</b>
+> <p><i>Tony Blair</i></p>
 
 <br>
