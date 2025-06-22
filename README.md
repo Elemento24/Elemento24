@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Worse there cannot be a better, I believe, there may be, by giving energy to the capital and skill of the country to produce exports, by increasing which, alone, can we flatter ourselves with the prospect of finding employment for that part of our population now unemployed.</b>
-> <p><i>Joseph Hume</i></p>
+> <b>San Francisco is a mad city - inhabited for the most part by perfectly insane people whose women are of a remarkable beauty.</b>
+> <p><i>Rudyard Kipling</i></p>
 
 <br>
