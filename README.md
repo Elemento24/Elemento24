@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is no barrier. It's a limitation you put on your mind.</b>
-> <p><i>Jackie Joyner-Kersee</i></p>
+> <b>The work of art is a scream of freedom.</b>
+> <p><i>Christo</i></p>
 
 <br>
