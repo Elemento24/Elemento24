@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We pay when old for the excesses of youth.</b>
-> <p><i>J. B. Priestley</i></p>
+> <b>I wanted to be a mechanic. When I was 14 I wanted to quit school and go work on my car. But my dad said Son, you shouldn't do that. You should stay in school until your education is finished, and when you're done, don't make your hobby your job.</b>
+> <p><i>Eric Bana</i></p>
 
 <br>
