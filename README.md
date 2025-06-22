@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>San Francisco is a mad city - inhabited for the most part by perfectly insane people whose women are of a remarkable beauty.</b>
-> <p><i>Rudyard Kipling</i></p>
+> <b>It's amazing that something only an atom thick can be an impenetrable barrier. You can have gas on one side and vacuum or liquid on the other, and with a wall only one atom thick, nothing would go through it.</b>
+> <p><i>Paul McEuen</i></p>
 
 <br>
