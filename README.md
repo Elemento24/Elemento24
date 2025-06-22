@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.</b>
-> <p><i>Peter Drucker</i></p>
+> <b>I don't believe the most successful people are the ones who got the best grades, got into the best schools, or made the most money.</b>
+> <p><i>Ben Stein</i></p>
 
 <br>
