@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't believe the most successful people are the ones who got the best grades, got into the best schools, or made the most money.</b>
-> <p><i>Ben Stein</i></p>
+> <b>Age is no barrier. It's a limitation you put on your mind.</b>
+> <p><i>Jackie Joyner-Kersee</i></p>
 
 <br>
