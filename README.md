@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've chosen my wedding ring large and heavy to continue forever. But exactly because of that all the time that Dave and I have an argument I feel it like handcuffs, and on anger time I throw it in a basket. Poor Dave, he bought me three wedding rings already!</b>
-> <p><i>Carmen Miranda</i></p>
+> <b>Try as hard as we may for perfection, the net result of our labors is an amazing variety of imperfectness. We are surprised at our own versatility in being able to fail in so many different ways.</b>
+> <p><i>Samuel McChord Crothers</i></p>
 
 <br>
