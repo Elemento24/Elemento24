@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is the art of drawing without an eraser.</b>
-> <p><i>John W. Gardner</i></p>
+> <b>True life is lived when tiny changes occur.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
