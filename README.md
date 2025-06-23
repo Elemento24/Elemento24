@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All ideas come about through some sort of observation. It sparks an attitude some object or emotion causes a reaction in the other person.</b>
-> <p><i>Graham Chapman</i></p>
+> <b>You don't have to save the world, but you can be in the world-that's where the beauty comes from.</b>
+> <p><i>Daphne Zuniga</i></p>
 
 <br>
