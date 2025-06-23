@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The challenge is to practice politics as the art of making what appears to be impossible, possible.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>Rigid, the skeleton of habit alone upholds the human frame.</b>
+> <p><i>Virginia Woolf</i></p>
 
 <br>
