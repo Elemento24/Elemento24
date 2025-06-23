@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never believe that a few caring people can't change the world. For, indeed, that's all who ever have.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>Litigation takes the place of sex at middle age.</b>
+> <p><i>Gore Vidal</i></p>
 
 <br>
