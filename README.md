@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always wanted to shave. It is a very natural process. For my birthday I got a lot of shaving stuff.</b>
-> <p><i>Chaz Bono</i></p>
+> <b>I'm flatchested, I'm short, I'm brunette, I have droopy eyes, and so people have a hard time casting me as a 'beauty.'</b>
+> <p><i>Selma Blair</i></p>
 
 <br>
