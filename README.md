@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have an amazing advantage right now in that we have developed technology that is so sexy, so engaging for kids.</b>
-> <p><i>LeVar Burton</i></p>
+> <b>The key to life is your attitude. Whether you're single or married or have kids or don't have kids, it's how you look at your life, what you make of it. It's about making the best of your life wherever you are in life.</b>
+> <p><i>Candace Bushnell</i></p>
 
 <br>
