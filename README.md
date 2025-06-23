@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Litigation takes the place of sex at middle age.</b>
-> <p><i>Gore Vidal</i></p>
+> <b>Back in the mid-1970s, we adopted some fairly ambitious goals to improve efficiency of our cars. What did we get? We got a tremendous boost in efficiency.</b>
+> <p><i>Jay Inslee</i></p>
 
 <br>
