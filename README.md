@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is very nice, but it lacks form. It's the aim of art to give it some.</b>
-> <p><i>Jean Anouilh</i></p>
+> <b>I think you have to feel comfortable with your car. You have to go into turn one, every lap, with confidence. You have to be sure of yourself and your equipment.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
