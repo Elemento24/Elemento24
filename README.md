@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rigid, the skeleton of habit alone upholds the human frame.</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>We have an amazing advantage right now in that we have developed technology that is so sexy, so engaging for kids.</b>
+> <p><i>LeVar Burton</i></p>
 
 <br>
