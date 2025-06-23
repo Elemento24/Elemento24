@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's pretty crazy to say you've been typecast at the age of 20 before you've even really started getting going.</b>
-> <p><i>Tom Felton</i></p>
+> <b>Why should society feel responsible only for the education of children, and not for the education of all adults of every age?</b>
+> <p><i>Erich Fromm</i></p>
 
 <br>
