@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Becoming a mother cannot help but change things. An author's life is reflected in their writing, whether they want it to be or not, and parenthood is one of the biggest life changes there is.</b>
-> <p><i>Sarah Zettel</i></p>
+> <b>Life is very nice, but it lacks form. It's the aim of art to give it some.</b>
+> <p><i>Jean Anouilh</i></p>
 
 <br>
