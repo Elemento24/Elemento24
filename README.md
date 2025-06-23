@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At his best, man is the noblest of all animals separated from law and justice he is the worst.</b>
-> <p><i>Aristotle</i></p>
+> <b>The challenge is to practice politics as the art of making what appears to be impossible, possible.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
