@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The day before the anniversary of D-Day, we lost a man who was equaled by few and surpassed by none as a leader in the cause of freedom: Ronald Reagan.</b>
-> <p><i>Mac Thornberry</i></p>
+> <b>Beauty is a manifestation of secret natural laws, which otherwise would have been hidden from us forever.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
