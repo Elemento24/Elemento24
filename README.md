@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a fundamental shift that social media necessitates in business today - the need to transition from 'Me First' to 'We First' thinking.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Solitude is strength to depend on the presence of the crowd is weakness. The man who needs a mob to nerve him is much more alone than he imagines.</b>
+> <p><i>Paul Brunton</i></p>
 
 <br>
