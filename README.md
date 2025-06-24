@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've known Shawn for several years. And he's just an amazing talent. He's a great writer, a marvelous, marvelous guitar player, and plays really good fiddle.</b>
-> <p><i>Guy Clark</i></p>
+> <b>There is a fundamental shift that social media necessitates in business today - the need to transition from 'Me First' to 'We First' thinking.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
