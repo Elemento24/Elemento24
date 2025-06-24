@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Making money is art and working is art and good business is the best art.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>The day before the anniversary of D-Day, we lost a man who was equaled by few and surpassed by none as a leader in the cause of freedom: Ronald Reagan.</b>
+> <p><i>Mac Thornberry</i></p>
 
 <br>
