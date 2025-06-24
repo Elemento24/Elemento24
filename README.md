@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The contemporary thing in art and literature is the thing which doesn't make enough difference to the people of that generation so that they can accept it or reject it.</b>
-> <p><i>Gertrude Stein</i></p>
+> <b>Life would be infinitely happier if we could only be born at the age of eighty and gradually approach eighteen.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
