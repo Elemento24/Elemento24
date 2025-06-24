@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Solitude is strength to depend on the presence of the crowd is weakness. The man who needs a mob to nerve him is much more alone than he imagines.</b>
-> <p><i>Paul Brunton</i></p>
+> <b>I just try to do the best job I possibly can - put the blinders on, go to work and be the best you can possibly be. Once you have done everything that you possibly can - you've put forth your greatest effort - then I can live with whatever's next.</b>
+> <p><i>Bill Parcells</i></p>
 
 <br>
