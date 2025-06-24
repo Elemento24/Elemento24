@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Speak when you are angry and you will make the best speech you will ever regret.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>Making money is art and working is art and good business is the best art.</b>
+> <p><i>Andy Warhol</i></p>
 
 <br>
