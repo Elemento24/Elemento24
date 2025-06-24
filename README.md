@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just try to do the best job I possibly can - put the blinders on, go to work and be the best you can possibly be. Once you have done everything that you possibly can - you've put forth your greatest effort - then I can live with whatever's next.</b>
-> <p><i>Bill Parcells</i></p>
+> <b>The contemporary thing in art and literature is the thing which doesn't make enough difference to the people of that generation so that they can accept it or reject it.</b>
+> <p><i>Gertrude Stein</i></p>
 
 <br>
