@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is a manifestation of secret natural laws, which otherwise would have been hidden from us forever.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>At first I missed it, but it was the amazing energy thing that happened during shows, when a lot of people were like Yay Yay Yeah! I missed that for a while. But I don't miss the regular and the business side of that whole thing.</b>
+> <p><i>Bill Kreutzmann</i></p>
 
 <br>
