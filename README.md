@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Go for a business that any idiot can run - because sooner or later, any idiot probably is going to run it.</b>
-> <p><i>Peter Lynch</i></p>
+> <b>Humanism was not wrong in thinking that truth, beauty, liberty, and equality are of infinite value, but in thinking that man can get them for himself without grace.</b>
+> <p><i>Simone Weil</i></p>
 
 <br>
