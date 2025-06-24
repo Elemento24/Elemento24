@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm flatchested, I'm short, I'm brunette, I have droopy eyes, and so people have a hard time casting me as a 'beauty.'</b>
-> <p><i>Selma Blair</i></p>
+> <b>And you can't complain about kissing Emma Watson. Isn't that what everyone in the world wants to do? I've known Emma for a few years. She's this amazing capacity of young and vibrant and brilliant, but also a bright, intelligent old soul.</b>
+> <p><i>Eddie Redmayne</i></p>
 
 <br>
