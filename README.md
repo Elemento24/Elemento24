@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The worst disease which can afflict business executives in their work is not, as popularly supposed, alcoholism it's egotism.</b>
-> <p><i>Harold S. Geneen</i></p>
+> <b>Go for a business that any idiot can run - because sooner or later, any idiot probably is going to run it.</b>
+> <p><i>Peter Lynch</i></p>
 
 <br>
