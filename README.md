@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Humanism was not wrong in thinking that truth, beauty, liberty, and equality are of infinite value, but in thinking that man can get them for himself without grace.</b>
-> <p><i>Simone Weil</i></p>
+> <b>A healthy attitude is contagious but don't wait to catch it from others. Be a carrier.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
