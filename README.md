@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life would be infinitely happier if we could only be born at the age of eighty and gradually approach eighteen.</b>
-> <p><i>Mark Twain</i></p>
+> <b>Reese Witherspoon is my everywoman. She's managed to have a family and this amazing career. That's the goal.</b>
+> <p><i>Emmanuelle Chriqui</i></p>
 
 <br>
