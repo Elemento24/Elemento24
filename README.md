@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Buddhism notes that it is always a mistake to think your soul can go it alone.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>No one can persuade another to change. Each of us guards a gate of change that can only be opened from the inside. We cannot open the gate of another, either by argument or emotional appeal.</b>
+> <p><i>Marilyn Ferguson</i></p>
 
 <br>
