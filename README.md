@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grandeur and beauty are so very opposite, that you often diminish the one as you increase the other. Variety is most akin to the latter, simplicity to the former.</b>
-> <p><i>William Shenstone</i></p>
+> <b>Even with, or perhaps, because of, this background, I have over the past few years sensed a very dramatic change in attitude on the part of Prince Edward Islanders towards the on-going rush for so-called modernization.</b>
+> <p><i>Alex Campbell</i></p>
 
 <br>
