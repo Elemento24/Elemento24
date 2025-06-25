@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The idea that maybe you don't have to own a car if you only need one occasionally may catch on, just like time-sharing caught on in real estate.</b>
-> <p><i>Steve Case</i></p>
+> <b>Damien Hirst is the Elvis of the English art world, its ayatollah, deliverer, and big-thinking entrepreneurial potty-mouthed prophet and front man. Hirst synthesizes punk, Pop Art, Jeff Koons, Marcel Duchamp, Francis Bacon, and Catholicism.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
