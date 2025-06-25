@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to do a lot of interviews in the early '80s, when my career started, but it came to a point when I decided I didn't want to talk anymore, and people kind of understood that and left me alone.</b>
-> <p><i>George Strait</i></p>
+> <b>As a result of the digital age and the decline of first-class mail, there is no question that the Postal Service must change and develop a new business model.</b>
+> <p><i>Bernie Sanders</i></p>
 
 <br>
