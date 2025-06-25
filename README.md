@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I realize that the majority of people in the entertainment business happen to be Democrats. I have no problem with that. And they should have no problem with the fact that I'm a Republican.</b>
-> <p><i>Shannen Doherty</i></p>
+> <b>What is being called the UN 'gender architecture' is more like a shack. Women need a bigger global house if equality is ever to become a reality.</b>
+> <p><i>Charlotte Bunch</i></p>
 
 <br>
