@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So long as you've got your friends about you, and a good positive attitude, you don't really have to care what everyone else thinks.</b>
-> <p><i>Gail Porter</i></p>
+> <b>The idea that maybe you don't have to own a car if you only need one occasionally may catch on, just like time-sharing caught on in real estate.</b>
+> <p><i>Steve Case</i></p>
 
 <br>
