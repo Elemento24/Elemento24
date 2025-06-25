@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The experience of being in space didn't change my perspective of myself or of the planet or of life. I had no spiritual experience.</b>
-> <p><i>Sally Ride</i></p>
+> <b>So long as you've got your friends about you, and a good positive attitude, you don't really have to care what everyone else thinks.</b>
+> <p><i>Gail Porter</i></p>
 
 <br>
