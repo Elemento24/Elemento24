@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If architecture is frozen music then music must be liquid architecture.</b>
-> <p><i>Quincy Jones</i></p>
+> <b>I don't believe one grows older. I think that what happens early on in life is that at a certain age one stands still and stagnates.</b>
+> <p><i>T. S. Eliot</i></p>
 
 <br>
