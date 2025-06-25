@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No one can persuade another to change. Each of us guards a gate of change that can only be opened from the inside. We cannot open the gate of another, either by argument or emotional appeal.</b>
-> <p><i>Marilyn Ferguson</i></p>
+> <b>I was away from the front lines for a while this spring, living with other troops, and considerable fighting took place while I was gone. When I got ready to return to my old friends at the front I wondered if I would sense any change in them.</b>
+> <p><i>Ernie Pyle</i></p>
 
 <br>
