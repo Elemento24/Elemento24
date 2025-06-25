@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a result of the digital age and the decline of first-class mail, there is no question that the Postal Service must change and develop a new business model.</b>
-> <p><i>Bernie Sanders</i></p>
+> <b>The experience of being in space didn't change my perspective of myself or of the planet or of life. I had no spiritual experience.</b>
+> <p><i>Sally Ride</i></p>
 
 <br>
