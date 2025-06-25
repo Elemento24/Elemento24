@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Study after study confirms that even when you control for variables like profession, education, hours worked, age, marital status, and children, men still are compensated substantially more - even in professions, like nursing, dominated by women. No wonder there's a gender gap.</b>
-> <p><i>Dee Dee Myers</i></p>
+> <b>I suppose that by being absent from the music business, it appeared that I just dropped out, but really I never did. I was continuously working and doing various things.</b>
+> <p><i>Cat Stevens</i></p>
 
 <br>
