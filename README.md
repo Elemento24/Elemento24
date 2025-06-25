@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It wasn't a secret that I was gay. I'd come out to my parents during my junior year of high school, on the day that I also wrecked the family car.</b>
-> <p><i>Mary Cheney</i></p>
+> <b>Grandeur and beauty are so very opposite, that you often diminish the one as you increase the other. Variety is most akin to the latter, simplicity to the former.</b>
+> <p><i>William Shenstone</i></p>
 
 <br>
