@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you retire, it's a place in life, a part of the journey. You just don't quit work you develop an attitude where you can do what you please.</b>
-> <p><i>Tom T. Hall</i></p>
+> <b>I realize that the majority of people in the entertainment business happen to be Democrats. I have no problem with that. And they should have no problem with the fact that I'm a Republican.</b>
+> <p><i>Shannen Doherty</i></p>
 
 <br>
