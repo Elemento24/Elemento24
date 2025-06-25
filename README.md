@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't believe one grows older. I think that what happens early on in life is that at a certain age one stands still and stagnates.</b>
-> <p><i>T. S. Eliot</i></p>
+> <b>Study after study confirms that even when you control for variables like profession, education, hours worked, age, marital status, and children, men still are compensated substantially more - even in professions, like nursing, dominated by women. No wonder there's a gender gap.</b>
+> <p><i>Dee Dee Myers</i></p>
 
 <br>
