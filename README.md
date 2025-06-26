@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am careful not to confuse excellence with perfection. Excellence I can reach for perfection is God's business.</b>
-> <p><i>Michael J. Fox</i></p>
+> <b>Know what's weird? Day by day, nothing seems to change. But pretty soon, everything's different.</b>
+> <p><i>Bill Watterson</i></p>
 
 <br>
