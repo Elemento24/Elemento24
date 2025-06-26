@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is an invention of aesthetics, which in turn is an invention of philosophers... What we call art is a game.</b>
-> <p><i>Octavio Paz</i></p>
+> <b>I am not a great cook, I am not a great artist, but I love art, and I love food, so I am the perfect traveller.</b>
+> <p><i>Michael Palin</i></p>
 
 <br>
