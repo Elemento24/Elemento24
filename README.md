@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I drank, I had a very different attitude towards my playing. It was sloppier but I kind of liked it that way. It was like the alcohol was telling my mind what to do.</b>
-> <p><i>Mick Mars</i></p>
+> <b>Another thing to do with the blues is how they were recorded. They were done on the quick, and some of that stuff was made on wire, not even tape, let alone digital.</b>
+> <p><i>Keith Richards</i></p>
 
 <br>
