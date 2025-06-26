@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My justification is that most people my age spend a lot of time thinking about what they're going to do for the next five or ten years. The time they spend thinking about their life, I just spend drinking.</b>
-> <p><i>Amy Winehouse</i></p>
+> <b>You must do as your people do. If my people are poor, I must be poor. People ask me, 'Why don't you find a personal coach or a private car?' I can't. Then I won't be part of my people.</b>
+> <p><i>Haile Gebrselassie</i></p>
 
 <br>
