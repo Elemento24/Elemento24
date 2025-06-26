@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to go to the mall, you have to take security. But it's always cool. The kids are amazing.</b>
-> <p><i>Aaliyah</i></p>
+> <b>For years, I never knowingly went on a holiday. When I travelled, it was for work. Now I am a huge advocate, particularly to places which have amazing wildlife, such as Antarctica, India and Patagonia.</b>
+> <p><i>Miranda Richardson</i></p>
 
 <br>
