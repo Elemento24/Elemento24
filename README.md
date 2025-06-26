@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You look at a herd of cattle and well, they all look the same... but they know. They all have an individual personality, and those personalities change from day to day. They can have their grumpy days and their happy days and their serene days. But it's unpredictable. You can't be off in outer space when you're dealing with animals.</b>
-> <p><i>Chris Cooper</i></p>
+> <b>I'm not saying that there's anything better than mated bliss at its best, but I'm saying that living alone is as good in its own way. But we haven't quite given ourselves permission to recognize that.</b>
+> <p><i>Barbara Feldon</i></p>
 
 <br>
