@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our future cannot depend on the government alone. The ultimate solutions lie in the attitudes and the actions of the American people.</b>
-> <p><i>Joe Biden</i></p>
+> <b>I am careful not to confuse excellence with perfection. Excellence I can reach for perfection is God's business.</b>
+> <p><i>Michael J. Fox</i></p>
 
 <br>
