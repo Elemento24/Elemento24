@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The effort of art is to keep what is interesting in existence, to recreate it in the eternal.</b>
-> <p><i>George Santayana</i></p>
+> <b>A lot of the songs start with an image. I was sitting there playing the guitar and I pictured this old, dirty green car, with the window rolled down, in the hot, hot, hot Texas heat, and this beautiful woman I knew when I was a kid sitting behind the wheel, looking out at me.</b>
+> <p><i>Edie Brickell</i></p>
 
 <br>
