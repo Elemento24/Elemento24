@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another thing to do with the blues is how they were recorded. They were done on the quick, and some of that stuff was made on wire, not even tape, let alone digital.</b>
-> <p><i>Keith Richards</i></p>
+> <b>Our age knows nothing but reaction, and leaps from one extreme to another.</b>
+> <p><i>Reinhold Niebuhr</i></p>
 
 <br>
