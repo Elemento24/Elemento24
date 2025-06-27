@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each age tries to form its own conception of the past. Each age writes the history of the past anew with reference to the conditions uppermost in its own time.</b>
-> <p><i>Frederick Jackson Turner</i></p>
+> <b>Millions of young Americans have graduated from college during the Obama presidency, ready to use their gifts and get moving in life. Half of them can't find the work they studied for, or any work at all. So here's the question: Without a change in leadership, why would the next four years be any different from the last four years?</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
