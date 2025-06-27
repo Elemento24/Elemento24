@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those that despise people will never get the best out of others and themselves.</b>
-> <p><i>Alexis de Tocqueville</i></p>
+> <b>It is best to live however one can be.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
