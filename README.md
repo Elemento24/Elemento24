@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a bad driver. And I never will be because I took lessons when I was quite a boy. I never had to pass a test because there wasn't such a thing when I first started driving a motor car. So I didn't have to pass one.</b>
-> <p><i>Richard Murdoch</i></p>
+> <b>To teach how to live without certainty and yet without being paralysed by hesitation is perhaps the chief thing that philosophy, in our age, can do for those who study it.</b>
+> <p><i>Bertrand Russell</i></p>
 
 <br>
