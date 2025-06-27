@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's good that the first half of the speech emphasized freedom, because George W. Bush has been the global champion for freedom. As he said, if we don't fight tyranny it will not leave us alone in peace.</b>
-> <p><i>Ernest Istook</i></p>
+> <b>I see architecture not as Gropius did, as a moral venture, as truth, but as invention, in the same way that poetry or music or painting is invention.</b>
+> <p><i>Michael Graves</i></p>
 
 <br>
