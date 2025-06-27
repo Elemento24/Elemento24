@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you're a catalyst for change, you make enemies - and I'm proud of the ones I've got.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>Use what talents you possess the woods would be very silent if no birds sang there except those that sang best.</b>
+> <p><i>Henry Van Dyke</i></p>
 
 <br>
