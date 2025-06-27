@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the man sound of body and serene of mind there is no such thing as bad weather every day has its beauty, and storms which whip the blood do but make it pulse more vigorously.</b>
-> <p><i>George Gissing</i></p>
+> <b>Part of the beauty of the show in a way is that he's not perfect, but you can always count on him to do the right thing in a pinch. That's why he inspires people and inspires me.</b>
+> <p><i>Stephen Collins</i></p>
 
 <br>
