@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You change with the guys you date.</b>
-> <p><i>Jessica Simpson</i></p>
+> <b>Beauty is nature's brag, and must be shown in courts, at feasts, and high solemnities, where most may wonder at the workmanship.</b>
+> <p><i>John Milton</i></p>
 
 <br>
