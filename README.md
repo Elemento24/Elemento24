@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the practical art of war, the best thing of all is to take the enemy's country whole and intact to shatter and destroy it is not so good.</b>
-> <p><i>Sun Tzu</i></p>
+> <b>If you saw a dog going to be crushed under a car, wouldn't you help him?</b>
+> <p><i>Oskar Schindler</i></p>
 
 <br>
