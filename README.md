@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you saw a dog going to be crushed under a car, wouldn't you help him?</b>
-> <p><i>Oskar Schindler</i></p>
+> <b>Those that despise people will never get the best out of others and themselves.</b>
+> <p><i>Alexis de Tocqueville</i></p>
 
 <br>
