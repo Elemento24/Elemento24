@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Part of the beauty of the show in a way is that he's not perfect, but you can always count on him to do the right thing in a pinch. That's why he inspires people and inspires me.</b>
-> <p><i>Stephen Collins</i></p>
+> <b>The best executive is one who has sense enough to pick good people to do what he wants done, and self-restraint enough to keep from meddling with them while they do it.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
