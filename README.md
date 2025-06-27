@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the end of drama school, I made a contract with myself: I'd try acting for five years. I was 26. I had already spent eight years working in restaurants and gas stations. So I had seen enough small businesses to understand that that's what acting is: a small business.</b>
-> <p><i>Hugh Jackman</i></p>
+> <b>While a large segment of the art world has obsessed over a tiny number of stars and their prices, an aesthetic shift has been occurring. It's not a movement - movements are more sure of themselves. It's a change of mood or expectation, a desire for art to be more than showy effects, big numbers, and gamesmanship.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
