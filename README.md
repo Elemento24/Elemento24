@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To teach how to live without certainty and yet without being paralysed by hesitation is perhaps the chief thing that philosophy, in our age, can do for those who study it.</b>
-> <p><i>Bertrand Russell</i></p>
+> <b>For me, I don't expect to have a really amazing meal each time I dine out. Having a good meal with your loved ones - that's what makes the experience.</b>
+> <p><i>Wolfgang Puck</i></p>
 
 <br>
