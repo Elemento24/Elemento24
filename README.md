@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Millions of young Americans have graduated from college during the Obama presidency, ready to use their gifts and get moving in life. Half of them can't find the work they studied for, or any work at all. So here's the question: Without a change in leadership, why would the next four years be any different from the last four years?</b>
-> <p><i>Paul Ryan</i></p>
+> <b>I got fitter when I did 'Joseph and the Amazing Technicolor Dreamcoat.' I wore a loincloth - that's a lot of motivation!</b>
+> <p><i>Donny Osmond</i></p>
 
 <br>
