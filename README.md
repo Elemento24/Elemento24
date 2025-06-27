@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best executive is one who has sense enough to pick good people to do what he wants done, and self-restraint enough to keep from meddling with them while they do it.</b>
-> <p><i>Theodore Roosevelt</i></p>
+> <b>It's good that the first half of the speech emphasized freedom, because George W. Bush has been the global champion for freedom. As he said, if we don't fight tyranny it will not leave us alone in peace.</b>
+> <p><i>Ernest Istook</i></p>
 
 <br>
