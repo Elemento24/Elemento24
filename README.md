@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am not a great cook, I am not a great artist, but I love art, and I love food, so I am the perfect traveller.</b>
-> <p><i>Michael Palin</i></p>
+> <b>You change with the guys you date.</b>
+> <p><i>Jessica Simpson</i></p>
 
 <br>
