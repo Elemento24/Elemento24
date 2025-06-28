@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I live by the philosophy that beauty starts from within, and I make a conscious effort to fill my body with nutrients through the food I eat.</b>
-> <p><i>Miranda Kerr</i></p>
+> <b>My greatest challenge has been to change the mindset of people. Mindsets play strange tricks on us. We see things the way our minds have instructed our eyes to see.</b>
+> <p><i>Muhammad Yunus</i></p>
 
 <br>
