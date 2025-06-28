@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The automobile, both a cause and an effect of this decentralization, is ideally suited for our vast landscape and our generally confused and contrary commuting patterns.</b>
-> <p><i>Brock Yates</i></p>
+> <b>A woman's best protection is a little money of her own.</b>
+> <p><i>Clare Boothe Luce</i></p>
 
 <br>
