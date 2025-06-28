@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Female rappers get it the hardest. You have to be a girl, yet you have to be just as hard as the guys. I think some female rappers get scared out of the business before they can make it.</b>
-> <p><i>Nicki Minaj</i></p>
+> <b>Beauty is often worse than wine intoxicating both the holder and beholder.</b>
+> <p><i>John Zimmerman</i></p>
 
 <br>
