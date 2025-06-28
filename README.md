@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman's best protection is a little money of her own.</b>
-> <p><i>Clare Boothe Luce</i></p>
+> <b>Change before you have to.</b>
+> <p><i>Jack Welch</i></p>
 
 <br>
