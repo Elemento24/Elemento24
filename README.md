@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to sell to people my own age, because that's the way I write songs.</b>
-> <p><i>John Mellencamp</i></p>
+> <b>I spend up to two hours a day on correspondence. Hearing from fans on the Internet and being able to directly respond to the fan base is exciting. You can cut out the middle man like the fan club... before a recent appearance in Tyler, Texas, I had fans reaching out on MySpace offering their lake house, Mavericks tickets. It was amazing.</b>
+> <p><i>Josh Henderson</i></p>
 
 <br>
