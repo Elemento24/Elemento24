@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant.</b>
-> <p><i>Tony Robbins</i></p>
+> <b>I shall not change my course because those who assume to be better than I desire it.</b>
+> <p><i>Victoria Woodhull</i></p>
 
 <br>
