@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My greatest challenge has been to change the mindset of people. Mindsets play strange tricks on us. We see things the way our minds have instructed our eyes to see.</b>
-> <p><i>Muhammad Yunus</i></p>
+> <b>Female rappers get it the hardest. You have to be a girl, yet you have to be just as hard as the guys. I think some female rappers get scared out of the business before they can make it.</b>
+> <p><i>Nicki Minaj</i></p>
 
 <br>
