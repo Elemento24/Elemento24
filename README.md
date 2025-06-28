@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change before you have to.</b>
-> <p><i>Jack Welch</i></p>
+> <b>I live by the philosophy that beauty starts from within, and I make a conscious effort to fill my body with nutrients through the food I eat.</b>
+> <p><i>Miranda Kerr</i></p>
 
 <br>
