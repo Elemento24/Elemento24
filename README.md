@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whatever good things we build end up building us.</b>
-> <p><i>Jim Rohn</i></p>
+> <b>Everybody past a certain age, regardless of how they look on the outside, pretty much constantly dreams of being able to escape from their lives.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
