@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nature is the art of God.</b>
-> <p><i>Dante Alighieri</i></p>
+> <b>Whatever good things we build end up building us.</b>
+> <p><i>Jim Rohn</i></p>
 
 <br>
