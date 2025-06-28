@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is a transient hatred or at least very like it.</b>
-> <p><i>Robert South</i></p>
+> <b>Nature is the art of God.</b>
+> <p><i>Dante Alighieri</i></p>
 
 <br>
