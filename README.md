@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best protection any woman can have... is courage.</b>
-> <p><i>Elizabeth Cady Stanton</i></p>
+> <b>I think that people don't know how to do anything anymore. My father was a janitor. He could take a car apart and put it back together. He could build a house in the back yard. Today, if you ask people what they know, they say, 'I know how to hire someone.'</b>
+> <p><i>Walter Mosley</i></p>
 
 <br>
