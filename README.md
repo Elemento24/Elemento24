@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody past a certain age, regardless of how they look on the outside, pretty much constantly dreams of being able to escape from their lives.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>I want to sell to people my own age, because that's the way I write songs.</b>
+> <p><i>John Mellencamp</i></p>
 
 <br>
