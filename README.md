@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing in the world of art like the songs mother used to sing.</b>
-> <p><i>Billy Sunday</i></p>
+> <b>Letting your mind play is the best way to solve problems.</b>
+> <p><i>Bill Watterson</i></p>
 
 <br>
