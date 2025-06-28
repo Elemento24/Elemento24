@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Back in the days when the market was a kind of secular god and all the world thrilled to behold the amazing powers of private capital, the idea of privatizing highways and airports and other bits of our transportation infrastructure made a certain kind of sense.</b>
-> <p><i>Thomas Frank</i></p>
+> <b>The automobile, both a cause and an effect of this decentralization, is ideally suited for our vast landscape and our generally confused and contrary commuting patterns.</b>
+> <p><i>Brock Yates</i></p>
 
 <br>
