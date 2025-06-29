@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I spend up to two hours a day on correspondence. Hearing from fans on the Internet and being able to directly respond to the fan base is exciting. You can cut out the middle man like the fan club... before a recent appearance in Tyler, Texas, I had fans reaching out on MySpace offering their lake house, Mavericks tickets. It was amazing.</b>
-> <p><i>Josh Henderson</i></p>
+> <b>If you think nobody cares if you're alive, try missing a couple of car payments.</b>
+> <p><i>Earl Wilson</i></p>
 
 <br>
