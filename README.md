@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's an interesting combination: Having a great fear of being alone, and having a desperate need for solitude and the solitary experience. That's always been a tug of war for me.</b>
-> <p><i>Jodie Foster</i></p>
+> <b>Shutting off the thought process is not rejuvenating the mind is like a car battery - it recharges by running.</b>
+> <p><i>Bill Watterson</i></p>
 
 <br>
