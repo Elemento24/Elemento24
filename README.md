@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art which we may call generally art of the wayside, as opposed to that which is the business of men's lives, is, in the best sense of the word, Grotesque.</b>
-> <p><i>John Ruskin</i></p>
+> <b>As a team, you need to come from behind every once in awhile just to do it. Good for the attitude. It makes it exciting. And when everybody knows you have to throw it... that makes it fun too.</b>
+> <p><i>Dan Marino</i></p>
 
 <br>
