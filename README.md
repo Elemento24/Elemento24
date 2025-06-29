@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world will change for the better when people decide they are sick and tired of being sick and tired of the way the world is, and decide to change themselves.</b>
-> <p><i>Sydney Madwed</i></p>
+> <b>To have striven, to have made the effort, to have been true to certain ideals - this alone is worth the struggle.</b>
+> <p><i>William Osler</i></p>
 
 <br>
