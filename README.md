@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not the young people that degenerate they are not spoiled till those of mature age are already sunk into corruption.</b>
-> <p><i>Charles de Montesquieu</i></p>
+> <b>Parking is a nightmare for me... I still have sensors on my car that help me park.</b>
+> <p><i>Jordana Brewster</i></p>
 
 <br>
