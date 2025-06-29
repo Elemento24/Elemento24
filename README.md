@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get a friend to travel with me... I need somebody to bring me back to who I am. It's hard to be alone.</b>
-> <p><i>Leonardo DiCaprio</i></p>
+> <b>The world will change for the better when people decide they are sick and tired of being sick and tired of the way the world is, and decide to change themselves.</b>
+> <p><i>Sydney Madwed</i></p>
 
 <br>
