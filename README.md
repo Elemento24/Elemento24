@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was friends with all different people and all different groups. And that led me to being friends with a few people who didn't even go to my school. Now I have the most amazing collection of friends of all ethnic backgrounds and upbringing and financial backgrounds.</b>
-> <p><i>James Maslow</i></p>
+> <b>There is the expression of selfishness and there is the expression of selflessness - but economists or theoreticians never touched that part. They said: 'Go and become a philanthropist.' I said, 'No, I can do that in the business world, create a different kind of business - a business based on selflessness.'</b>
+> <p><i>Muhammad Yunus</i></p>
 
 <br>
