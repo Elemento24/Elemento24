@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The whole point of being in this business and being blessed and being successful is that you're able to do things for your friends or your family, which means that they can have something special in their lives, too.</b>
-> <p><i>Elton John</i></p>
+> <b>You have to have your heart in the business and the business in your heart.</b>
+> <p><i>An Wang</i></p>
 
 <br>
