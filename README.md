@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Parking is a nightmare for me... I still have sensors on my car that help me park.</b>
-> <p><i>Jordana Brewster</i></p>
+> <b>I do not see any beauty in self-restraint.</b>
+> <p><i>Mary MacLane</i></p>
 
 <br>
