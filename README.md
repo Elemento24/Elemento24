@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Others indeed may talk, and write, and fight about liberty, and make an outward pretence to it but the free-thinker alone is truly free.</b>
-> <p><i>George Berkeley</i></p>
+> <b>I have to hit the gym. I have beauty appointments. I have to work toward my next job and maintaining my image, just like an athlete.</b>
+> <p><i>Linda Evangelista</i></p>
 
 <br>
