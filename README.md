@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a team, you need to come from behind every once in awhile just to do it. Good for the attitude. It makes it exciting. And when everybody knows you have to throw it... that makes it fun too.</b>
-> <p><i>Dan Marino</i></p>
+> <b>Yeah, I've worked with a couple of female directors, now, and I think that they're amazing. As good or better than guy directors.</b>
+> <p><i>Alia Shawkat</i></p>
 
 <br>
