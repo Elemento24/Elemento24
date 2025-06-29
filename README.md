@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to have your heart in the business and the business in your heart.</b>
-> <p><i>An Wang</i></p>
+> <b>To be able to endure odium is the first art to be learned by those who aspire to power.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
