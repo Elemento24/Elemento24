@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To have striven, to have made the effort, to have been true to certain ideals - this alone is worth the struggle.</b>
-> <p><i>William Osler</i></p>
+> <b>It is not the young people that degenerate they are not spoiled till those of mature age are already sunk into corruption.</b>
+> <p><i>Charles de Montesquieu</i></p>
 
 <br>
