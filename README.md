@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work of the individual still remains the spark that moves mankind ahead even more than teamwork.</b>
-> <p><i>Igor Sikorsky</i></p>
+> <b>I hate the idea that you shouldn't wear something just because you're a certain age.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
