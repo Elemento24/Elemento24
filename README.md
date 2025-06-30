@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first car was a 1976 Toyota Corolla Liftback in red, like the one in 'The Blues Brothers.' I painted a Union Jack on the roof. I was absolutely in love with it until I destroyed it, which broke my heart!</b>
-> <p><i>Richard Hammond</i></p>
+> <b>Love is not weakness. It is strong. Only the sacrament of marriage can contain it.</b>
+> <p><i>Boris Pasternak</i></p>
 
 <br>
