@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter how close to yours another's steps have grown, in the end there is one dance you'll do alone.</b>
-> <p><i>Jackson Browne</i></p>
+> <b>I love the way you can fall in love with a piece of literature how words alone can get your heart doing that.</b>
+> <p><i>Laura Marling</i></p>
 
 <br>
