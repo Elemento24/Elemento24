@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm generally quite an angry person, and I like to channel my anger toward something creative.</b>
-> <p><i>Sharmeen Obaid-Chinoy</i></p>
+> <b>I have a talent for happiness. I look with the eyes of a painter, and I see beauty.</b>
+> <p><i>Sylvia Kristel</i></p>
 
 <br>
