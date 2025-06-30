@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a talent for happiness. I look with the eyes of a painter, and I see beauty.</b>
-> <p><i>Sylvia Kristel</i></p>
+> <b>Well, my son really loves wildlife. And everytime he draws a polar bear I want to tell him there probably won't any by the time... he's my age. That's kinda hard to deal with.</b>
+> <p><i>Thom Yorke</i></p>
 
 <br>
