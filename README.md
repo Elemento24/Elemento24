@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not really in the excuse business.</b>
-> <p><i>Bill Parcells</i></p>
+> <b>The beauty of having short hair is that I actually can wash and style it at home!</b>
+> <p><i>Meagan Good</i></p>
 
 <br>
