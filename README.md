@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother asked me what I wanted for my birthday, so I said I wanted to read poetry with her.</b>
-> <p><i>Guy Johnson</i></p>
+> <b>The work of the individual still remains the spark that moves mankind ahead even more than teamwork.</b>
+> <p><i>Igor Sikorsky</i></p>
 
 <br>
