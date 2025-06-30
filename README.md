@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is the expression of selfishness and there is the expression of selflessness - but economists or theoreticians never touched that part. They said: 'Go and become a philanthropist.' I said, 'No, I can do that in the business world, create a different kind of business - a business based on selflessness.'</b>
-> <p><i>Muhammad Yunus</i></p>
+> <b>Art is beauty, the perpetual invention of detail, the choice of words, the exquisite care of execution.</b>
+> <p><i>Theophile Gautier</i></p>
 
 <br>
