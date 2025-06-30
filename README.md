@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of my arguments with musicians through the years have had more to do with their attitude about music, or their attitude about their own lives, or their personal responsibility. Music has never really been the big centerpiece of the fight.</b>
-> <p><i>Billy Corgan</i></p>
+> <b>No matter how close to yours another's steps have grown, in the end there is one dance you'll do alone.</b>
+> <p><i>Jackson Browne</i></p>
 
 <br>
