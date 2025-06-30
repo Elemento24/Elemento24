@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love the way you can fall in love with a piece of literature how words alone can get your heart doing that.</b>
-> <p><i>Laura Marling</i></p>
+> <b>If you think spreading money around by force seems like an odd definition of fairness, you're not alone.</b>
+> <p><i>Arthur C. Brooks</i></p>
 
 <br>
