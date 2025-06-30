@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love is not weakness. It is strong. Only the sacrament of marriage can contain it.</b>
-> <p><i>Boris Pasternak</i></p>
+> <b>I trained to be a priest - started to. I went to seminary school when I was 11. I wanted to be a priest, but when they told me I could never have sex, not even on my birthday, I changed my mind.</b>
+> <p><i>Johnny Vegas</i></p>
 
 <br>
