@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, my son really loves wildlife. And everytime he draws a polar bear I want to tell him there probably won't any by the time... he's my age. That's kinda hard to deal with.</b>
-> <p><i>Thom Yorke</i></p>
+> <b>I'm not really in the excuse business.</b>
+> <p><i>Bill Parcells</i></p>
 
 <br>
