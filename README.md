@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I trained to be a priest - started to. I went to seminary school when I was 11. I wanted to be a priest, but when they told me I could never have sex, not even on my birthday, I changed my mind.</b>
-> <p><i>Johnny Vegas</i></p>
+> <b>I'm generally quite an angry person, and I like to channel my anger toward something creative.</b>
+> <p><i>Sharmeen Obaid-Chinoy</i></p>
 
 <br>
