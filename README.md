@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because of my age and because there's more work on the small screen. What it's missing in quality it makes up for in quantity. From an actor's selfish point of view.</b>
-> <p><i>Cesar Romero</i></p>
+> <b>Building art is a synthesis of life in materialised form. We should try to bring in under the same hat not a splintered way of thinking, but all in harmony together.</b>
+> <p><i>Alvar Aalto</i></p>
 
 <br>
