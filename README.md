@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fit no stereotypes. Don't chase the latest management fads. The situation dictates which approach best accomplishes the team's mission.</b>
-> <p><i>Colin Powell</i></p>
+> <b>When I tried to play something and screwed up, I'd hear some other note that would come into play. Then I started trying different things to find the beauty in it.</b>
+> <p><i>Dimebag Darrell</i></p>
 
 <br>
