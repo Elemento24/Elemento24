@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I listen to every thing, all kinds of stuff. I've been obsessed with the Nas and Damian Marley record, 'Distant Relatives.' I feel like a lot of people haven't heard it, and it's amazing.</b>
-> <p><i>Eve Jihan Jeffers</i></p>
+> <b>Fit no stereotypes. Don't chase the latest management fads. The situation dictates which approach best accomplishes the team's mission.</b>
+> <p><i>Colin Powell</i></p>
 
 <br>
