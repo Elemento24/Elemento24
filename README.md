@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing that so much gratifies an ill tongue as when it finds an angry heart.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>I have played on many teams throughout my career, and I know when a team has the tools, and the right positive attitude towards winning.</b>
+> <p><i>Boomer Esiason</i></p>
 
 <br>
