@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not since the steam engine has any invention disrupted business models like the Internet. Whole industries including music distribution, yellow-pages directories, landline telephones, and fax machines have been radically reordered by the digital revolution.</b>
-> <p><i>John Sununu</i></p>
+> <b>Sleeping is no mean art: for its sake one must stay awake all day.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
