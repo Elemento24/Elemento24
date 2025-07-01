@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Twenty years ago, I was living in a lovely cottage on the edge of Dartmoor but I couldn't afford to run a car.</b>
-> <p><i>Mary Wesley</i></p>
+> <b>I think we need one recognized, respected public figure to make a tough, blunt statement on just what Reagan's record is and what he might do to the country, let alone the Republican Party before Christmas.</b>
+> <p><i>Robert Teeter</i></p>
 
 <br>
