@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Choreography is amazing. I'm still a dancer, yet I transitioned into choreography then as a Creative Director. All of these creative elements are brought out of being a dancer. Directing is something that comes out of understanding movement and choreography. Directing movement is directing a dance piece.</b>
-> <p><i>Laurieann Gibson</i></p>
+> <b>Have you ever noticed how nice people are at the car wash?! Maybe it's just me, but it makes me happy. Weird, I know!</b>
+> <p><i>Brittany Snow</i></p>
 
 <br>
