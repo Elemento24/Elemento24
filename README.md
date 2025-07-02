@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing can atone for the lack of modesty without which beauty is ungraceful and wit detestable.</b>
-> <p><i>Richard Steele</i></p>
+> <b>I never dreamt of being a musician for my livelihood. I certainly never would have wanted to be in the business that I'm in, meaning the fame and the glory, the glitter, the rock star, the famous part.</b>
+> <p><i>Eddie Van Halen</i></p>
 
 <br>
