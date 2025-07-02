@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I'm actually quite a materialistic person, I value what it takes to make a car or build a nice house. Money does change things, but how it changes people depends on how they react to it.</b>
-> <p><i>Roland Gift</i></p>
+> <b>Choreography is amazing. I'm still a dancer, yet I transitioned into choreography then as a Creative Director. All of these creative elements are brought out of being a dancer. Directing is something that comes out of understanding movement and choreography. Directing movement is directing a dance piece.</b>
+> <p><i>Laurieann Gibson</i></p>
 
 <br>
