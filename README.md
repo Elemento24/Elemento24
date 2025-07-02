@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Web users ultimately want to get at data quickly and easily. They don't care as much about attractive sites and pretty design.</b>
-> <p><i>Tim Berners-Lee</i></p>
+> <b>These days too many of us seem inclined to cover our ears, close our eyes, and blindly follow the most narrow, conservative tenets of religion or else seek comfort in the ancient traditions of New Age ritual.</b>
+> <p><i>Joan D. Vinge</i></p>
 
 <br>
