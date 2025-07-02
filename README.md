@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Have you ever noticed how nice people are at the car wash?! Maybe it's just me, but it makes me happy. Weird, I know!</b>
-> <p><i>Brittany Snow</i></p>
+> <b>When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.</b>
+> <p><i>Charles R. Swindoll</i></p>
 
 <br>
