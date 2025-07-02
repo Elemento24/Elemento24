@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.</b>
-> <p><i>Charles R. Swindoll</i></p>
+> <b>There's a lot of bitterness, there's a lot of anger out there. We all have to work hard to heal those wounds.</b>
+> <p><i>Allen Boyd</i></p>
 
 <br>
