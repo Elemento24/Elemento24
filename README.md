@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never dreamt of being a musician for my livelihood. I certainly never would have wanted to be in the business that I'm in, meaning the fame and the glory, the glitter, the rock star, the famous part.</b>
-> <p><i>Eddie Van Halen</i></p>
+> <b>Web users ultimately want to get at data quickly and easily. They don't care as much about attractive sites and pretty design.</b>
+> <p><i>Tim Berners-Lee</i></p>
 
 <br>
