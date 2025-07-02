@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Black Consciousness is an attitude of the mind and a way of life, the most positive call to emanate from the black world for a long time.</b>
-> <p><i>Steven Biko</i></p>
+> <b>I've always been asked, 'What is my favorite car?' and I've always said 'The next one.'</b>
+> <p><i>Caroll Shelby</i></p>
 
 <br>
