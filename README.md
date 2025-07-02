@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a lot of bitterness, there's a lot of anger out there. We all have to work hard to heal those wounds.</b>
-> <p><i>Allen Boyd</i></p>
+> <b>What Youth deemed crystal, Age finds out was dew.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
