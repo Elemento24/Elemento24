@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Building art is a synthesis of life in materialised form. We should try to bring in under the same hat not a splintered way of thinking, but all in harmony together.</b>
-> <p><i>Alvar Aalto</i></p>
+> <b>Nothing can atone for the lack of modesty without which beauty is ungraceful and wit detestable.</b>
+> <p><i>Richard Steele</i></p>
 
 <br>
