@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All I want to do is change the world.</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>I think we all have blocks between us and the best version of ourselves, whether it's shyness, insecurity, anxiety, whether it's a physical block, and the story of a person overcoming that block to their best self. It's truly inspiring because I think all of us are engaged in that every day.</b>
+> <p><i>Tom Hooper</i></p>
 
 <br>
