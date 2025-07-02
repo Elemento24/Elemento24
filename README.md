@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think everybody can agree that you can hear a certain song and it will put you in a certain mood, and that's just the beauty of music and I am so inspired by that.</b>
-> <p><i>Shaun White</i></p>
+> <b>I think I'm actually quite a materialistic person, I value what it takes to make a car or build a nice house. Money does change things, but how it changes people depends on how they react to it.</b>
+> <p><i>Roland Gift</i></p>
 
 <br>
