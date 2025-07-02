@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time is the scarcest resource and unless it is managed nothing else can be managed.</b>
-> <p><i>Peter Drucker</i></p>
+> <b>Black Consciousness is an attitude of the mind and a way of life, the most positive call to emanate from the black world for a long time.</b>
+> <p><i>Steven Biko</i></p>
 
 <br>
