@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's better to be unhappy alone than unhappy with someone - so far.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>You can either invade a country or leave them alone and trade with them. When goods cross borders, armies don't.</b>
+> <p><i>John Stossel</i></p>
 
 <br>
