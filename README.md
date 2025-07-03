@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would fix other people's lines if they asked me on occasion. The hard part of writing is the architecture of it, getting the story and structuring it. Not the tweaking of lines.</b>
-> <p><i>William Devane</i></p>
+> <b>Obama and his attack dogs have nothing but hate and anger in their hearts and spew it whenever possible.</b>
+> <p><i>Donald Trump</i></p>
 
 <br>
