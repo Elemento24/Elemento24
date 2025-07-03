@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obama and his attack dogs have nothing but hate and anger in their hearts and spew it whenever possible.</b>
-> <p><i>Donald Trump</i></p>
+> <b>Those who educate children well are more to be honored than they who produce them for these only gave them life, those the art of living well.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
