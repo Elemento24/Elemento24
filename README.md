@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each of us have things and thoughts and descriptions of an amazing universe in our possession that kings in the 17th Century would have gone to war to possess.</b>
-> <p><i>Kary Mullis</i></p>
+> <b>If you're truly in a band and you guys have been together for a long time, there's a family bond that you have. In fact, I've talked about this with therapists, especially if you're talking about a relationship, because when you're with somebody, you're going to your family, and she's alone.</b>
+> <p><i>Gary Allan</i></p>
 
 <br>
