@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age does not matter if the matter does not age.</b>
-> <p><i>Jean Paul</i></p>
+> <b>I'm vulnerable to criticism. Any artist is, because you work alone in your studio and, until recently, critics were the only way you'd get any feedback.</b>
+> <p><i>Howard Hodgkin</i></p>
 
 <br>
