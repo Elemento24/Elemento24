@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Indulge not thyself in the passion of anger it is whetting a sword to wound thine own breast, or murder thy friend.</b>
-> <p><i>Akhenaton</i></p>
+> <b>What good mothers and fathers instinctively feel like doing for their babies is usually best after all.</b>
+> <p><i>Benjamin Spock</i></p>
 
 <br>
