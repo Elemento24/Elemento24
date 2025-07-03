@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of all the lessons most relevant to architecture today, Japanese flexibility is the greatest.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>The Met is not only the finest encyclopedic museum of art in the United States it is arguably the finest anywhere.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
