@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest discovery of my generation is that man can alter his life simply by altering his attitude of mind.</b>
-> <p><i>James Truslow Adams</i></p>
+> <b>Each of us have things and thoughts and descriptions of an amazing universe in our possession that kings in the 17th Century would have gone to war to possess.</b>
+> <p><i>Kary Mullis</i></p>
 
 <br>
