@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have the best government that money can buy.</b>
-> <p><i>Mark Twain</i></p>
+> <b>I would fix other people's lines if they asked me on occasion. The hard part of writing is the architecture of it, getting the story and structuring it. Not the tweaking of lines.</b>
+> <p><i>William Devane</i></p>
 
 <br>
