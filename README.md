@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't change, then what's the point of anything happening to you?</b>
-> <p><i>Doug Coupland</i></p>
+> <b>Age does not matter if the matter does not age.</b>
+> <p><i>Jean Paul</i></p>
 
 <br>
