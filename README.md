@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Met is not only the finest encyclopedic museum of art in the United States it is arguably the finest anywhere.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It's better to be unhappy alone than unhappy with someone - so far.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
