@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who educate children well are more to be honored than they who produce them for these only gave them life, those the art of living well.</b>
-> <p><i>Aristotle</i></p>
+> <b>Indulge not thyself in the passion of anger it is whetting a sword to wound thine own breast, or murder thy friend.</b>
+> <p><i>Akhenaton</i></p>
 
 <br>
