@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What good mothers and fathers instinctively feel like doing for their babies is usually best after all.</b>
-> <p><i>Benjamin Spock</i></p>
+> <b>My approach to cutting spending as president, is to do a ten percent across the board cut of all federal agencies, and then ask each of my new agency heads to find another ten percent by drilling down. That's what you do in business to come up with approximately 20 percent cuts for the first fiscal year budget.</b>
+> <p><i>Herman Cain</i></p>
 
 <br>
