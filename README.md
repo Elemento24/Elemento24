@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As human beings, our greatness lies not so much in being able to remake the world - that is the myth of the atomic age - as in being able to remake ourselves.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>In sport there is never any moment that is the same as the other. I have been in Formula One for 12 years, and out of that I had one year with the perfect car.</b>
+> <p><i>Michael Schumacher</i></p>
 
 <br>
