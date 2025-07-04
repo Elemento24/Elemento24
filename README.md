@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Work alone is noble.</b>
-> <p><i>Thomas Carlyle</i></p>
+> <b>I have reached a place in my life where I need to sit down and say, 'Well, what do I do? What's best for me?' I need to look into options for the future.</b>
+> <p><i>Michael Phelps</i></p>
 
 <br>
