@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The soul that sees beauty may sometimes walk alone.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>Originality is the fine art of remembering what you hear but forgetting where you heard it.</b>
+> <p><i>Laurence J. Peter</i></p>
 
 <br>
