@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In sport there is never any moment that is the same as the other. I have been in Formula One for 12 years, and out of that I had one year with the perfect car.</b>
-> <p><i>Michael Schumacher</i></p>
+> <b>People are always angry at America. They're absolutely certain that America either caused their problems or is deliberately not fixing their problems. But the anger is always directed at America and never at Americans.</b>
+> <p><i>P. J. O'Rourke</i></p>
 
 <br>
