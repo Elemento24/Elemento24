@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At a certain age, death becomes familiar to you-or a loss becomes familiar-the tragedies that are more commonplace in life.</b>
-> <p><i>Jessica Lange</i></p>
+> <b>Movies are an expensive business.</b>
+> <p><i>Albert Brooks</i></p>
 
 <br>
