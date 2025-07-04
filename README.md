@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is time to change our policy of appeasement toward the Palestinians, to strengthen our ties with the nation of Israel.</b>
-> <p><i>Rick Perry</i></p>
+> <b>One of the tests of leadership is the ability to recognize a problem before it becomes an emergency.</b>
+> <p><i>Arnold H. Glasow</i></p>
 
 <br>
