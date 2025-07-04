@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My work is not about 'form follows function,' but 'form follows beauty' or, even better, 'form follows feminine.'</b>
-> <p><i>Oscar Niemeyer</i></p>
+> <b>Grace is the beauty of form under the influence of freedom.</b>
+> <p><i>Friedrich Schiller</i></p>
 
 <br>
