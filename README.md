@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are always angry at America. They're absolutely certain that America either caused their problems or is deliberately not fixing their problems. But the anger is always directed at America and never at Americans.</b>
-> <p><i>P. J. O'Rourke</i></p>
+> <b>I have a book out called 'The Beauty Equation' and it discusses how off track we have gone in considering beauty.</b>
+> <p><i>Nigel Barker</i></p>
 
 <br>
