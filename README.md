@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the tests of leadership is the ability to recognize a problem before it becomes an emergency.</b>
-> <p><i>Arnold H. Glasow</i></p>
+> <b>As Ralph's character begins to discover the political thriller aspect of the film, he falls deeper in love with his wife, so the two run together. That's the beauty of this film. It has fast pace and excitement, but it also has heart and soul.</b>
+> <p><i>Rachel Weisz</i></p>
 
 <br>
