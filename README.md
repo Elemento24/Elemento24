@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a book out called 'The Beauty Equation' and it discusses how off track we have gone in considering beauty.</b>
-> <p><i>Nigel Barker</i></p>
+> <b>The biggest problem with every art is by the use of appearance to create a loftier reality.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
