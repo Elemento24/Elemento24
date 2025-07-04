@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have reached a place in my life where I need to sit down and say, 'Well, what do I do? What's best for me?' I need to look into options for the future.</b>
-> <p><i>Michael Phelps</i></p>
+> <b>As human beings, our greatness lies not so much in being able to remake the world - that is the myth of the atomic age - as in being able to remake ourselves.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
