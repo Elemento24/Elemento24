@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grace is the beauty of form under the influence of freedom.</b>
-> <p><i>Friedrich Schiller</i></p>
+> <b>My dad was a journalist. He was in Rwanda right after the genocide. In Berlin when the wall came down. He was always disappearing and coming back with amazing stories. So telling stories for a living made sense to me.</b>
+> <p><i>Patrick J. Adams</i></p>
 
 <br>
