@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Next month, I will celebrate my 30th anniversary of marriage with my beautiful bride, Vicki. Our marriage has been a blessing. I have gained even more respect for the institution over the past 3 decades and will defend it against attack.</b>
-> <p><i>Todd Tiahrt</i></p>
+> <b>There's no way to approach anything in an objective way. We're completely subjective our view of the world is completely controlled by who we are as human beings, as men or women, by our age, our history, our profession, by the state of the world.</b>
+> <p><i>Charlie Kaufman</i></p>
 
 <br>
