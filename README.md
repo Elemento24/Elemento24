@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a kid anymore. And I'm excited for all the amazing things to come.</b>
-> <p><i>Paris Hilton</i></p>
+> <b>Does age matter? Time doesn't matter.</b>
+> <p><i>Sandra Bullock</i></p>
 
 <br>
