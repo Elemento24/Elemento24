@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Jazz in itself is not struggling. That is, the music itself is not struggling... It's the attitude that's in trouble. My plays insist that we should not forget or toss away our history.</b>
-> <p><i>August Wilson</i></p>
+> <b>It's amazing to hear, as a voice matures and then starts to decline, what kind of emotion is still conveyed by a really good vocalist.</b>
+> <p><i>Tom Wopat</i></p>
 
 <br>
