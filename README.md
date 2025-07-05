@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A thing is right when it tends to preserve the integrity, stability and beauty of the biotic community. It is wrong when it tends otherwise.</b>
-> <p><i>Aldo Leopold</i></p>
+> <b>Old hands soil, it seems, whatever they caress, but they too have their beauty when they are joined in prayer. Young hands were made for caresses and the sheathing of love. It is a pity to make them join too soon.</b>
+> <p><i>Andre Gide</i></p>
 
 <br>
