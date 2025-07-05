@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of having a producer is that you have someone who says, You're finished.</b>
-> <p><i>Sheryl Crow</i></p>
+> <b>I'm not a kid anymore. And I'm excited for all the amazing things to come.</b>
+> <p><i>Paris Hilton</i></p>
 
 <br>
