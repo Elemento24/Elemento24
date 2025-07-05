@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I got a phone call from Fearne Cotton. It was amazing! I literally couldn't believe it. It was so cool. It was the night before I was going on her show to sing on the 'Live Lounge.' She was so lovely.</b>
-> <p><i>Birdy</i></p>
+> <b>The only way people are going to change their car buying habits, and the only way government will get behind alternatively fueled vehicles, is if gasoline prices continue to go up.</b>
+> <p><i>Alexandra Paul</i></p>
 
 <br>
