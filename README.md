@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The car is a character in the piece - I've never liked the car, I submitted to it's objectionable popularity.</b>
-> <p><i>Paul M. Glaser</i></p>
+> <b>I don't wanna hear nobody complain that they're getting paid all this money and people won't leave them alone. It's part of it.</b>
+> <p><i>Mark Wahlberg</i></p>
 
 <br>
