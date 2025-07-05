@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no way to approach anything in an objective way. We're completely subjective our view of the world is completely controlled by who we are as human beings, as men or women, by our age, our history, our profession, by the state of the world.</b>
-> <p><i>Charlie Kaufman</i></p>
+> <b>Fear of serious injury alone cannot justify oppression of free speech and assembly. Men feared witches and burnt women. It is the function of speech to free men from the bondage of irrational fears.</b>
+> <p><i>Louis D. Brandeis</i></p>
 
 <br>
