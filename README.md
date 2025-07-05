@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fear of serious injury alone cannot justify oppression of free speech and assembly. Men feared witches and burnt women. It is the function of speech to free men from the bondage of irrational fears.</b>
-> <p><i>Louis D. Brandeis</i></p>
+> <b>The beauty of having a producer is that you have someone who says, You're finished.</b>
+> <p><i>Sheryl Crow</i></p>
 
 <br>
