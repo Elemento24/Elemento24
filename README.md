@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man can be himself only so long as he is alone.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>A thing is right when it tends to preserve the integrity, stability and beauty of the biotic community. It is wrong when it tends otherwise.</b>
+> <p><i>Aldo Leopold</i></p>
 
 <br>
