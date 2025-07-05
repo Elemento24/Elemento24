@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't wanna hear nobody complain that they're getting paid all this money and people won't leave them alone. It's part of it.</b>
-> <p><i>Mark Wahlberg</i></p>
+> <b>Jazz in itself is not struggling. That is, the music itself is not struggling... It's the attitude that's in trouble. My plays insist that we should not forget or toss away our history.</b>
+> <p><i>August Wilson</i></p>
 
 <br>
