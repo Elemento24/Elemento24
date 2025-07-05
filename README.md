@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way people are going to change their car buying habits, and the only way government will get behind alternatively fueled vehicles, is if gasoline prices continue to go up.</b>
-> <p><i>Alexandra Paul</i></p>
+> <b>I am little concerned with beauty or perfection. I don't care for the great centuries. All I care about is life, struggle, intensity.</b>
+> <p><i>Emile Zola</i></p>
 
 <br>
