@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can be tired, weary and emotionally distraught, but after spending time alone with God, we find that He injects into our bodies energy, power and strength.</b>
-> <p><i>Charles Stanley</i></p>
+> <b>The car is a character in the piece - I've never liked the car, I submitted to it's objectionable popularity.</b>
+> <p><i>Paul M. Glaser</i></p>
 
 <br>
