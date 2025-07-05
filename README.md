@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am little concerned with beauty or perfection. I don't care for the great centuries. All I care about is life, struggle, intensity.</b>
-> <p><i>Emile Zola</i></p>
+> <b>We can be tired, weary and emotionally distraught, but after spending time alone with God, we find that He injects into our bodies energy, power and strength.</b>
+> <p><i>Charles Stanley</i></p>
 
 <br>
