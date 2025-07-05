@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to be boring is to leave nothing out.</b>
-> <p><i>Voltaire</i></p>
+> <b>Next month, I will celebrate my 30th anniversary of marriage with my beautiful bride, Vicki. Our marriage has been a blessing. I have gained even more respect for the institution over the past 3 decades and will defend it against attack.</b>
+> <p><i>Todd Tiahrt</i></p>
 
 <br>
