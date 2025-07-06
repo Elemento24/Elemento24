@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't get rid of it with exercise alone. You can do the most vigorous exercise and only burn up 300 calories in an hour. If you've got fat on your body, the exercise firms and tones the muscles. But when you use that tape measure, what makes it bigger? It's the fat!</b>
-> <p><i>Jack LaLanne</i></p>
+> <b>In my fifty years of experience and memory, I have seen the most amazing increase in the standard of living of a people ever achieved anywhere in the world. This is why I am so sure that our system of free competition and industrial development is sound and must be preserved.</b>
+> <p><i>Charles E. Wilson</i></p>
 
 <br>
