@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the first present nature gives to women and the first it takes away.</b>
-> <p><i>Fay Weldon</i></p>
+> <b>Man, I hate to get depressing on you, but I don't have a game. I'm so alone, so depressed, so dark, no.</b>
+> <p><i>Jason Schwartzman</i></p>
 
 <br>
