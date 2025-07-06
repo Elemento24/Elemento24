@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I saw 'Taxi Driver,' and 'Taxi Driver' kind of saved my life. The scene where Robert De Niro is looking at himself in the mirror saying, 'You talkin' to me? You talkin' to me? Who the hell else are you talkin' to?' That's the scene that changed my life by changing my attitude about acting.</b>
-> <p><i>Michael Biehn</i></p>
+> <b>Parents have become so convinced that educators know what is best for their children that they forget that they themselves are really the experts.</b>
+> <p><i>Marian Wright Edelman</i></p>
 
 <br>
