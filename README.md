@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Parents have become so convinced that educators know what is best for their children that they forget that they themselves are really the experts.</b>
-> <p><i>Marian Wright Edelman</i></p>
+> <b>You have a career, and you start as a business person. And you work your way, you reach this peak, and you know the time's going to come when you go back down.</b>
+> <p><i>Miranda Lambert</i></p>
 
 <br>
