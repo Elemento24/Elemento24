@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing what some people read into songs.</b>
-> <p><i>Richard Thompson</i></p>
+> <b>A positive attitude can really make dreams come true - it did for me.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
