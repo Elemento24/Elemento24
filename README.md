@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have a career, and you start as a business person. And you work your way, you reach this peak, and you know the time's going to come when you go back down.</b>
-> <p><i>Miranda Lambert</i></p>
+> <b>I think one of the coolest things about the job is the level of trust we have for each other. The actors fully trust that the writers will write amazing episodes, and the writers trust that the actors will follow their instincts with the characters.</b>
+> <p><i>John Krasinski</i></p>
 
 <br>
