@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think one of the coolest things about the job is the level of trust we have for each other. The actors fully trust that the writers will write amazing episodes, and the writers trust that the actors will follow their instincts with the characters.</b>
-> <p><i>John Krasinski</i></p>
+> <b>In individual industries where female labour pays an important role, any movement advocating better wages, shorter working hours, etc., would not be doomed from the start because of the attitude of those women workers who are not organized.</b>
+> <p><i>Clara Zetkin</i></p>
 
 <br>
