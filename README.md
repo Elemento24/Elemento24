@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A healthy attitude is contagious but don't wait to catch it from others. Be a carrier.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>Nothing is as real as a dream. The world can change around you, but your dream will not. Responsibilities need not erase it. Duties need not obscure it. Because the dream is within you, no one can take it away.</b>
+> <p><i>Tom Clancy</i></p>
 
 <br>
