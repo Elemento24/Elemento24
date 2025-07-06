@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The creed of a true saint is to make the best of life, and to make the most of it.</b>
-> <p><i>Edwin Hubbel Chapin</i></p>
+> <b>Beauty is the first present nature gives to women and the first it takes away.</b>
+> <p><i>Fay Weldon</i></p>
 
 <br>
