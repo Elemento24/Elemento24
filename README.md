@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Does age matter? Time doesn't matter.</b>
-> <p><i>Sandra Bullock</i></p>
+> <b>I have no requirements for a style of architecture.</b>
+> <p><i>Michael Graves</i></p>
 
 <br>
