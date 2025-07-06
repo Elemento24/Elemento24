@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the misfortunes of our best friends we always find something not altogether displeasing to us.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>The personal things should be left out of platforms at conventions. You can argue yourself blue in the face, and you're not going to change each other's minds. It's a waste of your time and my time.</b>
+> <p><i>Barbara Bush</i></p>
 
 <br>
