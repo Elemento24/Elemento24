@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't have to have an attitude if you're famous.</b>
-> <p><i>Adriana Lima</i></p>
+> <b>I'm a very brave person. I can go to North Vietnam, I can challenge my government, but I can't challenge the man I'm with if means I'm going to end up alone.</b>
+> <p><i>Jane Fonda</i></p>
 
 <br>
