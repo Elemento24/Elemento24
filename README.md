@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have Graham Greene's telephone number, but I wouldn't dream of using it. I don't seek out writers because we all want to be alone.</b>
-> <p><i>Patricia Highsmith</i></p>
+> <b>After hurting myself like that, I could not go back immediately to racing. I was in no condition, mentally or physically. That helped me to strengthen myself to go through the hard times that were ahead with my business, and to be successful.</b>
+> <p><i>Nelson Piquet</i></p>
 
 <br>
