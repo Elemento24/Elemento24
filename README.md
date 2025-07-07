@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The forgotten man... He works, he votes, generally he prays, but his chief business in life is to pay.</b>
-> <p><i>William Graham Sumner</i></p>
+> <b>Have you heard about the Irishman who reversed into a car boot sale and sold the engine?</b>
+> <p><i>Frank Carson</i></p>
 
 <br>
