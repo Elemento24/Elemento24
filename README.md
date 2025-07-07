@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every human is an artist. The dream of your life is to make beautiful art.</b>
-> <p><i>Miguel Angel Ruiz</i></p>
+> <b>Indy car racing is much more aggressive.</b>
+> <p><i>Emerson Fittipaldi</i></p>
 
 <br>
