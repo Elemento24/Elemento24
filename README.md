@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the modern world of business, it is useless to be a creative, original thinker unless you can also sell what you create.</b>
-> <p><i>David Ogilvy</i></p>
+> <b>When one by one our ties are torn, and friend from friend is snatched forlorn when man is left alone to mourn, oh! then how sweet it is to die!</b>
+> <p><i>Anna Letitia Barbauld</i></p>
 
 <br>
