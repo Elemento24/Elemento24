@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Faith, mighty faith, the promise sees, And looks to God alone Laughs at impossibilities, And cries it shall be done.</b>
-> <p><i>Charles Wesley</i></p>
+> <b>The forgotten man... He works, he votes, generally he prays, but his chief business in life is to pay.</b>
+> <p><i>William Graham Sumner</i></p>
 
 <br>
