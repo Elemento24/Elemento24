@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was really amazing. I mean, he'd never mentioned that he played in the symphony, like serious violin playing, not fiddle playing. And he just blew us away.</b>
-> <p><i>Guy Clark</i></p>
+> <b>The great art of life is sensation, to feel that we exist, even in pain.</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
