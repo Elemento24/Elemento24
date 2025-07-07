@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty in distress is much the most affecting beauty.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>Sometimes it's the smallest decisions that can change your life forever.</b>
+> <p><i>Keri Russell</i></p>
 
 <br>
