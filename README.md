@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of this country and what people participate in is the competitive nature that we allow to exist and the fact is that we are better because we have great competitors.</b>
-> <p><i>Lee Scott</i></p>
+> <b>Beauty in distress is much the most affecting beauty.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
