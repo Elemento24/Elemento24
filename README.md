@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Human beings are the only animal that thinks they change who they are simply by moving to a different place. Birds migrate, but it's not quite the same thing.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>In the modern world of business, it is useless to be a creative, original thinker unless you can also sell what you create.</b>
+> <p><i>David Ogilvy</i></p>
 
 <br>
