@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I enjoyed being a teammate of Deion Sanders. He brings different elements to the game that many people would not even realize, and to watch and witness a superior talent like him and watch him prepare and train, and study the game is truly amazing.</b>
-> <p><i>Emmitt Smith</i></p>
+> <b>The greatest discovery of all time is that a person can change his future by merely changing his attitude.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
