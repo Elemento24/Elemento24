@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After hurting myself like that, I could not go back immediately to racing. I was in no condition, mentally or physically. That helped me to strengthen myself to go through the hard times that were ahead with my business, and to be successful.</b>
-> <p><i>Nelson Piquet</i></p>
+> <b>You don't have to have an attitude if you're famous.</b>
+> <p><i>Adriana Lima</i></p>
 
 <br>
