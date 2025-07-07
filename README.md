@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art world can be very intimidating because it's just so vast. You talk to people who are really clued in to all the young artists and coming into it you're never going to be able to catch up immediately, even though there's pressure to.</b>
-> <p><i>Daniel Radcliffe</i></p>
+> <b>I know that my grandfather is 92 years old. And he has seen this country evolve in amazing ways. He looks at South Carolina and he says, wow, what an amazing state that we have the blessing to live within because of the evolution.</b>
+> <p><i>Tim Scott</i></p>
 
 <br>
