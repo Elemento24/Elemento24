@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some say that I should settle down, go slower and not push so hard, so quickly for such transformational change. To them, I say that you misunderstand the size of the problems we face, the strength of the status quo and the urgency of the people's desire for change.</b>
-> <p><i>Eliot Spitzer</i></p>
+> <b>There can be no peace in the world so long as a large proportion of the population lack the necessities of life and believe that a change of the political and economic system will make them available. World peace must be based on world plenty.</b>
+> <p><i>John Boyd Orr</i></p>
 
 <br>
