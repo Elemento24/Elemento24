@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best rules to form a young man, are, to talk little, to hear much, to reflect alone upon what has passed in company, to distrust one's own opinions, and value others that deserve it.</b>
-> <p><i>William Temple</i></p>
+> <b>As an American, you have a right to good health care that is effective, accessible, and affordable, that serves you from infancy through old age, that allows you to go to practitioners and facilities of your choosing, and that offers a broad range of therapeutic options.</b>
+> <p><i>Andrew Weil</i></p>
 
 <br>
