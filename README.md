@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not an amazing cook. But I can follow a recipe!</b>
-> <p><i>Rachel McAdams</i></p>
+> <b>The best rules to form a young man, are, to talk little, to hear much, to reflect alone upon what has passed in company, to distrust one's own opinions, and value others that deserve it.</b>
+> <p><i>William Temple</i></p>
 
 <br>
