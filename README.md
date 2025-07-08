@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Organisations are now confronted with two sources of change: the traditional type that is initiated and managed and external changes over which no one has control.</b>
-> <p><i>Margaret J. Wheatley</i></p>
+> <b>I don't want to do business with those who don't make a profit, because they can't give the best service.</b>
+> <p><i>Richard Bach</i></p>
 
 <br>
