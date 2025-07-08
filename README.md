@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way to get things done is not to mind who gets the credit for doing them.</b>
-> <p><i>Benjamin Jowett</i></p>
+> <b>When hospitality becomes an art it loses its very soul.</b>
+> <p><i>Max Beerbohm</i></p>
 
 <br>
