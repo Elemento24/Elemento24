@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The competitor to be feared is one who never bothers about you at all, but goes on making his own business better all the time.</b>
-> <p><i>Henry Ford</i></p>
+> <b>Age is not all decay it is the ripening, the swelling, of the fresh life within, that withers and bursts the husk.</b>
+> <p><i>George MacDonald</i></p>
 
 <br>
