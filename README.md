@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A sad fact of life lately at the Museum of Modern Art is that when it comes to group shows of contemporary painting from the collection, the bar has been set pretty low.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>In seeking wisdom thou art wise in imagining that thou hast attained it - thou art a fool.</b>
+> <p><i>Lord Chesterfield</i></p>
 
 <br>
