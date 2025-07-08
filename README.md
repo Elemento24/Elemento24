@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Family trips to Yellowstone and to what are now national parks in Southern Utah, driving the primitive roads and cars of that day, were real adventures.</b>
-> <p><i>Paul D. Boyer</i></p>
+> <b>I think the beauty looks I most regret are those I was persuaded into.</b>
+> <p><i>Dita Von Teese</i></p>
 
 <br>
