@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am not trying to change the world. I am just offering my gift that God gave me, and if somebody is moved by it, that's beautiful.</b>
-> <p><i>Lenny Kravitz</i></p>
+> <b>Organisations are now confronted with two sources of change: the traditional type that is initiated and managed and external changes over which no one has control.</b>
+> <p><i>Margaret J. Wheatley</i></p>
 
 <br>
