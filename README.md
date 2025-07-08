@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the beauty looks I most regret are those I was persuaded into.</b>
-> <p><i>Dita Von Teese</i></p>
+> <b>I'm not an amazing cook. But I can follow a recipe!</b>
+> <p><i>Rachel McAdams</i></p>
 
 <br>
