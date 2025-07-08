@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When hospitality becomes an art it loses its very soul.</b>
-> <p><i>Max Beerbohm</i></p>
+> <b>A sad fact of life lately at the Museum of Modern Art is that when it comes to group shows of contemporary painting from the collection, the bar has been set pretty low.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
