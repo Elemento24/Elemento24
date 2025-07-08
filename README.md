@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not understand how it is that financial institutions could think that they could take taxpayer money and then turn around and act like it's business as usual. I don't understand how they can't see that the world has changed in a fundamental way, that it is not business as usual when you take taxpayer dollars.</b>
-> <p><i>Elizabeth Warren</i></p>
+> <b>The way to get things done is not to mind who gets the credit for doing them.</b>
+> <p><i>Benjamin Jowett</i></p>
 
 <br>
