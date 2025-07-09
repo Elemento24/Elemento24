@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am auditioning again - getting back to theatre would be amazing.</b>
-> <p><i>Harry Melling</i></p>
+> <b>Your most precious, valued possessions and your greatest powers are invisible and intangible. No one can take them. You, and you alone, can give them. You will receive abundance for your giving.</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
