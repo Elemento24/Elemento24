@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For every quarrel a man and wife have before others, they have a hundred when alone.</b>
-> <p><i>E. W. Howe</i></p>
+> <b>Music is amazing. There's some metaphysical comfort where it allows you to be isolated and alone while telling you that you are not alone... truly, the only cure for sadness is to share it with someone else.</b>
+> <p><i>Wayne Coyne</i></p>
 
 <br>
