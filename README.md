@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your most precious, valued possessions and your greatest powers are invisible and intangible. No one can take them. You, and you alone, can give them. You will receive abundance for your giving.</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>I also take pleasure in the so-called negative power in Grotjahn's work. That is, I love his paintings for what they are not. Unlike much art of the past decade, Grotjahn isn't simply working from a prescribed checklist of academically acceptable, curator-approved 'isms' and twists.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
