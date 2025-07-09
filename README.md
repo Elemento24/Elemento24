@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is amazing. There's some metaphysical comfort where it allows you to be isolated and alone while telling you that you are not alone... truly, the only cure for sadness is to share it with someone else.</b>
-> <p><i>Wayne Coyne</i></p>
+> <b>Children rarely want to know who their parents were before they were parents, and when age finally stirs their curiosity, there is no parent left to tell them.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
