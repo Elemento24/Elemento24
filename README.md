@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know some of my parents' friends think 'Little Britain' is in incredibly poor taste. But swimming the Channel? You can't really say anything negative about that, can you? There's nothing better than making your parents happy. The glee on my father's face that day was amazing.</b>
-> <p><i>David Walliams</i></p>
+> <b>I hate show business.</b>
+> <p><i>Joni Mitchell</i></p>
 
 <br>
