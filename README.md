@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also take pleasure in the so-called negative power in Grotjahn's work. That is, I love his paintings for what they are not. Unlike much art of the past decade, Grotjahn isn't simply working from a prescribed checklist of academically acceptable, curator-approved 'isms' and twists.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I know some of my parents' friends think 'Little Britain' is in incredibly poor taste. But swimming the Channel? You can't really say anything negative about that, can you? There's nothing better than making your parents happy. The glee on my father's face that day was amazing.</b>
+> <p><i>David Walliams</i></p>
 
 <br>
