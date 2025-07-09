@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because things are the way they are, things will not stay the way they are.</b>
-> <p><i>Bertolt Brecht</i></p>
+> <b>The best thing commercially, which is the worst artistically, by and large, is the most successful.</b>
+> <p><i>Orson Welles</i></p>
 
 <br>
