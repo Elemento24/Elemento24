@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is the awkward period when Father Time starts catching up with Mother Nature.</b>
-> <p><i>Harold Coffin</i></p>
+> <b>In the television age, the key distinction is between the candidate who can speak poetry and the one who can only speak prose.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
