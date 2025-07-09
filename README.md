@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate show business.</b>
-> <p><i>Joni Mitchell</i></p>
+> <b>The way of the Creative works through change and transformation, so that each thing receives its true nature and destiny and comes into permanent accord with the Great Harmony: this is what furthers and what perseveres.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
