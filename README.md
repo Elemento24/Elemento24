@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let me alone, and go in search of someone else.</b>
-> <p><i>Ali ibn Abi Talib</i></p>
+> <b>Successful prime-time television of any genre produces some kind of emotional reaction in the viewers. There are a lot of different emotions to tap into. The emotion of the reward of discovery, the feeling of righteous anger, the feelings of pathos and sadness, or sentimentality of being moved by something.</b>
+> <p><i>Chris Hayes</i></p>
 
 <br>
