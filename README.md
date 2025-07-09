@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just make it my business to get along with people so I can have fun. It's that simple.</b>
-> <p><i>Betty White</i></p>
+> <b>Whoever thinks that he alone has speech, or possesses speech or mind above others, when unfolded such men are seen to be empty.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
