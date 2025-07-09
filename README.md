@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the television age, the key distinction is between the candidate who can speak poetry and the one who can only speak prose.</b>
-> <p><i>Richard M. Nixon</i></p>
+> <b>The best way to have a good idea is to have a lot of ideas.</b>
+> <p><i>Linus Pauling</i></p>
 
 <br>
