@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing commercially, which is the worst artistically, by and large, is the most successful.</b>
-> <p><i>Orson Welles</i></p>
+> <b>For every quarrel a man and wife have before others, they have a hundred when alone.</b>
+> <p><i>E. W. Howe</i></p>
 
 <br>
