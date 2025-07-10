@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Virtue is not left to stand alone. He who practices it will have neighbors.</b>
-> <p><i>Confucius</i></p>
+> <b>My favorite thing is to be alone in a room with a blank paper in front of me and the time to fill it.</b>
+> <p><i>Dirk Benedict</i></p>
 
 <br>
