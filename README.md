@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Modern art is what happens when painters stop looking at girls and persuade themselves that they have a better idea.</b>
-> <p><i>John Ciardi</i></p>
+> <b>It is the glory and good of Art, That Art remains the one way possible Of speaking truth, to mouths like mine at least.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
