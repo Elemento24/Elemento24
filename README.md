@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is a blessed thing that in every age some one has had the individuality enough and courage enough to stand by his own convictions.</b>
-> <p><i>Robert Green Ingersoll</i></p>
+> <b>A few years ago I lost 30 pounds, and people still wanted to criticize. And honestly, I'm happy with myself if I'm a little heavier. I realized: 'Why am I trying to conform to someone else's idea of beauty?' I think I'm beautiful either way.</b>
+> <p><i>Khloe Kardashian</i></p>
 
 <br>
