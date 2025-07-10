@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My favorite thing is to be alone in a room with a blank paper in front of me and the time to fill it.</b>
-> <p><i>Dirk Benedict</i></p>
+> <b>I sing in the car if I'm in LA, because you're like soundproofed.</b>
+> <p><i>Jimmy Fallon</i></p>
 
 <br>
