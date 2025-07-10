@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But there's not enough time in life to go sit at a party, have a drink, and make idle conversation. There's too many important things to do. Just being together with my husband, spending time alone, which I have very little of.</b>
-> <p><i>Pia Zadora</i></p>
+> <b>I think every person has their own identity and beauty. Everyone being different is what is really beautiful. If we were all the same, it would be boring.</b>
+> <p><i>Tila Tequila</i></p>
 
 <br>
