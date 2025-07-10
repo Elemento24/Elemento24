@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I try to keep a low profile in general. Not with my art, but just as a person.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Modern art is what happens when painters stop looking at girls and persuade themselves that they have a better idea.</b>
+> <p><i>John Ciardi</i></p>
 
 <br>
