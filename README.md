@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having inner beauty is something you develop on your own, and I like to think I have that.</b>
-> <p><i>Cindy Margolis</i></p>
+> <b>But there's not enough time in life to go sit at a party, have a drink, and make idle conversation. There's too many important things to do. Just being together with my husband, spending time alone, which I have very little of.</b>
+> <p><i>Pia Zadora</i></p>
 
 <br>
