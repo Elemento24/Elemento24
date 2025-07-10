@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whoever thinks that he alone has speech, or possesses speech or mind above others, when unfolded such men are seen to be empty.</b>
-> <p><i>Sophocles</i></p>
+> <b>Well there's nobody who has a more supportive husband than I do, and he has a business that he runs, and it's his own business, so he has work to do, my kids have school to do, I mean, people have - there are other things in life besides politics.</b>
+> <p><i>Caroline Kennedy</i></p>
 
 <br>
