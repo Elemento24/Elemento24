@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think women should start to embrace their age. What's the alternative to getting older? You die. I can't change the day I was born. But I can take care of my skin, my body, my mind, and try to live my life and be happy.</b>
-> <p><i>Olivia Munn</i></p>
+> <b>It's my goal to make a building as immaterial as possible. Architecture is a very material thing. It takes a lot of resources, so why not eliminate what you don't need as long as you're able to achieve the same result?</b>
+> <p><i>Helmut Jahn</i></p>
 
 <br>
