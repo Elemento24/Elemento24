@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the glory and good of Art, That Art remains the one way possible Of speaking truth, to mouths like mine at least.</b>
-> <p><i>Robert Browning</i></p>
+> <b>Having inner beauty is something you develop on your own, and I like to think I have that.</b>
+> <p><i>Cindy Margolis</i></p>
 
 <br>
