@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anything that's different from your own realm of experience as a human being, whether it's driving a car or a boat, or using guns, anything that separates you from yourself and leads you more towards this character's existence is a big help.</b>
-> <p><i>Colin Farrell</i></p>
+> <b>I did not want to put myself on the line, as an Australian playing Britain's greatest comic actor. The fans of Sellers are obsessive, possessive - and aggressive. I did not want to risk their anger - or my own reputation.</b>
+> <p><i>Geoffrey Rush</i></p>
 
 <br>
