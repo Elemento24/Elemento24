@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist is always alone - if he is an artist. No, what the artist needs is loneliness.</b>
-> <p><i>Henry Miller</i></p>
+> <b>The jewelry business is a very, very tough business - tougher than the computer business. You truly have to understand how to take care of your customers.</b>
+> <p><i>Guy Kawasaki</i></p>
 
 <br>
