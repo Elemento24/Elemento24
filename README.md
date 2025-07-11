@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>James Franco has this interesting and relaxed look. It's pretty 'I don't care,' but it still looks good. Ryan Gosling also has amazing style. I take a lot of my fashion tips from those two. In my opinion, they're the ones getting it right.</b>
-> <p><i>Josh Henderson</i></p>
+> <b>An artist is always alone - if he is an artist. No, what the artist needs is loneliness.</b>
+> <p><i>Henry Miller</i></p>
 
 <br>
