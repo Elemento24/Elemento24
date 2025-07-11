@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>However, anyone to whom this happens should not leave his room upon awakening, should speak to no-one, but remain alone and sober until everything comes back to him, and he recalls the dream.</b>
-> <p><i>Paracelsus</i></p>
+> <b>When I was young my Father used to tell me that the two most worthwhile pursuits in life were the pursuit of truth and of beauty and I believe that Alfred Nobel must have felt much the same when he gave these prizes for literature and the sciences.</b>
+> <p><i>Frederick Sanger</i></p>
 
 <br>
