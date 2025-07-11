@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a car but it's not important.</b>
-> <p><i>Eric Cantona</i></p>
+> <b>However, anyone to whom this happens should not leave his room upon awakening, should speak to no-one, but remain alone and sober until everything comes back to him, and he recalls the dream.</b>
+> <p><i>Paracelsus</i></p>
 
 <br>
