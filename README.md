@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and femininity are ageless and can't be contrived, and glamour, although the manufacturers won't like this, cannot be manufactured. Not real glamour it's based on femininity.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>The last time money left the art world, intrepid types maxed out their credit cards and opened galleries, and a few of them have become the best in the world.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
