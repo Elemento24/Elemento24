@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did not want to put myself on the line, as an Australian playing Britain's greatest comic actor. The fans of Sellers are obsessive, possessive - and aggressive. I did not want to risk their anger - or my own reputation.</b>
-> <p><i>Geoffrey Rush</i></p>
+> <b>You that would judge me, do not judge alone this book or that, come to this hallowed place where my friends' portraits hang and look thereon Ireland's history in their lineaments trace think where man's glory most begins and ends and say my glory was I had such friends.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
