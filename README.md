@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a Woody Allen Jewish attitude to life: that it's all going to be disastrous. That it hasn't all been that way is simply down to some random quirk of fate.</b>
-> <p><i>Antony Sher</i></p>
+> <b>Man has a limited biological capacity for change. When this capacity is overwhelmed, the capacity is in future shock.</b>
+> <p><i>Alvin Toffler</i></p>
 
 <br>
