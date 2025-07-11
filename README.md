@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world will change for the better when people decide they are sick and tired of being sick and tired of the way the world is, and decide to change themselves.</b>
-> <p><i>Sydney Madwed</i></p>
+> <b>By age seven, I used to comb my hair for performances, just pull my hair up into a bun. Granted, it wasn't a very intricate hairstyle. Still, to be that responsible and disciplined at age seven is unusual.</b>
+> <p><i>Janet Jackson</i></p>
 
 <br>
