@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You that would judge me, do not judge alone this book or that, come to this hallowed place where my friends' portraits hang and look thereon Ireland's history in their lineaments trace think where man's glory most begins and ends and say my glory was I had such friends.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>The chances of a reunion now are less likely. I was thinking of having a 40th anniversary of the band, but now they are really another band, so it's all a bit weird.</b>
+> <p><i>Alvin Lee</i></p>
 
 <br>
