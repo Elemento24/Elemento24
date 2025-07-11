@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can be almost terminally grief-stricken because things are so dire, but at the same time, there's a real lightheartedness about just the recoverability of life, of how things change, how they're not the same, ever again.</b>
-> <p><i>Alice Walker</i></p>
+> <b>Beauty and femininity are ageless and can't be contrived, and glamour, although the manufacturers won't like this, cannot be manufactured. Not real glamour it's based on femininity.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
