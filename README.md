@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The jewelry business is a very, very tough business - tougher than the computer business. You truly have to understand how to take care of your customers.</b>
-> <p><i>Guy Kawasaki</i></p>
+> <b>I can be almost terminally grief-stricken because things are so dire, but at the same time, there's a real lightheartedness about just the recoverability of life, of how things change, how they're not the same, ever again.</b>
+> <p><i>Alice Walker</i></p>
 
 <br>
