@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The chances of a reunion now are less likely. I was thinking of having a 40th anniversary of the band, but now they are really another band, so it's all a bit weird.</b>
-> <p><i>Alvin Lee</i></p>
+> <b>Don't ever let economic alone determine your career or how you spend the majority of your time.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
