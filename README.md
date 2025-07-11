@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My hope is that out of all the anger and seeming hostility that we hear in some of today's music will come some sort of coalition that will become politically involved.</b>
-> <p><i>Roberta Flack</i></p>
+> <b>The world will change for the better when people decide they are sick and tired of being sick and tired of the way the world is, and decide to change themselves.</b>
+> <p><i>Sydney Madwed</i></p>
 
 <br>
