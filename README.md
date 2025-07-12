@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Strength alone knows conflict, weakness is born vanquished.</b>
-> <p><i>Sophie Swetchine</i></p>
+> <b>Change means movement. Movement means friction. Only in the frictionless vacuum of a nonexistent abstract world can movement or change occur without that abrasive friction of conflict.</b>
+> <p><i>Saul Alinsky</i></p>
 
 <br>
