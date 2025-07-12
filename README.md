@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is a transient hatred or at least very like it.</b>
-> <p><i>Robert South</i></p>
+> <b>If we want to secure the best jobs in the future, we must make America the best place in the world to do business.</b>
+> <p><i>Jim DeMint</i></p>
 
 <br>
