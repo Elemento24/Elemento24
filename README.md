@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude toward men who mess around is simple: If you find 'em, kill 'em.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>If there's ever an example that military power alone cannot be successful in Afghanistan, I think it was the Soviet experience.</b>
+> <p><i>Robert M. Gates</i></p>
 
 <br>
