@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If we want to secure the best jobs in the future, we must make America the best place in the world to do business.</b>
-> <p><i>Jim DeMint</i></p>
+> <b>I love to be alone. I never found the companion that was so companionable as solitude.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
