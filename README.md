@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In principle, there are only three main components of spending that much matter to monetary policy: consumer spending, business investment and exports and trade.</b>
-> <p><i>Evan Davis</i></p>
+> <b>Politically, Obama's amazing streak of self-destructing opponents who have lain beneath his feet during his unlikely political career appears to be holding.</b>
+> <p><i>Eric Alterman</i></p>
 
 <br>
