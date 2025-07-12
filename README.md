@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politically, Obama's amazing streak of self-destructing opponents who have lain beneath his feet during his unlikely political career appears to be holding.</b>
-> <p><i>Eric Alterman</i></p>
+> <b>Anger is a transient hatred or at least very like it.</b>
+> <p><i>Robert South</i></p>
 
 <br>
