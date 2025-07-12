@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Compromise is the best and cheapest lawyer.</b>
-> <p><i>Robert Louis Stevenson</i></p>
+> <b>What a man does for pay is of little significance. What he is, as a sensitive instrument responsive to the world's beauty, is everything!</b>
+> <p><i>H. P. Lovecraft</i></p>
 
 <br>
