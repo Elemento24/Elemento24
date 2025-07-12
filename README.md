@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After thirty, a body has a mind of its own.</b>
-> <p><i>Bette Midler</i></p>
+> <b>Strength alone knows conflict, weakness is born vanquished.</b>
+> <p><i>Sophie Swetchine</i></p>
 
 <br>
