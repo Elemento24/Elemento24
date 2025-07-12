@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are two things a person should never be angry at, what they can help, and what they cannot.</b>
-> <p><i>Plato</i></p>
+> <b>My attitude toward men who mess around is simple: If you find 'em, kill 'em.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
