@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is important to fund young researchers who want to do curiosity-driven research. Curiosity-driven research is a part of life. Some people are curious. They want to learn more about nature and society should help that. It's like art: you can learn more and bring more beauty.</b>
-> <p><i>Serge Haroche</i></p>
+> <b>I just think it is important that you realize , that you're the best in the world. Whether you are a Democrat or Republican or whether you're libertarian or whatever, you are the best. And we should not ever forget that. And when somebody does not do the job, we got to let them go.</b>
+> <p><i>Clint Eastwood</i></p>
 
 <br>
