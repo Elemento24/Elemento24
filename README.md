@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Somebody hits me, I'm going to hit him back. Even if it does look like he hasn't eaten in a while.</b>
-> <p><i>Charles Barkley</i></p>
+> <b>Democrats think the country works better with a strong middle class, real opportunities for poor people to work their way into it and a relentless focus on the future, with business and government working together to promote growth and broadly shared prosperity. We think 'we're all in this together' is a better philosophy than 'you're on your own.'</b>
+> <p><i>William J. Clinton</i></p>
 
 <br>
