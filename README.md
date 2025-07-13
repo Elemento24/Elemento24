@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When marrying, ask yourself this question: Do you believe that you will be able to converse well with this person into your old age? Everything else in marriage is transitory.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>I think no artist can claim to have any access to the truth, or an authentic version of an event. But obviously they have slightly better means at their disposal because they have their art to energize whatever it is they're trying to write about. They have music.</b>
+> <p><i>Thom Yorke</i></p>
 
 <br>
