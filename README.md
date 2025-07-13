@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People don't understand that it was maybe my biggest pleasure to drive an F1 car when it's wet.</b>
-> <p><i>Alain Prost</i></p>
+> <b>Lila can't be a model until she's at least 21. She is already a mini-me - it is scary. She already has her own beauty kit.</b>
+> <p><i>Kate Moss</i></p>
 
 <br>
