@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No lie ever reaches old age.</b>
-> <p><i>Sophocles</i></p>
+> <b>The Internet has changed the way we communicate with each other, the way we learn about the world and the way we conduct business.</b>
+> <p><i>Ron Wyden</i></p>
 
 <br>
