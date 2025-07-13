@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lila can't be a model until she's at least 21. She is already a mini-me - it is scary. She already has her own beauty kit.</b>
-> <p><i>Kate Moss</i></p>
+> <b>It's been a fascinating thing because we didn't really know how to write when we started South Park at all. It's been like, we've just sort of grown up a bit and it's amazing to just see how, if you take Butters and Cartman and put them in any scene, it works.</b>
+> <p><i>Trey Parker</i></p>
 
 <br>
