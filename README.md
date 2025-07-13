@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Internet has changed the way we communicate with each other, the way we learn about the world and the way we conduct business.</b>
-> <p><i>Ron Wyden</i></p>
+> <b>I'm tired of being around men all the time. I'm going to start a band called Skirt with three girls and I'll play the guitar and sing backing vocals in drag. I went window shopping when I was in New York, saw a lot of amazing dresses.</b>
+> <p><i>Brian Molko</i></p>
 
 <br>
