@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think no artist can claim to have any access to the truth, or an authentic version of an event. But obviously they have slightly better means at their disposal because they have their art to energize whatever it is they're trying to write about. They have music.</b>
-> <p><i>Thom Yorke</i></p>
+> <b>Wit is more necessary than beauty and I think no young woman ugly that has it, and no handsome woman agreeable without it.</b>
+> <p><i>William Wycherley</i></p>
 
 <br>
