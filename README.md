@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the precept by which I have lived: Prepare for the worst expect the best and take what comes.</b>
-> <p><i>Hannah Arendt</i></p>
+> <b>I think that we're in a really amazing time, where there are really a lot of really fantastic female actresses and comedians. I imagine there's just a lot of opportunity for women to have powerful roles. Or it's just that there's more women writing TV. Women tend to maybe write strong women.</b>
+> <p><i>Whitney Cummings</i></p>
 
 <br>
