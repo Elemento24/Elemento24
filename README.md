@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just think it is important that you realize , that you're the best in the world. Whether you are a Democrat or Republican or whether you're libertarian or whatever, you are the best. And we should not ever forget that. And when somebody does not do the job, we got to let them go.</b>
-> <p><i>Clint Eastwood</i></p>
+> <b>I am still a victim of chess. It has all the beauty of art - and much more. It cannot be commercialized. Chess is much purer than art in its social position.</b>
+> <p><i>Marcel Duchamp</i></p>
 
 <br>
