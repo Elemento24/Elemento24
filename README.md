@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am still a victim of chess. It has all the beauty of art - and much more. It cannot be commercialized. Chess is much purer than art in its social position.</b>
-> <p><i>Marcel Duchamp</i></p>
+> <b>The best part of the art of living is to know how to grow old gracefully.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
