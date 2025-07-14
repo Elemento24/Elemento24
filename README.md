@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a very small group of elite actresses who are my age, who people want to work with. It's not easy to get a good job with good actors.</b>
-> <p><i>Amanda Peet</i></p>
+> <b>To Follow by faith alone is to follow blindly.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
