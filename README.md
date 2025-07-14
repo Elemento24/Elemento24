@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of jazz is that it's malleable. People are addressing it to suit their own personalities.</b>
-> <p><i>Pat Metheny</i></p>
+> <b>I was told to avoid the business all together because of the rejection. People would say to me, 'Don't you want to have a normal job and a normal family?' I guess that would be good advice for some people, but I wanted to act.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
