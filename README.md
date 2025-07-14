@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Take the high road. No matter how much strife, and consternation, frustration and anger you might be confronted with - don't go to that level.</b>
-> <p><i>Tim Gunn</i></p>
+> <b>I've always been a guy who's pretty supportive, its just my nature, so I came in to the situation with the attitude that I wanted to support Johnny and make it work.</b>
+> <p><i>Rick Derringer</i></p>
 
 <br>
