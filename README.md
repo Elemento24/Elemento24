@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of a woman is not in a facial mode but the true beauty in a woman is reflected in her soul. It is the caring that she lovingly gives the passion that she shows. The beauty of a woman grows with the passing years.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>With the song 'This Christmas' I wanted to do something that was kind of different. I mean, Donny Hathaway is an amazing artist. So I wanted to bring my flavor to the song so when people over the age of 45 or 50 hear it they'll be like 'OK, he did his thing with that record.' It's like I can appeal to everybody and not just a younger demographic.</b>
+> <p><i>Chris Brown</i></p>
 
 <br>
