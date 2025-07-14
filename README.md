@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't need plastic in my body to validate me as a woman.</b>
-> <p><i>Courtney Love</i></p>
+> <b>I'm married to my best friend!</b>
+> <p><i>Miranda Lambert</i></p>
 
 <br>
