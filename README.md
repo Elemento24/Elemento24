@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a single thread of attitude, a single direction of flow, that joins our present time to its early burgeoning in Mediterranean civilization.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>The best way to have a good idea is to have a lot of ideas.</b>
+> <p><i>Linus Pauling</i></p>
 
 <br>
