@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With the song 'This Christmas' I wanted to do something that was kind of different. I mean, Donny Hathaway is an amazing artist. So I wanted to bring my flavor to the song so when people over the age of 45 or 50 hear it they'll be like 'OK, he did his thing with that record.' It's like I can appeal to everybody and not just a younger demographic.</b>
-> <p><i>Chris Brown</i></p>
+> <b>I definitely love that all these car brands are coming out with hybrid forms of every car that they have. It's very awesome because I think it does make a difference, and it doesn't hurt that you save a lot of money on gas.</b>
+> <p><i>Lucy Hale</i></p>
 
 <br>
