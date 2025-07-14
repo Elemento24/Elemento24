@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm happily single.</b>
-> <p><i>Paula Abdul</i></p>
+> <b>The beauty of jazz is that it's malleable. People are addressing it to suit their own personalities.</b>
+> <p><i>Pat Metheny</i></p>
 
 <br>
