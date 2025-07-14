@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm noticing a new approach to art making in recent museum and gallery shows. It flickered into focus at the New Museum's 'Younger Than Jesus' last year and ran through the Whitney Biennial, and I'm seeing it blossom and bear fruit at 'Greater New York,' MoMA P.S. 1's twice-a-decade extravaganza of emerging local talent.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It is time for parents to teach young people early on that in diversity there is beauty and there is strength.</b>
+> <p><i>Maya Angelou</i></p>
 
 <br>
