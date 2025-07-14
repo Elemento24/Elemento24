@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best revenge is to be unlike him who performed the injury.</b>
-> <p><i>Marcus Aurelius</i></p>
+> <b>I'm happily single.</b>
+> <p><i>Paula Abdul</i></p>
 
 <br>
