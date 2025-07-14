@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I definitely love that all these car brands are coming out with hybrid forms of every car that they have. It's very awesome because I think it does make a difference, and it doesn't hurt that you save a lot of money on gas.</b>
-> <p><i>Lucy Hale</i></p>
+> <b>Business is constantly changing, constantly evolving.</b>
+> <p><i>James Dyson</i></p>
 
 <br>
