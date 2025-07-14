@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was told to avoid the business all together because of the rejection. People would say to me, 'Don't you want to have a normal job and a normal family?' I guess that would be good advice for some people, but I wanted to act.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>The beauty of a woman is not in a facial mode but the true beauty in a woman is reflected in her soul. It is the caring that she lovingly gives the passion that she shows. The beauty of a woman grows with the passing years.</b>
+> <p><i>Audrey Hepburn</i></p>
 
 <br>
