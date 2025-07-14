@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business is constantly changing, constantly evolving.</b>
-> <p><i>James Dyson</i></p>
+> <b>Power is always dangerous. Power attracts the worst and corrupts the best.</b>
+> <p><i>Edward Abbey</i></p>
 
 <br>
