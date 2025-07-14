@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To Follow by faith alone is to follow blindly.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>Take the high road. No matter how much strife, and consternation, frustration and anger you might be confronted with - don't go to that level.</b>
+> <p><i>Tim Gunn</i></p>
 
 <br>
