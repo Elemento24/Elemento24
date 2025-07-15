@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, I think that there's a very thin dividing line between success and failure. And I think if you start a business without financial backing, you're likely to go the wrong side of that dividing line.</b>
-> <p><i>Richard Branson</i></p>
+> <b>Art is always and everywhere the secret confession, and at the same time the immortal movement of its time.</b>
+> <p><i>Karl Marx</i></p>
 
 <br>
