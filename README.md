@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You use a glass mirror to see your face you use works of art to see your soul.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>Advertising is fundamentally persuasion and persuasion happens to be not a science, but an art.</b>
+> <p><i>William Bernbach</i></p>
 
 <br>
