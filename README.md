@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't believe the pro-choicers attitude toward unborn children-to me it's the ultimate liberal cause, to defend those without a voice.</b>
-> <p><i>Michael Aston</i></p>
+> <b>White is actually one of my favorite colors. I have a white car. I love white.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
