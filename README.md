@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You watch a hockey game, and the hand-eye coordination and the speed is really miraculous how those guys track the puck alone, just following it with their eyes.</b>
-> <p><i>Liev Schreiber</i></p>
+> <b>Well, I think that there's a very thin dividing line between success and failure. And I think if you start a business without financial backing, you're likely to go the wrong side of that dividing line.</b>
+> <p><i>Richard Branson</i></p>
 
 <br>
