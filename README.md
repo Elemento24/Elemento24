@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cats don't like change without their consent.</b>
-> <p><i>Roger Caras</i></p>
+> <b>I learned from a very young age that if I pursued the things that truly excited me, that they would reward in more important ways, like happiness.</b>
+> <p><i>Brandon Boyd</i></p>
 
 <br>
