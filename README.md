@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Flowers... are a proud assertion that a ray of beauty outvalues all the utilities of the world.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>The two operations of our understanding, intuition and deduction, on which alone we have said we must rely in the acquisition of knowledge.</b>
+> <p><i>Rene Descartes</i></p>
 
 <br>
