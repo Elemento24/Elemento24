@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love isn't an emotion or an instinct - it's an art.</b>
-> <p><i>Mae West</i></p>
+> <b>The only thing I fear more than change is no change. The business of being static makes me nuts.</b>
+> <p><i>Twyla Tharp</i></p>
 
 <br>
