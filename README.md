@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned from a very young age that if I pursued the things that truly excited me, that they would reward in more important ways, like happiness.</b>
-> <p><i>Brandon Boyd</i></p>
+> <b>You watch a hockey game, and the hand-eye coordination and the speed is really miraculous how those guys track the puck alone, just following it with their eyes.</b>
+> <p><i>Liev Schreiber</i></p>
 
 <br>
