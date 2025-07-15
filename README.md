@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is always and everywhere the secret confession, and at the same time the immortal movement of its time.</b>
-> <p><i>Karl Marx</i></p>
+> <b>I did successfully kick tobacco at the age of 34. I smoked for like 20 years, from 14 to 34.</b>
+> <p><i>Larry Hagman</i></p>
 
 <br>
