@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been a guy who's pretty supportive, its just my nature, so I came in to the situation with the attitude that I wanted to support Johnny and make it work.</b>
-> <p><i>Rick Derringer</i></p>
+> <b>Love isn't an emotion or an instinct - it's an art.</b>
+> <p><i>Mae West</i></p>
 
 <br>
