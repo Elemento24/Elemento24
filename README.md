@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Experience is the best teacher of all. And for that, there are no guarantees that one will become an artist. Only the journey matters.</b>
-> <p><i>Harry Callahan</i></p>
+> <b>The city needs a car like a fish needs a bicycle.</b>
+> <p><i>Dean Kamen</i></p>
 
 <br>
