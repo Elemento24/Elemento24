@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All that we call ideal in Greek or any other art, because to us it is false and visionary, was, to the makers of it, true and existent.</b>
-> <p><i>John Ruskin</i></p>
+> <b>Experience is the best teacher of all. And for that, there are no guarantees that one will become an artist. Only the journey matters.</b>
+> <p><i>Harry Callahan</i></p>
 
 <br>
