@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's important for moms to have alone time. However, that's the first thing that goes on a busy day. Fortunately for me, because of my job, I have to find the time to do it. At least that's the way my mind sees it.</b>
-> <p><i>Cindy Crawford</i></p>
+> <b>All that we call ideal in Greek or any other art, because to us it is false and visionary, was, to the makers of it, true and existent.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
