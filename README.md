@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm afraid for all those who'll have the bread snatched from their mouths by these machines. What business has science and capitalism got, bringing all these new inventions into the works, before society has produced a generation educated up to using them!</b>
-> <p><i>Henrik Ibsen</i></p>
+> <b>But, when the work was finished, the Craftsman kept wishing that there were someone to ponder the plan of so great a work, to love its beauty, and to wonder at its vastness.</b>
+> <p><i>Giovanni Pico della Mirandola</i></p>
 
 <br>
