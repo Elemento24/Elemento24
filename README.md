@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prose is architecture, not interior decoration, and the Baroque is over.</b>
-> <p><i>Ernest Hemingway</i></p>
+> <b>Architecture is the will of an epoch translated into space.</b>
+> <p><i>Ludwig Mies van der Rohe</i></p>
 
 <br>
