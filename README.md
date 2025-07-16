@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems like the chaos of this world is accelerating, but so is the beauty in the consciousness of more and more people.</b>
-> <p><i>Anthony Kiedis</i></p>
+> <b>I think sometimes when children grow up, their parents grow up. Mine grew up with me. We coexist. I don't try to change them anymore, and I don't think they try to change me. We agree to disagree.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
