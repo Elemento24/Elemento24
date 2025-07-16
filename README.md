@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and the devil are the same thing.</b>
-> <p><i>Robert Mapplethorpe</i></p>
+> <b>It's important for moms to have alone time. However, that's the first thing that goes on a busy day. Fortunately for me, because of my job, I have to find the time to do it. At least that's the way my mind sees it.</b>
+> <p><i>Cindy Crawford</i></p>
 
 <br>
