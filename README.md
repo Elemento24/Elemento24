@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought it was amazing to work with authors, to get a manuscript and try to make up a cover for it.</b>
-> <p><i>Dick Bruna</i></p>
+> <b>In giving freedom to the slave, we assure freedom to the free - honorable alike in what we give and what we preserve. We shall nobly save, or meanly lose, the last best hope of earth.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
