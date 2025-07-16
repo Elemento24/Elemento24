@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But, when the work was finished, the Craftsman kept wishing that there were someone to ponder the plan of so great a work, to love its beauty, and to wonder at its vastness.</b>
-> <p><i>Giovanni Pico della Mirandola</i></p>
+> <b>You have to have your heart in the business and the business in your heart.</b>
+> <p><i>An Wang</i></p>
 
 <br>
