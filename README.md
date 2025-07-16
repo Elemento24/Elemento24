@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you Google me, you'll find a lot of people don't like Richard Dreyfuss. Because I'm cocky and I present a cocky attitude. But no one has ever disagreed with the notion I represent, that we need more civic education. So far there's 100 percent support for that.</b>
-> <p><i>Richard Dreyfuss</i></p>
+> <b>I thought it was amazing to work with authors, to get a manuscript and try to make up a cover for it.</b>
+> <p><i>Dick Bruna</i></p>
 
 <br>
