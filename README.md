@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is the will of an epoch translated into space.</b>
-> <p><i>Ludwig Mies van der Rohe</i></p>
+> <b>If the First Amendment means anything, it means that a state has no business telling a man, sitting alone in his house, what books he may read or what films he may watch.</b>
+> <p><i>Thurgood Marshall</i></p>
 
 <br>
