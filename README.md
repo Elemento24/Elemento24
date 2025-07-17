@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Jew does not wish to be isolated. He fears being alone, without allies.</b>
-> <p><i>Meir Kahane</i></p>
+> <b>As you grow in this business, you learn how to do more with less.</b>
+> <p><i>Morgan Freeman</i></p>
 
 <br>
