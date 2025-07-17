@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Listen, whatever makes the movie better. That's the attitude you have to have.</b>
-> <p><i>Joseph Kosinski</i></p>
+> <b>My happiest memory of childhood was my first birthday in reform school. This teacher took an interest in me. In fact, he gave me the first birthday presents I ever got: a box of Cracker Jacks and a can of ABC shoe polish.</b>
+> <p><i>Flip Wilson</i></p>
 
 <br>
