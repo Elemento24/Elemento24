@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are doing amazing things right now on the Web.</b>
-> <p><i>Chris Hughes</i></p>
+> <b>Sometimes, when my wife and I were going out to dinner, I would take my laptop with me and work in the car, so as to take advantage of the half hour going and coming.</b>
+> <p><i>Thomas Friedman</i></p>
 
 <br>
