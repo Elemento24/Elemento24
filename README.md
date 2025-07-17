@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am going to get political on you. Because I am the most shallow person in the world, my mission is to see men's formal wear change a little bit. It is too rigid! Everybody looks like a penguin!</b>
-> <p><i>Steven Cojocaru</i></p>
+> <b>There is an element of anger among women who've been raped. There's certainly a major element of humiliation. But it really does seem like a medical condition of shock and horror.</b>
+> <p><i>Nicholas D. Kristof</i></p>
 
 <br>
