@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be able to back up a car for a considerable distance in a straight line and back out of a driveway.</b>
-> <p><i>Marilyn vos Savant</i></p>
+> <b>And I thought, when I have kids, that's the sort of well told, silly, and fun fairy tale that I would want to take them to. But it was an amazing experience. And I think Shrek is a real classic, a fairy tale classic.</b>
+> <p><i>Mike Myers</i></p>
 
 <br>
