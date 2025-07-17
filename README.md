@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was a kid, the only way I saw movies was from the back seat of my family's car at the drive-in.</b>
-> <p><i>Forest Whitaker</i></p>
+> <b>Be sure what you want and be sure about yourself. Fashion is not just beauty, it's about good attitude. You have to believe in yourself and be strong.</b>
+> <p><i>Adriana Lima</i></p>
 
 <br>
