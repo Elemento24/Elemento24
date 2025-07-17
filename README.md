@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The absence of flaw in beauty is itself a flaw.</b>
-> <p><i>Havelock Ellis</i></p>
+> <b>I want a pit crew... I hate the procedure I currently have to go through when I have car problems.</b>
+> <p><i>Dave Barry</i></p>
 
 <br>
