@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't have the best body in the world, but I know for a fact that I have a really good voice.</b>
-> <p><i>Kesha</i></p>
+> <b>The absence of flaw in beauty is itself a flaw.</b>
+> <p><i>Havelock Ellis</i></p>
 
 <br>
