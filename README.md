@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Associate with men of good quality if you esteem your own reputation for it is better to be alone than in bad company.</b>
-> <p><i>George Washington</i></p>
+> <b>I don't have the best body in the world, but I know for a fact that I have a really good voice.</b>
+> <p><i>Kesha</i></p>
 
 <br>
