@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All architecture is great architecture after sunset perhaps architecture is really a nocturnal art, like the art of fireworks.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>I am going to get political on you. Because I am the most shallow person in the world, my mission is to see men's formal wear change a little bit. It is too rigid! Everybody looks like a penguin!</b>
+> <p><i>Steven Cojocaru</i></p>
 
 <br>
