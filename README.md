@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best artist has that thought alone Which is contained within the marble shell The sculptor's hand can only break the spell To free the figures slumbering in the stone.</b>
-> <p><i>Michelangelo</i></p>
+> <b>Be able to back up a car for a considerable distance in a straight line and back out of a driveway.</b>
+> <p><i>Marilyn vos Savant</i></p>
 
 <br>
