@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We say keep your change, we'll keep our God, our guns, our constitution.</b>
-> <p><i>Sarah Palin</i></p>
+> <b>Associate with men of good quality if you esteem your own reputation for it is better to be alone than in bad company.</b>
+> <p><i>George Washington</i></p>
 
 <br>
