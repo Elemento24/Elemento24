@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world does not need tourists who ride by in a bus clucking their tongues. The world as it is needs those who will love it enough to change it, with what they have, where they are.</b>
-> <p><i>Robert Fulghum</i></p>
+> <b>When I was a kid, the only way I saw movies was from the back seat of my family's car at the drive-in.</b>
+> <p><i>Forest Whitaker</i></p>
 
 <br>
