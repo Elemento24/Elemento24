@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh, I don't think Tom Sowell would tell anybody to join the administration. That's not his style. But I think his attitude has always been if it had to be done he'd prefer me to do it than somebody else.</b>
-> <p><i>Clarence Thomas</i></p>
+> <b>As the only girl growing up among three brothers, I was always afraid of being excluded. If there was a game to be played, a sport to be learned, a competition to join, I was on my feet and ready. I didn't spend much time alone for fear that I'd miss out.</b>
+> <p><i>Elisabeth Shue</i></p>
 
 <br>
