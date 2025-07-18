@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know you're getting old when you get that one candle on the cake. It's like, 'See if you can blow this out.'</b>
-> <p><i>Jerry Seinfeld</i></p>
+> <b>I like to sing in the car with the windows rolled down and hair blowing all over my face.</b>
+> <p><i>Lauren Alaina</i></p>
 
 <br>
