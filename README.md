@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He alone is free who lives with free consent under the entire guidance of reason.</b>
-> <p><i>Baruch Spinoza</i></p>
+> <b>I want do some kind of action movie, car chases and explosions.</b>
+> <p><i>Devon Sawa</i></p>
 
 <br>
