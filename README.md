@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He travels the fastest who travels alone.</b>
-> <p><i>Rudyard Kipling</i></p>
+> <b>The democracy process provides for political and social change without violence.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
