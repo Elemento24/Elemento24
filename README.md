@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On the stage, you alone hold the key, and on the night you have to trust that the director has inspired you enough to take the material and run with it.</b>
-> <p><i>Greta Scacchi</i></p>
+> <b>In practice we, in the world, must do business with each other.</b>
+> <p><i>David Mamet</i></p>
 
 <br>
