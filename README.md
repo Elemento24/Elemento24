@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a workaholic. Before long I'm traveling on my nervous energy alone. This is incredibly exhausting.</b>
-> <p><i>Eva Gabor</i></p>
+> <b>You know you're getting old when you get that one candle on the cake. It's like, 'See if you can blow this out.'</b>
+> <p><i>Jerry Seinfeld</i></p>
 
 <br>
