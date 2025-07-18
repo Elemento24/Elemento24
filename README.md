@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In practice we, in the world, must do business with each other.</b>
-> <p><i>David Mamet</i></p>
+> <b>I'm a workaholic. Before long I'm traveling on my nervous energy alone. This is incredibly exhausting.</b>
+> <p><i>Eva Gabor</i></p>
 
 <br>
