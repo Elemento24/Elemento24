@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude of insolent haughtiness is characteristic of the relationships Americans form with what is alien to them, with others.</b>
-> <p><i>Jose Saramago</i></p>
+> <b>I was at this casino minding my own business, and this guy came up to me and said, 'You're gonna have to move, you're blocking a fire exit.' As though if there was a fire, I wasn't gonna run. If you're flammible and have legs, you are never blocking a fire exit.</b>
+> <p><i>Mitch Hedberg</i></p>
 
 <br>
