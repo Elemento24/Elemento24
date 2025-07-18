@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Stay humble. Always answer your phone - no matter who else is in the car.</b>
-> <p><i>Jack Lemmon</i></p>
+> <b>I want to go out at the top, but the secret is knowing when you're at the top, it's so difficult in this business, your career fluctuates all the time, up and down, like a pair of trousers.</b>
+> <p><i>Rod Stewart</i></p>
 
 <br>
