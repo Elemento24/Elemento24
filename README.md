@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was entirely natural and in many ways I have the same attitude now. I don't mourn the loss of my youth because I believe you should enjoy what you have while you have it.</b>
-> <p><i>Koo Stark</i></p>
+> <b>One of the things I like enormously about Bob Weinstein is that that he's the only studio head I have ever known who will change his mind and say he was wrong.</b>
+> <p><i>Dean Koontz</i></p>
 
 <br>
