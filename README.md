@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The absence of flaw in beauty is itself a flaw.</b>
-> <p><i>Havelock Ellis</i></p>
+> <b>She's 32, and she has three children. She loves to be pregnant but she doesn't want anymore children in her life. So she decided to help another couple. And she's just been amazing.</b>
+> <p><i>Cheryl Tiegs</i></p>
 
 <br>
