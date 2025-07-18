@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What makes photography a strange invention is that its primary raw materials are light and time.</b>
-> <p><i>John Berger</i></p>
+> <b>Stay humble. Always answer your phone - no matter who else is in the car.</b>
+> <p><i>Jack Lemmon</i></p>
 
 <br>
