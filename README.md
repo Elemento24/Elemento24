@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As the only girl growing up among three brothers, I was always afraid of being excluded. If there was a game to be played, a sport to be learned, a competition to join, I was on my feet and ready. I didn't spend much time alone for fear that I'd miss out.</b>
-> <p><i>Elisabeth Shue</i></p>
+> <b>I've got Asperger's syndrome and I'm not a very good people person, so I've always been more comfortable around machinery. Not in a weird way - I don't want to marry my car or anything stupid like that!</b>
+> <p><i>Gary Numan</i></p>
 
 <br>
