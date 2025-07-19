@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In seeking wisdom thou art wise in imagining that thou hast attained it - thou art a fool.</b>
-> <p><i>Lord Chesterfield</i></p>
+> <b>Education doesn't change life much. It just lifts trouble to a higher plane of regard.</b>
+> <p><i>Robert Frost</i></p>
 
 <br>
