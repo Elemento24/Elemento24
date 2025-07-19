@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art washes away from the soul the dust of everyday life.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>We're one of the forces that causes actors to fasten seat belts before they take off chasing the bad guy in the car... or removes some of the cigarette smoking on television.</b>
+> <p><i>Gerald McRaney</i></p>
 
 <br>
