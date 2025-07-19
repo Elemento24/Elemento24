@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who relishes art should love the extraordinary diversity and psychic magic of our art galleries. There's likely more combined square footage for the showing of art on one New York block - West 24th Street between Tenth and Eleventh Avenues - than in all of Amsterdam's or Hamburg's galleries.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>People got insights into what was bothering them, but they hardly did a damn thing to change.</b>
+> <p><i>Albert Ellis</i></p>
 
 <br>
