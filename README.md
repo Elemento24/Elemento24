@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Soap and water and common sense are the best disinfectants.</b>
-> <p><i>William Osler</i></p>
+> <b>I think that Phil Kaufman is one of the best directors that I have come across.</b>
+> <p><i>Clive Owen</i></p>
 
 <br>
