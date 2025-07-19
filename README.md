@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're one of the forces that causes actors to fasten seat belts before they take off chasing the bad guy in the car... or removes some of the cigarette smoking on television.</b>
-> <p><i>Gerald McRaney</i></p>
+> <b>In seeking wisdom thou art wise in imagining that thou hast attained it - thou art a fool.</b>
+> <p><i>Lord Chesterfield</i></p>
 
 <br>
