@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the sole ambition, the exclusive goal of Taste.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>Anyone who relishes art should love the extraordinary diversity and psychic magic of our art galleries. There's likely more combined square footage for the showing of art on one New York block - West 24th Street between Tenth and Eleventh Avenues - than in all of Amsterdam's or Hamburg's galleries.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
