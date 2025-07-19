@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part about being with a group is that you don't have to do everything alone. You're with your friends.</b>
-> <p><i>Justin Timberlake</i></p>
+> <b>I'm drawn to furniture design as complete architecture on a minor scale.</b>
+> <p><i>Brad Pitt</i></p>
 
 <br>
