@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that there is nothing, not even crime, more opposed to poetry, to philosophy, ay, to life itself than this incessant business.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Art washes away from the soul the dust of everyday life.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
