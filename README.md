@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always thought the actions of men the best interpreters of their thoughts.</b>
-> <p><i>John Locke</i></p>
+> <b>The best part about being with a group is that you don't have to do everything alone. You're with your friends.</b>
+> <p><i>Justin Timberlake</i></p>
 
 <br>
