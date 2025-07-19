@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education doesn't change life much. It just lifts trouble to a higher plane of regard.</b>
-> <p><i>Robert Frost</i></p>
+> <b>Beauty is the sole ambition, the exclusive goal of Taste.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
