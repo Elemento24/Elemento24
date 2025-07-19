@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People got insights into what was bothering them, but they hardly did a damn thing to change.</b>
-> <p><i>Albert Ellis</i></p>
+> <b>I do believe very much in the idea of unexpected or 'convulsive' beauty - beauty in the service of liberty.</b>
+> <p><i>Jeff Vandermeer</i></p>
 
 <br>
