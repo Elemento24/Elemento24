@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that Phil Kaufman is one of the best directors that I have come across.</b>
-> <p><i>Clive Owen</i></p>
+> <b>In terms of having a business, I wanted to let it go beyond what my personal taste is. Basically, I'm in a kilt and a white shirt every day. So, you know, I don't have a lot of scope, and I'm really picky about what I wear.</b>
+> <p><i>Marc Jacobs</i></p>
 
 <br>
