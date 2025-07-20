@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But there comes a moment in everybody's life when he must decide whether he'll live among the human beings or not - a fool among fools or a fool alone.</b>
-> <p><i>Thornton Wilder</i></p>
+> <b>We're living in an era of unprecedented change, and I want to be a part of documenting it.</b>
+> <p><i>Ron Fournier</i></p>
 
 <br>
