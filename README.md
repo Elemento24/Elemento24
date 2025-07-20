@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The true measure of the value of any business leader and manager is performance.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>What Youth deemed crystal, Age finds out was dew.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
