@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work of the individual still remains the spark that moves mankind ahead even more than teamwork.</b>
-> <p><i>Igor Sikorsky</i></p>
+> <b>Great perils have this beauty, that they bring to light the fraternity of strangers.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
