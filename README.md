@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Expect the best, Prepare for the worst.</b>
-> <p><i>Muhammad Ali Jinnah</i></p>
+> <b>For two thousand years, the Church has guided the development of music, carefully legislating to fuse artistic talent and aesthetic beauty with the demands of the Faith.</b>
+> <p><i>Richard Morris</i></p>
 
 <br>
