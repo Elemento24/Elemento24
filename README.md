@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best road to progress is freedom's road.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>Expect the best, Prepare for the worst.</b>
+> <p><i>Muhammad Ali Jinnah</i></p>
 
 <br>
