@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For two thousand years, the Church has guided the development of music, carefully legislating to fuse artistic talent and aesthetic beauty with the demands of the Faith.</b>
-> <p><i>Richard Morris</i></p>
+> <b>The great art of films does not consist of descriptive movement of face and body but in the movements of thought and soul transmitted in a kind of intense isolation.</b>
+> <p><i>Louise Brooks</i></p>
 
 <br>
