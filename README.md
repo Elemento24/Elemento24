@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What Youth deemed crystal, Age finds out was dew.</b>
-> <p><i>Robert Browning</i></p>
+> <b>Early-twentieth-century abstraction is art's version of Einstein's Theory of Relativity. It's the idea that changed everything everywhere: quickly, decisively, for good.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
