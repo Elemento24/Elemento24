@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great perils have this beauty, that they bring to light the fraternity of strangers.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>Your actions, and your action alone, determines your worth.</b>
+> <p><i>Evelyn Waugh</i></p>
 
 <br>
