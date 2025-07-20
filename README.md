@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The great art of films does not consist of descriptive movement of face and body but in the movements of thought and soul transmitted in a kind of intense isolation.</b>
-> <p><i>Louise Brooks</i></p>
+> <b>I have so many different personalities in me and I still feel lonely.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
