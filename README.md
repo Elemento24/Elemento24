@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is the art of controlling your environment.</b>
-> <p><i>Hunter S. Thompson</i></p>
+> <b>If God drives a car, He'd drive a 1973 Ford LTD Brougham sedan with a claret-colored vinyl roof, with oxblood leather upholstery and an opera window.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
