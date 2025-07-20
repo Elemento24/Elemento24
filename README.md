@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're living in an era of unprecedented change, and I want to be a part of documenting it.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>As a body everyone is single, as a soul never.</b>
+> <p><i>Hermann Hesse</i></p>
 
 <br>
