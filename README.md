@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way to change is to vote. People are responsible.</b>
-> <p><i>Paul Wellstone</i></p>
+> <b>But there comes a moment in everybody's life when he must decide whether he'll live among the human beings or not - a fool among fools or a fool alone.</b>
+> <p><i>Thornton Wilder</i></p>
 
 <br>
