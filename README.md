@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have so many different personalities in me and I still feel lonely.</b>
-> <p><i>Tori Amos</i></p>
+> <b>I gave my beauty and my youth to men. I am going to give my wisdom and experience to animals.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
