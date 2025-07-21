@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know who a complicated tax code kills? The guy or gal trying to start a business out of the spare bedroom of their home. So we've got to simplify our tax code.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>Essex is an amazing county, with its own set of rules. It's a completely different world.</b>
+> <p><i>Denise Van Outen</i></p>
 
 <br>
