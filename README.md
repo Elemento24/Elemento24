@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good humor is one of the best articles of dress one can wear in society.</b>
-> <p><i>William Makepeace Thackeray</i></p>
+> <b>I tried acupuncture, the patch, and hypnosis, but found that I needed to do it alone - when the time was right for me.</b>
+> <p><i>Christy Turlington</i></p>
 
 <br>
