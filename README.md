@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My opponents attitude is, 'If it moves, tax it, if it keeps moving, regulate it and when it stops, subsidize it.</b>
-> <p><i>Rob Simmons</i></p>
+> <b>In my cranky old age, I actually prefer recording alone now, on 'The Simpsons,' for example, because I find that the director can just focus on what I'm doing and I can do a lot of variations. A lot of times, when I record with a group, I'll stay after class for another hour or two.</b>
+> <p><i>Hank Azaria</i></p>
 
 <br>
