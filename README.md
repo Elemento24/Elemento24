@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most women's pictures are as boring and as formulaic as men's pictures. In place of a car chase or a battle scene, what you get is an extreme closeup of a woman breaking down.</b>
-> <p><i>Frances McDormand</i></p>
+> <b>I also had a mistaken attitude towards certain comrades.</b>
+> <p><i>Bela Kun</i></p>
 
 <br>
