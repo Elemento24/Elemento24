@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tried acupuncture, the patch, and hypnosis, but found that I needed to do it alone - when the time was right for me.</b>
-> <p><i>Christy Turlington</i></p>
+> <b>It is said that man doesn't live by bread alone. Sometimes this is unfortunate, because people who cannot live by bread alone too often kill other people in consequence of the fights they get into.</b>
+> <p><i>John McCarthy</i></p>
 
 <br>
