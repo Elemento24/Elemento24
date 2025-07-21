@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing, Sir, too little for so little a creature as man. It is by studying little things that we attain the great art of having as little misery and as much happiness as possible.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>Competence, like truth, beauty, and contact lenses, is in the eye of the beholder.</b>
+> <p><i>Laurence J. Peter</i></p>
 
 <br>
