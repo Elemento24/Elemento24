@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The preparation, commitment and desire to win will be no less than the last time I drove a grand prix car in anger.</b>
-> <p><i>Nigel Mansell</i></p>
+> <b>The jewelry business is a very, very tough business - tougher than the computer business. You truly have to understand how to take care of your customers.</b>
+> <p><i>Guy Kawasaki</i></p>
 
 <br>
