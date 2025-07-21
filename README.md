@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Essex is an amazing county, with its own set of rules. It's a completely different world.</b>
-> <p><i>Denise Van Outen</i></p>
+> <b>There is nothing like being left alone again, to walk peacefully with oneself in the woods. To boil one's coffee and fill one's pipe, and to think idly and slowly as one does it.</b>
+> <p><i>Knut Hamsun</i></p>
 
 <br>
