@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The jewelry business is a very, very tough business - tougher than the computer business. You truly have to understand how to take care of your customers.</b>
-> <p><i>Guy Kawasaki</i></p>
+> <b>I've got some incredible fans actually - so loyal and they make me birthday cards and Christmas cards. I got this package of poems and artwork based around the songs. They've got this thing called 'Floetry' where they all have to put in artwork. They've set up their own competitions and stuff which is kind of amazing.</b>
+> <p><i>Florence Welch</i></p>
 
 <br>
