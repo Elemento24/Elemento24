@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been sober for two-and-a-half years, My children are happy. In August, my wife and I will celebrate our fifteenth wedding anniversary. My band is back together with a sold-out tour.</b>
-> <p><i>Trey Anastasio</i></p>
+> <b>I do not know which to prefer, The beauty of inflections, Or the beauty of innuendoes, The blackbird whistling, Or just after.</b>
+> <p><i>Wallace Stevens</i></p>
 
 <br>
