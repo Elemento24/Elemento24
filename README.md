@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my cranky old age, I actually prefer recording alone now, on 'The Simpsons,' for example, because I find that the director can just focus on what I'm doing and I can do a lot of variations. A lot of times, when I record with a group, I'll stay after class for another hour or two.</b>
-> <p><i>Hank Azaria</i></p>
+> <b>Most women's pictures are as boring and as formulaic as men's pictures. In place of a car chase or a battle scene, what you get is an extreme closeup of a woman breaking down.</b>
+> <p><i>Frances McDormand</i></p>
 
 <br>
