@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The New York art world readily proves people wrong. Just when folks say that things stink and flibbertigibbet critics wish the worst on us all because we're not pure enough, good omens appear.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>My opponents attitude is, 'If it moves, tax it, if it keeps moving, regulate it and when it stops, subsidize it.</b>
+> <p><i>Rob Simmons</i></p>
 
 <br>
