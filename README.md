@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The man who has done his best has done everything.</b>
-> <p><i>Charles M. Schwab</i></p>
+> <b>We are the children of a technological age. We have found streamlined ways of doing much of our routine work. Printing is no longer the only way of reproducing books. Reading them, however, has not changed.</b>
+> <p><i>Lawrence Clark Powell</i></p>
 
 <br>
