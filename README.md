@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Science fiction is any idea that occurs in the head and doesn't exist yet, but soon will, and will change everything for everybody, and nothing will ever be the same again. As soon as you have an idea that changes some small part of the world you are writing science fiction. It is always the art of the possible, never the impossible.</b>
-> <p><i>Ray Bradbury</i></p>
+> <b>I didn't get my first car until I was 22. It was a BMW 1602 and now I've got it back I'm waiting to restore it.</b>
+> <p><i>Jay Kay</i></p>
 
 <br>
