@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm starting to think about things that I want to do, things that are fun. One of them is driving a car like a Porsche. I've driven a lot of cars - sedans, trucks and big family vehicles all year long. But there's nothing like a four-wheel-drive Porsche.</b>
-> <p><i>Kevin O'Leary</i></p>
+> <b>The man who has done his best has done everything.</b>
+> <p><i>Charles M. Schwab</i></p>
 
 <br>
