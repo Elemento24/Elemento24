@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Stories aren't the beauty of what did happen. They're the beauty of what could happen.</b>
-> <p><i>Brad Meltzer</i></p>
+> <b>The best book, like the best speech, will do it all - make us laugh, think, cry and cheer - preferably in that order.</b>
+> <p><i>Madeleine Albright</i></p>
 
 <br>
