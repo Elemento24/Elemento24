@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'll watch a Pixar movie over and over and over again. I'll be with friends of mine who have kids, that want to watch 'Finding Nemo,' and I'm like, 'Yeah, okay, let's watch 'Nemo' again, for the seven billionth time!,' because they're amazing movies.</b>
-> <p><i>Zachary Levi</i></p>
+> <b>Science fiction is any idea that occurs in the head and doesn't exist yet, but soon will, and will change everything for everybody, and nothing will ever be the same again. As soon as you have an idea that changes some small part of the world you are writing science fiction. It is always the art of the possible, never the impossible.</b>
+> <p><i>Ray Bradbury</i></p>
 
 <br>
