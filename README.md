@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I put the costume on and said 'It's not very comfortable, but it looks amazing,' so it's all good.</b>
-> <p><i>Chris Hemsworth</i></p>
+> <b>It's amazing. I can't believe how brilliant the whole thing is - my daughter, Georgia, is just wonderful.</b>
+> <p><i>Edward Hall</i></p>
 
 <br>
