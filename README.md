@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can fake your age or mask it, but the passion that moves the characters has to be real.</b>
-> <p><i>Victoria Abril</i></p>
+> <b>People have often asked if I'm gay because I don't go out of my way to spit and scratch and give people attitude.</b>
+> <p><i>Jason Bateman</i></p>
 
 <br>
