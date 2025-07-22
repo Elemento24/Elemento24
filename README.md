@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are at the bottom, you find beauty in such little things, and goodness in such little gestures. When I compare any struggle today to ones that I may have had in my childhood, there is nothing that can bring me down.</b>
-> <p><i>Natalia Vodianova</i></p>
+> <b>I'm very shy really. I spend a lot of time in my room alone reading or writing or watching television.</b>
+> <p><i>Johnny Cash</i></p>
 
 <br>
