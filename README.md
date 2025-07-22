@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents have a strong work ethic, but their attitude to life, their philosophy, is: 'whatever makes you happy.'</b>
-> <p><i>Sally Hawkins</i></p>
+> <b>I married two weeks after my 18th birthday, far too young, and by the time I was 23 I was a single mother of three small children, Sean, Daniel and Victoria, living in a prefab house.</b>
+> <p><i>Sue Townsend</i></p>
 
 <br>
