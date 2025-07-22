@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not know which to prefer, The beauty of inflections, Or the beauty of innuendoes, The blackbird whistling, Or just after.</b>
-> <p><i>Wallace Stevens</i></p>
+> <b>Most of my arguments with musicians through the years have had more to do with their attitude about music, or their attitude about their own lives, or their personal responsibility. Music has never really been the big centerpiece of the fight.</b>
+> <p><i>Billy Corgan</i></p>
 
 <br>
