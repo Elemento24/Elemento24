@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very shy really. I spend a lot of time in my room alone reading or writing or watching television.</b>
-> <p><i>Johnny Cash</i></p>
+> <b>The art of living does not consist in preserving and clinging to a particular mode of happiness, but in allowing happiness to change its form without being disappointed by the change happiness, like a child, must be allowed to grow up.</b>
+> <p><i>Charles Morgan</i></p>
 
 <br>
