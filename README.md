@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing. I can't believe how brilliant the whole thing is - my daughter, Georgia, is just wonderful.</b>
-> <p><i>Edward Hall</i></p>
+> <b>Art is why I get up in the morning but my definition ends there. You know I don't think its fair that I'm living for something I can't even define.</b>
+> <p><i>Ani DiFranco</i></p>
 
 <br>
