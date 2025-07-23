@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think radio is selling records like they used to. They'd hawk the song and hawk the artist and you'd get so excited, you'd stop your car and go into the nearest record store.</b>
-> <p><i>Herb Alpert</i></p>
+> <b>Never contend with a man who has nothing to lose.</b>
+> <p><i>Baltasar Gracian</i></p>
 
 <br>
