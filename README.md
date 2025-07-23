@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is man's expression of his joy in labor.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>All good criticism should be judged the way art is. You shouldn't read it the way you read history or science.</b>
+> <p><i>Leslie Fiedler</i></p>
 
 <br>
