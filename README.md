@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never contend with a man who has nothing to lose.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>There are some things you learn best in calm, and some in storm.</b>
+> <p><i>Willa Cather</i></p>
 
 <br>
