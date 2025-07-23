@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every child senses, with all the horse sense that's in him, that any parent is angry inside when children misbehave and they dread more the anger that is rarely or never expressed openly, wondering how awful it might be.</b>
-> <p><i>Benjamin Spock</i></p>
+> <b>For a while I couldn't leave the house by myself. Even if I was just grocery shopping alone, I'd get self-conscious.</b>
+> <p><i>Shannen Doherty</i></p>
 
 <br>
