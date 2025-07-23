@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I married two weeks after my 18th birthday, far too young, and by the time I was 23 I was a single mother of three small children, Sean, Daniel and Victoria, living in a prefab house.</b>
-> <p><i>Sue Townsend</i></p>
+> <b>Ford used to come to work in a big car with two Admiral's flags, on each side of the car. His assistant would be there with his accordion, playing, Hail to the Chief.</b>
+> <p><i>Richard Widmark</i></p>
 
 <br>
