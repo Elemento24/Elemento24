@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bullfighting is the only art in which the artist is in danger of death and in which the degree of brilliance in the performance is left to the fighter's honor.</b>
-> <p><i>Ernest Hemingway</i></p>
+> <b>Each experience through which we pass operates ultimately for our good. This is a correct attitude to adopt and we must be able to see it in that light.</b>
+> <p><i>Henry S. Haskins</i></p>
 
 <br>
