@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To play safe, I prefer to accept only one type of power: the power of art over trash, the triumph of magic over the brute.</b>
-> <p><i>Vladimir Nabokov</i></p>
+> <b>With most British actors, it's amazing. I think they start with the character on the outside and work in.</b>
+> <p><i>Norman Jewison</i></p>
 
 <br>
