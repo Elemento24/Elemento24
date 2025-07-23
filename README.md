@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are some things you learn best in calm, and some in storm.</b>
-> <p><i>Willa Cather</i></p>
+> <b>Hurt leads to bitterness, bitterness to anger, travel too far that road and the way is lost.</b>
+> <p><i>Terry Brooks</i></p>
 
 <br>
