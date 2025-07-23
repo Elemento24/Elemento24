@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Go right straight down the road, to do what is best, and to do it frankly and without evasion.</b>
-> <p><i>George C. Marshall</i></p>
+> <b>When you're in a car which can win every race, or fight for a win every race, that is pressure.</b>
+> <p><i>Jenson Button</i></p>
 
 <br>
