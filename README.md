@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being in the business and growing up in L.A., I think I turned out pretty OK.</b>
-> <p><i>Emma Roberts</i></p>
+> <b>Go right straight down the road, to do what is best, and to do it frankly and without evasion.</b>
+> <p><i>George C. Marshall</i></p>
 
 <br>
