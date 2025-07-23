@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's high time for the art world to admit that the avant-garde is dead. It was killed by my hero, Andy Warhol, who incorporated into his art all the gaudy commercial imagery of capitalism (like Campbell's soup cans) that most artists had stubbornly scorned.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>The art of acting consists in keeping people from coughing.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
