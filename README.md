@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hurt leads to bitterness, bitterness to anger, travel too far that road and the way is lost.</b>
-> <p><i>Terry Brooks</i></p>
+> <b>Art is man's expression of his joy in labor.</b>
+> <p><i>Henry A. Kissinger</i></p>
 
 <br>
