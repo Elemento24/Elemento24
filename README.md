@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For a while I couldn't leave the house by myself. Even if I was just grocery shopping alone, I'd get self-conscious.</b>
-> <p><i>Shannen Doherty</i></p>
+> <b>Being in the business and growing up in L.A., I think I turned out pretty OK.</b>
+> <p><i>Emma Roberts</i></p>
 
 <br>
