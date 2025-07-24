@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The writer, when he is also an artist, is someone who admits what others don't dare reveal.</b>
-> <p><i>Elia Kazan</i></p>
+> <b>I've performed in Auburn Hills, at The Palace, so I haven't really been in downtown Detroit, but I've been able to be here, and I can really see, what the city was. Like, I can feel why Motown started here and how amazing it was.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
