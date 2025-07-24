@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cry out for order and find it only in art.</b>
-> <p><i>Helen Hayes</i></p>
+> <b>The writer, when he is also an artist, is someone who admits what others don't dare reveal.</b>
+> <p><i>Elia Kazan</i></p>
 
 <br>
