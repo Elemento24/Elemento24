@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just had my 30th birthday and we went turkey shooting. It's what I wanted to do, so we went.</b>
-> <p><i>Kelly Clarkson</i></p>
+> <b>The real art is not to come up with extraordinary clever words but to make ordinary simple words do extraordinary things. To use the language that we all use and to make amazing things occur.</b>
+> <p><i>Graham Swift</i></p>
 
 <br>
