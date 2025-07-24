@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you tell people where to go, but not how to get there, you'll be amazed at the results.</b>
-> <p><i>George S. Patton</i></p>
+> <b>Whatever good things we build end up building us.</b>
+> <p><i>Jim Rohn</i></p>
 
 <br>
