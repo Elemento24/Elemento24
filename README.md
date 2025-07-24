@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The real art is not to come up with extraordinary clever words but to make ordinary simple words do extraordinary things. To use the language that we all use and to make amazing things occur.</b>
-> <p><i>Graham Swift</i></p>
+> <b>Yes'm, old friends is always best, 'less you can catch a new one that's fit to make an old one out of.</b>
+> <p><i>Sarah Orne Jewett</i></p>
 
 <br>
