@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes'm, old friends is always best, 'less you can catch a new one that's fit to make an old one out of.</b>
-> <p><i>Sarah Orne Jewett</i></p>
+> <b>Art is not a study of positive reality, it is the seeking for ideal truth.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
