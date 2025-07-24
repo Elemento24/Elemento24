@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody in life gets exactly what they thought they were going to get. But if you work really hard and you're kind, amazing things will happen.</b>
-> <p><i>Conan O'Brien</i></p>
+> <b>A suburban mother's role is to deliver children obstetrically once, and by car forever after.</b>
+> <p><i>Peter De Vries</i></p>
 
 <br>
