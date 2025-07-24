@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've performed in Auburn Hills, at The Palace, so I haven't really been in downtown Detroit, but I've been able to be here, and I can really see, what the city was. Like, I can feel why Motown started here and how amazing it was.</b>
-> <p><i>Jordin Sparks</i></p>
+> <b>I've always believed that there are funny people everywhere, but they're just not comedians. In fact, some of my best comedic inspirations were not professional entertainers.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
