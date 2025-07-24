@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like charity, I believe glamour should begin at home.</b>
-> <p><i>Loretta Young</i></p>
+> <b>I think that the biggest beauty essential is as simple as a good, full night's sleep.</b>
+> <p><i>Angela Kinsey</i></p>
 
 <br>
