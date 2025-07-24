@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grace is in garments, in movements, in manners beauty in the nude, and in forms. This is true of bodies but when we speak of feelings, beauty is in their spirituality, and grace in their moderation.</b>
-> <p><i>Joseph Joubert</i></p>
+> <b>I look away at car crashes, and I know people who look away at car crashes, because it makes us uncomfortable to watch other people in pain.</b>
+> <p><i>John Mayer</i></p>
 
 <br>
