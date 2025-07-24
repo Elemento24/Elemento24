@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Throughout my whole life, as a performer, I've never played with a band. I've always played alone, so I was never required to stay in rhythm or anything. So it was a real different experience for me to start playing with a band. There were so many basic things for me to learn.</b>
-> <p><i>Steve Martin</i></p>
+> <b>Nobody in life gets exactly what they thought they were going to get. But if you work really hard and you're kind, amazing things will happen.</b>
+> <p><i>Conan O'Brien</i></p>
 
 <br>
