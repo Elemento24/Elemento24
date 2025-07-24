@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What would be ugly in a garden constitutes beauty in a mountain.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>L.A. Woman is amazing, but when I was growing up I was into the Who.</b>
+> <p><i>Bruce McCulloch</i></p>
 
 <br>
