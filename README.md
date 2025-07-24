@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not a study of positive reality, it is the seeking for ideal truth.</b>
-> <p><i>John Ruskin</i></p>
+> <b>I cry out for order and find it only in art.</b>
+> <p><i>Helen Hayes</i></p>
 
 <br>
