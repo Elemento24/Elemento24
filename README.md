@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's an interesting combination: Having a great fear of being alone, and having a desperate need for solitude and the solitary experience. That's always been a tug of war for me.</b>
-> <p><i>Jodie Foster</i></p>
+> <b>If you tell people where to go, but not how to get there, you'll be amazed at the results.</b>
+> <p><i>George S. Patton</i></p>
 
 <br>
