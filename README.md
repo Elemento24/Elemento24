@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is art that makes life, makes interest, makes importance... and I know of no substitute whatever for the force and beauty of its process.</b>
-> <p><i>Henry James</i></p>
+> <b>A national political campaign is better than the best circus ever heard of, with a mass baptism and a couple of hangings thrown in.</b>
+> <p><i>H. L. Mencken</i></p>
 
 <br>
