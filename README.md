@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In fact, my courage and my bravery at a young age was the thing I was bullied for, a kind of 'Who do you think you are?'</b>
-> <p><i>Lady Gaga</i></p>
+> <b>It seems to me that the natural world is the greatest source of excitement the greatest source of visual beauty the greatest source of intellectual interest. It is the greatest source of so much in life that makes life worth living.</b>
+> <p><i>David Attenborough</i></p>
 
 <br>
