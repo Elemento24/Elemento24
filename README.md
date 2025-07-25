@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you explode onto the scene at a very young age, there are so many people pulling you in different directions. It takes time to recalibrate and see what's important.</b>
-> <p><i>Clive Owen</i></p>
+> <b>We are very anxious to bring the Jews of Morocco over and we are doing all we can to achieve this. But we cannot count on the Jews of Morocco alone to build the country, because they have not been educated for this.</b>
+> <p><i>Moshe Sharett</i></p>
 
 <br>
