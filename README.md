@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The moment you cheat for the sake of beauty, you know you're an artist.</b>
-> <p><i>David Hockney</i></p>
+> <b>In fact, my courage and my bravery at a young age was the thing I was bullied for, a kind of 'Who do you think you are?'</b>
+> <p><i>Lady Gaga</i></p>
 
 <br>
