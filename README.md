@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people who make art their business are mostly imposters.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>All we need, really, is a change from a near frigid to a tropical attitude of mind.</b>
+> <p><i>Marjory Stoneman Douglas</i></p>
 
 <br>
