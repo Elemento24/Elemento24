@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All we need, really, is a change from a near frigid to a tropical attitude of mind.</b>
-> <p><i>Marjory Stoneman Douglas</i></p>
+> <b>It's really interesting with art-movies too, but art especially - to see how your attitude toward artists and works and your level of appreciation of them is always shifting and changing over the years.</b>
+> <p><i>Richard Hell</i></p>
 
 <br>
