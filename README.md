@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are very anxious to bring the Jews of Morocco over and we are doing all we can to achieve this. But we cannot count on the Jews of Morocco alone to build the country, because they have not been educated for this.</b>
-> <p><i>Moshe Sharett</i></p>
+> <b>I don't want to wake up and not truly be enjoying my life and these amazing things around me.</b>
+> <p><i>LeAnn Rimes</i></p>
 
 <br>
