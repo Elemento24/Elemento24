@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Someday perhaps change will occur when times are ready for it instead of always when it is too late. Someday change will be accepted as life itself.</b>
-> <p><i>Shirley MacLaine</i></p>
+> <b>History has remembered the kings and warriors, because they destroyed art has remembered the people, because they created.</b>
+> <p><i>William Morris</i></p>
 
 <br>
