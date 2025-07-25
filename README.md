@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religion is essentially the art and the theory of the remaking of man. Man is not a finished creation.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>If you explode onto the scene at a very young age, there are so many people pulling you in different directions. It takes time to recalibrate and see what's important.</b>
+> <p><i>Clive Owen</i></p>
 
 <br>
