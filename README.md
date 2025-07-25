@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, if you're Guy Kawasaki and you create a car that gets 500 miles a gallon with zero emissions, people on the Internet would say: 'I could have done that in half an hour, and it's been done before. What's the big deal? I expected something more from him.' Meanwhile, they didn't do it, right? They're still living at home with their mothers.</b>
-> <p><i>Guy Kawasaki</i></p>
+> <b>It is art that makes life, makes interest, makes importance... and I know of no substitute whatever for the force and beauty of its process.</b>
+> <p><i>Henry James</i></p>
 
 <br>
