@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had no idea that he was going to write that, but I've always believed that insecurity was what would keep you always in your innocence, no matter what the business did.</b>
-> <p><i>Sally Kirkland</i></p>
+> <b>Damien Hirst is the Elvis of the English art world, its ayatollah, deliverer, and big-thinking entrepreneurial potty-mouthed prophet and front man. Hirst synthesizes punk, Pop Art, Jeff Koons, Marcel Duchamp, Francis Bacon, and Catholicism.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
