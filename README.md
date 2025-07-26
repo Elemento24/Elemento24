@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went to watch my father at Silverstone in the early 1950s, and I've still got the car he was in.</b>
-> <p><i>Nick Mason</i></p>
+> <b>Having lots of siblings is like having built-in best friends.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
