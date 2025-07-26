@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People quit on jobs. They quit on marriages. They quit on school. There's an immediacy of this day and age that doesn't lend itself to being committed to anything.</b>
-> <p><i>Emily Blunt</i></p>
+> <b>We're not uncomfortable with it, and we've already been through enough of the music business where I'm not really worried that commercial success is going to in some way - we're already past saving, you know what I mean? It's too late for us.</b>
+> <p><i>Jerry Garcia</i></p>
 
 <br>
