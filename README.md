@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What was past was past. I suppose that was the general attitude.</b>
-> <p><i>V. S. Naipaul</i></p>
+> <b>It goes without saying that you should never have more children than you have car windows.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
