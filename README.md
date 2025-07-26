@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>History has remembered the kings and warriors, because they destroyed art has remembered the people, because they created.</b>
-> <p><i>William Morris</i></p>
+> <b>Prosperous farmers mean more employment, more prosperity for the workers and the business men of every industrial area in the whole country.</b>
+> <p><i>Franklin D. Roosevelt</i></p>
 
 <br>
