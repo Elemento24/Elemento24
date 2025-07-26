@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To give anything less than your best, is to sacrifice the gift.</b>
-> <p><i>Steve Prefontaine</i></p>
+> <b>You can say what you want to about a rapper in a movie, but look at what Ice Cube has done. Ice Cube has created more opportunities for other actors to get jobs in this business than some actors have.</b>
+> <p><i>Anthony Anderson</i></p>
 
 <br>
