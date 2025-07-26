@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can change a tire, but I couldn't change a fuse on the computer panel on my car.</b>
-> <p><i>Mike O'Malley</i></p>
+> <b>I have this theory that, depending on your attitude, your life doesn't have to become this ridiculous charade that it seems so many people end up living.</b>
+> <p><i>Christian Bale</i></p>
 
 <br>
