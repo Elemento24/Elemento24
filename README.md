@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have made some of the best friends that I've got in this business.</b>
-> <p><i>Kate Moss</i></p>
+> <b>Countries such as the U.S. and Britain have taken it upon themselves to decide for us in the developing world, even to interfere in our domestic affairs and to bring about what they call regime change.</b>
+> <p><i>Robert Mugabe</i></p>
 
 <br>
