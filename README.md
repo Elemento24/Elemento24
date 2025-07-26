@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even in the centuries which appear to us to be the most monstrous and foolish, the immortal appetite for beauty has always found satisfaction.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>What was past was past. I suppose that was the general attitude.</b>
+> <p><i>V. S. Naipaul</i></p>
 
 <br>
