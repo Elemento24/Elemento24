@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Definition of Statistics: The science of producing unreliable facts from reliable figures.</b>
-> <p><i>Evan Esar</i></p>
+> <b>It's amazing how a competitive nature can turn a negative into something positive.</b>
+> <p><i>Barry Mann</i></p>
 
 <br>
