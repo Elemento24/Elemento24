@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prosperous farmers mean more employment, more prosperity for the workers and the business men of every industrial area in the whole country.</b>
-> <p><i>Franklin D. Roosevelt</i></p>
+> <b>A lot of music you might listen to is pretty vapid, it doesn't always deal with our deeper issues. These are the things I'm interested in now, particularly at my age.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
