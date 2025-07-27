@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are patronizing the theatres with renewed enthusiasm - there is an entire picnic-like attitude when families go out to see movies, which is a very good sign. They want to see larger-than-life characters on the big screen and not just watch movies on television or on DVDs.</b>
-> <p><i>Salman Khan</i></p>
+> <b>Alan Cumming is such an amazing performer and person.</b>
+> <p><i>Carrie Preston</i></p>
 
 <br>
