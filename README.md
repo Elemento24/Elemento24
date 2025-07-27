@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The whole art of teaching is only the art of awakening the natural curiosity of young minds for the purpose of satisfying it afterwards.</b>
-> <p><i>Anatole France</i></p>
+> <b>I've been called many names like perfectionist, difficult and obsessive. I think it takes obsession, takes searching for the details for any artist to be good.</b>
+> <p><i>Barbra Streisand</i></p>
 
 <br>
