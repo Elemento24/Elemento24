@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education must provide the opportunities for self-fulfillment it can at best provide a rich and challenging environment for the individual to explore, in his own way.</b>
-> <p><i>Noam Chomsky</i></p>
+> <b>Change is the law of life. And those who look only to the past or present are certain to miss the future.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
