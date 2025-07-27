@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm just part of a tradition of people who aren't pleased. I would never think anyone else who has the same attitude was getting it from me. I'd just think they're... sensible.</b>
-> <p><i>Jack Dee</i></p>
+> <b>A national political campaign is better than the best circus ever heard of, with a mass baptism and a couple of hangings thrown in.</b>
+> <p><i>H. L. Mencken</i></p>
 
 <br>
