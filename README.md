@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alan Cumming is such an amazing performer and person.</b>
-> <p><i>Carrie Preston</i></p>
+> <b>An apology might help, but you can change your life without one.</b>
+> <p><i>Robin Quivers</i></p>
 
 <br>
