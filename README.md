@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is the law of life. And those who look only to the past or present are certain to miss the future.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>I'm just part of a tradition of people who aren't pleased. I would never think anyone else who has the same attitude was getting it from me. I'd just think they're... sensible.</b>
+> <p><i>Jack Dee</i></p>
 
 <br>
