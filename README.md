@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is a fantastic time to be entering the business world, because business is going to change more in the next 10 years than it has in the last 50.</b>
-> <p><i>Bill Gates</i></p>
+> <b>Education must provide the opportunities for self-fulfillment it can at best provide a rich and challenging environment for the individual to explore, in his own way.</b>
+> <p><i>Noam Chomsky</i></p>
 
 <br>
