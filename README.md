@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Who knows better than artists how much ugliness there is on the way to beauty, how many ghastly, mortifying missteps, how many days of granitic blockheadedness and dismaying ineptitude there is on the way to accomplishment, how partial all accomplishment is, how incomplete?</b>
-> <p><i>Tony Kushner</i></p>
+> <b>Take the high road. No matter how much strife, and consternation, frustration and anger you might be confronted with - don't go to that level.</b>
+> <p><i>Tim Gunn</i></p>
 
 <br>
