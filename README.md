@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to sing around the bonfire, in my car and in the shower.</b>
-> <p><i>Jessica Pare</i></p>
+> <b>L.A. Woman is amazing, but when I was growing up I was into the Who.</b>
+> <p><i>Bruce McCulloch</i></p>
 
 <br>
