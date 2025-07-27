@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It goes without saying that you should never have more children than you have car windows.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>It's odd the things that people remember. Parents will arrange a birthday party, certain it will stick in your mind forever. You'll have a nice time, then two years later you'll be like, 'There was a pony there? Really? And a clown with one leg?'</b>
+> <p><i>David Sedaris</i></p>
 
 <br>
