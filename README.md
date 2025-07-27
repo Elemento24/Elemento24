@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been called many names like perfectionist, difficult and obsessive. I think it takes obsession, takes searching for the details for any artist to be good.</b>
-> <p><i>Barbra Streisand</i></p>
+> <b>I like to sing around the bonfire, in my car and in the shower.</b>
+> <p><i>Jessica Pare</i></p>
 
 <br>
