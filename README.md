@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I finally faced the fact that it isn't a crime not having friends. Being alone means you have fewer problems.</b>
-> <p><i>Whitney Houston</i></p>
+> <b>The whole kiss-and-tell thing is a negative approach that often happens in a World Cup. We will see negative stories about the players and it can affect their confidence and the overall performance of the national team on the pitch, let alone the bid to actually stage the competition.</b>
+> <p><i>Gary Lineker</i></p>
 
 <br>
