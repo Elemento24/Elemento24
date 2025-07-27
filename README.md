@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An apology might help, but you can change your life without one.</b>
-> <p><i>Robin Quivers</i></p>
+> <b>When the people you love are gone, you're alone.</b>
+> <p><i>Keanu Reeves</i></p>
 
 <br>
