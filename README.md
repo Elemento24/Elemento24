@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When the people you love are gone, you're alone.</b>
-> <p><i>Keanu Reeves</i></p>
+> <b>I'm a summer baby, so I usually have my birthday as a good summer memory.</b>
+> <p><i>Sloane Crosley</i></p>
 
 <br>
