@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Take the high road. No matter how much strife, and consternation, frustration and anger you might be confronted with - don't go to that level.</b>
-> <p><i>Tim Gunn</i></p>
+> <b>The U.S. states that allow for citizens' initiatives tend to have fewer laws and lower taxes than the ones that don't. But the beauty of the system is that it encourages the spread of best practice.</b>
+> <p><i>Daniel Hannan</i></p>
 
 <br>
