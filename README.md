@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always believed that there are funny people everywhere, but they're just not comedians. In fact, some of my best comedic inspirations were not professional entertainers.</b>
-> <p><i>Steve Martin</i></p>
+> <b>Men of age object too much, consult too long, adventure too little, repent too soon, and seldom drive business home to the full period, but content themselves with a mediocrity of success.</b>
+> <p><i>Dale Carnegie</i></p>
 
 <br>
