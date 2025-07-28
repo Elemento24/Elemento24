@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm no actor. And I wasn't like George Lucas or Spielberg, making home movies as a teenager, either. But I would go back and watch certain movies again and again. By the time I saw 'The Graduate' I was aware of how these amazing stories could be told.</b>
-> <p><i>Nancy Meyers</i></p>
+> <b>When you're young, you look at television and think, there's a conspiracy. The networks have conspired to dumb us down. But when you get a little older, you realize that's not true. The networks are in business to give people exactly what they want.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
