@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always use my husband's cocoa butter stuff. He has amazing skin!</b>
-> <p><i>Idina Menzel</i></p>
+> <b>Look up, laugh loud, talk big, keep the color in your cheek and the fire in your eye, adorn your person, maintain your health, your beauty and your animal spirits.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
