@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is the art of preventing people from busying themselves with what is their own business.</b>
-> <p><i>Paul Valery</i></p>
+> <b>I don't like people who have never fallen or stumbled. Their virtue is lifeless and it isn't of much value. Life hasn't revealed its beauty to them.</b>
+> <p><i>Boris Pasternak</i></p>
 
 <br>
