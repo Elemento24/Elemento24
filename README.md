@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The terrifying and edible beauty of Art Nouveau architecture.</b>
-> <p><i>Salvador Dali</i></p>
+> <b>I'm no actor. And I wasn't like George Lucas or Spielberg, making home movies as a teenager, either. But I would go back and watch certain movies again and again. By the time I saw 'The Graduate' I was aware of how these amazing stories could be told.</b>
+> <p><i>Nancy Meyers</i></p>
 
 <br>
