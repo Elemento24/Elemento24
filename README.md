@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not a tenth of us who are in business are doing as well as we could if we merely followed the principles that were known to our grandfathers.</b>
-> <p><i>William Feather</i></p>
+> <b>A child does not notice the greatness and the beauty of nature and the splendor of God in his works.</b>
+> <p><i>Rudolf Otto</i></p>
 
 <br>
