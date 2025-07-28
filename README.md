@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have pretty thick skin, and I think if you're going to be in this business, if you're going to be an actor or a writer, you better have a thick skin.</b>
-> <p><i>John Irving</i></p>
+> <b>Not a tenth of us who are in business are doing as well as we could if we merely followed the principles that were known to our grandfathers.</b>
+> <p><i>William Feather</i></p>
 
 <br>
