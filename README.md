@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are rarely proud when we are alone.</b>
-> <p><i>Voltaire</i></p>
+> <b>I am a great lover of art, in many forms: paintings, objets, textiles. I don't have the talent for painting, but I have a very good sense of colour, a love of visual beauty.</b>
+> <p><i>Jacqueline Bisset</i></p>
 
 <br>
