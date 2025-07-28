@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Townes van Zandt is the best songwriter in the whole world and I'll stand on Bob Dylan's coffee table in my cowboy boots and say that.</b>
-> <p><i>Steve Earle</i></p>
+> <b>I always use my husband's cocoa butter stuff. He has amazing skin!</b>
+> <p><i>Idina Menzel</i></p>
 
 <br>
