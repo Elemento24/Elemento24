@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If art is to nourish the roots of our culture, society must set the artist free to follow his vision wherever it takes him.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>Britishness is just a way of putting things together and a certain don't care attitude about clothes. You don't care, you just do it and it looks great.</b>
+> <p><i>Vivienne Westwood</i></p>
 
 <br>
