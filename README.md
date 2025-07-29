@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I think our problems are made worse by the kind of business we're in. Playing these road shows is a weird experience.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>But theater, because of its nature, both text, images, multimedia effects, has a wider base of communication with an audience. That's why I call it the most social of the various art forms.</b>
+> <p><i>Wole Soyinka</i></p>
 
 <br>
