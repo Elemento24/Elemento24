@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Britishness is just a way of putting things together and a certain don't care attitude about clothes. You don't care, you just do it and it looks great.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>When you have confidence, you can have a lot of fun. And when you have fun, you can do amazing things.</b>
+> <p><i>Joe Namath</i></p>
 
 <br>
