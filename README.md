@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never called my work an 'art'. It's part of show business, the business of building entertainment.</b>
-> <p><i>Walt Disney</i></p>
+> <b>Sometimes I think our problems are made worse by the kind of business we're in. Playing these road shows is a weird experience.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
