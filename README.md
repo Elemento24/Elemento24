@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So now, cut to ten years later, and I'm making this amazing contract with Pantene. It's incredible.</b>
-> <p><i>Maria Menounos</i></p>
+> <b>Alchemy is the art of far and near, and I think poetry is alchemy in that way. It's delightful to distort size, to see something that's tiny as though it were vast.</b>
+> <p><i>Robert Morgan</i></p>
 
 <br>
