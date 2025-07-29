@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Low levels of vitamin D in the population as a whole suggest that most people need to take a vitamin D supplement. This may be especially true for seniors, as the ability to synthesize vitamin D in the skin declines with age.</b>
-> <p><i>Andrew Weil</i></p>
+> <b>There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else.</b>
+> <p><i>Sam Walton</i></p>
 
 <br>
