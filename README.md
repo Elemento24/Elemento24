@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you have confidence, you can have a lot of fun. And when you have fun, you can do amazing things.</b>
-> <p><i>Joe Namath</i></p>
+> <b>Sometimes if you want to see a change for the better, you have to take things into your own hands.</b>
+> <p><i>Clint Eastwood</i></p>
 
 <br>
