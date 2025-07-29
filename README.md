@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Qualifying is all about putting everything that you have and that the car has in one lap. It's like a rush, I really enjoy that.</b>
-> <p><i>Sebastian Vettel</i></p>
+> <b>I'm always going to get more of a charge playing Chicago than I will Duluth or some place like that. Just because of the history and the people there are way more knowledgeable than a lot of other cities. It's an amazing music scene with some great bands and great musicians.</b>
+> <p><i>Matt Cameron</i></p>
 
 <br>
