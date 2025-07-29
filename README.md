@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People feel that the EU is a one-way process, a great machine that sucks up decision-making from national parliaments to the European level until everything is decided by the EU. That needs to change.</b>
-> <p><i>William Hague</i></p>
+> <b>The best government is a benevolent tyranny tempered by an occasional assassination.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
