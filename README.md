@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the world could remain within a frame like a painting on the wall, I think we'd see the beauty then and stand staring in awe.</b>
-> <p><i>Conor Oberst</i></p>
+> <b>If I am a cup maker, I'm interested in making the best cup I possibly can. My effort goes into that cup, not what people think about it.</b>
+> <p><i>Denzel Washington</i></p>
 
 <br>
