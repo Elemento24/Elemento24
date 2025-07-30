@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are all revolutionaries now, addicts of change.</b>
-> <p><i>Christopher Lasch</i></p>
+> <b>I can't change overnight into a serious literary author. You can't compare apples to oranges. William Faulkner was a great literary genius. I am not.</b>
+> <p><i>John Grisham</i></p>
 
 <br>
