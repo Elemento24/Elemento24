@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A strong positive mental attitude will create more miracles than any wonder drug.</b>
-> <p><i>Patricia Neal</i></p>
+> <b>Censorship is to art as lynching is to justice.</b>
+> <p><i>Henry Louis Gates</i></p>
 
 <br>
