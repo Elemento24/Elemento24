@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People go to car races to watch the crashes.</b>
-> <p><i>Johnny Knoxville</i></p>
+> <b>And queenly is the state she keeps, In beauty's lofty trust secure.</b>
+> <p><i>William Allen Butler</i></p>
 
 <br>
