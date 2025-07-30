@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought to be feminine was to give in to straight culture, or the beauty standard, but in my heart I had a flair for fashion and style. They were passions I kept secret because I didn't understand I could love clothes and hair and makeup and still like girls.</b>
-> <p><i>Beth Ditto</i></p>
+> <b>A strong positive mental attitude will create more miracles than any wonder drug.</b>
+> <p><i>Patricia Neal</i></p>
 
 <br>
