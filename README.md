@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a speaker, business leader or marketer of any type, the onus is now on each of us to become equally capable of communicating very personally with a seemingly endless number of people connected by social technologies.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>This is a fantastic time to be entering the business world, because business is going to change more in the next 10 years than it has in the last 50.</b>
+> <p><i>Bill Gates</i></p>
 
 <br>
