@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is an abiding beauty which may be appreciated by those who will see things as they are and who will ask for no reward except to see.</b>
-> <p><i>Vera Brittain</i></p>
+> <b>Stevie Wonder is just one of those guys that completely delivers everything that you want to be true about Stevie Wonder. He's an amazing human being, and the fairytale exists with that man.</b>
+> <p><i>Adam Levine</i></p>
 
 <br>
