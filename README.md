@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And queenly is the state she keeps, In beauty's lofty trust secure.</b>
-> <p><i>William Allen Butler</i></p>
+> <b>This is the great reward of service, to live, far out and on, in the life of others this is the mystery of Christ, - to give life's best for such high sake that it shall be found again unto life eternal.</b>
+> <p><i>Joshua Chamberlain</i></p>
 
 <br>
