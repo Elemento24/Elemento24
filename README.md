@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Human memory is a marvelous but fallacious instrument. The memories which lie within us are not carved in stone not only do they tend to become erased as the years go by, but often they change, or even increase by incorporating extraneous features.</b>
-> <p><i>Primo Levi</i></p>
+> <b>Art is a harmony parallel with nature.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
