@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Engineering, medicine, business, architecture and painting are concerned not with the necessary but with the contingent - not with how things are but with how they might be - in short, with design.</b>
-> <p><i>Herbert Simon</i></p>
+> <b>My passion and energy get mistaken for anger.</b>
+> <p><i>Gary Oldman</i></p>
 
 <br>
