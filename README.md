@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is a fantastic time to be entering the business world, because business is going to change more in the next 10 years than it has in the last 50.</b>
-> <p><i>Bill Gates</i></p>
+> <b>Engineering, medicine, business, architecture and painting are concerned not with the necessary but with the contingent - not with how things are but with how they might be - in short, with design.</b>
+> <p><i>Herbert Simon</i></p>
 
 <br>
