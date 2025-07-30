@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is a harmony parallel with nature.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>The experience of being in space didn't change my perspective of myself or of the planet or of life. I had no spiritual experience.</b>
+> <p><i>Sally Ride</i></p>
 
 <br>
