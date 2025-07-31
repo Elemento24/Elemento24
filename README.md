@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty in distress is much the most affecting beauty.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>The best way to make your dreams come true is to wake up.</b>
+> <p><i>Paul Valery</i></p>
 
 <br>
