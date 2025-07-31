@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to make your dreams come true is to wake up.</b>
-> <p><i>Paul Valery</i></p>
+> <b>Women are so unforgiving of themselves. We don't recognize our own beauty because we're too busy comparing ourselves to other people.</b>
+> <p><i>Kelly Osbourne</i></p>
 
 <br>
