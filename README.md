@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Recently, I went to a disco with friends, and all the young people were saying, 'Dudamel, we want to go to your concert, but it's impossible because it's sold out.' It's really amazing.</b>
-> <p><i>Gustavo Dudamel</i></p>
+> <b>Every human has four endowments- self awareness, conscience, independent will and creative imagination. These give us the ultimate human freedom... The power to choose, to respond, to change.</b>
+> <p><i>Stephen Covey</i></p>
 
 <br>
