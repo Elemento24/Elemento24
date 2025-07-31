@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know much about auctions. I sometimes go to previews and see art sardined into ugly rooms. I've gawked at the gaudy prices, and gaped at well-clad crowds of happy white people conspicuously spending hundreds of millions of dollars.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Recently, I went to a disco with friends, and all the young people were saying, 'Dudamel, we want to go to your concert, but it's impossible because it's sold out.' It's really amazing.</b>
+> <p><i>Gustavo Dudamel</i></p>
 
 <br>
