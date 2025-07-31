@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a designer, the mission with which we have been charged is simple: providing space at the right cost.</b>
-> <p><i>Harry von Zell</i></p>
+> <b>The essential function of art is moral. But a passionate, implicit morality, not didactic. A morality which changes the blood, rather than the mind.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
