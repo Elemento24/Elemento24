@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty itself is but the sensible image of the Infinite.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>My second play, The Birthday Party, I wrote in 1958 - or 1957. It was totally destroyed by the critics of the day, who called it an absolute load of rubbish.</b>
+> <p><i>Harold Pinter</i></p>
 
 <br>
