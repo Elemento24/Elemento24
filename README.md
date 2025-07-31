@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We now accept the fact that learning is a lifelong process of keeping abreast of change. And the most pressing task is to teach people how to learn.</b>
-> <p><i>Peter Drucker</i></p>
+> <b>I understand and get when kids and teenagers feel like they're alone and it's not going to get better. My advice is that there is a support system out there, there are a lot of people who have been through what you're going through and are going through it now.</b>
+> <p><i>Brittany Snow</i></p>
 
 <br>
