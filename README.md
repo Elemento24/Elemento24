@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I understand and get when kids and teenagers feel like they're alone and it's not going to get better. My advice is that there is a support system out there, there are a lot of people who have been through what you're going through and are going through it now.</b>
-> <p><i>Brittany Snow</i></p>
+> <b>The optimist thinks this is the best of all possible worlds. The pessimist fears it is true.</b>
+> <p><i>J. Robert Oppenheimer</i></p>
 
 <br>
