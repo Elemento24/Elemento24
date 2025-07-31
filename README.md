@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When superstition is allowed to perform the task of old age in dulling the human temperament, we can say goodbye to all excellence in poetry, in painting, and in music.</b>
-> <p><i>Denis Diderot</i></p>
+> <b>We now accept the fact that learning is a lifelong process of keeping abreast of change. And the most pressing task is to teach people how to learn.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
