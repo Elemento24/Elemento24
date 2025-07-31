@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of my favorite vacation places is Miami, because of the people, the water and the beach - of course - and the architecture on Miami Beach is so wonderful.</b>
-> <p><i>Oksana Baiul</i></p>
+> <b>As a designer, the mission with which we have been charged is simple: providing space at the right cost.</b>
+> <p><i>Harry von Zell</i></p>
 
 <br>
