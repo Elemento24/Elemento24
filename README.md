@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The optimist thinks this is the best of all possible worlds. The pessimist fears it is true.</b>
-> <p><i>J. Robert Oppenheimer</i></p>
+> <b>I think we should all be tolerant of each other and embrace each others' strengths and differences and uniqueness and beauty.</b>
+> <p><i>Martina McBride</i></p>
 
 <br>
