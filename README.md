@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we should all be tolerant of each other and embrace each others' strengths and differences and uniqueness and beauty.</b>
-> <p><i>Martina McBride</i></p>
+> <b>Age is a very high price to pay for maturity.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
