@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything officers go through in any chase anywhere in the country, but amped up 100 times! I'm right in the thick of things in a car going like 80 miles an hour, and doing 360s in the middle of the road. It was a wild ride.</b>
-> <p><i>Amy Weber</i></p>
+> <b>I believe that I often bring out the best in somebody's talents.</b>
+> <p><i>David Bowie</i></p>
 
 <br>
