@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People's view of cancer will change when they have their own relationship with cancer, which everyone will, at some point.</b>
-> <p><i>Laura Linney</i></p>
+> <b>There is certainly no absolute standard of beauty. That precisely is what makes its pursuit so interesting.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
