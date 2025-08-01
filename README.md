@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Money is such an amazing teacher: What you choose to do with your money shows whether you are truly powerful or powerless.</b>
-> <p><i>Suze Orman</i></p>
+> <b>I have to try and change the landscape, whatever it is.</b>
+> <p><i>Robert Plant</i></p>
 
 <br>
