@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religiosity turns out to be the best indicator of civic involvement: it's more accurate than education, age, income, gender or race.</b>
-> <p><i>Jonathan Sacks</i></p>
+> <b>The best thing about the future is that it comes one day at a time.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
