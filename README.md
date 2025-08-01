@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Study until twenty-five, investigation until forty, profession until sixty, at which age I would have him retired on a double allowance.</b>
-> <p><i>Thomas Moore</i></p>
+> <b>Everything officers go through in any chase anywhere in the country, but amped up 100 times! I'm right in the thick of things in a car going like 80 miles an hour, and doing 360s in the middle of the road. It was a wild ride.</b>
+> <p><i>Amy Weber</i></p>
 
 <br>
