@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just don't believe that you have to come in and insult people when you want to change things.</b>
-> <p><i>Sydney Schanberg</i></p>
+> <b>People's view of cancer will change when they have their own relationship with cancer, which everyone will, at some point.</b>
+> <p><i>Laura Linney</i></p>
 
 <br>
