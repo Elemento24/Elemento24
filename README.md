@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We talk a lot on 'Biggest Loser' about how fitness is a natural antidepressant, how it burns off stress. What I like about running is that it gives me time alone. I'm always busy, with people at work, with my kids. I love getting out for a run by myself and just listening to my music.</b>
-> <p><i>Alison Sweeney</i></p>
+> <b>I acquired an admiration for Japanese culture, art, and architecture, and learned of the existence of the game of GO, which I still play.</b>
+> <p><i>Philip Warren Anderson</i></p>
 
 <br>
