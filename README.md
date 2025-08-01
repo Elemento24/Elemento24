@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Get mad, then get over it.</b>
-> <p><i>Colin Powell</i></p>
+> <b>We talk a lot on 'Biggest Loser' about how fitness is a natural antidepressant, how it burns off stress. What I like about running is that it gives me time alone. I'm always busy, with people at work, with my kids. I love getting out for a run by myself and just listening to my music.</b>
+> <p><i>Alison Sweeney</i></p>
 
 <br>
