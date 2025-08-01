@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We need to stop apologizing for celebrating life. We need to stop apologizing for wanting to protect an individual's right to build a business.</b>
-> <p><i>Rick Perry</i></p>
+> <b>You are 27 or 28 right? It is very tough to live at that age. When nothing is sure. I have sympathy with you.</b>
+> <p><i>Haruki Murakami</i></p>
 
 <br>
