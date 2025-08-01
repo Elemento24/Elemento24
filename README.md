@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I acquired an admiration for Japanese culture, art, and architecture, and learned of the existence of the game of GO, which I still play.</b>
-> <p><i>Philip Warren Anderson</i></p>
+> <b>Money is such an amazing teacher: What you choose to do with your money shows whether you are truly powerful or powerless.</b>
+> <p><i>Suze Orman</i></p>
 
 <br>
