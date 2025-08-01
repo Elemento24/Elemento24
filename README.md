@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing about the future is that it comes one day at a time.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>I just don't believe that you have to come in and insult people when you want to change things.</b>
+> <p><i>Sydney Schanberg</i></p>
 
 <br>
