@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that I often bring out the best in somebody's talents.</b>
-> <p><i>David Bowie</i></p>
+> <b>Religiosity turns out to be the best indicator of civic involvement: it's more accurate than education, age, income, gender or race.</b>
+> <p><i>Jonathan Sacks</i></p>
 
 <br>
