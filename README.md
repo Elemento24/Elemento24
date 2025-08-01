@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also met, early on Ella Fitzgerald. Her songbooks are some of the most amazing bodies of work.</b>
-> <p><i>Johnny Mathis</i></p>
+> <b>Get mad, then get over it.</b>
+> <p><i>Colin Powell</i></p>
 
 <br>
