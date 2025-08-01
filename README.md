@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never contend with a man who has nothing to lose.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>Solitude has its own very strange beauty to it.</b>
+> <p><i>Liv Tyler</i></p>
 
 <br>
