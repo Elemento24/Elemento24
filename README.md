@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to look at other people my age in leather. Why would I put it on?</b>
-> <p><i>George Michael</i></p>
+> <b>We need to stop apologizing for celebrating life. We need to stop apologizing for wanting to protect an individual's right to build a business.</b>
+> <p><i>Rick Perry</i></p>
 
 <br>
