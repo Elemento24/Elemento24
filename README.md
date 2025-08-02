@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Designed by architects with honorable intentions but hands of palsy.</b>
-> <p><i>Jimmy Breslin</i></p>
+> <b>True ease in writing comes from art, not chance, as those who move easiest have learned to dance.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
