@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One must learn, if one is to see the beauty in Japan, to like an extraordinarily restrained and delicate loveliness.</b>
-> <p><i>Miriam Beard</i></p>
+> <b>And queenly is the state she keeps, In beauty's lofty trust secure.</b>
+> <p><i>William Allen Butler</i></p>
 
 <br>
