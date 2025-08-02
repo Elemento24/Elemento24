@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's like driving a car at night. You never see further than your headlights, but you can make the whole trip that way.</b>
-> <p><i>E. L. Doctorow</i></p>
+> <b>I have to live with both my selves as best I may.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
