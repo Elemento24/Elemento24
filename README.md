@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman whose smile is open and whose expression is glad has a kind of beauty no matter what she wears.</b>
-> <p><i>Anne Roiphe</i></p>
+> <b>I wash my hands of those who imagine chattering to be knowledge, silence to be ignorance, and affection to be art.</b>
+> <p><i>Khalil Gibran</i></p>
 
 <br>
