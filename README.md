@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to live with both my selves as best I may.</b>
-> <p><i>Brigitte Bardot</i></p>
+> <b>Being a sex symbol has to do with an attitude, not looks. Most men think it's looks, most women know otherwise.</b>
+> <p><i>Kathleen Turner</i></p>
 
 <br>
