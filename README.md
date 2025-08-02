@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wash my hands of those who imagine chattering to be knowledge, silence to be ignorance, and affection to be art.</b>
-> <p><i>Khalil Gibran</i></p>
+> <b>I have always thought the actions of men the best interpreters of their thoughts.</b>
+> <p><i>John Locke</i></p>
 
 <br>
