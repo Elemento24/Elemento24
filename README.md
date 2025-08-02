@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man is an island. No man stands alone.</b>
-> <p><i>Dennis Brown</i></p>
+> <b>Well, I'd love to work with Kate Winslet - she's amazing.</b>
+> <p><i>Elizabeth Olsen</i></p>
 
 <br>
