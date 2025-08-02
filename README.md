@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't think of yourself as a woman in business.</b>
-> <p><i>Carly Fiorina</i></p>
+> <b>In grade school I was taught that the United States is a melting pot. People from all over the world come here for freedom and to pursue a better life. They arrive with next to nothing, work incredibly hard, learn a new language and new customs, and in a generation they become an integral part of our amazing nation.</b>
+> <p><i>Jeff Hawkins</i></p>
 
 <br>
