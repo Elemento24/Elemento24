@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being a sex symbol has to do with an attitude, not looks. Most men think it's looks, most women know otherwise.</b>
-> <p><i>Kathleen Turner</i></p>
+> <b>No man is an island. No man stands alone.</b>
+> <p><i>Dennis Brown</i></p>
 
 <br>
