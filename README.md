@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just hit my 75th birthday, I'm feeling great!</b>
-> <p><i>Colin Powell</i></p>
+> <b>It's like driving a car at night. You never see further than your headlights, but you can make the whole trip that way.</b>
+> <p><i>E. L. Doctorow</i></p>
 
 <br>
