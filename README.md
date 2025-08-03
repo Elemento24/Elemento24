@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If any demonstrator ever lays down in front of my car, it'll be the last car he'll ever lay down in front of.</b>
-> <p><i>George C. Wallace</i></p>
+> <b>You watch a hockey game, and the hand-eye coordination and the speed is really miraculous how those guys track the puck alone, just following it with their eyes.</b>
+> <p><i>Liev Schreiber</i></p>
 
 <br>
