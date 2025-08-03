@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't have any confidence in my beauty when I was young. I felt like a character actress, and I still do.</b>
-> <p><i>Meryl Streep</i></p>
+> <b>If any demonstrator ever lays down in front of my car, it'll be the last car he'll ever lay down in front of.</b>
+> <p><i>George C. Wallace</i></p>
 
 <br>
