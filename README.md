@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Kids are great. That's one of the best things about our business, all the kids you get to meet. It's a shame they have to grow up to be regular people and come to the games and call you names.</b>
-> <p><i>Charles Barkley</i></p>
+> <b>Religion and art spring from the same root and are close kin. Economics and art are strangers.</b>
+> <p><i>Nathaniel Hawthorne</i></p>
 
 <br>
