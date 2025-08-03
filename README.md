@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The philosophies of one age have become the absurdities of the next, and the foolishness of yesterday has become the wisdom of tomorrow.</b>
-> <p><i>William Osler</i></p>
+> <b>The car business is a lot like football. In football, you have to win once a week. In the car business, you have to win every day.</b>
+> <p><i>Tom Dempsey</i></p>
 
 <br>
