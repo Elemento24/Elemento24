@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And queenly is the state she keeps, In beauty's lofty trust secure.</b>
-> <p><i>William Allen Butler</i></p>
+> <b>I have always thought that change you can see and feel is best.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
