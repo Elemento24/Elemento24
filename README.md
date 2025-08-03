@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the last analysis, even the best man is evil: in the last analysis, even the best woman is bad.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>Outstanding leaders go out of their way to boost the self-esteem of their personnel. If people believe in themselves, it's amazing what they can accomplish.</b>
+> <p><i>Sam Walton</i></p>
 
 <br>
