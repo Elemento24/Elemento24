@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You watch a hockey game, and the hand-eye coordination and the speed is really miraculous how those guys track the puck alone, just following it with their eyes.</b>
-> <p><i>Liev Schreiber</i></p>
+> <b>Battle is the most magnificent competition in which a human being can indulge. It brings out all that is best it removes all that is base. All men are afraid in battle. The coward is the one who lets his fear overcome his sense of duty. Duty is the essence of manhood.</b>
+> <p><i>George S. Patton</i></p>
 
 <br>
