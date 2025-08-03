@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never trust a man, who when left alone with a tea cosey... Doesn't try it on.</b>
-> <p><i>Billy Connolly</i></p>
+> <b>Everywhere I go, I'm asked if I think the universities stifle writers. My opinion is that they don't stifle enough of them. There's many a best seller that could have been prevented by a good teacher.</b>
+> <p><i>Flannery O'Connor</i></p>
 
 <br>
