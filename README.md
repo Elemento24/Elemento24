@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Outstanding leaders go out of their way to boost the self-esteem of their personnel. If people believe in themselves, it's amazing what they can accomplish.</b>
-> <p><i>Sam Walton</i></p>
+> <b>It's not like I'm sitting at home coming up with some secret beauty plan.</b>
+> <p><i>Lara Stone</i></p>
 
 <br>
