@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In true dialogue, both sides are willing to change.</b>
-> <p><i>Nhat Hanh</i></p>
+> <b>Like many women my age, I am 28 years old.</b>
+> <p><i>Mary Schmich</i></p>
 
 <br>
