@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religion and art spring from the same root and are close kin. Economics and art are strangers.</b>
-> <p><i>Nathaniel Hawthorne</i></p>
+> <b>Today I see beauty everywhere I go, in every face I see, in every single soul.</b>
+> <p><i>Kevyn Aucoin</i></p>
 
 <br>
