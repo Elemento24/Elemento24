@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We approach people the same way we approach our cars. We take the poor kid to a doctor and ask, What's wrong with him, how much will it cost, and when can I pick him up?</b>
-> <p><i>James Hillman</i></p>
+> <b>In true dialogue, both sides are willing to change.</b>
+> <p><i>Nhat Hanh</i></p>
 
 <br>
