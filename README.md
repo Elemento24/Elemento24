@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The car business is a lot like football. In football, you have to win once a week. In the car business, you have to win every day.</b>
-> <p><i>Tom Dempsey</i></p>
+> <b>The very women who object to the morals of a notoriously beautiful actress, grow big with pride when an admirer suggests their marked resemblance to this stage beauty in physique.</b>
+> <p><i>Minna Antrim</i></p>
 
 <br>
