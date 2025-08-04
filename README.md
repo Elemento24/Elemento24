@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How long most people would look at the best book before they would give the price of a large turbot for it?</b>
-> <p><i>John Ruskin</i></p>
+> <b>Pay attention to the beauty surrounding you.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
