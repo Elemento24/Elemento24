@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The lovely thing about being forty is that you can appreciate twenty-five-year-old men more.</b>
-> <p><i>Colleen McCullough</i></p>
+> <b>My attitude toward graduate students was different, I must say. I used graduate students as colleagues: I gave them the best problems to work on, and I encouraged them.</b>
+> <p><i>Frank Press</i></p>
 
 <br>
