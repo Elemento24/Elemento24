@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You watch yourself age and it's hard to feel like a sex symbol.</b>
-> <p><i>Idris Elba</i></p>
+> <b>If I am a cup maker, I'm interested in making the best cup I possibly can. My effort goes into that cup, not what people think about it.</b>
+> <p><i>Denzel Washington</i></p>
 
 <br>
