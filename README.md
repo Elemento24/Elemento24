@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everywhere I go, I'm asked if I think the universities stifle writers. My opinion is that they don't stifle enough of them. There's many a best seller that could have been prevented by a good teacher.</b>
-> <p><i>Flannery O'Connor</i></p>
+> <b>When I was in my 20s it did occur to me that there was something perverted about an attitude that thought that killing somebody was a minor offence compared to kissing somebody.</b>
+> <p><i>John McGahern</i></p>
 
 <br>
