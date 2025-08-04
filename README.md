@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel fortunate. I've really gotten to work with amazing talented people, and to learn from them, which is why I'm doing this. If I can work with the best director I'm going to do it.</b>
-> <p><i>Armie Hammer</i></p>
+> <b>All still lifes are actually paintings of the world on the sixth day of creation, when God and the world were alone together, without man!</b>
+> <p><i>Robert Musil</i></p>
 
 <br>
