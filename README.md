@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother is a beauty.</b>
-> <p><i>Mary-Louise Parker</i></p>
+> <b>Real beauty knocks you a little bit off kilter.</b>
+> <p><i>David Byrne</i></p>
 
 <br>
