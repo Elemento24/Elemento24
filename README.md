@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will keep smiling, be positive and never give up! I will give 100 percent each time I play. These are always my goals and my attitude.</b>
-> <p><i>Yani Tseng</i></p>
+> <b>Comics, for me, is being able to sing alone in the shower. I find it freeing. You just pick up a pen and get to it.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
