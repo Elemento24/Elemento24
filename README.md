@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I search for surprise in my architecture. A work of art should cause the emotion of newness.</b>
-> <p><i>Oscar Niemeyer</i></p>
+> <b>I will keep smiling, be positive and never give up! I will give 100 percent each time I play. These are always my goals and my attitude.</b>
+> <p><i>Yani Tseng</i></p>
 
 <br>
