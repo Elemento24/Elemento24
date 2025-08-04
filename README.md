@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was in my 20s it did occur to me that there was something perverted about an attitude that thought that killing somebody was a minor offence compared to kissing somebody.</b>
-> <p><i>John McGahern</i></p>
+> <b>My mother is a beauty.</b>
+> <p><i>Mary-Louise Parker</i></p>
 
 <br>
