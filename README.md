@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unless and until Barack Obama addresses the full depth of Americans' anger with his full arsenal of policy smarts and political gifts, his presidency and, worse, our economy will be paralyzed.</b>
-> <p><i>Frank Rich</i></p>
+> <b>A lot of people resist transition and therefore never allow themselves to enjoy who they are. Embrace the change, no matter what it is once you do, you can learn about the new world you're in and take advantage of it.</b>
+> <p><i>Nikki Giovanni</i></p>
 
 <br>
