@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pay attention to the beauty surrounding you.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>The lovely thing about being forty is that you can appreciate twenty-five-year-old men more.</b>
+> <p><i>Colleen McCullough</i></p>
 
 <br>
