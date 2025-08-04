@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing that this is still news to people, but that affects the final outcome of the film. When people are treated well, and they're made to feel valued, they give 110 percent.</b>
-> <p><i>Adam Arkin</i></p>
+> <b>Here comes 40. I'm feeling my age and I've ordered the Ferrari. I'm going to get the whole mid-life crisis package.</b>
+> <p><i>Keanu Reeves</i></p>
 
 <br>
