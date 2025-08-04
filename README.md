@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I am a cup maker, I'm interested in making the best cup I possibly can. My effort goes into that cup, not what people think about it.</b>
-> <p><i>Denzel Washington</i></p>
+> <b>You can't play a symphony alone, it takes an orchestra to play it.</b>
+> <p><i>Navjot Singh Sidhu</i></p>
 
 <br>
