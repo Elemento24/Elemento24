@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Real beauty knocks you a little bit off kilter.</b>
-> <p><i>David Byrne</i></p>
+> <b>We are taught you must blame your father, your sisters, your brothers, the school, the teachers - but never blame yourself. It's never your fault. But it's always your fault, because if you wanted to change you're the one who has got to change.</b>
+> <p><i>Katharine Hepburn</i></p>
 
 <br>
