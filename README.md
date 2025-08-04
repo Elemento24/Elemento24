@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Here comes 40. I'm feeling my age and I've ordered the Ferrari. I'm going to get the whole mid-life crisis package.</b>
-> <p><i>Keanu Reeves</i></p>
+> <b>You have to visualize a second or two ahead of your car what line you are taking, what you are going to do, before you get there because it comes too fast.</b>
+> <p><i>Emerson Fittipaldi</i></p>
 
 <br>
