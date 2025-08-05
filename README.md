@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am very averse to bringing myself forward in print, but as my account will only appear as an appendage to a former production, and as it will be confined to such topics as have connection with my authorship alone, I can hardly accuse myself of a personal intrusion.</b>
-> <p><i>Mary Wollstonecraft Shelley</i></p>
+> <b>When you forgive, you in no way change the past - but you sure do change the future.</b>
+> <p><i>Bernard Meltzer</i></p>
 
 <br>
