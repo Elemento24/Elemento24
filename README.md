@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think of art, at its most significant, as a DEW line, a Distant Early Warning system that can always be relied on to tell the old culture what is beginning to happen to it.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>We have entered an age in which education is not just a luxury permitting some men an advantage over others. It has become a necessity without which a person is defenseless in this complex, industrialized society. We have truly entered the century of the educated man.</b>
+> <p><i>Lyndon B. Johnson</i></p>
 
 <br>
