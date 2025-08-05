@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me from a pretty young age up until about 21 years old hallucinogenics had a huge place in my life.</b>
-> <p><i>Jon Fishman</i></p>
+> <b>Art can never exist without naked beauty displayed.</b>
+> <p><i>William Blake</i></p>
 
 <br>
