@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a Gemini, so I change my mind every day.</b>
-> <p><i>Natalie Portman</i></p>
+> <b>It's sort of a mental attitude about critical thinking and curiosity. It's about mindset of looking at the world in a playful and curious and creative way.</b>
+> <p><i>Adam Savage</i></p>
 
 <br>
