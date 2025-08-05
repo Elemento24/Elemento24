@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hurt leads to bitterness, bitterness to anger, travel too far that road and the way is lost.</b>
-> <p><i>Terry Brooks</i></p>
+> <b>A race is a work of art that people can look at and be affected in as many ways they're capable of understanding.</b>
+> <p><i>Steve Prefontaine</i></p>
 
 <br>
