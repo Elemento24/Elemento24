@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I still believe that capitalism is too harsh and I believe that, even within that, there is a lot of satisfaction and beauty if you happen to be one of the lucky ones, although that doesn't eradicate the reality of the suffering. It's all true at once, kind of humming and sublime.</b>
-> <p><i>George Saunders</i></p>
+> <b>I think of art, at its most significant, as a DEW line, a Distant Early Warning system that can always be relied on to tell the old culture what is beginning to happen to it.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
