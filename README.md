@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is with children that we have the best chance of studying the development of logical knowledge, mathematical knowledge, physical knowledge, and so forth.</b>
-> <p><i>Jean Piaget</i></p>
+> <b>If a building becomes architecture, then it is art.</b>
+> <p><i>Arne Jacobsen</i></p>
 
 <br>
