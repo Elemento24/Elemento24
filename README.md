@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art can never exist without naked beauty displayed.</b>
-> <p><i>William Blake</i></p>
+> <b>Hurt leads to bitterness, bitterness to anger, travel too far that road and the way is lost.</b>
+> <p><i>Terry Brooks</i></p>
 
 <br>
