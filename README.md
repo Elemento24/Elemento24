@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Big dress, cocktails, party - I love that. It is my work, but my work allow me to have glamour, to wear beautiful and amazing dresses, to go to big ceremonies.</b>
-> <p><i>Paz Vega</i></p>
+> <b>The last time money left the art world, intrepid types maxed out their credit cards and opened galleries, and a few of them have become the best in the world.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
