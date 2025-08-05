@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you forgive, you in no way change the past - but you sure do change the future.</b>
-> <p><i>Bernard Meltzer</i></p>
+> <b>Science is analytical, descriptive, informative. Man does not live by bread alone, but by science he attempts to do so. Hence the deadliness of all that is purely scientific.</b>
+> <p><i>Eric Gill</i></p>
 
 <br>
