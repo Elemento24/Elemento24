@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Comics, for me, is being able to sing alone in the shower. I find it freeing. You just pick up a pen and get to it.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>My father is an amazing man.</b>
+> <p><i>Sherman Alexie</i></p>
 
 <br>
