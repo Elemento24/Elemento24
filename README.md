@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art saved me it got me through my depression and self-loathing, back to a place of innocence.</b>
-> <p><i>Jeanette Winterson</i></p>
+> <b>With so many amazing artists on one bill, we expect this concert to be incredibly powerful in its ability to raise both money and awareness for the long-term rebuilding effort we must all support.</b>
+> <p><i>Brad Delson</i></p>
 
 <br>
