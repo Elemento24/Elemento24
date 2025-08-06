@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Complainers change their complaints, but they never reduce the amount of time spent in complaining.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>Even in this day and age, if you're not married, there are people who are like, 'Awww! Don't worry, it'll happen for you someday.'</b>
+> <p><i>Kristen Wiig</i></p>
 
 <br>
