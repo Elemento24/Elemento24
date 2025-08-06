@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is spectacular. From about five minutes in, when we knew for sure that we were going to have the weather to go, the smile on my face just got bigger and bigger, and I was just beaming through the whole launch. I mean, it is just an amazing ride.</b>
-> <p><i>Chris Hadfield</i></p>
+> <b>It's so amazing to hear a crowd of people singing one of your songs. It's the best feeling.</b>
+> <p><i>Liam Payne</i></p>
 
 <br>
