@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The whole kiss-and-tell thing is a negative approach that often happens in a World Cup. We will see negative stories about the players and it can affect their confidence and the overall performance of the national team on the pitch, let alone the bid to actually stage the competition.</b>
-> <p><i>Gary Lineker</i></p>
+> <b>I enjoy looking at words on paper and visualizing how to make them come to life. As a director, the creative process is really amazing.</b>
+> <p><i>Alfonso Ribeiro</i></p>
 
 <br>
