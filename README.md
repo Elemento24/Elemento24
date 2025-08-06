@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a bad driver. And I never will be because I took lessons when I was quite a boy. I never had to pass a test because there wasn't such a thing when I first started driving a motor car. So I didn't have to pass one.</b>
-> <p><i>Richard Murdoch</i></p>
+> <b>It's time to fundamentally change the way that we do business in Washington. To help build a new foundation for the 21st century, we need to reform our government so that it is more efficient, more transparent, and more creative. That will demand new thinking and a new sense of responsibility for every dollar that is spent.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
