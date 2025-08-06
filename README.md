@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's so amazing to hear a crowd of people singing one of your songs. It's the best feeling.</b>
-> <p><i>Liam Payne</i></p>
+> <b>When I climb into my car, I enter my destination into a GPS device, whose spatial memory supplants my own. I have photographs to store the images I want to remember, books to store knowledge and now, thanks to Google, I rarely have to remember anything more than the right set of search terms to access humankind's collective memory.</b>
+> <p><i>Joshua Foer</i></p>
 
 <br>
