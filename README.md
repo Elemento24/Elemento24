@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Genesis, it says that it is not good for a man to be alone but sometimes it is a great relief.</b>
-> <p><i>John Barrymore</i></p>
+> <b>It's amazing that for actors mostly, it's a risk to attach yourself to a film that you don't know whether or not it's going to even be made and if you sign on, in doing so, who else is going to be in the movie with you.</b>
+> <p><i>Elisha Cuthbert</i></p>
 
 <br>
