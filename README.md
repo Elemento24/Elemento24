@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Would ye both eat your cake and have your cake?</b>
-> <p><i>John Heywood</i></p>
+> <b>Art is either plagiarism or revolution.</b>
+> <p><i>Paul Gauguin</i></p>
 
 <br>
