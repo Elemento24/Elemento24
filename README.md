@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With so many amazing artists on one bill, we expect this concert to be incredibly powerful in its ability to raise both money and awareness for the long-term rebuilding effort we must all support.</b>
-> <p><i>Brad Delson</i></p>
+> <b>Would ye both eat your cake and have your cake?</b>
+> <p><i>John Heywood</i></p>
 
 <br>
