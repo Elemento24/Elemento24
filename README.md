@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People want change but not too much change. Finding that balance is tricky for every politician.</b>
-> <p><i>Eleanor Clift</i></p>
+> <b>The union movement has been the best middle class job creating program that America has ever had, and it doesn't cost the government a dime.</b>
+> <p><i>Andy Stern</i></p>
 
 <br>
