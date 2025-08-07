@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To keep the record straight, it wasn't always John and Yoko. We've all accused one another of various business things we tend to be pretty paranoid by now, as you can imagine. There's a lot of money involved.</b>
-> <p><i>Paul McCartney</i></p>
+> <b>My dad encouraged us to fail. Growing up, he would ask us what we failed at that week. If we didn't have something, he would be disappointed. It changed my mindset at an early age that failure is not the outcome, failure is not trying. Don't be afraid to fail.</b>
+> <p><i>Sara Blakely</i></p>
 
 <br>
