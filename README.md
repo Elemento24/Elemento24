@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I started walking at night with my sister in law which has been amazing. It really does something for you. It just kind of clears the mind, it just makes you feel better, things start to tighten a little bit.</b>
-> <p><i>Ashley Scott</i></p>
+> <b>I've been able to go on and have a successful career on Broadway and certainly the last five years in Las Vegas have been amazing.</b>
+> <p><i>David Cassidy</i></p>
 
 <br>
