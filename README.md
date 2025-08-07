@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think people are used to seeing actors be wide open and desperately giving of themselves, and while I do that on a movie set as much as I can, it's so unnatural for me to do it on television, in interviews, in anything like that. I also don't find that my process as an actor is really anyone else's business.</b>
-> <p><i>Kristen Stewart</i></p>
+> <b>Millions of young Americans have graduated from college during the Obama presidency, ready to use their gifts and get moving in life. Half of them can't find the work they studied for, or any work at all. So here's the question: Without a change in leadership, why would the next four years be any different from the last four years?</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
