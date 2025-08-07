@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dad encouraged us to fail. Growing up, he would ask us what we failed at that week. If we didn't have something, he would be disappointed. It changed my mindset at an early age that failure is not the outcome, failure is not trying. Don't be afraid to fail.</b>
-> <p><i>Sara Blakely</i></p>
+> <b>I like to have Chinese furniture in my home as a constant and painful reminder of how much has been destroyed in China. The contrast between the beauty of the past and the ugliness of the modern is nowhere sharper than in China.</b>
+> <p><i>Jung Chang</i></p>
 
 <br>
