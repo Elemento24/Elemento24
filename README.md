@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Going online and asking questions is the best way to learn.</b>
-> <p><i>Tom Felton</i></p>
+> <b>Sex at age 90 is like trying to shoot pool with a rope.</b>
+> <p><i>George Burns</i></p>
 
 <br>
