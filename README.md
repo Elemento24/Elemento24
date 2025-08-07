@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you lead change, sometimes you get arrows in your back. I mean, that's just the way the real world is.</b>
-> <p><i>Carly Fiorina</i></p>
+> <b>People want change but not too much change. Finding that balance is tricky for every politician.</b>
+> <p><i>Eleanor Clift</i></p>
 
 <br>
