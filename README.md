@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is one of the rare things which does not lead to doubt of God.</b>
-> <p><i>Jean Anouilh</i></p>
+> <b>It's amazing how fast generations lose sight of other generations. One of the first things the young composers who come to work with me say is that they want to write music people will like, instead of gaining their credentials by being rejected by the audience.</b>
+> <p><i>Carlisle Floyd</i></p>
 
 <br>
