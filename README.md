@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I enjoy looking at words on paper and visualizing how to make them come to life. As a director, the creative process is really amazing.</b>
-> <p><i>Alfonso Ribeiro</i></p>
+> <b>Beauty is one of the rare things which does not lead to doubt of God.</b>
+> <p><i>Jean Anouilh</i></p>
 
 <br>
