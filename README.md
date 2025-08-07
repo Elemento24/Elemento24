@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Millions of young Americans have graduated from college during the Obama presidency, ready to use their gifts and get moving in life. Half of them can't find the work they studied for, or any work at all. So here's the question: Without a change in leadership, why would the next four years be any different from the last four years?</b>
-> <p><i>Paul Ryan</i></p>
+> <b>To keep the record straight, it wasn't always John and Yoko. We've all accused one another of various business things we tend to be pretty paranoid by now, as you can imagine. There's a lot of money involved.</b>
+> <p><i>Paul McCartney</i></p>
 
 <br>
