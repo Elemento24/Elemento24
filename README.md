@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At least 50 times. I've jumped off a building, jumped off a cliff in a car. I've been in bedrooms when women came in with knives and guns.</b>
-> <p><i>Dennis Rodman</i></p>
+> <b>It is clearly better that property should be private, but the use of it common and the special business of the legislator is to create in men this benevolent disposition.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
