@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a free society, government reflects the soul of its people. If people want change at the top, they will have to live in different ways. Our major social problems are not the cause of our decadence. They are a reflection of it.</b>
-> <p><i>Cal Thomas</i></p>
+> <b>Of course art world ethics are important. But museums are no purer than any other institution or business. Academics aren't necessarily more high-minded than gallerists.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
