@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing makes us so lonely as our secrets.</b>
-> <p><i>Paul Tournier</i></p>
+> <b>The greatest work of art about New York? The question seems nebulous. The city's magic and majesty are distilled in the photographs of Alfred Stieglitz and Paul Strand.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
