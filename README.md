@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hollywood's a very weird place. I think there's less of everything except for attitude.</b>
-> <p><i>Dean Cain</i></p>
+> <b>At least 50 times. I've jumped off a building, jumped off a cliff in a car. I've been in bedrooms when women came in with knives and guns.</b>
+> <p><i>Dennis Rodman</i></p>
 
 <br>
