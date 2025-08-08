@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's awesome to see something like 'Inception', which is just mind-blowing and amazing, and it actually resonates with the audiences. I feel like that's rare.</b>
-> <p><i>Danny McBride</i></p>
+> <b>Why should society feel responsible only for the education of children, and not for the education of all adults of every age?</b>
+> <p><i>Erich Fromm</i></p>
 
 <br>
