@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude about Hollywood is that I wouldn't walk across the street to pull one of those executives out of the snow if he was bleeding to death. Not unless I was paid for it. None of them ever did me any favors.</b>
-> <p><i>James Woods</i></p>
+> <b>Everybody's business is nobody's business, and nobody's business is my business.</b>
+> <p><i>Clara Barton</i></p>
 
 <br>
