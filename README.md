@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grace in women has more effect than beauty.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>Being in an area of the planet where scientists believe mankind started is quite amazing.</b>
+> <p><i>Jan de Bont</i></p>
 
 <br>
