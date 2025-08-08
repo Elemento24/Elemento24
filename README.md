@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is change, continuing change, inevitable change, that is the dominant factor in society today. No sensible decision can be made any longer without taking into account not only the world as it is, but the world as it will be.</b>
-> <p><i>Isaac Asimov</i></p>
+> <b>It's awesome to see something like 'Inception', which is just mind-blowing and amazing, and it actually resonates with the audiences. I feel like that's rare.</b>
+> <p><i>Danny McBride</i></p>
 
 <br>
