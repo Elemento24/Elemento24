@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The forgotten man... He works, he votes, generally he prays, but his chief business in life is to pay.</b>
-> <p><i>William Graham Sumner</i></p>
+> <b>A mode of conduct, a standard of courage, discipline, fortitude and integrity can do a great deal to make a woman beautiful.</b>
+> <p><i>Jacqueline Bisset</i></p>
 
 <br>
