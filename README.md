@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nearly all the powerful people of this age are unbelievers, the best of them in doubt and misery, the most in plodding hesitation, doing as well as they can, what practical work lies at hand.</b>
-> <p><i>John Ruskin</i></p>
+> <b>This is the highest wisdom that I own freedom and life are earned by those alone who conquer them each day anew.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
