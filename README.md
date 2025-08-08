@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being in an area of the planet where scientists believe mankind started is quite amazing.</b>
-> <p><i>Jan de Bont</i></p>
+> <b>I met my grandfather just before he died, and it was the first time that I had seen Dad with a relative of his. It was interesting to see my own father as a son and the body language and alteration in attitude that comes with that, and it sort of changed our relationship for the better.</b>
+> <p><i>Christian Bale</i></p>
 
 <br>
