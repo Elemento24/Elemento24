@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the highest wisdom that I own freedom and life are earned by those alone who conquer them each day anew.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>Hollywood's a very weird place. I think there's less of everything except for attitude.</b>
+> <p><i>Dean Cain</i></p>
 
 <br>
