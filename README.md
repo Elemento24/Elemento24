@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a type-2 diabetic, and they took me off medication simply because I ate right and exercised. Diabetes is not like a cancer, where you go in for chemo and radiation. You can change a lot through a basic changing of habits.</b>
-> <p><i>Sherri Shepherd</i></p>
+> <b>We live in an age where anonymity is growing in magnitude like a bomb going off.</b>
+> <p><i>Jock Sturges</i></p>
 
 <br>
