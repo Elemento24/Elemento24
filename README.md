@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business, more than any other occupation, is a continual dealing with the future it is a continual calculation, an instinctive exercise in foresight.</b>
-> <p><i>Henry R. Luce</i></p>
+> <b>What makes old age hard to bear is not the failing of one's faculties, mental and physical, but the burden of one's memories.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
