@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A positive attitude causes a chain reaction of positive thoughts, events and outcomes. It is a catalyst and it sparks extraordinary results.</b>
-> <p><i>Wade Boggs</i></p>
+> <b>It's amazing people get so detached from what they eat and what they wear. No one has any contact with how things are made that are put in their body and put in their mouths and I just find it alarming that no one questions it.</b>
+> <p><i>Emma Watson</i></p>
 
 <br>
