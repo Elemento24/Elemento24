@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it has something to do with being British. We don't take ourselves as seriously as some other countries do. I think a lot of people take themselves far too seriously I find that a very tedious attitude.</b>
-> <p><i>Joan Collins</i></p>
+> <b>As I have said for many years throughout this land, we're borrowing money from China to buy oil from the Persian Gulf to burn it in ways that destroy the future of human civilization. Every bit of that has to change.</b>
+> <p><i>Al Gore</i></p>
 
 <br>
