@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Money and success don't change people they merely amplify what is already there.</b>
-> <p><i>Will Smith</i></p>
+> <b>Fast cars are my only vice.</b>
+> <p><i>Michael Bay</i></p>
 
 <br>
