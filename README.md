@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think if you give your best as a parent, then that's all you can do.</b>
-> <p><i>Heidi Klum</i></p>
+> <b>A positive attitude causes a chain reaction of positive thoughts, events and outcomes. It is a catalyst and it sparks extraordinary results.</b>
+> <p><i>Wade Boggs</i></p>
 
 <br>
