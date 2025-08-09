@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems a fantastic paradox, but it is nevertheless a most important truth, that no architecture can be truly noble which is not imperfect.</b>
-> <p><i>John Ruskin</i></p>
+> <b>Business, more than any other occupation, is a continual dealing with the future it is a continual calculation, an instinctive exercise in foresight.</b>
+> <p><i>Henry R. Luce</i></p>
 
 <br>
