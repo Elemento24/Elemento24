@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art hurts. Art urges voyages - and it is easier to stay at home.</b>
-> <p><i>Gwendolyn Brooks</i></p>
+> <b>You have to come in and be that character when you walk into the room. That's what one of my first acting teachers taught me. You know, don't go in there being Jennifer and then expect to flip and change, because they're not going to have that imagination.</b>
+> <p><i>Jennifer Lopez</i></p>
 
 <br>
