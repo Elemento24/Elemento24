@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me, pointing and clicking my phone is absolutely fine. People say that isn't the art of photography but I don't agree.</b>
-> <p><i>Annie Lennox</i></p>
+> <b>I think it has something to do with being British. We don't take ourselves as seriously as some other countries do. I think a lot of people take themselves far too seriously I find that a very tedious attitude.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
