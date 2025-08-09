@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to come in and be that character when you walk into the room. That's what one of my first acting teachers taught me. You know, don't go in there being Jennifer and then expect to flip and change, because they're not going to have that imagination.</b>
-> <p><i>Jennifer Lopez</i></p>
+> <b>I think if you give your best as a parent, then that's all you can do.</b>
+> <p><i>Heidi Klum</i></p>
 
 <br>
