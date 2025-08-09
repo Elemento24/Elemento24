@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to try and change the landscape, whatever it is.</b>
-> <p><i>Robert Plant</i></p>
+> <b>The lips on my upper right bicep are my girlfriend's lips. She has the most amazing lips, and I wanted to carry them around with me everywhere I go, considering I can't carry her lips physically with me. So I decided to place them in a discreet location, such as the inside part of my bicep.</b>
+> <p><i>Jake Owen</i></p>
 
 <br>
