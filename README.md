@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in an age where anonymity is growing in magnitude like a bomb going off.</b>
-> <p><i>Jock Sturges</i></p>
+> <b>I hate show business.</b>
+> <p><i>Joni Mitchell</i></p>
 
 <br>
