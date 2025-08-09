@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in a country that used to have a can-do attitude, and now we have a 'what-can-you-do-for-me?' attitude, and what I try to do is find ways that we can develop common ground.</b>
-> <p><i>Benjamin Carson</i></p>
+> <b>Art hurts. Art urges voyages - and it is easier to stay at home.</b>
+> <p><i>Gwendolyn Brooks</i></p>
 
 <br>
