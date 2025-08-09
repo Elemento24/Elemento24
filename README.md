@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I met my grandfather just before he died, and it was the first time that I had seen Dad with a relative of his. It was interesting to see my own father as a son and the body language and alteration in attitude that comes with that, and it sort of changed our relationship for the better.</b>
-> <p><i>Christian Bale</i></p>
+> <b>Money and success don't change people they merely amplify what is already there.</b>
+> <p><i>Will Smith</i></p>
 
 <br>
