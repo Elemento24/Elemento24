@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even though I build buildings and I pursue my architecture, I pursue it as an artist. I deliberately keep a tiny studio. I don't want to be an architectural firm. I want to remain an artist.</b>
-> <p><i>Maya Lin</i></p>
+> <b>For the last 20 years of my life, I've had the mantra to do amazing parts with amazing people in amazing projects, so I'm attracted to good story, writing and character and good people. That's what I'm always searching for and I don't think that's ever going to change.</b>
+> <p><i>John Hawkes</i></p>
 
 <br>
