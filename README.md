@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are a lot of people using technology that are playing to a click with backing vocals already stuck in there on some computerized thing that runs along in time to the show so they have these amazing vocals that are only partly the guys on stage producing them at the time.</b>
-> <p><i>James Young</i></p>
+> <b>Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be.</b>
+> <p><i>Thomas a Kempis</i></p>
 
 <br>
