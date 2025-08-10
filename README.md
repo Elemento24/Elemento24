@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pebble Beach. It is tough and the lay out is amazing.</b>
-> <p><i>Natalie Gulbis</i></p>
+> <b>You don't have to be the Dalai Lama to tell people that life's about change.</b>
+> <p><i>John Cleese</i></p>
 
 <br>
