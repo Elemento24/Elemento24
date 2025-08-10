@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Keep cool anger is not an argument.</b>
-> <p><i>Daniel Webster</i></p>
+> <b>I don't think the human mind can comprehend the past and the future. They are both just illusions that can manipulate you into thinking theres some kind of change.</b>
+> <p><i>Bob Dylan</i></p>
 
 <br>
