@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't have to be the Dalai Lama to tell people that life's about change.</b>
-> <p><i>John Cleese</i></p>
+> <b>I've got to keep breathing. It'll be my worst business mistake if I don't.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
