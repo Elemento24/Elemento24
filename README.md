@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be.</b>
-> <p><i>Thomas a Kempis</i></p>
+> <b>Ikea people do not drive flashy cars or stay at luxury hotels.</b>
+> <p><i>Ingvar Kamprad</i></p>
 
 <br>
