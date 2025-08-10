@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Knowing your own darkness is the best method for dealing with the darknesses of other people.</b>
-> <p><i>Carl Jung</i></p>
+> <b>You marry somebody you love everything about them. You grow to learn about them. You never learn everything.</b>
+> <p><i>Chris Daughtry</i></p>
 
 <br>
