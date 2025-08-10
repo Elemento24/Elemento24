@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I read 'The Great Gatsby' in high school and was hypnotized by the beauty of the sentences and moved by the story about the irrevocability of lost love.</b>
-> <p><i>Tom Perrotta</i></p>
+> <b>Every man who has shown the world the way to beauty, to true culture, has been a rebel, a 'universal' without patriotism, without home, who has found his people everywhere.</b>
+> <p><i>Chaim Potok</i></p>
 
 <br>
