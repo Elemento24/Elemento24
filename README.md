@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It goes without saying that you should never have more children than you have car windows.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>I know that I've got big ears and a big forehead and that my hair sticks up. But I'm happy with myself. I'm not necessarily trying to win a beauty pageant here.</b>
+> <p><i>Clay Aiken</i></p>
 
 <br>
