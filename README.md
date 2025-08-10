@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ikea people do not drive flashy cars or stay at luxury hotels.</b>
-> <p><i>Ingvar Kamprad</i></p>
+> <b>It goes without saying that you should never have more children than you have car windows.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
