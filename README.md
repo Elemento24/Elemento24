@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The whole business of marshaling one's energies becomes more and more important as one grows older.</b>
-> <p><i>Hume Cronyn</i></p>
+> <b>Knowing your own darkness is the best method for dealing with the darknesses of other people.</b>
+> <p><i>Carl Jung</i></p>
 
 <br>
