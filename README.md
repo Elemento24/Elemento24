@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You marry somebody you love everything about them. You grow to learn about them. You never learn everything.</b>
-> <p><i>Chris Daughtry</i></p>
+> <b>Save your money. You're going to need twice as much money in your old age as you think.</b>
+> <p><i>Michael Caine</i></p>
 
 <br>
