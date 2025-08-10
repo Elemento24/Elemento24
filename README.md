@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Save your money. You're going to need twice as much money in your old age as you think.</b>
-> <p><i>Michael Caine</i></p>
+> <b>I read 'The Great Gatsby' in high school and was hypnotized by the beauty of the sentences and moved by the story about the irrevocability of lost love.</b>
+> <p><i>Tom Perrotta</i></p>
 
 <br>
