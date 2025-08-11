@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who look for the laws of Nature as a support for their new works collaborate with the creator.</b>
-> <p><i>Antonio Gaudi</i></p>
+> <b>High expectations weren't nurtured in my neck of nowhere back then - children weren't fawned over from an early age as 'gifted' and groomed for a prizewinning future self-esteem was considered something you had to pick from the garden yourself.</b>
+> <p><i>James Wolcott</i></p>
 
 <br>
