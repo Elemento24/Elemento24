@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lord, where we are wrong, make us willing to change where we are right, make us easy to live with.</b>
-> <p><i>Peter Marshall</i></p>
+> <b>L.A. has a fantastic car scene and because the climate is so gentle, cars can last forever.</b>
+> <p><i>Lee Child</i></p>
 
 <br>
