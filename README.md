@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a lot of bitterness, there's a lot of anger out there. We all have to work hard to heal those wounds.</b>
-> <p><i>Allen Boyd</i></p>
+> <b>Lord, where we are wrong, make us willing to change where we are right, make us easy to live with.</b>
+> <p><i>Peter Marshall</i></p>
 
 <br>
