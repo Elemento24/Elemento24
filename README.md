@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>L.A. has a fantastic car scene and because the climate is so gentle, cars can last forever.</b>
-> <p><i>Lee Child</i></p>
+> <b>Those who look for the laws of Nature as a support for their new works collaborate with the creator.</b>
+> <p><i>Antonio Gaudi</i></p>
 
 <br>
