@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ideal beauty is a fugitive which is never found.</b>
-> <p><i>Joan Rivers</i></p>
+> <b>The life of a man who deliberately runs through his fortune often becomes a business speculation his friends, his pleasures, patrons, and acquaintances are his capital.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
