@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We must stop thinking of the individual and start thinking about what is best for society.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>When you put gas in your car you are making a political statement, because you are supporting the empires that control and continue the destruction of some countries.</b>
+> <p><i>Javier Bardem</i></p>
 
 <br>
