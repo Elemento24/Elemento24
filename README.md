@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The life of a man who deliberately runs through his fortune often becomes a business speculation his friends, his pleasures, patrons, and acquaintances are his capital.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>We must stop thinking of the individual and start thinking about what is best for society.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
