@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not saying that there's anything better than mated bliss at its best, but I'm saying that living alone is as good in its own way. But we haven't quite given ourselves permission to recognize that.</b>
-> <p><i>Barbara Feldon</i></p>
+> <b>There's a lot of bitterness, there's a lot of anger out there. We all have to work hard to heal those wounds.</b>
+> <p><i>Allen Boyd</i></p>
 
 <br>
