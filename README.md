@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm at the age where food has taken the place of sex in my life. In fact, I've just had a mirror put over my kitchen table.</b>
-> <p><i>Rodney Dangerfield</i></p>
+> <b>Is there some risk every day we walk out our front door? Every time we get in our car? Yeah. Are we materially less safe now than we were 10 years ago? Whatever delta there is, it's very small.</b>
+> <p><i>John Hickenlooper</i></p>
 
 <br>
