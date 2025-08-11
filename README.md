@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just because something doesn't do what you planned it to do doesn't mean it's useless.</b>
-> <p><i>Thomas A. Edison</i></p>
+> <b>The ideal beauty is a fugitive which is never found.</b>
+> <p><i>Joan Rivers</i></p>
 
 <br>
