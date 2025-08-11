@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art for art's sake is a philosophy of the well-fed.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>I just change with the times. I really don't have a say in what's going on. Music was here before me.</b>
+> <p><i>Snoop Dogg</i></p>
 
 <br>
