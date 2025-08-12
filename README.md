@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think my passion is misinterpreted as anger sometimes. And I don't think people are ready for the message that I'm delivering, and delivering with a sense of violent love.</b>
-> <p><i>Charlie Sheen</i></p>
+> <b>Beauty seen is never lost, God's colors all are fast.</b>
+> <p><i>John Greenleaf Whittier</i></p>
 
 <br>
