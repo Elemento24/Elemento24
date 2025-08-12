@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was impressed by Hendrix. His attitude was brilliant. Even the way he walked was amazing.</b>
-> <p><i>Ritchie Blackmore</i></p>
+> <b>The sport of horse racing which, at its best, showcases the majestic beauty of this animal and the athleticism of jockeys, has reached an alarming level of corruption and exploitation.</b>
+> <p><i>Tom Udall</i></p>
 
 <br>
