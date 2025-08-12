@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really like where Tony Robbins says that we're all hypnotized to see beauty this one specific way, and it's true.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>What matters poverty? What matters anything to him who is enamoured of our art? Does he not carry in himself every joy and every beauty?</b>
+> <p><i>Sarah Bernhardt</i></p>
 
 <br>
