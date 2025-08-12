@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, there's different shades of Hollywood, sure. I mean, I'm working in this business but I'm not Hollywood.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>I really like where Tony Robbins says that we're all hypnotized to see beauty this one specific way, and it's true.</b>
+> <p><i>Gwyneth Paltrow</i></p>
 
 <br>
