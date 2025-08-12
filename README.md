@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You need some insecurity if you're an actor. It keeps the pot boiling. I haven't yet started to think about retiring. I was shocked when I heard about Paul Newman retiring at age 82. Most actors just fade away like old soldiers.</b>
-> <p><i>Al Pacino</i></p>
+> <b>Well, there's different shades of Hollywood, sure. I mean, I'm working in this business but I'm not Hollywood.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
