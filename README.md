@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The very first time I was on a car in Atlanta, I saw the conductor - all conductors are white - ask a Negro woman to get up and take a seat farther back in order to make a place for a white man. I have also seen white men requested to leave the Negro section of the car.</b>
-> <p><i>Ray Stannard Baker</i></p>
+> <b>You need some insecurity if you're an actor. It keeps the pot boiling. I haven't yet started to think about retiring. I was shocked when I heard about Paul Newman retiring at age 82. Most actors just fade away like old soldiers.</b>
+> <p><i>Al Pacino</i></p>
 
 <br>
