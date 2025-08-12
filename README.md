@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was a little different. I still say I'm a little different, because success to me is not having the most money, or having the biggest car or the biggest house.</b>
-> <p><i>Herschel Walker</i></p>
+> <b>You can be in this business 50 years and still not know anything about it.</b>
+> <p><i>Sammy Davis, Jr.</i></p>
 
 <br>
