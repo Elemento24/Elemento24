@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When Maurice touched a keyboard, it was like something from a movie, magical. He would always give you something from a movie, and you'd go, what did you just play... immediately inspirational writings, amazing. That's what we're going to miss.</b>
-> <p><i>Robin Gibb</i></p>
+> <b>I was a little different. I still say I'm a little different, because success to me is not having the most money, or having the biggest car or the biggest house.</b>
+> <p><i>Herschel Walker</i></p>
 
 <br>
