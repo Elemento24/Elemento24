@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had a friend who was a clown. When he died, all his friends went to the funeral in one car.</b>
-> <p><i>Steven Wright</i></p>
+> <b>When Maurice touched a keyboard, it was like something from a movie, magical. He would always give you something from a movie, and you'd go, what did you just play... immediately inspirational writings, amazing. That's what we're going to miss.</b>
+> <p><i>Robin Gibb</i></p>
 
 <br>
