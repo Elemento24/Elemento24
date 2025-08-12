@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What matters poverty? What matters anything to him who is enamoured of our art? Does he not carry in himself every joy and every beauty?</b>
-> <p><i>Sarah Bernhardt</i></p>
+> <b>A lot of people, including business leaders, think the future belongs to China. Globalization is not a zero-sum game, but we need to hone our skills to stay in play.</b>
+> <p><i>Jon Meacham</i></p>
 
 <br>
