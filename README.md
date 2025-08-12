@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty seen is never lost, God's colors all are fast.</b>
-> <p><i>John Greenleaf Whittier</i></p>
+> <b>The best way to find out if you can trust somebody is to trust them.</b>
+> <p><i>Ernest Hemingway</i></p>
 
 <br>
