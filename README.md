@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I made some friends who are still friends, and this is the city of my birth. I love living here when there's a reason to, other than just moving here. I still don't like the winters here, but it's an amazing city and I love it.</b>
-> <p><i>Michael McKean</i></p>
+> <b>I decided to give acting a serious, committed try, and soon after, I read the script for 'Lovely and Amazing.' The story was beautiful and honest, and the characters struggled with the same insecurities many women - including me - face. I didn't think I had a chance in hell of being in the film, but I knew I had to go for it.</b>
+> <p><i>Emily Mortimer</i></p>
 
 <br>
