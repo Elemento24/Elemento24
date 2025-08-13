@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing to me that they're cutting physical education programs in the school systems.</b>
-> <p><i>Shannon Miller</i></p>
+> <b>The beauty of golf, you're in charge out here.</b>
+> <p><i>Mike Weir</i></p>
 
 <br>
