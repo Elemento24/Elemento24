@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wouldn't be where I am today without the amazing public arts education that I had.</b>
-> <p><i>Matthew Morrison</i></p>
+> <b>Beauty is the lover's gift.</b>
+> <p><i>William Congreve</i></p>
 
 <br>
