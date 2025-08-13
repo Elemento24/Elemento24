@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I decided to give acting a serious, committed try, and soon after, I read the script for 'Lovely and Amazing.' The story was beautiful and honest, and the characters struggled with the same insecurities many women - including me - face. I didn't think I had a chance in hell of being in the film, but I knew I had to go for it.</b>
-> <p><i>Emily Mortimer</i></p>
+> <b>I dated a guy and he liked me but I didn't like him. I went through his wardrobe and cleaned out his house and got him to get a new car. He said to me, 'If I give you $10,000, will you find me my wife because I want someone like you?' And within a year, he got married. That was the first match that led to me leaving my corporate job.</b>
+> <p><i>Patti Stanger</i></p>
 
 <br>
