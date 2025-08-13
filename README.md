@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is an outward gift, which is seldom despised, except by those to whom it has been refused.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>It's amazing to me that they're cutting physical education programs in the school systems.</b>
+> <p><i>Shannon Miller</i></p>
 
 <br>
