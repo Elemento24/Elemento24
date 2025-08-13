@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I dated a guy and he liked me but I didn't like him. I went through his wardrobe and cleaned out his house and got him to get a new car. He said to me, 'If I give you $10,000, will you find me my wife because I want someone like you?' And within a year, he got married. That was the first match that led to me leaving my corporate job.</b>
-> <p><i>Patti Stanger</i></p>
+> <b>I wouldn't be where I am today without the amazing public arts education that I had.</b>
+> <p><i>Matthew Morrison</i></p>
 
 <br>
