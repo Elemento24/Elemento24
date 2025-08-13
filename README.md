@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without this spirit, Modernist architecture cannot fully exist. Since there is often a mismatch between the logic and the spirit of Modernism, I use architecture to reconcile the two.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>I have a resistance to change in things that I feel comfortable with and that I'm used to.</b>
+> <p><i>Dennis Quaid</i></p>
 
 <br>
