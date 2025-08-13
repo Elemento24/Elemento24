@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We don't seem to be able to check crime, so why not legalize it and then tax it out of business?</b>
-> <p><i>Will Rogers</i></p>
+> <b>If you're curious, London's an amazing place.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
