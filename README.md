@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the lover's gift.</b>
-> <p><i>William Congreve</i></p>
+> <b>Americans worship creativity the way they worship physical beauty - as a way of enjoying elitism without guilt: God did it.</b>
+> <p><i>Florence King</i></p>
 
 <br>
