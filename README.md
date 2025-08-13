@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of golf, you're in charge out here.</b>
-> <p><i>Mike Weir</i></p>
+> <b>The common question that gets asked in business is, 'why?' That's a good question, but an equally valid question is, 'why not?'</b>
+> <p><i>Jeff Bezos</i></p>
 
 <br>
