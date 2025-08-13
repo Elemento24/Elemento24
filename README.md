@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of all our possessions, wisdom alone is imortal.</b>
-> <p><i>Isocrates</i></p>
+> <b>Beauty is an outward gift, which is seldom despised, except by those to whom it has been refused.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
