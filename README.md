@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For what Harley Street specialist has time to understand the body, let alone the mind or both in combination, when he is a slave to thirteen thousand a year?</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>I seriously love to cook... My grandmother was an amazing cook. As a kid I used to help her make handmade pasta, Cavatelli and Ravioli. It was one of my favorite things to do. I love the idea of making whatever is in the fridge into something.</b>
+> <p><i>Bradley Cooper</i></p>
 
 <br>
