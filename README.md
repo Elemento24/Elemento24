@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To live alone is the fate of all great souls.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>Business is tough you need tough guys.</b>
+> <p><i>Carlos Ghosn</i></p>
 
 <br>
