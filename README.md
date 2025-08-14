@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Divorced men are more likely to meet their car payments than their child support obligations.</b>
-> <p><i>Susan Faludi</i></p>
+> <b>After you're older, two things are possibly more important than any others: health and money.</b>
+> <p><i>Helen Gurley Brown</i></p>
 
 <br>
