@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never called my work an 'art'. It's part of show business, the business of building entertainment.</b>
-> <p><i>Walt Disney</i></p>
+> <b>Never contend with a man who has nothing to lose.</b>
+> <p><i>Baltasar Gracian</i></p>
 
 <br>
