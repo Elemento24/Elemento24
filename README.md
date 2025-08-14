@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The aging process has you firmly in its grasp if you never get the urge to throw a snowball.</b>
-> <p><i>Doug Larson</i></p>
+> <b>I still don't like going to bed alone.</b>
+> <p><i>James Franco</i></p>
 
 <br>
