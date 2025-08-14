@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never contend with a man who has nothing to lose.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>I have pretty thick skin, and I think if you're going to be in this business, if you're going to be an actor or a writer, you better have a thick skin.</b>
+> <p><i>John Irving</i></p>
 
 <br>
