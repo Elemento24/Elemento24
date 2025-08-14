@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And that just shows you how important the car is in Formula One Racing.</b>
-> <p><i>Murray Walker</i></p>
+> <b>In the modern media age we are rarely surprised by what we see. Whether it's on television or film or in the theatre, everything is so advertised, so trailed, that most entertainment is merely what you thought it was going to be like.</b>
+> <p><i>Rowan Atkinson</i></p>
 
 <br>
