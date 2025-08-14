@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To keep the heart unwrinkled, to be hopeful, kindly, cheerful, reverent - that is to triumph over old age.</b>
-> <p><i>Thomas Bailey Aldrich</i></p>
+> <b>I was impressed by Hendrix. His attitude was brilliant. Even the way he walked was amazing.</b>
+> <p><i>Ritchie Blackmore</i></p>
 
 <br>
