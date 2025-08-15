@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I still don't like going to bed alone.</b>
-> <p><i>James Franco</i></p>
+> <b>It's none of their business that you have to learn how to write. Let them think you were born that way.</b>
+> <p><i>Ernest Hemingway</i></p>
 
 <br>
