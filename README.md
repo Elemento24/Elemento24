@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is really quite amazing that all of the folks supporting privatization, from the president on down, keep invoking the name of my grandfather, Franklin Delano Roosevelt.</b>
-> <p><i>James Roosevelt</i></p>
+> <b>You owe it to yourself to be the best person possible. Because if you are, others will want to be with you, want to provide you with the things you want in exchange for what you're giving to them.</b>
+> <p><i>Harry Browne</i></p>
 
 <br>
