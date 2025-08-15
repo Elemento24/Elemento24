@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am invariably late for appointments - sometimes as much as two hours. I've tried to change my ways but the things that make me late are too strong, and too pleasing.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>I like the way my heart beats, I like the way I think I don't need or want anything to change that.</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
