@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to go to the mall, you have to take security. But it's always cool. The kids are amazing.</b>
-> <p><i>Aaliyah</i></p>
+> <b>The thing I like about baseball is that it's one-on-one. You stand up there alone, and if you make a mistake, it's your mistake. If you hit a home run, it's your home run.</b>
+> <p><i>Hank Aaron</i></p>
 
 <br>
