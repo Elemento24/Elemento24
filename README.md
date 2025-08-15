@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know golf is very lonely. When I'm in the States, I feel like if I just think about Taiwan, my friends, my fans, I won't feel like I'm alone.</b>
-> <p><i>Yani Tseng</i></p>
+> <b>The nearer people approach old age the closer they return to a semblance of childhood, until the time comes for them to depart this life, again like children, neither tired of living nor aware of death.</b>
+> <p><i>Desiderius Erasmus</i></p>
 
 <br>
