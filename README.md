@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's none of their business that you have to learn how to write. Let them think you were born that way.</b>
-> <p><i>Ernest Hemingway</i></p>
+> <b>You know the best thing about competition? There's this whole strategy game, and when it all works out its like solving that hard math equation. You finally get the answer and you're so happy.</b>
+> <p><i>Shaun White</i></p>
 
 <br>
