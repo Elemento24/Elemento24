@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my experience, if you have to keep the lavatory door shut by extending your left leg, it's modern architecture.</b>
-> <p><i>Nancy Banks Smith</i></p>
+> <b>You cannot run a business, or anything else, on a theory.</b>
+> <p><i>Harold S. Geneen</i></p>
 
 <br>
