@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how, age after age, in country after country, and in all languages, Shakespeare emerges as incomparable.</b>
-> <p><i>M. H. Abrams</i></p>
+> <b>You know golf is very lonely. When I'm in the States, I feel like if I just think about Taiwan, my friends, my fans, I won't feel like I'm alone.</b>
+> <p><i>Yani Tseng</i></p>
 
 <br>
