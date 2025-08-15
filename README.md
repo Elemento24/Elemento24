@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm tired of being around men all the time. I'm going to start a band called Skirt with three girls and I'll play the guitar and sing backing vocals in drag. I went window shopping when I was in New York, saw a lot of amazing dresses.</b>
-> <p><i>Brian Molko</i></p>
+> <b>In my experience, if you have to keep the lavatory door shut by extending your left leg, it's modern architecture.</b>
+> <p><i>Nancy Banks Smith</i></p>
 
 <br>
