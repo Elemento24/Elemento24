@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It bothers me when I hear it in a car commercial or some such. But for the most part, it's better than seeing sacred music relegated to the scrap heap.</b>
-> <p><i>Richard Morris</i></p>
+> <b>Let the beauty of what you love be what you do.</b>
+> <p><i>Rumi</i></p>
 
 <br>
