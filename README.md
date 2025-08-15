@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mathematics are the result of mysterious powers which no one understands, and which the unconscious recognition of beauty must play an important part. Out of an infinity of designs a mathematician chooses one pattern for beauty's sake and pulls it down to earth.</b>
-> <p><i>Marston Morse</i></p>
+> <b>But my attitude about it is I have miles to go before I sleep.</b>
+> <p><i>Peabo Bryson</i></p>
 
 <br>
