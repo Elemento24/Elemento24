@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let the beauty of what you love be what you do.</b>
-> <p><i>Rumi</i></p>
+> <b>It really lasted the whole game, because I was really untouchable, unstoppable that game. But it was heightened on one particular play, and that was the longest run where everything completely slowed down. My awareness was so keen, it was so heightened, it was really amazing.</b>
+> <p><i>Marcus Allen</i></p>
 
 <br>
