@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It really lasted the whole game, because I was really untouchable, unstoppable that game. But it was heightened on one particular play, and that was the longest run where everything completely slowed down. My awareness was so keen, it was so heightened, it was really amazing.</b>
-> <p><i>Marcus Allen</i></p>
+> <b>I'm tired of being around men all the time. I'm going to start a band called Skirt with three girls and I'll play the guitar and sing backing vocals in drag. I went window shopping when I was in New York, saw a lot of amazing dresses.</b>
+> <p><i>Brian Molko</i></p>
 
 <br>
