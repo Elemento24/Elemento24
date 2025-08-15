@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But my attitude about it is I have miles to go before I sleep.</b>
-> <p><i>Peabo Bryson</i></p>
+> <b>It bothers me when I hear it in a car commercial or some such. But for the most part, it's better than seeing sacred music relegated to the scrap heap.</b>
+> <p><i>Richard Morris</i></p>
 
 <br>
