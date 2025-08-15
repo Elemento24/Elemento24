@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thing I like about baseball is that it's one-on-one. You stand up there alone, and if you make a mistake, it's your mistake. If you hit a home run, it's your home run.</b>
-> <p><i>Hank Aaron</i></p>
+> <b>The seven marvels that best represent man's achievements over the last 2,000 years will be determined by Internet vote... so look for Howard Stern's Private Parts to come in No. 1.</b>
+> <p><i>Jon Stewart</i></p>
 
 <br>
