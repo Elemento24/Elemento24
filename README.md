@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you have only 95 minutes of material, make an only 95-minute movie. Amazing how often that's forgotten.</b>
-> <p><i>Stephen Hunter</i></p>
+> <b>To succeed in business, to reach the top, an individual must know all it is possible to know about that business.</b>
+> <p><i>J. Paul Getty</i></p>
 
 <br>
