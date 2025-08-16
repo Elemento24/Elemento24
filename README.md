@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People may hear your words, but they feel your attitude.</b>
-> <p><i>John C. Maxwell</i></p>
+> <b>Age is a matter of feeling, not of years.</b>
+> <p><i>Washington Irving</i></p>
 
 <br>
