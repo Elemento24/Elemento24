@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best player I ever played with was Dennis Johnson.</b>
-> <p><i>Larry Bird</i></p>
+> <b>Once you go inside and weed through the muck, you will find the real beauty, the truth about yourself.</b>
+> <p><i>Lindsay Wagner</i></p>
 
 <br>
