@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I spend my life essentially alone at a computer. That doesn't change. I have the same challenges every day.</b>
-> <p><i>Dan Brown</i></p>
+> <b>I get uncomfortable when people give me presents and watch me open them. I don't have birthday parties, because the idea of a group of people singing and looking at me while I'm blowing out candles gives me hives.</b>
+> <p><i>Brit Marling</i></p>
 
 <br>
