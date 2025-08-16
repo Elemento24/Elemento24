@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A paparazzo once jumped out of a car and started running backward with me. I slowed down out of courtesy because she started drifting into the street. I reached out my hand and moved her back so she didn't get hit by a bus.</b>
-> <p><i>Sean Astin</i></p>
+> <b>I spend my life essentially alone at a computer. That doesn't change. I have the same challenges every day.</b>
+> <p><i>Dan Brown</i></p>
 
 <br>
