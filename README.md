@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most actors want to sink their teeth into amazing material.</b>
-> <p><i>Emmanuelle Chriqui</i></p>
+> <b>I feel most empires fell when they started to act human, but then look at Russia. They kept a pretty strong hand, and they fell from Afghanistan alone because Afghanistan is the graveyard of empires. I guess you just can't sustain it.</b>
+> <p><i>Colin Quinn</i></p>
 
 <br>
