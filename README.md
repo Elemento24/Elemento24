@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With my talent, I can make people laugh and give them another attitude about life. What a blessing that is for me.</b>
-> <p><i>Doris Roberts</i></p>
+> <b>I love producing. I am loving doing that. I think that is my most natural space in the business. I just love producing or editing and that's where I thrive.</b>
+> <p><i>Will Smith</i></p>
 
 <br>
