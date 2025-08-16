@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is something that doesn't matter, unless you are a cheese.</b>
-> <p><i>Luis Bunuel</i></p>
+> <b>I don't listen to what art critics say. I don't know anybody who needs a critic to find out what art is.</b>
+> <p><i>Jean-Michel Basquiat</i></p>
 
 <br>
