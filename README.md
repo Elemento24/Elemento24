@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's so funny looking back, but my so-called overnight success actually took 15 years. I remember when I didn't have any money, and my only car was mom's Hyundai.</b>
-> <p><i>Criss Angel</i></p>
+> <b>With my talent, I can make people laugh and give them another attitude about life. What a blessing that is for me.</b>
+> <p><i>Doris Roberts</i></p>
 
 <br>
