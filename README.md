@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been screaming at the top of my lungs at my family, 'Work out! Work out! Old age is coming!'</b>
-> <p><i>Cher</i></p>
+> <b>If you have only 95 minutes of material, make an only 95-minute movie. Amazing how often that's forgotten.</b>
+> <p><i>Stephen Hunter</i></p>
 
 <br>
