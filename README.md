@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age occurs when you are too young to take up golf and too old to rush up to the net.</b>
-> <p><i>Franklin P. Adams</i></p>
+> <b>It's so funny looking back, but my so-called overnight success actually took 15 years. I remember when I didn't have any money, and my only car was mom's Hyundai.</b>
+> <p><i>Criss Angel</i></p>
 
 <br>
