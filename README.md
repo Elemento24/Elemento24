@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was hit by a car once on my bike, but I still rode home.</b>
-> <p><i>Amy Winehouse</i></p>
+> <b>I've been screaming at the top of my lungs at my family, 'Work out! Work out! Old age is coming!'</b>
+> <p><i>Cher</i></p>
 
 <br>
