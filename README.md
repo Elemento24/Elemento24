@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The automobile engine will come, and then I will consider my life's work complete.</b>
-> <p><i>Rudolf Diesel</i></p>
+> <b>I don't want to do business with those who don't make a profit, because they can't give the best service.</b>
+> <p><i>Richard Bach</i></p>
 
 <br>
