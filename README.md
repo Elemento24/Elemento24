@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Light in Nature creates the movement of colors.</b>
-> <p><i>Robert Delaunay</i></p>
+> <b>But I believe in fair trade, and I will tell you, I have many, many friends heading up corporations, and people that do just business in China, they say it's virtually impossible. It's very, very hard to come into China. And yet, we welcome them with open arms.</b>
+> <p><i>Donald Trump</i></p>
 
 <br>
