@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Instead of giving a politician the keys to the city, it might be better to change the locks.</b>
-> <p><i>Doug Larson</i></p>
+> <b>Working with Omarion is pretty amazing. That's like my brother. He's really cool.</b>
+> <p><i>Teyana Taylor</i></p>
 
 <br>
