@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body can do amazing things in a situation when it is really called for.</b>
-> <p><i>Suzanne Farrell</i></p>
+> <b>Beauty is everywhere a welcome guest.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
