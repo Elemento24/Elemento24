@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage has no guarantees. If that's what you're looking for, go live with a car battery.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>We are in an electronic technology age now and it's about time we put away the old stuff.</b>
+> <p><i>Monica Edwards</i></p>
 
 <br>
