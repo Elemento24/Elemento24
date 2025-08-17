@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Working with Omarion is pretty amazing. That's like my brother. He's really cool.</b>
-> <p><i>Teyana Taylor</i></p>
+> <b>The body can do amazing things in a situation when it is really called for.</b>
+> <p><i>Suzanne Farrell</i></p>
 
 <br>
