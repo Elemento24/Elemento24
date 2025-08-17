@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We will see that our new attitude toward liquor has been given to us without any thought or effort on our part. It just comes! That is the miracle of it.</b>
-> <p><i>William Griffith Wilson</i></p>
+> <b>Instead of giving a politician the keys to the city, it might be better to change the locks.</b>
+> <p><i>Doug Larson</i></p>
 
 <br>
