@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I realized the other day that I've lived in New York longer than I've lived anywhere else. It's amazing: I am a New Yorker. It's strange I never thought I would be.</b>
-> <p><i>David Bowie</i></p>
+> <b>Marriage has no guarantees. If that's what you're looking for, go live with a car battery.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
