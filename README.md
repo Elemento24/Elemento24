@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is everywhere a welcome guest.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>Light in Nature creates the movement of colors.</b>
+> <p><i>Robert Delaunay</i></p>
 
 <br>
