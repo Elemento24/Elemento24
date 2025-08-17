@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Partly because his life ended before the age of 50, Hamilton was defined by the other founding fathers, and he managed, with amazing consistency, to alienate most of them.</b>
-> <p><i>Ron Chernow</i></p>
+> <b>I didn't grow up thinking of movies as film, or art, but as movies, something to do on a Saturday afternoon.</b>
+> <p><i>Sydney Pollack</i></p>
 
 <br>
