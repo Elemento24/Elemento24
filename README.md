@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Sleep we lie all naked and alone, in Sleep we are united at the heart of night and darkness, and we are strange and beautiful asleep for we are dying the darkness and we know no death.</b>
-> <p><i>Thomas Wolfe</i></p>
+> <b>You want to make sure this particular car is going to please the customer and then you're going to be rewarded with something that is going to please the shareholder.</b>
+> <p><i>Carlos Ghosn</i></p>
 
 <br>
