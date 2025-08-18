@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman whose smile is open and whose expression is glad has a kind of beauty no matter what she wears.</b>
-> <p><i>Anne Roiphe</i></p>
+> <b>The question of the value of nationality in art is perhaps unsolvable.</b>
+> <p><i>Edward Hopper</i></p>
 
 <br>
