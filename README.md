@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every job has its downside. For example, being in a band the travel part of it - getting picked up from your house in a car, going to the airport, getting on a plane, going from the airplane to a van, then going from the van to a hotel.</b>
-> <p><i>Dave Lombardo</i></p>
+> <b>We can no longer waste time and money. Every day, more than 2,000 girls in America, age 15-19, give birth - in the wealthiest, most educated nation in the world! Neither you nor I should accept this statistic.</b>
+> <p><i>Jane Fonda</i></p>
 
 <br>
