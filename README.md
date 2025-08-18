@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What most persons consider as virtue, after the age of 40 is simply a loss of energy.</b>
-> <p><i>Voltaire</i></p>
+> <b>That's what show business is, sincere insincerity.</b>
+> <p><i>Benny Hill</i></p>
 
 <br>
