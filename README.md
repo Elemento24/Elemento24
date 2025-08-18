@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The leverage and influence social media gives citizens are rapidly spreading into the business world.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>You can't be halfway in this business. If you don't meet the fans, you lose all you've got.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
