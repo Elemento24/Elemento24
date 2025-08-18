@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Seeing yourself in print is such an amazing concept: you can get so much attention without having to actually show up somewhere... You don't have to dress up, for instance, and you can't hear them boo you right away.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>The simplest questions are the most profound. Where were you born? Where is your home? Where are you going? What are you doing? Think about these once in a while and watch your answers change.</b>
+> <p><i>Richard Bach</i></p>
 
 <br>
