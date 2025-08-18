@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is dangerous. It is one of the attractions: when it ceases to be dangerous you don't want it.</b>
-> <p><i>Duke Ellington</i></p>
+> <b>No lie ever reaches old age.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
