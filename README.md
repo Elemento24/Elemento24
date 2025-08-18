@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I see architecture not as Gropius did, as a moral venture, as truth, but as invention, in the same way that poetry or music or painting is invention.</b>
-> <p><i>Michael Graves</i></p>
+> <b>What a lovely surprise to finally discover how unlonely being alone can be.</b>
+> <p><i>Ellen Burstyn</i></p>
 
 <br>
