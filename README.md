@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The simplest questions are the most profound. Where were you born? Where is your home? Where are you going? What are you doing? Think about these once in a while and watch your answers change.</b>
-> <p><i>Richard Bach</i></p>
+> <b>What most persons consider as virtue, after the age of 40 is simply a loss of energy.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
