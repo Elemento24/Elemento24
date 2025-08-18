@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't be halfway in this business. If you don't meet the fans, you lose all you've got.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>Beauty makes idiots sad and wise men merry.</b>
+> <p><i>George Jean Nathan</i></p>
 
 <br>
