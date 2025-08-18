@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The value of old age depends upon the person who reaches it. To some men of early performance it is useless. To others, who are late to develop, it just enables them to finish the job.</b>
-> <p><i>Thomas Hardy</i></p>
+> <b>To say nothing, especially when speaking, is half the art of diplomacy.</b>
+> <p><i>Will Durant</i></p>
 
 <br>
