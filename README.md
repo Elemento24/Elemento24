@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What a lovely surprise to finally discover how unlonely being alone can be.</b>
-> <p><i>Ellen Burstyn</i></p>
+> <b>The loftier the building, the deeper must the foundation be laid.</b>
+> <p><i>Thomas a Kempis</i></p>
 
 <br>
