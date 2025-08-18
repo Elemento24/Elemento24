@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't grow up thinking of movies as film, or art, but as movies, something to do on a Saturday afternoon.</b>
-> <p><i>Sydney Pollack</i></p>
+> <b>If you don't like something, change it. If you can't change it, change your attitude.</b>
+> <p><i>Maya Angelou</i></p>
 
 <br>
