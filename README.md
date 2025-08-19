@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Warmth isn't what minimalists are thought to have.</b>
-> <p><i>Maya Lin</i></p>
+> <b>I always loved aesthetics. Not particularly fashion, but an idea of beauty.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
