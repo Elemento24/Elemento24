@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The genius of a good leader is to leave behind him a situation which common sense, without the grace of genius, can deal with successfully.</b>
-> <p><i>Walter Lippmann</i></p>
+> <b>I've had some movies that have been ridiculed, but that's OK with me. I don't feel that really defines me. Should I change who I am to be popular?</b>
+> <p><i>Kevin Costner</i></p>
 
 <br>
