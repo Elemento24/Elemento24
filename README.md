@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are things I can't force. I must adjust. There are times when the greatest change needed is a change of my viewpoint.</b>
-> <p><i>Denis Diderot</i></p>
+> <b>I'm on an Isabel Marant kick. She does an amazing job of making things that are everyday-wearable but also special and a little bit different. I definitely like that she has a '70s western vibe. There's something that's very fun and vintage in what she's doing.</b>
+> <p><i>Jennifer Morrison</i></p>
 
 <br>
