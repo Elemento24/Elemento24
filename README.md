@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In every work of art the subject is primordial, whether the artist knows it or not. The measure of the formal qualities is only a sign of the measure of the artist's obsession with his subject the form is always in proportion to the obsession.</b>
-> <p><i>Alberto Giacometti</i></p>
+> <b>After all these years, it's still amazing what Obama is allowed to get away with. He says low gas prices in 2009 were caused by a terrible economy, but then claims that the lower number of illegal aliens crossing the border is because of his border policies, not the same lousy economy.</b>
+> <p><i>Howie Carr</i></p>
 
 <br>
