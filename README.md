@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After all these years, it's still amazing what Obama is allowed to get away with. He says low gas prices in 2009 were caused by a terrible economy, but then claims that the lower number of illegal aliens crossing the border is because of his border policies, not the same lousy economy.</b>
-> <p><i>Howie Carr</i></p>
+> <b>Yes, the companionship is amazing. You know, you can get that physical attraction that happens is great, but then there's an awful lot of time and the rest of the day that you have to fill.</b>
+> <p><i>Vince Gill</i></p>
 
 <br>
