@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I find, in being black, a thing of beauty: a joy a strength a secret cup of gladness.</b>
-> <p><i>Ossie Davis</i></p>
+> <b>There are things I can't force. I must adjust. There are times when the greatest change needed is a change of my viewpoint.</b>
+> <p><i>Denis Diderot</i></p>
 
 <br>
