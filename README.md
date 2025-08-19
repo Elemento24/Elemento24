@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to tell President Obama how to make a speech. He's a much better speech maker than I am. But I think always to tell the truth in a sometimes blatant way, even though it might be temporarily unpopular, is the best approach.</b>
-> <p><i>Jimmy Carter</i></p>
+> <b>Liberal that I am, I support health-care reform on its merits alone. My liberal blood boils, for example, when I read that half of the personal bankruptcies in this country are brought on, in part, by medical expenses.</b>
+> <p><i>Thomas Frank</i></p>
 
 <br>
