@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always loved aesthetics. Not particularly fashion, but an idea of beauty.</b>
-> <p><i>Miuccia Prada</i></p>
+> <b>I don't want to look at other people my age in leather. Why would I put it on?</b>
+> <p><i>George Michael</i></p>
 
 <br>
