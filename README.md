@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to look at other people my age in leather. Why would I put it on?</b>
-> <p><i>George Michael</i></p>
+> <b>I find, in being black, a thing of beauty: a joy a strength a secret cup of gladness.</b>
+> <p><i>Ossie Davis</i></p>
 
 <br>
