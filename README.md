@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had some movies that have been ridiculed, but that's OK with me. I don't feel that really defines me. Should I change who I am to be popular?</b>
-> <p><i>Kevin Costner</i></p>
+> <b>I don't want to tell President Obama how to make a speech. He's a much better speech maker than I am. But I think always to tell the truth in a sometimes blatant way, even though it might be temporarily unpopular, is the best approach.</b>
+> <p><i>Jimmy Carter</i></p>
 
 <br>
