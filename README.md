@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As human beings, we need to know that we are not alone, that we are not crazy or completely out of our minds, that there are other people out there who feel as we do, live as we do, love as we do, who are like us.</b>
-> <p><i>Billy Joel</i></p>
+> <b>Standards of beauty are arbitrary. Body shame exists only to the extent that our physiques don't match our own beliefs about how we should look.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
