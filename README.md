@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The rest of the world cares about how we conduct our affairs because they then take that lead. We're the only leader in the world today. Some are wishing us well, others think that we're down and are not going to get back up again, but they are all watching with great interest to see how we conduct our business over the next couple of years.</b>
-> <p><i>Jon Huntsman, Jr.</i></p>
+> <b>In every work of art the subject is primordial, whether the artist knows it or not. The measure of the formal qualities is only a sign of the measure of the artist's obsession with his subject the form is always in proportion to the obsession.</b>
+> <p><i>Alberto Giacometti</i></p>
 
 <br>
