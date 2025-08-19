@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm on an Isabel Marant kick. She does an amazing job of making things that are everyday-wearable but also special and a little bit different. I definitely like that she has a '70s western vibe. There's something that's very fun and vintage in what she's doing.</b>
-> <p><i>Jennifer Morrison</i></p>
+> <b>Being a father at a later age is different from when I had my other two daughters when I was in my 20s and 30s. If you're in your 60s and you're with the kid every day, you're dealing with the mind of a child, so it opens up that childishness in you again.</b>
+> <p><i>Martin Scorsese</i></p>
 
 <br>
