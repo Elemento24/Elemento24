@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your Majesty, I took the liberty because I was so desirous of visiting alone with you for a few minutes before the rest of the other peasants arrived.</b>
-> <p><i>Walter Annenberg</i></p>
+> <b>The human foot is a masterpiece of engineering and a work of art.</b>
+> <p><i>Leonardo da Vinci</i></p>
 
 <br>
