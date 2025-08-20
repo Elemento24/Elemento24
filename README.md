@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And it is very sexy as well: somebody says I'm taking you on a surprise date, you don't know where you are going and you can't see and then you put your hand out and there is a tiger. Amazing.</b>
-> <p><i>Emily Watson</i></p>
+> <b>Change is growth. For me it has been a very spiritual and musical rebirth.</b>
+> <p><i>Lenny Kravitz</i></p>
 
 <br>
