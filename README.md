@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The last of human freedoms - the ability to chose one's attitude in a given set of circumstances.</b>
-> <p><i>Viktor E. Frankl</i></p>
+> <b>A visitor from Mars could easily pick out the civilized nations. They have the best implements of war.</b>
+> <p><i>Herbert V. Prochnow</i></p>
 
 <br>
