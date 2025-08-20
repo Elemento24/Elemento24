@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do like to shock and surprise people. When it's all in good fun, of course.</b>
-> <p><i>Ruth Warrick</i></p>
+> <b>Prosperity is the best protector of principle.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
