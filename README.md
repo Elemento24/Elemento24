@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have entered an age in which education is not just a luxury permitting some men an advantage over others. It has become a necessity without which a person is defenseless in this complex, industrialized society. We have truly entered the century of the educated man.</b>
-> <p><i>Lyndon B. Johnson</i></p>
+> <b>This is so cliche, but my beauty icon would have to be Angelina Jolie. She looks like she wears natural makeup, but she's still beautiful.</b>
+> <p><i>Tila Tequila</i></p>
 
 <br>
