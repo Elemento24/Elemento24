@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No employer today is independent of those about him. He cannot succeed alone, no matter how great his ability or capital. Business today is more than ever a question of cooperation.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>Traveling to Russia and Germany and being able to see the world at a young age was really cool for me, and I really liked that.</b>
+> <p><i>Mia Wasikowska</i></p>
 
 <br>
