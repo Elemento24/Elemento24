@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whatever good things we build end up building us.</b>
-> <p><i>Jim Rohn</i></p>
+> <b>The best road to progress is freedom's road.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
