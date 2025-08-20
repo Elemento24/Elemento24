@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is so cliche, but my beauty icon would have to be Angelina Jolie. She looks like she wears natural makeup, but she's still beautiful.</b>
-> <p><i>Tila Tequila</i></p>
+> <b>I do like to shock and surprise people. When it's all in good fun, of course.</b>
+> <p><i>Ruth Warrick</i></p>
 
 <br>
