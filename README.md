@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With all the hybrid stuff and things like that, I think that's a fabulous direction to go with cars in that sense. As someone who grew up around muscle cars, I'll never not be able to not love a muscle car. Not that I don't care about the environment, that's not it. But I adore muscle cars.</b>
-> <p><i>Michael Symon</i></p>
+> <b>Age is no barrier. It's a limitation you put on your mind.</b>
+> <p><i>Jackie Joyner-Kersee</i></p>
 
 <br>
