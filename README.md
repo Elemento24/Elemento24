@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is no barrier. It's a limitation you put on your mind.</b>
-> <p><i>Jackie Joyner-Kersee</i></p>
+> <b>Whatever good things we build end up building us.</b>
+> <p><i>Jim Rohn</i></p>
 
 <br>
