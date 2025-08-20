@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Probably nothing serious or worthwhile can be accomplished without one's willingness to be alone for sustained periods of time, which is not to say that one must live alone, obsessively.</b>
-> <p><i>Joyce Carol Oates</i></p>
+> <b>The last of human freedoms - the ability to chose one's attitude in a given set of circumstances.</b>
+> <p><i>Viktor E. Frankl</i></p>
 
 <br>
