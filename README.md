@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest writers of this age... are aware of the mystery of our existence.</b>
-> <p><i>J. B. Priestley</i></p>
+> <b>For age is opportunity no less Than youth itself, though in another dress, And as the evening twilight fades away The sky is filled with stars, invisible by day.</b>
+> <p><i>Henry Wadsworth Longfellow</i></p>
 
 <br>
