@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the past few years, we've been doing amazing stuff with desserts. Pastry chefs have been using herbs and spices in their desserts. So vanilla cake doesn't have to be just vanilla, it can have a little thyme. Or you could have a custard with a little lavender in it, which is just amazing.</b>
-> <p><i>Ron Ben-Israel</i></p>
+> <b>The power that is supported by force alone will have cause often to tremble.</b>
+> <p><i>Lajos Kossuth</i></p>
 
 <br>
