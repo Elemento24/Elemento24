@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have domesticated God's transcendence. We often learn about God at about the same time as we are learning about Santa Claus but our ideas about Santa Claus change, mature and become more nuanced, whereas our ideas of God can remain at a rather infantile level.</b>
-> <p><i>Karen Armstrong</i></p>
+> <b>It begins and ends with money. It's absurd in this day and age when we need so much money for education, health, for people, that a $100 million dollars can be spent on a film. It's obscene.</b>
+> <p><i>Kathleen Turner</i></p>
 
 <br>
