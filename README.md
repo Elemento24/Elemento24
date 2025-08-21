@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be free in an age like ours, one must be in a position of authority. That in itself would be enough to make me ambitious.</b>
-> <p><i>Hannah Arendt</i></p>
+> <b>The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
