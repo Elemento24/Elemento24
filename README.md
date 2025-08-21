@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'The Christmas Song,' by Nat King Cole, is not only a masterful performance to me it just sounds like the holidays. I've never sung it, because Nat's version is so perfect. I gotta leave it alone.</b>
-> <p><i>Harry Connick, Jr.</i></p>
+> <b>Work hard, be kind, and amazing things will happen.</b>
+> <p><i>Conan O'Brien</i></p>
 
 <br>
