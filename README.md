@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An archaeologist is the best husband a woman can have. The older she gets the more interested he is in her.</b>
-> <p><i>Agatha Christie</i></p>
+> <b>We have domesticated God's transcendence. We often learn about God at about the same time as we are learning about Santa Claus but our ideas about Santa Claus change, mature and become more nuanced, whereas our ideas of God can remain at a rather infantile level.</b>
+> <p><i>Karen Armstrong</i></p>
 
 <br>
