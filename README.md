@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Janet Jackson is an icon, I've been honored to meet her a few times, working with her would be amazing.</b>
-> <p><i>Eric West</i></p>
+> <b>I had wanted a tape recorder since I was tiny. I thought it was a magic thing. I never got one until just before I went to art school.</b>
+> <p><i>Brian Eno</i></p>
 
 <br>
