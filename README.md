@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For age is opportunity no less Than youth itself, though in another dress, And as the evening twilight fades away The sky is filled with stars, invisible by day.</b>
-> <p><i>Henry Wadsworth Longfellow</i></p>
+> <b>In art and dream may you proceed with abandon. In life may you proceed with balance and stealth.</b>
+> <p><i>Patti Smith</i></p>
 
 <br>
