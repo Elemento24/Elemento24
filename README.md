@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter what you study, the thing that you know best is what you grew up with.</b>
-> <p><i>Maria Sharapova</i></p>
+> <b>In life, as in art, the beautiful moves in curves.</b>
+> <p><i>Edward G. Bulwer-Lytton</i></p>
 
 <br>
