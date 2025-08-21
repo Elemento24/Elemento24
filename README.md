@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The power that is supported by force alone will have cause often to tremble.</b>
-> <p><i>Lajos Kossuth</i></p>
+> <b>No matter what you study, the thing that you know best is what you grew up with.</b>
+> <p><i>Maria Sharapova</i></p>
 
 <br>
