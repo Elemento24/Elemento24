@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The days when you needed amazing Silicon Graphics machines to run animation software are gone now.</b>
-> <p><i>Dave Rowntree</i></p>
+> <b>No one can persuade another to change. Each of us guards a gate of change that can only be opened from the inside. We cannot open the gate of another, either by argument or emotional appeal.</b>
+> <p><i>Marilyn Ferguson</i></p>
 
 <br>
