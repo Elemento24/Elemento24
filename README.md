@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Work hard, be kind, and amazing things will happen.</b>
-> <p><i>Conan O'Brien</i></p>
+> <b>The greatest writers of this age... are aware of the mystery of our existence.</b>
+> <p><i>J. B. Priestley</i></p>
 
 <br>
