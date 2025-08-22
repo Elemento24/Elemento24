@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Youth has no age.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>Exercise is amazing, from the inside out. I feel so alive and have more energy.</b>
+> <p><i>Vanessa Hudgens</i></p>
 
 <br>
