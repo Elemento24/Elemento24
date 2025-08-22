@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I am traveling in a carriage, or walking after a good meal, or during the night when I cannot sleep it is on such occasions that ideas flow best and most abundantly.</b>
-> <p><i>Wolfgang Amadeus Mozart</i></p>
+> <b>Sometimes I wish I could drive a car, but I'm gonna drive a car one day, so I don't worry about that.</b>
+> <p><i>Stevie Wonder</i></p>
 
 <br>
