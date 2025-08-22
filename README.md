@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, Art is Art, isn't it? Still, on the other hand, water is water. And east is east and west is west and if you take cranberries and stew them like applesauce they taste much more like prunes than rhubarb does. Now you tell me what you know.</b>
-> <p><i>Groucho Marx</i></p>
+> <b>The art of progress is to preserve order amid change and to preserve change amid order.</b>
+> <p><i>Alfred North Whitehead</i></p>
 
 <br>
