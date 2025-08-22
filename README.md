@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Exercise is amazing, from the inside out. I feel so alive and have more energy.</b>
-> <p><i>Vanessa Hudgens</i></p>
+> <b>'The Christmas Song,' by Nat King Cole, is not only a masterful performance to me it just sounds like the holidays. I've never sung it, because Nat's version is so perfect. I gotta leave it alone.</b>
+> <p><i>Harry Connick, Jr.</i></p>
 
 <br>
