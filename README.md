@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every time I copy something, I can draw it for the rest of my life. But research is so painful - I mean just opening up a magazine looking for a picture of a car or looking out the window looking for a car is just hard!</b>
-> <p><i>Jaime Hernandez</i></p>
+> <b>I talked about the barriers created by monopolies. I said that it was the role of government to break up these monopolies and that we couldn't do it alone.</b>
+> <p><i>Joichi Ito</i></p>
 
 <br>
