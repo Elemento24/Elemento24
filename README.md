@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In art and dream may you proceed with abandon. In life may you proceed with balance and stealth.</b>
-> <p><i>Patti Smith</i></p>
+> <b>Alas! how little does the memory of these human inhabitants enhance the beauty of the landscape!</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
