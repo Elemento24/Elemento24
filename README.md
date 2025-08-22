@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the bait which with delight allures man to enlarge his kind.</b>
-> <p><i>Socrates</i></p>
+> <b>Whenever I have bid a hasty goodbye to a loved one, I've always made sure that my record collection was safely stored away in the boot of the car.</b>
+> <p><i>Robert Plant</i></p>
 
 <br>
