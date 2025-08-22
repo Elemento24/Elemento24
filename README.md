@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alas! how little does the memory of these human inhabitants enhance the beauty of the landscape!</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>When I am traveling in a carriage, or walking after a good meal, or during the night when I cannot sleep it is on such occasions that ideas flow best and most abundantly.</b>
+> <p><i>Wolfgang Amadeus Mozart</i></p>
 
 <br>
