@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel however, that we architects have a special duty and mission... (to contribute) to the socio-cultural development of architecture and urban planning.</b>
-> <p><i>Kenzo Tange</i></p>
+> <b>Anybody under the age of forty knows hip-hop, gospel and R&ampB pretty well, and it's all a part of what we consider to be 'black music.' There is a natural synergy between the three.</b>
+> <p><i>John Legend</i></p>
 
 <br>
