@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of progress is to preserve order amid change and to preserve change amid order.</b>
-> <p><i>Alfred North Whitehead</i></p>
+> <b>Football is an art, like dancing is an art - but only when it's well done does it become an art.</b>
+> <p><i>Arsene Wenger</i></p>
 
 <br>
