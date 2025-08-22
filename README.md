@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anybody under the age of forty knows hip-hop, gospel and R&ampB pretty well, and it's all a part of what we consider to be 'black music.' There is a natural synergy between the three.</b>
-> <p><i>John Legend</i></p>
+> <b>It is the function of art to renew our perception. What we are familiar with we cease to see. The writer shakes up the familiar scene, and, as if by magic, we see a new meaning in it.</b>
+> <p><i>Anais Nin</i></p>
 
 <br>
