@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really enjoyed being Peppy Miller. She was an amazing character and her energy followed me everywhere. When I talk about her I want to be her again.</b>
-> <p><i>Berenice Bejo</i></p>
+> <b>Every time I copy something, I can draw it for the rest of my life. But research is so painful - I mean just opening up a magazine looking for a picture of a car or looking out the window looking for a car is just hard!</b>
+> <p><i>Jaime Hernandez</i></p>
 
 <br>
