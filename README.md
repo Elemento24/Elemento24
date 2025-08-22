@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whenever I have bid a hasty goodbye to a loved one, I've always made sure that my record collection was safely stored away in the boot of the car.</b>
-> <p><i>Robert Plant</i></p>
+> <b>I really enjoyed being Peppy Miller. She was an amazing character and her energy followed me everywhere. When I talk about her I want to be her again.</b>
+> <p><i>Berenice Bejo</i></p>
 
 <br>
