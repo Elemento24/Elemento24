@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love Jessica Simpson. I love her voice. She's amazing.</b>
-> <p><i>Britney Spears</i></p>
+> <b>When he was born, I looked at my little boy and felt an unconditional love I never knew was inside me. As he grew, and I watched him stagger about, squeak his first words, and turn into a beautiful little boy, that feeling did not change.</b>
+> <p><i>Tony Parsons</i></p>
 
 <br>
