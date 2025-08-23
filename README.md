@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art which we may call generally art of the wayside, as opposed to that which is the business of men's lives, is, in the best sense of the word, Grotesque.</b>
-> <p><i>John Ruskin</i></p>
+> <b>I've always considered myself to be fiercely patriotic. I love Britain - its history and the down-to-earth attitude people have.</b>
+> <p><i>Gary Numan</i></p>
 
 <br>
