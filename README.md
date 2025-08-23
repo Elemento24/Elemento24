@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I lived the true American dream, because I was able to pursue what I set as my goals at a very young age.</b>
-> <p><i>Mario Andretti</i></p>
+> <b>Great art is as irrational as great music. It is mad with its own loveliness.</b>
+> <p><i>George Jean Nathan</i></p>
 
 <br>
