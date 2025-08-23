@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is with children that we have the best chance of studying the development of logical knowledge, mathematical knowledge, physical knowledge, and so forth.</b>
-> <p><i>Jean Piaget</i></p>
+> <b>You sell a screenplay like you sell a car. If someone drives it off a cliff, that's it.</b>
+> <p><i>Rita Mae Brown</i></p>
 
 <br>
