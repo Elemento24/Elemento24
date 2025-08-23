@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone says, 'You give birth, you go home, and you have this amazing baby and it's just beautiful'. And I walked in and I just started sobbing.</b>
-> <p><i>Bridget Moynahan</i></p>
+> <b>And while the law of competition may be sometimes hard for the individual, it is best for the race, because it ensures the survival of the fittest in every department.</b>
+> <p><i>Andrew Carnegie</i></p>
 
 <br>
