@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always considered myself to be fiercely patriotic. I love Britain - its history and the down-to-earth attitude people have.</b>
-> <p><i>Gary Numan</i></p>
+> <b>As a young man, even if I was going to see a play or a film by myself, I didn't feel like I was alone. There was something that was unfolding up there that brought me into it. And I recognised that. For those two hours, it made me feel like I belonged to something really good.</b>
+> <p><i>Tom Hanks</i></p>
 
 <br>
