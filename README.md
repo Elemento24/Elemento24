@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I believe that the best buy in public health today must be a combination of regular physical exercise and a healthy diet.</b>
-> <p><i>Julie Bishop</i></p>
+> <b>It is with children that we have the best chance of studying the development of logical knowledge, mathematical knowledge, physical knowledge, and so forth.</b>
+> <p><i>Jean Piaget</i></p>
 
 <br>
