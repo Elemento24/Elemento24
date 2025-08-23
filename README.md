@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whether you come from heaven or hell, what does it matter, O Beauty!</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>To me, when a great band is playing together, it's amazing for me.</b>
+> <p><i>John Oates</i></p>
 
 <br>
