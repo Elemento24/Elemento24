@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And while the law of competition may be sometimes hard for the individual, it is best for the race, because it ensures the survival of the fittest in every department.</b>
-> <p><i>Andrew Carnegie</i></p>
+> <b>Saving faith is an immediate relation to Christ, accepting, receiving, resting upon Him alone, for justification, sanctification, and eternal life by virtue of God's grace.</b>
+> <p><i>Charles Spurgeon</i></p>
 
 <br>
