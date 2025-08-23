@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not hard to get your way when it's your way or the highway. People either follow suit or they're not around. I don't really like the sound of that, 'cause that sounds like a temper tantrum. I'm just very black and white when it comes to my business. There's really no gray area.</b>
-> <p><i>Nicki Minaj</i></p>
+> <b>Honesty is the best policy.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
