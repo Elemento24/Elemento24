@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The god whom science recognizes must be a God of universal laws exclusively, a God who does a wholesale, not a retail business. He cannot accommodate his processes to the convenience of individuals.</b>
-> <p><i>William James</i></p>
+> <b>An artist is always alone - if he is an artist. No, what the artist needs is loneliness.</b>
+> <p><i>Henry Miller</i></p>
 
 <br>
