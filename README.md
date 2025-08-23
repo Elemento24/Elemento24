@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My best kiss was on stage. Kelly Rowland from Destiny's Child gave me a really nice soft kiss on my lips during a performance on my birthday. It was amazing.</b>
-> <p><i>Chris Brown</i></p>
+> <b>It is far better to be alone, than to be in bad company.</b>
+> <p><i>George Washington</i></p>
 
 <br>
