@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart. There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart.</b>
-> <p><i>Kenzo Tange</i></p>
+> <b>No matter how fast I could do it with the digital camera I don't think I would get the same thing out of it. The passion I have for formulating an idea stands alone. It is the important essence of what I do.</b>
+> <p><i>Kim Weston</i></p>
 
 <br>
