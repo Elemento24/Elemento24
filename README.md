@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Inside every working anarchy, there's an Old Boy Network.</b>
-> <p><i>Mitchell Kapor</i></p>
+> <b>The greatest ability in business is to get along with others and to influence their actions.</b>
+> <p><i>John Hancock</i></p>
 
 <br>
