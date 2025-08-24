@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter how fast I could do it with the digital camera I don't think I would get the same thing out of it. The passion I have for formulating an idea stands alone. It is the important essence of what I do.</b>
-> <p><i>Kim Weston</i></p>
+> <b>I must be more sensible and realize that at my age, illusions are hardly permitted and they will always destroy me.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
