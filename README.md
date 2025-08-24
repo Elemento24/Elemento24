@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any architectural project we do takes at least four or five years, so increasingly there is a discrepancy between the acceleration of culture and the continuing slowness of architecture.</b>
-> <p><i>Rem Koolhaas</i></p>
+> <b>In my youth I stressed freedom, and in my old age I stress order. I have made the great discovery that liberty is a product of order.</b>
+> <p><i>Will Durant</i></p>
 
 <br>
