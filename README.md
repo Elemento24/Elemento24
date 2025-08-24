@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing like being left alone again, to walk peacefully with oneself in the woods. To boil one's coffee and fill one's pipe, and to think idly and slowly as one does it.</b>
-> <p><i>Knut Hamsun</i></p>
+> <b>There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart. There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart.</b>
+> <p><i>Kenzo Tange</i></p>
 
 <br>
