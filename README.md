@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest ability in business is to get along with others and to influence their actions.</b>
-> <p><i>John Hancock</i></p>
+> <b>There is nothing like being left alone again, to walk peacefully with oneself in the woods. To boil one's coffee and fill one's pipe, and to think idly and slowly as one does it.</b>
+> <p><i>Knut Hamsun</i></p>
 
 <br>
