@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How can anybody learn anything from an artwork when the piece of art only reflects the vanity of the artist and not reality?</b>
-> <p><i>Lou Reed</i></p>
+> <b>As an actor you have to wait for someone to cast you, so you're relying on the business.</b>
+> <p><i>Mia Wasikowska</i></p>
 
 <br>
