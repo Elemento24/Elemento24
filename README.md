@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now, personally, I like a car with some sort of character.</b>
-> <p><i>Richard Hammond</i></p>
+> <b>True life is lived when tiny changes occur.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
