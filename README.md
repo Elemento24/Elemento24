@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of the greatest actors have turned superheroes into a serious business: Michael Keaton and Jack Nicholson in 'Batman' Ian McKellen and Patrick Stewart, the first venerable knights of the X-Men, who have now passed the baton to Michael Fassbender and James McAvoy.</b>
-> <p><i>Tom Hiddleston</i></p>
+> <b>I finally faced the fact that it isn't a crime not having friends. Being alone means you have fewer problems.</b>
+> <p><i>Whitney Houston</i></p>
 
 <br>
