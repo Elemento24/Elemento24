@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Epic poetry exhibits life in some great symbolic attitude. It cannot strictly be said to symbolize life itself, but always some manner of life.</b>
-> <p><i>Lascelles Abercrombie</i></p>
+> <b>I've purged myself of bitterness and anger and remained open to love.</b>
+> <p><i>Tatum O'Neal</i></p>
 
 <br>
