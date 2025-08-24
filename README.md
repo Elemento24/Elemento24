@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my youth I stressed freedom, and in my old age I stress order. I have made the great discovery that liberty is a product of order.</b>
-> <p><i>Will Durant</i></p>
+> <b>Buddhism notes that it is always a mistake to think your soul can go it alone.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
