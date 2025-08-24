@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God employs several translators some pieces are translated by age, some by sickness, some by war, some by justice.</b>
-> <p><i>John Donne</i></p>
+> <b>Let the great world spin for ever down the ringing grooves of change.</b>
+> <p><i>Alfred Lord Tennyson</i></p>
 
 <br>
