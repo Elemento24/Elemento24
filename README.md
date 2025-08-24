@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On July 18, we will mark the 12th anniversary of the senseless loss of 85 lives in the bombing of the Jewish Cultural Center in Buenos Aires, Argentina.</b>
-> <p><i>Tom Lantos</i></p>
+> <b>Any architectural project we do takes at least four or five years, so increasingly there is a discrepancy between the acceleration of culture and the continuing slowness of architecture.</b>
+> <p><i>Rem Koolhaas</i></p>
 
 <br>
