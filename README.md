@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Going to a concert is so overwhelming and the energy is amazing.</b>
-> <p><i>Victoria Justice</i></p>
+> <b>God employs several translators some pieces are translated by age, some by sickness, some by war, some by justice.</b>
+> <p><i>John Donne</i></p>
 
 <br>
