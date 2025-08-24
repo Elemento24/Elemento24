@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I finally faced the fact that it isn't a crime not having friends. Being alone means you have fewer problems.</b>
-> <p><i>Whitney Houston</i></p>
+> <b>Epic poetry exhibits life in some great symbolic attitude. It cannot strictly be said to symbolize life itself, but always some manner of life.</b>
+> <p><i>Lascelles Abercrombie</i></p>
 
 <br>
