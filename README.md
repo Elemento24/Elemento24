@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We teach people that they upset themselves. We can't change the past, so we change how people are thinking, feeling and behaving today.</b>
-> <p><i>Albert Ellis</i></p>
+> <b>I just want to do what I do best, and that's fight. I love it.</b>
+> <p><i>Mike Tyson</i></p>
 
 <br>
