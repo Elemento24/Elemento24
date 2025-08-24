@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>True life is lived when tiny changes occur.</b>
-> <p><i>Leo Tolstoy</i></p>
+> <b>We teach people that they upset themselves. We can't change the past, so we change how people are thinking, feeling and behaving today.</b>
+> <p><i>Albert Ellis</i></p>
 
 <br>
