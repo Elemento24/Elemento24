@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are all hungry and thirsty for concrete images. Abstract art will have been good for one thing: to restore its exact virginity to figurative art.</b>
-> <p><i>Salvador Dali</i></p>
+> <b>A grave blockhead should always go about with a lively one - they show one another off to the best advantage.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
