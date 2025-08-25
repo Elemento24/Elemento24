@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I'm trying to do is get this message out about self-empowerment, entrepreneurial spirit and true Americanism - the way we were when we changed the world, when Edison was alone, failing his 2,000th time on the lightbulb.</b>
-> <p><i>Glenn Beck</i></p>
+> <b>When you are thwarted, it is your own attitude that is out of order.</b>
+> <p><i>Meister Eckhart</i></p>
 
 <br>
