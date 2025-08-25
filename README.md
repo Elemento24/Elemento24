@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is necessary to change a person is to change his awareness of himself.</b>
-> <p><i>Abraham Maslow</i></p>
+> <b>People always fear change. People feared electricity when it was invented, didn't they? People feared coal, they feared gas-powered engines... There will always be ignorance, and ignorance leads to fear. But with time, people will come to accept their silicon masters.</b>
+> <p><i>Bill Gates</i></p>
 
 <br>
