@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are thwarted, it is your own attitude that is out of order.</b>
-> <p><i>Meister Eckhart</i></p>
+> <b>Diligence is the mother of good fortune, and idleness, its opposite, never brought a man to the goal of any of his best wishes.</b>
+> <p><i>Miguel de Cervantes</i></p>
 
 <br>
