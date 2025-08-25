@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The will is never free - it is always attached to an object, a purpose. It is simply the engine in the car - it can't steer.</b>
-> <p><i>Joyce Cary</i></p>
+> <b>If I am a legend, then why am I so lonely?</b>
+> <p><i>Judy Garland</i></p>
 
 <br>
