@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Meditation is all about the pursuit of nothingness. It's like the ultimate rest. It's better than the best sleep you've ever had. It's a quieting of the mind. It sharpens everything, especially your appreciation of your surroundings. It keeps life fresh.</b>
-> <p><i>Hugh Jackman</i></p>
+> <b>The best way to convince a fool that he is wrong is to let him have his own way.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
