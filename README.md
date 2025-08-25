@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to convince a fool that he is wrong is to let him have his own way.</b>
-> <p><i>Josh Billings</i></p>
+> <b>Kids are a huge sacrifice they change everything - but I'm ready to work for things of greater importance than going out to meet someone for dinner at 10 o'clock at night.</b>
+> <p><i>Katherine Heigl</i></p>
 
 <br>
