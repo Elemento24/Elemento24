@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A grave blockhead should always go about with a lively one - they show one another off to the best advantage.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>Being a parent is amazing.</b>
+> <p><i>Angela Kinsey</i></p>
 
 <br>
