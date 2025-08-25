@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to keep one's word is not to give it.</b>
-> <p><i>Napoleon Bonaparte</i></p>
+> <b>Perfection is immutable. But for things imperfect, change is the way to perfect them.</b>
+> <p><i>Owen Feltham</i></p>
 
 <br>
