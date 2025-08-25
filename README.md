@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A singer for me is more like someone who is standing alone with a microphone like Scott Walker, rather than someone who is bashing a plank and is spitting all over a microphone.</b>
-> <p><i>Graham Coxon</i></p>
+> <b>We are all hungry and thirsty for concrete images. Abstract art will have been good for one thing: to restore its exact virginity to figurative art.</b>
+> <p><i>Salvador Dali</i></p>
 
 <br>
