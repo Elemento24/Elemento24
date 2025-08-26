@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today in America, we are trying to prepare students for a high tech world of constant change, but we are doing so by putting them through a school system designed in the early 20th Century that has not seen substantial change in 30 years.</b>
-> <p><i>Janet Napolitano</i></p>
+> <b>We have got to change our ethics and our financial system and our whole way of understanding the world. It has to be a world in which people live rather than die a sustainable world. It could be great.</b>
+> <p><i>Vivienne Westwood</i></p>
 
 <br>
