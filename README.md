@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best morale exist when you never hear the word mentioned. When you hear a lot of talk about it, it's usually lousy.</b>
-> <p><i>Dwight D. Eisenhower</i></p>
+> <b>In a decaying society, art, if it is truthful, must also reflect decay. And unless it wants to break faith with its social function, art must show the world as changeable. And help to change it.</b>
+> <p><i>Ernst Fischer</i></p>
 
 <br>
