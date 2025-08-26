@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps our own opposition to even the level of European integration we have now, let alone any more, is well known.</b>
-> <p><i>Nigel Farage</i></p>
+> <b>I love that for Barack, there is no such thing as 'us' and 'them' - he doesn't care whether you're a Democrat, a Republican, or none of the above... he knows that we all love our country... and he's always ready to listen to good ideas... he's always looking for the very best in everyone he meets.</b>
+> <p><i>Michelle Obama</i></p>
 
 <br>
