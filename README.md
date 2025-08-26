@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The job of buildings is to improve human relations: architecture must ease them, not make them worse.</b>
-> <p><i>Ralph Erskine</i></p>
+> <b>Perhaps our own opposition to even the level of European integration we have now, let alone any more, is well known.</b>
+> <p><i>Nigel Farage</i></p>
 
 <br>
