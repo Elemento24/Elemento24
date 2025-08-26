@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can feel the 60S looming. In my profession, I've just moved along with my age. By thinking in decades, rather than whether someone's 42 or 47, you can give yourself a whole 10 years to turn yourself around in.</b>
-> <p><i>Francesca Annis</i></p>
+> <b>I really feel like life will dictate itself. You should allow it to unfold as naturally as possible. Just go with the flow. When you're really desperate, you say a few prayers and hope for the best. That's the way I've always lived my life.</b>
+> <p><i>Shania Twain</i></p>
 
 <br>
