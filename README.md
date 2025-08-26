@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have got to change our ethics and our financial system and our whole way of understanding the world. It has to be a world in which people live rather than die a sustainable world. It could be great.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>Women would be disproportionately affected by the privatization of social security. It is one of the most important safety nets for American women in old age, or in times of disability, to insure financial income for their families.</b>
+> <p><i>Barbara Mikulski</i></p>
 
 <br>
