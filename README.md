@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really feel like life will dictate itself. You should allow it to unfold as naturally as possible. Just go with the flow. When you're really desperate, you say a few prayers and hope for the best. That's the way I've always lived my life.</b>
-> <p><i>Shania Twain</i></p>
+> <b>Oh! this opponent, this collaborator against your will, whose notion of beauty always differs from yours and whose means are often too limited for active assistance to your intentions!</b>
+> <p><i>Alexander Alekhine</i></p>
 
 <br>
