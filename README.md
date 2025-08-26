@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In general, the art of government consists of taking as much money as possible from one class of citizens to give to another.</b>
-> <p><i>Voltaire</i></p>
+> <b>I'm tired of all this nonsense about beauty being skin deep. That's deep enough. What do you want, an adorable pancreas?</b>
+> <p><i>Jean Kerr</i></p>
 
 <br>
