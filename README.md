@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh yeah, I mean every fighter has got be dedicated, learn how to sacrifice, know what the devotion is all about, make sure you're paying attention and studying your art.</b>
-> <p><i>Marvin Hagler</i></p>
+> <b>Modesty: the gentle art of enhancing your charm by pretending not to be aware of it.</b>
+> <p><i>Oliver Herford</i></p>
 
 <br>
