@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh! this opponent, this collaborator against your will, whose notion of beauty always differs from yours and whose means are often too limited for active assistance to your intentions!</b>
-> <p><i>Alexander Alekhine</i></p>
+> <b>Trifles make perfection, and perfection is no trifle.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
