@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I must try and break through the cliches about Latin America. Superpowers and other outsiders have fought over us for centuries in ways that have nothing to do with our problems. In reality we are all alone.</b>
-> <p><i>Gabriel Garcia Marquez</i></p>
+> <b>I can feel the 60S looming. In my profession, I've just moved along with my age. By thinking in decades, rather than whether someone's 42 or 47, you can give yourself a whole 10 years to turn yourself around in.</b>
+> <p><i>Francesca Annis</i></p>
 
 <br>
