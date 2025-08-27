@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We used to go to Studio 54 - an amazing place.</b>
-> <p><i>Jerry Hall</i></p>
+> <b>What's important is promising something to the people, not actually keeping those promises. The people have always lived on hope alone.</b>
+> <p><i>Hermann Broch</i></p>
 
 <br>
