@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is always and everywhere the secret confession, and at the same time the immortal movement of its time.</b>
-> <p><i>Karl Marx</i></p>
+> <b>The man who has done his best has done everything.</b>
+> <p><i>Charles M. Schwab</i></p>
 
 <br>
