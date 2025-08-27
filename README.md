@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not a treasure in the past or an importation from another land, but part of the present life of all living and creating peoples.</b>
-> <p><i>Franklin D. Roosevelt</i></p>
+> <b>No matter what age you are, or what your circumstances might be, you are special, and you still have something unique to offer. Your life, because of who you are, has meaning.</b>
+> <p><i>Barbara de Angelis</i></p>
 
 <br>
