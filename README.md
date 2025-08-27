@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In this age of media and Internet access, we are much more talkative than ever before.</b>
-> <p><i>David Duchovny</i></p>
+> <b>That there's no more important decision in life than who you marry.</b>
+> <p><i>Brad Paisley</i></p>
 
 <br>
