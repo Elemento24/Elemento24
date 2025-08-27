@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's important is promising something to the people, not actually keeping those promises. The people have always lived on hope alone.</b>
-> <p><i>Hermann Broch</i></p>
+> <b>In this age of media and Internet access, we are much more talkative than ever before.</b>
+> <p><i>David Duchovny</i></p>
 
 <br>
