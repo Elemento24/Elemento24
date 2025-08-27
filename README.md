@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You're safer in the race car than you are in cars going to and from the track.</b>
-> <p><i>Mario Andretti</i></p>
+> <b>A great revolution in just one single individual will help achieve a change in the destiny of a society and, further, will enable a change in the destiny of humankind.</b>
+> <p><i>Daisaku Ikeda</i></p>
 
 <br>
