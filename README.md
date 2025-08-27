@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter what age you are, or what your circumstances might be, you are special, and you still have something unique to offer. Your life, because of who you are, has meaning.</b>
-> <p><i>Barbara de Angelis</i></p>
+> <b>It's important for moms to have alone time. However, that's the first thing that goes on a busy day. Fortunately for me, because of my job, I have to find the time to do it. At least that's the way my mind sees it.</b>
+> <p><i>Cindy Crawford</i></p>
 
 <br>
