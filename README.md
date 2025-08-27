@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I do think that we approach music, in of itself, with a religious attitude.</b>
-> <p><i>Jon Fishman</i></p>
+> <b>I don't want to get into the 'who's a hostage-taker' discussion here, but what is the estate tax? It's a double tax on death. Economists will tell you that it's really not a tax that soaks the rich, but it's a tax on capital that deprives business investment and therefore job creation.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
