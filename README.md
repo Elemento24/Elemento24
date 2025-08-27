@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You and I and everybody in show business and the entertainment industry fly by the seat of our pants. We don't know quite what is going to happen.</b>
-> <p><i>William Shatner</i></p>
+> <b>But I do think that we approach music, in of itself, with a religious attitude.</b>
+> <p><i>Jon Fishman</i></p>
 
 <br>
