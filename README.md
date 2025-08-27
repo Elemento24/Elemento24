@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A great revolution in just one single individual will help achieve a change in the destiny of a society and, further, will enable a change in the destiny of humankind.</b>
-> <p><i>Daisaku Ikeda</i></p>
+> <b>The faults of a superior person are like the sun and moon. They have their faults, and everyone sees them they change and everyone looks up to them.</b>
+> <p><i>Confucius</i></p>
 
 <br>
