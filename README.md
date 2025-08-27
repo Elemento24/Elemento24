@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The nature of the global business environment guarantees that no matter how hard we work to create a stable and healthy organisation, our organisation will continue to experience dramatic changes far beyond our control.</b>
-> <p><i>Margaret J. Wheatley</i></p>
+> <b>You're safer in the race car than you are in cars going to and from the track.</b>
+> <p><i>Mario Andretti</i></p>
 
 <br>
