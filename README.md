@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The faults of a superior person are like the sun and moon. They have their faults, and everyone sees them they change and everyone looks up to them.</b>
-> <p><i>Confucius</i></p>
+> <b>You and I and everybody in show business and the entertainment industry fly by the seat of our pants. We don't know quite what is going to happen.</b>
+> <p><i>William Shatner</i></p>
 
 <br>
