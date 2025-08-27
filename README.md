@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Women would be disproportionately affected by the privatization of social security. It is one of the most important safety nets for American women in old age, or in times of disability, to insure financial income for their families.</b>
-> <p><i>Barbara Mikulski</i></p>
+> <b>We used to go to Studio 54 - an amazing place.</b>
+> <p><i>Jerry Hall</i></p>
 
 <br>
