@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've seen firsthand that being president doesn't change who you are. It reveals who you are.</b>
-> <p><i>Michelle Obama</i></p>
+> <b>I was fortunate to play for Pete Rose and have teammates like Ken Griffey Sr., Tony Perez and Dave Concepcion. I grew up in the game with a mature attitude. I've always known it was better to be seen and not heard.</b>
+> <p><i>Eric Davis</i></p>
 
 <br>
