@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For many my behavior has been a major disappointment, my behavior has caused considerable worry to my business partners, and everyone involved in my business, but most importantly to the young people we influence, I apologize.</b>
-> <p><i>Tiger Woods</i></p>
+> <b>The beauty comes with the balance. Everyone should find his own balance in his personal as well as his professional life. Once you do so, you will feel and look beautiful.</b>
+> <p><i>Karolina Kurkova</i></p>
 
 <br>
