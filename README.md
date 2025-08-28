@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a speaker, business leader or marketer of any type, the onus is now on each of us to become equally capable of communicating very personally with a seemingly endless number of people connected by social technologies.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>We should meet abuse by forbearance. Human nature is so constituted that if we take absolutely no notice of anger or abuse, the person indulging in it will soon weary of it and stop.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
