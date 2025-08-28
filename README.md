@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Drive-in banks were established so most of the cars today could see their real owners.</b>
-> <p><i>E. Joseph Cossman</i></p>
+> <b>As a speaker, business leader or marketer of any type, the onus is now on each of us to become equally capable of communicating very personally with a seemingly endless number of people connected by social technologies.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
