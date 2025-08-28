@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone has a different beauty and different qualities and I think that women need to learn to love their qualities and be comfortable in the fact that everyone is different.</b>
-> <p><i>Miranda Kerr</i></p>
+> <b>These women whose antics we smirk at good-naturedly in the pap-traps put themselves out there at least partly on their beauty they are in showbiz, and showing what they've got is part of their business as much as it is for male show-ponies from the Chippendales to George Clooney.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
