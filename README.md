@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty comes with the balance. Everyone should find his own balance in his personal as well as his professional life. Once you do so, you will feel and look beautiful.</b>
-> <p><i>Karolina Kurkova</i></p>
+> <b>In the social business marketplace, brands that hope to build loyal and growing communities do so most effectively when they demonstrate their core values and allow a community to build and engage around it.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
