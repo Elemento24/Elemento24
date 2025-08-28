@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our age knows nothing but reaction, and leaps from one extreme to another.</b>
-> <p><i>Reinhold Niebuhr</i></p>
+> <b>Everyone has a different beauty and different qualities and I think that women need to learn to love their qualities and be comfortable in the fact that everyone is different.</b>
+> <p><i>Miranda Kerr</i></p>
 
 <br>
