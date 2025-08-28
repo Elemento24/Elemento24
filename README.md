@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're all entitled to opinions about how art institutions should behave, and entitled to voicing those opinions through whatever means available to us. We're also allowed to change or modify our opinions.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>God will forgive me that's his business.</b>
+> <p><i>Heinrich Heine</i></p>
 
 <br>
