@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best evaluation I can make of a player is to look in his eyes and see how scared they are.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>Old age adds to the respect due to virtue, but it takes nothing from the contempt inspired by vice it whitens only the hair.</b>
+> <p><i>Ira Gershwin</i></p>
 
 <br>
