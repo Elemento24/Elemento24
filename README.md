@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the last 5 years, American employers have lost over $150 billion of productivity to depression alone. That is more than the GDP of 28 different States during the same period.</b>
-> <p><i>Patrick J. Kennedy</i></p>
+> <b>The best subjects are always people, who never fail to amaze me by their unpredictability.</b>
+> <p><i>Ronnie James Dio</i></p>
 
 <br>
