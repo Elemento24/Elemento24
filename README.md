@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age adds to the respect due to virtue, but it takes nothing from the contempt inspired by vice it whitens only the hair.</b>
-> <p><i>Ira Gershwin</i></p>
+> <b>It's my goal to make a building as immaterial as possible. Architecture is a very material thing. It takes a lot of resources, so why not eliminate what you don't need as long as you're able to achieve the same result?</b>
+> <p><i>Helmut Jahn</i></p>
 
 <br>
