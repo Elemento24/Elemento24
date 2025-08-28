@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the social business marketplace, brands that hope to build loyal and growing communities do so most effectively when they demonstrate their core values and allow a community to build and engage around it.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Well, I'm not a member of the permanent political establishment, and I've learned quickly these last few days that if you're not a member in good standing of the Washington elite, then some in the media consider a candidate unqualified for that reason alone.</b>
+> <p><i>Sarah Palin</i></p>
 
 <br>
