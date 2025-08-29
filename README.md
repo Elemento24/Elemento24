@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As man sows, so shall he reap. In works of fiction, such men are sometimes converted. More often, in real life, they do not change their natures until they are converted into dust.</b>
-> <p><i>Charles W. Chesnutt</i></p>
+> <b>Artists are notoriously snooty and suspicious of anything coming from the business community.</b>
+> <p><i>David Byrne</i></p>
 
 <br>
