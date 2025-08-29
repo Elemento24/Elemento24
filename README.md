@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grace is in garments, in movements, in manners beauty in the nude, and in forms. This is true of bodies but when we speak of feelings, beauty is in their spirituality, and grace in their moderation.</b>
-> <p><i>Joseph Joubert</i></p>
+> <b>My first car, I got it in an auction at my temple. It was an '86 Volvo that I got for 500 bucks, and then wound up throwing $10,000 into the stereo system and put TVs in the foot rests. It was the most ridiculous Volvo you'd ever seen, but I had never had money before and I was out of my mind.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
