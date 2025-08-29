@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have been in Formula One for 12 years, and out of that I had one year with the perfect car.</b>
-> <p><i>Michael Schumacher</i></p>
+> <b>It is amazing how nice people are to you when they know you're going away.</b>
+> <p><i>Michael Arlen</i></p>
 
 <br>
