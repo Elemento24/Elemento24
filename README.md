@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But to sustain a marriage for 50 years, you have to get real a little bit and find someone who is understanding and who you can grow with. My mom always says, 'Marry the man who loves you a millimeter more.'</b>
-> <p><i>Ali Larter</i></p>
+> <b>He is the best man who, when making his plans, fears and reflects on everything that can happen to him, but in the moment of action is bold.</b>
+> <p><i>Herodotus</i></p>
 
 <br>
