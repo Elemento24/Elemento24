@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To talk about a relationship trivializes something that's nobody's business.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>Architecture is a visual art, and the buildings speak for themselves.</b>
+> <p><i>Julia Morgan</i></p>
 
 <br>
