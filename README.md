@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Flowers... are a proud assertion that a ray of beauty outvalues all the utilities of the world.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>Have you heard about the Irishman who reversed into a car boot sale and sold the engine?</b>
+> <p><i>Frank Carson</i></p>
 
 <br>
