@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing about acting is that I get to lose myself in another character and actually get paid for it... It's a great outlet. I'm not really sure who I am - it seems I change every day.</b>
-> <p><i>Leonardo DiCaprio</i></p>
+> <b>But to sustain a marriage for 50 years, you have to get real a little bit and find someone who is understanding and who you can grow with. My mom always says, 'Marry the man who loves you a millimeter more.'</b>
+> <p><i>Ali Larter</i></p>
 
 <br>
