@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not at the point where I'd feel safe in a house alone. I would be really scared. I'm the kind of person that when I get up to go use the bathroom I have this big long hallway, and I just know someone's going to jump out and get me.</b>
-> <p><i>Britney Spears</i></p>
+> <b>The best thing about acting is that I get to lose myself in another character and actually get paid for it... It's a great outlet. I'm not really sure who I am - it seems I change every day.</b>
+> <p><i>Leonardo DiCaprio</i></p>
 
 <br>
