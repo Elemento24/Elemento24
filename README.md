@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To engage with art, we have to be willing to be wrong, venture outside our psychic comfort zones, suspend disbelief, and remember that art explores and alters consciousness simultaneously.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Poetry is the art of uniting pleasure with truth.</b>
+> <p><i>Samuel Johnson</i></p>
 
 <br>
