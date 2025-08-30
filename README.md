@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My best friend just had a baby, and she's my age. So I'm a godmom now, which is crazy.</b>
-> <p><i>Kristen Stewart</i></p>
+> <b>If philosophy is practice, a demand to know the manner in which its history is to be studied is entailed: a theoretical attitude toward it becomes real only in the living appropriation of its contents from the texts.</b>
+> <p><i>Karl Jaspers</i></p>
 
 <br>
