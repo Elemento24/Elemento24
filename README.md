@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm the one who gets called up about a problem. I'm the one who gets called up about the street lighting and the abandoned car. I'm the one who gets blamed if the police don't arrive. I'm the one they blame if a city truck is broken down.</b>
-> <p><i>Richard M. Daley</i></p>
+> <b>There is an element of anger among women who've been raped. There's certainly a major element of humiliation. But it really does seem like a medical condition of shock and horror.</b>
+> <p><i>Nicholas D. Kristof</i></p>
 
 <br>
