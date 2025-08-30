@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The superior man understands what is right the inferior man understands what will sell.</b>
-> <p><i>Confucius</i></p>
+> <b>Middle age: when you begin to exchange your emotions for symptoms.</b>
+> <p><i>Irvin S. Cobb</i></p>
 
 <br>
