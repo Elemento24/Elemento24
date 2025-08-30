@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The forgotten man... He works, he votes, generally he prays, but his chief business in life is to pay.</b>
-> <p><i>William Graham Sumner</i></p>
+> <b>It is the malady of our age that the young are so busy teaching us that they have no time left to learn.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
