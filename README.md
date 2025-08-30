@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are books of which the backs and covers are by far the best parts.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>My best friend just had a baby, and she's my age. So I'm a godmom now, which is crazy.</b>
+> <p><i>Kristen Stewart</i></p>
 
 <br>
