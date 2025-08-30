@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not have evil-doers for friends, do not have low people for friends: have virtuous people for friends, have for friends the best of men.</b>
-> <p><i>George Santayana</i></p>
+> <b>Compromise is the best and cheapest lawyer.</b>
+> <p><i>Robert Louis Stevenson</i></p>
 
 <br>
