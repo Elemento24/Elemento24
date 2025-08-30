@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I look at the majority of my own songs they really came from my own sense of personal confusion or need to express some pain or beauty - they were coming from a universal and personal place.</b>
-> <p><i>Annie Lennox</i></p>
+> <b>Everything will change. The only question is growing up or decaying.</b>
+> <p><i>Nikki Giovanni</i></p>
 
 <br>
