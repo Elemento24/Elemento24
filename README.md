@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you go off in the world and make your life, and you come back to your home town, and you find your old high-school friends driving in the same circles, doing the same things, that's what Hollywood's like. It's a little block, little town. It doesn't really grow or change.</b>
-> <p><i>Robert Rodriguez</i></p>
+> <b>Slump, and the world slumps with you. Push, and you push alone.</b>
+> <p><i>Laurence J. Peter</i></p>
 
 <br>
