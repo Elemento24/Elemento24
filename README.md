@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of us can remember a time when a birthday - especially if it was one's own - brightened the world as if a second sun has risen.</b>
-> <p><i>Robert Staughton Lynd</i></p>
+> <b>Racing a thoroughbred grand prix car in front of a home crowd will be a surreal and mighty experience.</b>
+> <p><i>Nigel Mansell</i></p>
 
 <br>
