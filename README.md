@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Racing a thoroughbred grand prix car in front of a home crowd will be a surreal and mighty experience.</b>
-> <p><i>Nigel Mansell</i></p>
+> <b>You can never get to a place of comfort in this business. As soon as you hit that little cushy spot, somebody's gonna kick you out. So I have a constant need to do it better.</b>
+> <p><i>Charlize Theron</i></p>
 
 <br>
