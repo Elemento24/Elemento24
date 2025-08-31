@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I traveled the state of Florida for two years campaigning. I have never met a job creator who told me that they were waiting for the next tax increase before they started growing their business. I've never met a single job creator who's ever said to me I can't wait until government raises taxes again so I can go out and create a job.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>I regard the theatre as the greatest of all art forms, the most immediate way in which a human being can share with another the sense of what it is to be a human being.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
