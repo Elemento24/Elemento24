@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, nothing in the art world is neutral. The idea of 'disinterest' strikes me as boring, dishonest, dubious, and uninteresting.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>The art of the parenthesis is one of the greatest secrets of eloquence in Society.</b>
+> <p><i>Nicolas Chamfort</i></p>
 
 <br>
