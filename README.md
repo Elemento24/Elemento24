@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can never get to a place of comfort in this business. As soon as you hit that little cushy spot, somebody's gonna kick you out. So I have a constant need to do it better.</b>
-> <p><i>Charlize Theron</i></p>
+> <b>I traveled the state of Florida for two years campaigning. I have never met a job creator who told me that they were waiting for the next tax increase before they started growing their business. I've never met a single job creator who's ever said to me I can't wait until government raises taxes again so I can go out and create a job.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
