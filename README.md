@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you love dance and you have the gift of teaching, teaching is super amazing and important because my teachers planted that seed in me. As a teacher you understand the difference or the definition of a Baryshnikov or a Gregory Hines, so teaching is really important and very necessary.</b>
-> <p><i>Laurieann Gibson</i></p>
+> <b>Compared to a lot of actresses my age, I'm actually overweight.</b>
+> <p><i>Lindsay Lohan</i></p>
 
 <br>
