@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every article on these islands has an almost personal character, which gives this simple life, where all art is unknown, something of the artistic beauty of medieval life.</b>
-> <p><i>John Millington Synge</i></p>
+> <b>Most of us can remember a time when a birthday - especially if it was one's own - brightened the world as if a second sun has risen.</b>
+> <p><i>Robert Staughton Lynd</i></p>
 
 <br>
