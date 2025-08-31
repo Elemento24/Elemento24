@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the most passionate orgy within man's grasp.</b>
-> <p><i>John Donne</i></p>
+> <b>You should always be well and bright, for so you do your best work and you have so much beautiful work to do. The world needs it, and you must give it!</b>
+> <p><i>Marie Corelli</i></p>
 
 <br>
