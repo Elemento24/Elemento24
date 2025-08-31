@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age: when you begin to exchange your emotions for symptoms.</b>
-> <p><i>Irvin S. Cobb</i></p>
+> <b>Every article on these islands has an almost personal character, which gives this simple life, where all art is unknown, something of the artistic beauty of medieval life.</b>
+> <p><i>John Millington Synge</i></p>
 
 <br>
