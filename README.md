@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man's work is nothing but this slow trek to rediscover, through the detours of art, those two or three great and simple images in whose presence his heart first opened.</b>
-> <p><i>Albert Camus</i></p>
+> <b>We are so bound together that no man can labor for himself alone. Each blow he strikes in his own behalf helps to mold the universe.</b>
+> <p><i>Jerome K. Jerome</i></p>
 
 <br>
