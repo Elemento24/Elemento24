@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I regard the theatre as the greatest of all art forms, the most immediate way in which a human being can share with another the sense of what it is to be a human being.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>We should learn to accept that change is truly the only thing that's going on always, and learn to ride with it and enjoy it.</b>
+> <p><i>Alice Walker</i></p>
 
 <br>
