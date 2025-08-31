@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You should always be well and bright, for so you do your best work and you have so much beautiful work to do. The world needs it, and you must give it!</b>
-> <p><i>Marie Corelli</i></p>
+> <b>I take sounds and change them into words.</b>
+> <p><i>Brian Eno</i></p>
 
 <br>
