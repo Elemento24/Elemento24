@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Slump, and the world slumps with you. Push, and you push alone.</b>
-> <p><i>Laurence J. Peter</i></p>
+> <b>To me, nothing in the art world is neutral. The idea of 'disinterest' strikes me as boring, dishonest, dubious, and uninteresting.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
