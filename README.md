@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If there's specific resistance to women making movies, I just choose to ignore that as an obstacle for two reasons: I can't change my gender, and I refuse to stop making movies.</b>
-> <p><i>Kathryn Bigelow</i></p>
+> <b>I hope everyone that is reading this is having a really good day. And if you are not, just know that in every new minute that passes you have an opportunity to change that.</b>
+> <p><i>Gillian Anderson</i></p>
 
 <br>
