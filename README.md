@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Giving someone a one-time stimulus check, or a one-time tax cut that expires doesn't allow the predictability that business needs.</b>
-> <p><i>Rand Paul</i></p>
+> <b>Besides the noble art of getting things done, there is the noble art of leaving things undone. The wisdom of life consists in the elimination of non-essentials.</b>
+> <p><i>Lin Yutang</i></p>
 
 <br>
