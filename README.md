@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I take sounds and change them into words.</b>
-> <p><i>Brian Eno</i></p>
+> <b>I am of a healthy long lived race, and our minds improve with age.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
