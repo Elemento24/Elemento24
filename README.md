@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>From an early age I didn't buy into the value systems of working hard in a nine-to-five job. I thought creativity, friendship and loyalty and pushing the boundaries of what was acceptable was much more interesting.</b>
-> <p><i>Adam Clayton</i></p>
+> <b>Every man over forty is a scoundrel.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
