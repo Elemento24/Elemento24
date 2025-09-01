@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The human body is the best picture of the human soul.</b>
-> <p><i>Ludwig Wittgenstein</i></p>
+> <b>Patience is the most necessary quality for business, many a man would rather you heard his story than grant his request.</b>
+> <p><i>Lord Chesterfield</i></p>
 
 <br>
