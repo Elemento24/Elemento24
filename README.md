@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every man over forty is a scoundrel.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>I'm in a business where no one cares about anything except how well your last collection sold.</b>
+> <p><i>Calvin Klein</i></p>
 
 <br>
