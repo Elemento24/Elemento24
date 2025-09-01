@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm in a business where no one cares about anything except how well your last collection sold.</b>
-> <p><i>Calvin Klein</i></p>
+> <b>I think art education, especially in this country, which government pretty much ignores, is so important for young people.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
