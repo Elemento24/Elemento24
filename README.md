@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is better to be alone than in bad company.</b>
-> <p><i>George Washington</i></p>
+> <b>The function of prayer is not to influence God, but rather to change the nature of the one who prays.</b>
+> <p><i>Soren Kierkegaard</i></p>
 
 <br>
