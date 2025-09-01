@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to combine the dramatic emotional warmth of strings with the grooves and body business of drums and bass.</b>
-> <p><i>David Byrne</i></p>
+> <b>It's a libel to say that I use my newspapers to support my other business interests. The fact is, I haven't got any other business interests.</b>
+> <p><i>Rupert Murdoch</i></p>
 
 <br>
