@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was raised not to be rude, but I also try to get the best work out of people.</b>
-> <p><i>Dick Wolf</i></p>
+> <b>Giving someone a one-time stimulus check, or a one-time tax cut that expires doesn't allow the predictability that business needs.</b>
+> <p><i>Rand Paul</i></p>
 
 <br>
