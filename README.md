@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you walk down the street and smile at someone, that will get passed on to the next person. That has the power to change someone's day.</b>
-> <p><i>Julianna Margulies</i></p>
+> <b>I believe very strongly, and have fought since many years ago - at least over 30 years ago - to get architecture not just within schools, but architecture talked about under history, geography, science, technology, art.</b>
+> <p><i>Richard Rogers</i></p>
 
 <br>
