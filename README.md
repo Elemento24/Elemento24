@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is a sobering thought that when Mozart was my age, he had been dead for two years.</b>
-> <p><i>Tom Lehrer</i></p>
+> <b>The ancient Romans built their greatest masterpieces of architecture, their amphitheaters, for wild beasts to fight in.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
