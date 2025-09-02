@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can take no credit for beauty at sixteen. But if you are beautiful at sixty, it will be your soul's own doing.</b>
-> <p><i>Marie Stopes</i></p>
+> <b>It is a sobering thought that when Mozart was my age, he had been dead for two years.</b>
+> <p><i>Tom Lehrer</i></p>
 
 <br>
