@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.</b>
-> <p><i>Walter Benjamin</i></p>
+> <b>That's why I do this music business thing, it's communication with people without having the extreme inconvenience of actually phoning anybody up.</b>
+> <p><i>Steven Morrissey</i></p>
 
 <br>
