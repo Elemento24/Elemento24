@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Originality is the art of concealing your source.</b>
-> <p><i>Franklin P. Jones</i></p>
+> <b>The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.</b>
+> <p><i>Walter Benjamin</i></p>
 
 <br>
