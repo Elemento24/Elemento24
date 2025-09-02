@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The momentous thing in human life is the art of winning the soul to good or evil.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>You can take no credit for beauty at sixteen. But if you are beautiful at sixty, it will be your soul's own doing.</b>
+> <p><i>Marie Stopes</i></p>
 
 <br>
