@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not sufficient to see and to know the beauty of a work. We must feel and be affected by it.</b>
-> <p><i>Voltaire</i></p>
+> <b>I am just absolutely convinced that the best formula for giving us peace and preserving the American way of life is freedom, limited government, and minding our own business overseas.</b>
+> <p><i>Ron Paul</i></p>
 
 <br>
