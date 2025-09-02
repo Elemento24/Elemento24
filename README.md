@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am incredibly thankful for the strong support I have from my peers in the industry and of course my amazing fans.</b>
-> <p><i>Miranda Lambert</i></p>
+> <b>I kind of resent this attitude of men that we somehow must always look good.</b>
+> <p><i>Sharon Gless</i></p>
 
 <br>
