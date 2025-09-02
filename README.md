@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to have a massage therapist come to my house, get a massage, take a bath, go to bed. That's a perfect night alone for me.</b>
-> <p><i>Stacy Keibler</i></p>
+> <b>Originality is the art of concealing your source.</b>
+> <p><i>Franklin P. Jones</i></p>
 
 <br>
