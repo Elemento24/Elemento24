@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art at its most significant is a Distant Early Warning System that can always be relied on to tell the old culture what is beginning to happen to it.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>I've got two old Volvos, two old Subarus, and an old Ford Ranger. If you've got an old car, you've gotta have at least several old cars, 'cause one's always gonna be in the garage.</b>
+> <p><i>Rip Torn</i></p>
 
 <br>
