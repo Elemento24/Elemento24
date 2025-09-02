@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best medicine I know for rheumatism is to thank the Lord that it ain't gout.</b>
-> <p><i>Josh Billings</i></p>
+> <b>The reality of split government puts a premium on creativity within the administration. President Obama needs to put the right people in charge of the agencies and then have them push the bounds of administrative power to change policy through those agencies. President Obama has a pretty good track record of this.</b>
+> <p><i>Eliot Spitzer</i></p>
 
 <br>
