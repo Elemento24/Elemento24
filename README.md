@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ancient Romans built their greatest masterpieces of architecture, their amphitheaters, for wild beasts to fight in.</b>
-> <p><i>Voltaire</i></p>
+> <b>Art at its most significant is a Distant Early Warning System that can always be relied on to tell the old culture what is beginning to happen to it.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
