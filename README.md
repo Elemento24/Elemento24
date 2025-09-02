@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Internet creates as well as destroys. Social networks, search advertising, and cloud computing are multibillion dollar industries that didn't exist 10 years ago. They are products of the same force that has rendered the Postal Service's core business obsolete.</b>
-> <p><i>John Sununu</i></p>
+> <b>People tend not to use this word beauty because it's not intellectual - but there has to be an overlap between beauty and intellect.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
