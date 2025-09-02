@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am just absolutely convinced that the best formula for giving us peace and preserving the American way of life is freedom, limited government, and minding our own business overseas.</b>
-> <p><i>Ron Paul</i></p>
+> <b>If you asked an 18-year-old what they want to do with their life, and the options are 'Transformers' or Lars von Trier, he's probably shipping out for 'Transformers.' If you ask a 26-year-old what he wants to do, 'Transformers' or Lars von Trier, he'd probably pick Lars von Trier. So, my sensibilities are changing as I change.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
