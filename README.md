@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I kind of resent this attitude of men that we somehow must always look good.</b>
-> <p><i>Sharon Gless</i></p>
+> <b>I have a fantastic wife, and not only in terms of external beauty. Her priority and mine is our children. That is our choice.</b>
+> <p><i>Luis Figo</i></p>
 
 <br>
