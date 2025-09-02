@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a fantastic wife, and not only in terms of external beauty. Her priority and mine is our children. That is our choice.</b>
-> <p><i>Luis Figo</i></p>
+> <b>The momentous thing in human life is the art of winning the soul to good or evil.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
