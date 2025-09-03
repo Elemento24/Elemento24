@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never tell a secret to a bride or a groom wait until they have been married longer.</b>
-> <p><i>E. W. Howe</i></p>
+> <b>You may keep your beauty and your health, unless you destroy them yourself, or discourage them to stay with you, by using them ill.</b>
+> <p><i>William Temple</i></p>
 
 <br>
