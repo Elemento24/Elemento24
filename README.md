@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Stay humble. Always answer your phone - no matter who else is in the car.</b>
-> <p><i>Jack Lemmon</i></p>
+> <b>We tried not to age, but time had its rage.</b>
+> <p><i>Patti Smith</i></p>
 
 <br>
