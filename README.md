@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To separate children from others of similar age and qualifications solely because of their race generates a feeling of inferiority as to their status in the community that may affect their hearts and minds in a way unlikely ever to be undone.</b>
-> <p><i>Earl Warren</i></p>
+> <b>I don't care whether you're driving a hybrid or an SUV. If you're headed for a cliff, you have to change direction. That's what the American people called for in November, and that's what we intend to deliver.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
