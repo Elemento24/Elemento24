@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No one's going to be able to operate without a grounding in the basic sciences. Language would be helpful, although English is becoming increasingly international. And travel. You have to have a global attitude.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>Not to be born is, past all prizing, best.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
