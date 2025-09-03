@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are three hundred and sixty-four days when you might get un-birthday presents, and only one for birthday presents, you know.</b>
-> <p><i>Lewis Carroll</i></p>
+> <b>Mainly what I learned from Buddy... was an attitude. He loved music, and he taught me that it shouldn't have any barriers to it.</b>
+> <p><i>Waylon Jennings</i></p>
 
 <br>
