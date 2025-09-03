@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of a woman is not in the clothes she wears, the figure that she carries or the way she combs her hair.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>Cigarettes and coffee: an alcoholic's best friend!</b>
+> <p><i>Gerard Way</i></p>
 
 <br>
