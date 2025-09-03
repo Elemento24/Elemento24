@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mainly what I learned from Buddy... was an attitude. He loved music, and he taught me that it shouldn't have any barriers to it.</b>
-> <p><i>Waylon Jennings</i></p>
+> <b>I realize that the majority of people in the entertainment business happen to be Democrats. I have no problem with that. And they should have no problem with the fact that I'm a Republican.</b>
+> <p><i>Shannen Doherty</i></p>
 
 <br>
