@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I realize that the majority of people in the entertainment business happen to be Democrats. I have no problem with that. And they should have no problem with the fact that I'm a Republican.</b>
-> <p><i>Shannen Doherty</i></p>
+> <b>I hope everyone that is reading this is having a really good day. And if you are not, just know that in every new minute that passes you have an opportunity to change that.</b>
+> <p><i>Gillian Anderson</i></p>
 
 <br>
