@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cigarettes and coffee: an alcoholic's best friend!</b>
-> <p><i>Gerard Way</i></p>
+> <b>Stay humble. Always answer your phone - no matter who else is in the car.</b>
+> <p><i>Jack Lemmon</i></p>
 
 <br>
