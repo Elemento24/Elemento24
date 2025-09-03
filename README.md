@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up in a very large family in a very small house. I never slept alone until after I was married.</b>
-> <p><i>Lewis Grizzard</i></p>
+> <b>Fame is the echo of actions, resounding them to the world, save that the echo repeats only the last art, but fame relates all, and often more than all.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
