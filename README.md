@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't care whether you're driving a hybrid or an SUV. If you're headed for a cliff, you have to change direction. That's what the American people called for in November, and that's what we intend to deliver.</b>
-> <p><i>Barack Obama</i></p>
+> <b>Evil is done without effort, naturally, it is the working of fate good is always the product of an art.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
