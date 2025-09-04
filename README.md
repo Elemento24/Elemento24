@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After a few months in my parents' basement, I took an apartment near the state university, where I discovered both crystal methamphetamine and conceptual art. Either one of these things are dangerous, but in combination they have the potential to destroy entire civilizations.</b>
-> <p><i>David Sedaris</i></p>
+> <b>Just as your car runs more smoothly and requires less energy to go faster and farther when the wheels are in perfect alignment, you perform better when your thoughts, feelings, emotions, goals, and values are in balance.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
