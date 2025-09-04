@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What other people think about me is not my business.</b>
-> <p><i>Michael J. Fox</i></p>
+> <b>A majority is always better than the best repartee.</b>
+> <p><i>Benjamin Disraeli</i></p>
 
 <br>
