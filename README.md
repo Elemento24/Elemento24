@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps nature is our best assurance of immortality.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>What other people think about me is not my business.</b>
+> <p><i>Michael J. Fox</i></p>
 
 <br>
