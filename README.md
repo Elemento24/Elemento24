@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man arrives as a novice at each age of his life.</b>
-> <p><i>Nicolas Chamfort</i></p>
+> <b>I just had that conversation this morning with my doctor. I just got back from the hospital a half-hour ago, and nothing will make me happier than to replicate the DNA of my amazing husband. I'm optimistic.</b>
+> <p><i>Karen Duffy</i></p>
 
 <br>
