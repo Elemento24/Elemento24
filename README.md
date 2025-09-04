@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fashion often starts off beautiful and becomes ugly, whereas art starts off ugly sometimes and becomes beautiful.</b>
-> <p><i>David Bailey</i></p>
+> <b>I'm a grown woman and sometimes, I might be a little fat, you know? Am I alone there? Not really.</b>
+> <p><i>Leighton Meester</i></p>
 
 <br>
