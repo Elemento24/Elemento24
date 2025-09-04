@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is well for the world that in most of us, by the age of thirty, the character has set like plaster, and will never soften again.</b>
-> <p><i>William James</i></p>
+> <b>Success has a simple formula: do your best, and people may like it.</b>
+> <p><i>Sam Ewing</i></p>
 
 <br>
