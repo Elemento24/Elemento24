@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success has a simple formula: do your best, and people may like it.</b>
-> <p><i>Sam Ewing</i></p>
+> <b>Develop an attitude of gratitude, and give thanks for everything that happens to you, knowing that every step forward is a step toward achieving something bigger and better than your current situation.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
