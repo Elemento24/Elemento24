@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mom, the fabulous Bertie Kinsey, is an amazing seamstress. She quilts and sews and is so crafty. We call her the Southern Martha Stewart!</b>
-> <p><i>Angela Kinsey</i></p>
+> <b>After a few months in my parents' basement, I took an apartment near the state university, where I discovered both crystal methamphetamine and conceptual art. Either one of these things are dangerous, but in combination they have the potential to destroy entire civilizations.</b>
+> <p><i>David Sedaris</i></p>
 
 <br>
