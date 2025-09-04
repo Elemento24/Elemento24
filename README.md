@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will never have a drink and get behind the wheel of a car. It's not illegal to drink and drive, but there becomes a certain point where it does become a crime.</b>
-> <p><i>Tracey Gold</i></p>
+> <b>My mom, the fabulous Bertie Kinsey, is an amazing seamstress. She quilts and sews and is so crafty. We call her the Southern Martha Stewart!</b>
+> <p><i>Angela Kinsey</i></p>
 
 <br>
