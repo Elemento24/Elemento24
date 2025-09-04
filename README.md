@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just had that conversation this morning with my doctor. I just got back from the hospital a half-hour ago, and nothing will make me happier than to replicate the DNA of my amazing husband. I'm optimistic.</b>
-> <p><i>Karen Duffy</i></p>
+> <b>We live in a wonderful world that is full of beauty, charm and adventure. There is no end to the adventures that we can have if only we seek them with our eyes open.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
