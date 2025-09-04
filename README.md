@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do believe sadly it's going to take some diseases coming back to realize that we need to change and develop vaccines that are safe.</b>
-> <p><i>Jenny McCarthy</i></p>
+> <b>Man arrives as a novice at each age of his life.</b>
+> <p><i>Nicolas Chamfort</i></p>
 
 <br>
