@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a sadness to the human condition that I think music is good for. It gives a counterpoint to the visual beauty, and adds depth to pictures that they wouldn't have if the music wasn't there.</b>
-> <p><i>Mike Figgis</i></p>
+> <b>Raising a small child as a woman while travelling 10 months out of the year would, I believe, be something I would not be able or even want to do, although with the amazing example of Leila, I am no longer so sure.</b>
+> <p><i>Lara St. John</i></p>
 
 <br>
