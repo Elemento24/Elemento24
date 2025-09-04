@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tend to foster drama via bleakness. If I want the reader to feel sympathy for a character, I cleave the character in half, on his birthday. And then it starts raining. And he's made of sugar.</b>
-> <p><i>George Saunders</i></p>
+> <b>I rememeber one time we were getting ready to go to South America and everything was packed up and in the car ready to go and I hid and I was crying because I really did not want to go, I wanted to play. I did not want to go.</b>
+> <p><i>Michael Jackson</i></p>
 
 <br>
