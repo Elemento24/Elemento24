@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a grown woman and sometimes, I might be a little fat, you know? Am I alone there? Not really.</b>
-> <p><i>Leighton Meester</i></p>
+> <b>Architecture is the art of how to waste space.</b>
+> <p><i>Philip Johnson</i></p>
 
 <br>
