@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Develop an attitude of gratitude, and give thanks for everything that happens to you, knowing that every step forward is a step toward achieving something bigger and better than your current situation.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>I will never have a drink and get behind the wheel of a car. It's not illegal to drink and drive, but there becomes a certain point where it does become a crime.</b>
+> <p><i>Tracey Gold</i></p>
 
 <br>
