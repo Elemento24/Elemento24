@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just as your car runs more smoothly and requires less energy to go faster and farther when the wheels are in perfect alignment, you perform better when your thoughts, feelings, emotions, goals, and values are in balance.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>Fashion often starts off beautiful and becomes ugly, whereas art starts off ugly sometimes and becomes beautiful.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
