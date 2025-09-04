@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is the art of how to waste space.</b>
-> <p><i>Philip Johnson</i></p>
+> <b>There's a sadness to the human condition that I think music is good for. It gives a counterpoint to the visual beauty, and adds depth to pictures that they wouldn't have if the music wasn't there.</b>
+> <p><i>Mike Figgis</i></p>
 
 <br>
