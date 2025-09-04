@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, I always say white is not a colour, white is an attitude, and if you haven't got trillions of dollars in the bank that you don't need, you can't be white.</b>
-> <p><i>Dick Gregory</i></p>
+> <b>I tend to foster drama via bleakness. If I want the reader to feel sympathy for a character, I cleave the character in half, on his birthday. And then it starts raining. And he's made of sugar.</b>
+> <p><i>George Saunders</i></p>
 
 <br>
