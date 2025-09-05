@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is good, bad, boring, ugly, useful to us or not.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Music is spiritual. The music business is not.</b>
+> <p><i>Van Morrison</i></p>
 
 <br>
