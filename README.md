@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage is the most natural state of man, and... the state in which you will find solid happiness.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>Know then this truth, enough for man to know virtue alone is happiness below.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
