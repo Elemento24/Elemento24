@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It will always be a battle a day between those who want maximum change and those who want to maintain the status quo.</b>
-> <p><i>Gerry Adams</i></p>
+> <b>He has only half learned the art of reading who has not added to it the more refined art of skipping and skimming.</b>
+> <p><i>Arthur Balfour</i></p>
 
 <br>
