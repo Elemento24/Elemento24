@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You cannot change your destination overnight, but you can change your direction overnight.</b>
-> <p><i>Jim Rohn</i></p>
+> <b>I've always had an inquisitive mind about everything from flowers to television sets to motor cars. Always pulled them apart - couldn't put 'em back, but always extremely interested in how things work.</b>
+> <p><i>Craig Johnston</i></p>
 
 <br>
