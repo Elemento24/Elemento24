@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is spiritual. The music business is not.</b>
-> <p><i>Van Morrison</i></p>
+> <b>Change yourself and your work will seem different.</b>
+> <p><i>Norman Vincent Peale</i></p>
 
 <br>
