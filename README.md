@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I feel like I'm not only the engine but the caboose. I have to be in the front car and pull forward, and at the same time run around behind and push everybody along with me.</b>
-> <p><i>Sandra Lee</i></p>
+> <b>I drank a lot when I was a teenager and I don't drink any more, because that's when I thought, you know, I'm gonna end up a car wreck.</b>
+> <p><i>Kristin Davis</i></p>
 
 <br>
