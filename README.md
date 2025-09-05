@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is danger that we lose sight of what our friend is absolutely, while considering what she is to us alone.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Anger is an expensive luxury in which only men of certain income can indulge.</b>
+> <p><i>George William Curtis</i></p>
 
 <br>
