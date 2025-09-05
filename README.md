@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was going to be an architect. I graduated with a degree in architecture and I had a scholarship to go back to Princeton and get my Masters in architecture. I'd done theatricals in college, but I'd done them because it was fun.</b>
-> <p><i>James Stewart</i></p>
+> <b>You cannot change your destination overnight, but you can change your direction overnight.</b>
+> <p><i>Jim Rohn</i></p>
 
 <br>
