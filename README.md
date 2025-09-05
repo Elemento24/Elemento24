@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always had an inquisitive mind about everything from flowers to television sets to motor cars. Always pulled them apart - couldn't put 'em back, but always extremely interested in how things work.</b>
-> <p><i>Craig Johnston</i></p>
+> <b>I'm so excited for my first fragrance! I chose to partner with Dots because I love what they do for their customers, bringing them the hottest trends in fashion, accessories and fragrance at unbelievably low prices. It's amazing!</b>
+> <p><i>Jordin Sparks</i></p>
 
 <br>
