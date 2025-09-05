@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My house is my refuge, an emotional piece of architecture, not a cold piece of convenience.</b>
-> <p><i>Luis Barragan</i></p>
+> <b>Anger may repast with thee for an hour, but not repose for a night the continuance of anger is hatred, the continuance of hatred turns malice.</b>
+> <p><i>Francis Quarles</i></p>
 
 <br>
