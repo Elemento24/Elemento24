@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world is changing very fast. Big will not beat small anymore. It will be the fast beating the slow.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>I was going to be an architect. I graduated with a degree in architecture and I had a scholarship to go back to Princeton and get my Masters in architecture. I'd done theatricals in college, but I'd done them because it was fun.</b>
+> <p><i>James Stewart</i></p>
 
 <br>
