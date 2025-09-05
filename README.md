@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be age appropriate. I don't want to be that girl you see walking away and she looks 25 and then she turns around and she looks 90.</b>
-> <p><i>Stevie Nicks</i></p>
+> <b>I'm a grown woman and sometimes, I might be a little fat, you know? Am I alone there? Not really.</b>
+> <p><i>Leighton Meester</i></p>
 
 <br>
