@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a grown woman and sometimes, I might be a little fat, you know? Am I alone there? Not really.</b>
-> <p><i>Leighton Meester</i></p>
+> <b>The world is changing very fast. Big will not beat small anymore. It will be the fast beating the slow.</b>
+> <p><i>Rupert Murdoch</i></p>
 
 <br>
