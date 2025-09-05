@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Raising a small child as a woman while travelling 10 months out of the year would, I believe, be something I would not be able or even want to do, although with the amazing example of Leila, I am no longer so sure.</b>
-> <p><i>Lara St. John</i></p>
+> <b>It will always be a battle a day between those who want maximum change and those who want to maintain the status quo.</b>
+> <p><i>Gerry Adams</i></p>
 
 <br>
