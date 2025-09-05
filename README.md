@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Know then this truth, enough for man to know virtue alone is happiness below.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>I want to be age appropriate. I don't want to be that girl you see walking away and she looks 25 and then she turns around and she looks 90.</b>
+> <p><i>Stevie Nicks</i></p>
 
 <br>
