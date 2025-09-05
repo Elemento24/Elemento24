@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've learned that life is very tricky business: Each person needs to find what they want to do in life and not be dissuaded when people question them.</b>
-> <p><i>Eli Wallach</i></p>
+> <b>Losses have propelled me to even bigger places, so I understand the importance of losing. You can never get complacent because a loss is always around the corner. It's in any game that you're in - a business game or whatever - you can't get complacent.</b>
+> <p><i>Venus Williams</i></p>
 
 <br>
