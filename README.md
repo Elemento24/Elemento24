@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The trend in some of the contemporary movements in art, but by no means all, seems to deny this ideal and to me appears to lead to a purely decorative conception of painting.</b>
-> <p><i>Edward Hopper</i></p>
+> <b>Now having said that, I realize that releasing a film in the real world is like trying to get General Motors to release a handmade car.</b>
+> <p><i>Godfrey Reggio</i></p>
 
 <br>
