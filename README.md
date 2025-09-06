@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had a birthday one night on a farm we were shooting on. I walked into the tent, and there were 150 people waiting for me, all wearing masks of my face.</b>
-> <p><i>Stephen Hopkins</i></p>
+> <b>Discount air fares, a car in every parking space and the interstate highway system have made every place accessible - and every place alike.</b>
+> <p><i>Ronald Steel</i></p>
 
 <br>
