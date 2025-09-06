@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How can anybody learn anything from an artwork when the piece of art only reflects the vanity of the artist and not reality?</b>
-> <p><i>Lou Reed</i></p>
+> <b>The man who has done his level best... is a success, even though the world may write him down a failure.</b>
+> <p><i>B. C. Forbes</i></p>
 
 <br>
