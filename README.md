@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shock, confusion, fear, anger, grief, and defiance. On Sept. 11, 2001, and for the three days following the worst terrorist attack on U.S. soil, President George W. Bush led with raw emotion that reflected the public's whipsawing stages of acceptance.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>How can anybody learn anything from an artwork when the piece of art only reflects the vanity of the artist and not reality?</b>
+> <p><i>Lou Reed</i></p>
 
 <br>
