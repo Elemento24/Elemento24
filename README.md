@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I owe much to mother. She had an expert's understanding, but also approached art emotionally.</b>
-> <p><i>David Rockefeller</i></p>
+> <b>I worked hard in gymnastics since the time I was six years old until I retired at 23 years of age.</b>
+> <p><i>Nadia Comaneci</i></p>
 
 <br>
