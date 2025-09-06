@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of a main title is that you establish your main theme and maybe a bit of your secondary theme. You plant the seed that you're going to go water later in the score. And so, having that removed just made it so much more difficult.</b>
-> <p><i>Danny Elfman</i></p>
+> <b>The ideal and the beautiful are identical the ideal corresponds to the idea, and beauty to form hence idea and substance are cognate.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
