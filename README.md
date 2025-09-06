@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was so happy that it filmed in New York not only because it's an amazing city, but also because a lot of people across the world somehow started to think about New York as a dangerous place to be and envisioned it as some war zone after that happened.</b>
-> <p><i>Alicia Witt</i></p>
+> <b>Shock, confusion, fear, anger, grief, and defiance. On Sept. 11, 2001, and for the three days following the worst terrorist attack on U.S. soil, President George W. Bush led with raw emotion that reflected the public's whipsawing stages of acceptance.</b>
+> <p><i>Ron Fournier</i></p>
 
 <br>
