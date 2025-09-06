@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ideal and the beautiful are identical the ideal corresponds to the idea, and beauty to form hence idea and substance are cognate.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>You put high heels on and you change.</b>
+> <p><i>Manolo Blahnik</i></p>
 
 <br>
