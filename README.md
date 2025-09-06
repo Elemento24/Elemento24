@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be with those who know secret things or else alone.</b>
-> <p><i>Rainer Maria Rilke</i></p>
+> <b>When you have a tough loss, go through it and agonize. I had one loss that I still want to change, but at the same time I realize it is an important part of who I am.</b>
+> <p><i>Andrew Shue</i></p>
 
 <br>
