@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any architectural project we do takes at least four or five years, so increasingly there is a discrepancy between the acceleration of culture and the continuing slowness of architecture.</b>
-> <p><i>Rem Koolhaas</i></p>
+> <b>I'm a role model now. I didn't know I was gonna have 13-year-old fans, so I've tried to change a few things here and there. But I also know that the girls don't want me to be Miley Cyrus, either.</b>
+> <p><i>Nicki Minaj</i></p>
 
 <br>
