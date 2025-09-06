@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my fifty years of experience and memory, I have seen the most amazing increase in the standard of living of a people ever achieved anywhere in the world. This is why I am so sure that our system of free competition and industrial development is sound and must be preserved.</b>
-> <p><i>Charles E. Wilson</i></p>
+> <b>Ask five economists and you'll get five different answers - six if one went to Harvard.</b>
+> <p><i>Edgar R. Fiedler</i></p>
 
 <br>
