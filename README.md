@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't really count myself as a very sophisticated businessperson. I'm a creative artist. All I know from business I've picked up along the way.</b>
-> <p><i>Mick Jagger</i></p>
+> <b>Planning cities is a necessary but risky business.</b>
+> <p><i>Cate Blanchett</i></p>
 
 <br>
