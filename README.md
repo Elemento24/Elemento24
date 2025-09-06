@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now having said that, I realize that releasing a film in the real world is like trying to get General Motors to release a handmade car.</b>
-> <p><i>Godfrey Reggio</i></p>
+> <b>Any architectural project we do takes at least four or five years, so increasingly there is a discrepancy between the acceleration of culture and the continuing slowness of architecture.</b>
+> <p><i>Rem Koolhaas</i></p>
 
 <br>
