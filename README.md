@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't change the course of history by turning the faces of portraits to the wall.</b>
-> <p><i>Jawaharlal Nehru</i></p>
+> <b>In the heat of the Russian summer a sleeping car is the most horrible instrument of martyrdom imaginable.</b>
+> <p><i>Manfred von Richthofen</i></p>
 
 <br>
