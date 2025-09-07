@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is inevitable. Change is constant.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>I was very fortunate to play sports. All the anger in me went out. I had to do what I had to do. If you stay angry all the time, then you really don't have a good life.</b>
+> <p><i>Willie Mays</i></p>
 
 <br>
