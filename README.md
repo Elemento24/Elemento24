@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the objectification of feeling.</b>
-> <p><i>Herman Melville</i></p>
+> <b>If we do not permit the earth to produce beauty and joy, it will in the end not produce food, either.</b>
+> <p><i>Joseph Wood Krutch</i></p>
 
 <br>
