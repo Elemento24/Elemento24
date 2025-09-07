@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you take different mythologies from different cultures, the names may change and the story lines may vary but there is always something in common.</b>
-> <p><i>Maynard James Keenan</i></p>
+> <b>Allowing children to show their guilt, show their grief, show their anger, takes the sting out of the situation.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
