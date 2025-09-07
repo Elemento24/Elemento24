@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If death meant just leaving the stage long enough to change costume and come back as a new character, would you slow down? Or speed up?</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>If a man's character is to be abused there's nobody like a relative to do the business.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
