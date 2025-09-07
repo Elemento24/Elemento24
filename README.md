@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yoga's an amazing release.</b>
-> <p><i>Monica Keena</i></p>
+> <b>I suppose when they reach a certain age some men are afraid to grow up. It seems the older the men get, the younger their new wives get.</b>
+> <p><i>Elizabeth Taylor</i></p>
 
 <br>
