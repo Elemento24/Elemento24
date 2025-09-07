@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's the beauty of being a comedian - it's the one job you're allowed to do that. We're lucky. We're really lucky.</b>
-> <p><i>Colin Quinn</i></p>
+> <b>The genius of a good leader is to leave behind him a situation which common sense, without the grace of genius, can deal with successfully.</b>
+> <p><i>Walter Lippmann</i></p>
 
 <br>
