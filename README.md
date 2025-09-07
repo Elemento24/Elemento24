@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The flowers anew, returning seasons bring but beauty faded has no second spring.</b>
-> <p><i>Ambrose Philips</i></p>
+> <b>If death meant just leaving the stage long enough to change costume and come back as a new character, would you slow down? Or speed up?</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
