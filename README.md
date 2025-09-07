@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The genius of a good leader is to leave behind him a situation which common sense, without the grace of genius, can deal with successfully.</b>
-> <p><i>Walter Lippmann</i></p>
+> <b>If you take different mythologies from different cultures, the names may change and the story lines may vary but there is always something in common.</b>
+> <p><i>Maynard James Keenan</i></p>
 
 <br>
