@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I suppose when they reach a certain age some men are afraid to grow up. It seems the older the men get, the younger their new wives get.</b>
-> <p><i>Elizabeth Taylor</i></p>
+> <b>The courts cannot garnish a father's salary, nor freeze his account, nor seize his property on behalf of his children, in our society. Apparently this is because a kid is not a car or a couch or a boat.</b>
+> <p><i>June Jordan</i></p>
 
 <br>
