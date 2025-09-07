@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Kids are brought into show business because they are cute and see truth and they're very bright. But there's a sense of doing it because you want the adults to be approving of you. You want to make them happy.</b>
-> <p><i>Anna Chlumsky</i></p>
+> <b>Perhaps one of the most important accomplishments of my administration has been minding my own business.</b>
+> <p><i>Calvin Coolidge</i></p>
 
 <br>
