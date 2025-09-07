@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the heat of the Russian summer a sleeping car is the most horrible instrument of martyrdom imaginable.</b>
-> <p><i>Manfred von Richthofen</i></p>
+> <b>The best way to know God is to love many things.</b>
+> <p><i>Vincent Van Gogh</i></p>
 
 <br>
