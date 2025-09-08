@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a mom, I don't have much time for beauty.</b>
-> <p><i>Idina Menzel</i></p>
+> <b>Singing really is acting. In a lot of ways, it's much more personal. I love music, and being able to work on that is amazing.</b>
+> <p><i>Leighton Meester</i></p>
 
 <br>
