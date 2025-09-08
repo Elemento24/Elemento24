@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can be tired, weary and emotionally distraught, but after spending time alone with God, we find that He injects into our bodies energy, power and strength.</b>
-> <p><i>Charles Stanley</i></p>
+> <b>What irritates me is the bland way people go around saying, 'Oh, our attitude has changed. We don't dislike these people any more.' But by the strangest coincidence, they haven't taken away the injustice the laws are still on the books.</b>
+> <p><i>Christopher Isherwood</i></p>
 
 <br>
