@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who is fixed to a star does not change his mind.</b>
-> <p><i>Leonardo da Vinci</i></p>
+> <b>He who has done his best for his own time has lived for all times.</b>
+> <p><i>Friedrich Schiller</i></p>
 
 <br>
