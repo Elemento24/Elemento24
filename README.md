@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The courts cannot garnish a father's salary, nor freeze his account, nor seize his property on behalf of his children, in our society. Apparently this is because a kid is not a car or a couch or a boat.</b>
-> <p><i>June Jordan</i></p>
+> <b>Worse there cannot be a better, I believe, there may be, by giving energy to the capital and skill of the country to produce exports, by increasing which, alone, can we flatter ourselves with the prospect of finding employment for that part of our population now unemployed.</b>
+> <p><i>Joseph Hume</i></p>
 
 <br>
