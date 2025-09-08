@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What irritates me is the bland way people go around saying, 'Oh, our attitude has changed. We don't dislike these people any more.' But by the strangest coincidence, they haven't taken away the injustice the laws are still on the books.</b>
-> <p><i>Christopher Isherwood</i></p>
+> <b>Right after 'Raymond' I had a world-is-my-oyster attitude, but I found out I don't like oysters. I had this existential emptiness. 'What is my purpose? Who am I?' I had a big identity crisis.</b>
+> <p><i>Ray Romano</i></p>
 
 <br>
