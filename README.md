@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>White shall not neutralize the black, nor good compensate bad in man, absolve him so: life's business being just the terrible choice.</b>
-> <p><i>Robert Browning</i></p>
+> <b>Accept business only at a price permitting thoroughness. Then do a thorough job, regardless of cost to us.</b>
+> <p><i>Arthur C. Nielsen</i></p>
 
 <br>
