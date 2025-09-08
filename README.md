@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Worse there cannot be a better, I believe, there may be, by giving energy to the capital and skill of the country to produce exports, by increasing which, alone, can we flatter ourselves with the prospect of finding employment for that part of our population now unemployed.</b>
-> <p><i>Joseph Hume</i></p>
+> <b>As a mom, I don't have much time for beauty.</b>
+> <p><i>Idina Menzel</i></p>
 
 <br>
