@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Boys, they can't take my refrigerator now. They'll never get my car now. I paid cash for 'em and they're mine, and I'm keepin' 'em!</b>
-> <p><i>Patsy Cline</i></p>
+> <b>We can be tired, weary and emotionally distraught, but after spending time alone with God, we find that He injects into our bodies energy, power and strength.</b>
+> <p><i>Charles Stanley</i></p>
 
 <br>
