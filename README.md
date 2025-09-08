@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Singing really is acting. In a lot of ways, it's much more personal. I love music, and being able to work on that is amazing.</b>
-> <p><i>Leighton Meester</i></p>
+> <b>If you don't die of thirst, there are blessings in the desert. You can be pulled into limitlessness, which we all yearn for, or you can do the beauty of minutiae, the scrimshaw of tiny and precise. The sky is your ocean, and the crystal silence will uplift you like great gospel music, or Neil Young.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
