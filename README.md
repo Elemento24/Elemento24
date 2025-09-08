@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obviously, there's the seedy side of the strip club world and pole dancing. But, pole dancing, as an art form, is really beautiful. It's been hyper-sexualized because it's associated with strippers, but if you think about it, just in terms of other kinds of dancing, they're using an instrument to create these amazing dance forms.</b>
-> <p><i>Megalyn Echikunwoke</i></p>
+> <b>One of the many pleasures of old age is giving things up.</b>
+> <p><i>Malcolm Muggeridge</i></p>
 
 <br>
