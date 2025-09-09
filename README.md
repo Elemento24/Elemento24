@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The cult of art gives pride one never has too much of it.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>This whole beauty thing is something I've never comprehended.</b>
+> <p><i>Pam Grier</i></p>
 
 <br>
