@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So Harry Potter came in and it is nice that I have kids of the right age. I took them to London and they walked around the set and met Harry Potter and that is thrilling.</b>
-> <p><i>Gary Oldman</i></p>
+> <b>The cult of art gives pride one never has too much of it.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
