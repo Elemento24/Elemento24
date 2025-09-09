@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of my relationships were people in the business. Having said that, me and Tim don't really talk that much about work. He comes into my bit of the house every so often to vent but we don't really have very high, cultured conversations.</b>
-> <p><i>Helena Bonham Carter</i></p>
+> <b>I have lost my seven best friends, which is to say God has had mercy on me seven times without realizing it. He lent a friendship, took it from me, sent me another.</b>
+> <p><i>Jean Cocteau</i></p>
 
 <br>
