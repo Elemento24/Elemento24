@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is Homer who has chiefly taught other poets the art of telling lies skillfully.</b>
-> <p><i>Aristotle</i></p>
+> <b>I don't think people are fools, and I think they deserve a good attitude and smart entertainment.</b>
+> <p><i>Tatyana Tolstaya</i></p>
 
 <br>
