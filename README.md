@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Strangely enough, when the Sugababes' 'Freak Like Me' went to number 1, which was built around my 'Are 'Friends' Electric' song, I had another song called 'Rip' go to number 1 in the Kerrang TV chart, so I was pulling new people in from very different areas of musical interest. That was quite an amazing week.</b>
-> <p><i>Gary Numan</i></p>
+> <b>I'm very free-spirited and crazy. I love to have fun, and I like doing stupid things. At the same time, I'm like a 35-year-old. I have a house. I have a car. I have a steady job. I have a business, and I have to make serious decisions.</b>
+> <p><i>Avril Lavigne</i></p>
 
 <br>
