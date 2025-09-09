@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've reached a point in my life where it's the little things that matter... I was always a rebel and probably could have got much farther had I changed my attitude. But when you think about it, I got pretty far without changing attitudes. I'm happier with that.</b>
-> <p><i>Veronica Lake</i></p>
+> <b>To say that a work of art is good, but incomprehensible to the majority of men, is the same as saying of some kind of food that it is very good but that most people can't eat it.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
