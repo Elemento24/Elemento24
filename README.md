@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How often it is that the angry man rages denial of what his inner self is telling him.</b>
-> <p><i>Frank Herbert</i></p>
+> <b>I've reached a point in my life where it's the little things that matter... I was always a rebel and probably could have got much farther had I changed my attitude. But when you think about it, I got pretty far without changing attitudes. I'm happier with that.</b>
+> <p><i>Veronica Lake</i></p>
 
 <br>
