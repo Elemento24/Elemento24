@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Right after 'Raymond' I had a world-is-my-oyster attitude, but I found out I don't like oysters. I had this existential emptiness. 'What is my purpose? Who am I?' I had a big identity crisis.</b>
-> <p><i>Ray Romano</i></p>
+> <b>Strangely enough, when the Sugababes' 'Freak Like Me' went to number 1, which was built around my 'Are 'Friends' Electric' song, I had another song called 'Rip' go to number 1 in the Kerrang TV chart, so I was pulling new people in from very different areas of musical interest. That was quite an amazing week.</b>
+> <p><i>Gary Numan</i></p>
 
 <br>
