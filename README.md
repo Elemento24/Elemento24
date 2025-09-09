@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This whole beauty thing is something I've never comprehended.</b>
-> <p><i>Pam Grier</i></p>
+> <b>I used to have this Mercedes, a dark blue 450SLC, which was the most beautiful car. I'd like to have another unusual, beautiful car.</b>
+> <p><i>Andrew Davies</i></p>
 
 <br>
