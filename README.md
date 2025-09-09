@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are books of which the backs and covers are by far the best parts.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>Alone let him constantly meditate in solitude on that which is salutary for his soul, for he who meditates in solitude attains supreme bliss.</b>
+> <p><i>Guru Nanak</i></p>
 
 <br>
