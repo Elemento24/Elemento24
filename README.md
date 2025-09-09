@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Twitter is the most amazing medium for a comedy writer. I can't get in every idea I want on the show no matter how hard I try to bully the other writers, so it's a way of me getting out other comic ideas and immediately getting feedback.</b>
-> <p><i>Mindy Kaling</i></p>
+> <b>So Harry Potter came in and it is nice that I have kids of the right age. I took them to London and they walked around the set and met Harry Potter and that is thrilling.</b>
+> <p><i>Gary Oldman</i></p>
 
 <br>
