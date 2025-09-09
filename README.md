@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is little difference in people, but that little difference makes a big difference. That little difference is attitude. The big difference is whether it is positive or negative.</b>
-> <p><i>Robert Collier</i></p>
+> <b>Change of fashion is the tax levied by the industry of the poor on the vanity of the rich.</b>
+> <p><i>Nicolas Chamfort</i></p>
 
 <br>
