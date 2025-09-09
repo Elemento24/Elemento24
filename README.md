@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd kind of like to have a classic old muscle car. I think that would be fun.</b>
-> <p><i>Brooke Burke</i></p>
+> <b>Books were my pass to personal freedom. I learned to read at age three, and soon discovered there was a whole world to conquer that went beyond our farm in Mississippi.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
