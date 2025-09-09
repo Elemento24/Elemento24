@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Books were my pass to personal freedom. I learned to read at age three, and soon discovered there was a whole world to conquer that went beyond our farm in Mississippi.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>Most of my relationships were people in the business. Having said that, me and Tim don't really talk that much about work. He comes into my bit of the house every so often to vent but we don't really have very high, cultured conversations.</b>
+> <p><i>Helena Bonham Carter</i></p>
 
 <br>
