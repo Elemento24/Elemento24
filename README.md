@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is with trifles, and when he is off guard, that a man best reveals his character.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>I hate the stereotype of the pitfalls of the child actor. There are so many amazing examples - Natalie Portman, Joseph Gordon-Levitt, Jodie Foster, Drew Barrymore - of people who have made it through.</b>
+> <p><i>Jamie Bell</i></p>
 
 <br>
