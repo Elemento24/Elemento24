@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Urs Fischer specializes in making jaws drop. Cutting giant holes in gallery walls, digging a crater in Gavin Brown's gallery floor in 2007, creating amazing hyperrealist wallpaper for a group show at Tony Shafrazi: It all percolates with uncanny destructiveness, operatic uncontrollability, and barbaric sculptural power.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>When I was trying to impress Kate I was trying to cook these amazing fancy dinners and what would happen was I would burn something, something would overspill, something would catch on fire and she would be sitting in the background trying to help, and basically taking control of the whole situation, so I was quite glad she was there at the time.</b>
+> <p><i>Prince William</i></p>
 
 <br>
