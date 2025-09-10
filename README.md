@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing commercially, which is the worst artistically, by and large, is the most successful.</b>
-> <p><i>Orson Welles</i></p>
+> <b>Being tall is an advantage, especially in business. People will always remember you. And if you're in a crowd, you'll always have some clean air to breathe.</b>
+> <p><i>Julia Child</i></p>
 
 <br>
