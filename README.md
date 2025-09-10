@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love singin' in the car, it just makes me feel good.</b>
-> <p><i>Scotty McCreery</i></p>
+> <b>We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone.</b>
+> <p><i>Orson Welles</i></p>
 
 <br>
