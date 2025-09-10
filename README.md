@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think a certain amount of anger has been a fuel of mine, if you want - but also some sort of sadness, and plain mischief, of course.</b>
-> <p><i>Siouxsie Sioux</i></p>
+> <b>Being alone is scarier than any boogey man and the reason why I don't choose to see Horror movies as a rule.</b>
+> <p><i>Tom Sizemore</i></p>
 
 <br>
