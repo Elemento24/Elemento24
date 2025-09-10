@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The concept of two people living together for 25 years without a serious dispute suggests a lack of spirit only to be admired in sheep.</b>
-> <p><i>A. P. Herbert</i></p>
+> <b>It is with trifles, and when he is off guard, that a man best reveals his character.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
