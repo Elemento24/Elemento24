@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being alone is scarier than any boogey man and the reason why I don't choose to see Horror movies as a rule.</b>
-> <p><i>Tom Sizemore</i></p>
+> <b>I want a car that will last 10 years or longer because I totally hate the process of researching, shopping for a new car, and then haggling for the price. I wish I could just snap my fingers and my car is there.</b>
+> <p><i>Kiran Ahluwalia</i></p>
 
 <br>
