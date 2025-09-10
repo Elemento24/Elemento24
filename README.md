@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of healing comes from nature, not from the physician. Therefore the physician must start from nature, with an open mind.</b>
-> <p><i>Paracelsus</i></p>
+> <b>The best way to lose weight is to close your mouth - something very difficult for a politician. Or watch your food - just watch it, don't eat it.</b>
+> <p><i>Edward Koch</i></p>
 
 <br>
