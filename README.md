@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being tall is an advantage, especially in business. People will always remember you. And if you're in a crowd, you'll always have some clean air to breathe.</b>
-> <p><i>Julia Child</i></p>
+> <b>Urs Fischer specializes in making jaws drop. Cutting giant holes in gallery walls, digging a crater in Gavin Brown's gallery floor in 2007, creating amazing hyperrealist wallpaper for a group show at Tony Shafrazi: It all percolates with uncanny destructiveness, operatic uncontrollability, and barbaric sculptural power.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
