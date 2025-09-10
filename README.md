@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We learn about life not from plusses alone, but from minuses as well.</b>
-> <p><i>Anton Chekhov</i></p>
+> <b>I think a certain amount of anger has been a fuel of mine, if you want - but also some sort of sadness, and plain mischief, of course.</b>
+> <p><i>Siouxsie Sioux</i></p>
 
 <br>
