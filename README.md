@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Excess generally causes reaction, and produces a change in the opposite direction, whether it be in the seasons, or in individuals, or in governments.</b>
-> <p><i>Plato</i></p>
+> <b>Health is the thing that makes you feel that now is the best time of the year.</b>
+> <p><i>Franklin P. Adams</i></p>
 
 <br>
