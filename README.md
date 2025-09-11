@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think music is the greatest art form that exists, and I think people listen to music for different reasons, and it serves different purposes. Some of it is background music, and some of it is things that might affect a person's day, if not their life, or change an attitude. The best songs are the ones that make you feel something.</b>
-> <p><i>Eddie Vedder</i></p>
+> <b>Age is only a number, a cipher for the records. A man can't retire his experience. He must use it. Experience achieves more with less energy and time.</b>
+> <p><i>Bernard Baruch</i></p>
 
 <br>
