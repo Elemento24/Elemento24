@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is a revolt against fate. All art is a revolt against man's fate.</b>
-> <p><i>Andre Malraux</i></p>
+> <b>Truth isn't always beauty, but the hunger for it is.</b>
+> <p><i>Nadine Gordimer</i></p>
 
 <br>
