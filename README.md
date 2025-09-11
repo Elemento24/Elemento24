@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is not all decay it is the ripening, the swelling, of the fresh life within, that withers and bursts the husk.</b>
-> <p><i>George MacDonald</i></p>
+> <b>There are lots of things which I would love to tell him, but in some way, I also feel that I lost the person closest to me. And I got a second chance to live. So in a way I feel that I live for both of us... and I will do my best.</b>
+> <p><i>Petra Nemcova</i></p>
 
 <br>
