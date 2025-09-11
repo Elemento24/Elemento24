@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm married to my best friend!</b>
-> <p><i>Miranda Lambert</i></p>
+> <b>The best cure for the body is a quiet mind.</b>
+> <p><i>Napoleon Bonaparte</i></p>
 
 <br>
