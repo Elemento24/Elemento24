@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who is incapable of feeling strong passions, of being shaken by anger, of living in every sense of the word, will never be a good actor.</b>
-> <p><i>Sarah Bernhardt</i></p>
+> <b>L.A. has a fantastic car scene and because the climate is so gentle, cars can last forever.</b>
+> <p><i>Lee Child</i></p>
 
 <br>
