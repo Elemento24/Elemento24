@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the most passionate orgy within man's grasp.</b>
-> <p><i>John Donne</i></p>
+> <b>Age is not all decay it is the ripening, the swelling, of the fresh life within, that withers and bursts the husk.</b>
+> <p><i>George MacDonald</i></p>
 
 <br>
