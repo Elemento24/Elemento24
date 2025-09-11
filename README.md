@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Texas women have an amazing sense of purpose when they lose it. They're the best girls in the world - they're loyal and fun, but when they get mad, they'll try to kill you.</b>
-> <p><i>John Cusack</i></p>
+> <b>I like to put on hardcore when I have to clean my apartment, which I hate to do, but it's motivational. I like old heavy metal when I'm outside working on my car. Music has definite functions for me.</b>
+> <p><i>Peter Steele</i></p>
 
 <br>
