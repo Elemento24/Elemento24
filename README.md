@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The trick at Le Mans is to get the car 'in the window.' Everything is critical: the tyre pressure, the brake temperature, and that means you have to push the car a lot to get it into the window - it's about getting everything to work right and getting the car to flow through the corners.</b>
-> <p><i>Tom Kristensen</i></p>
+> <b>Excess generally causes reaction, and produces a change in the opposite direction, whether it be in the seasons, or in individuals, or in governments.</b>
+> <p><i>Plato</i></p>
 
 <br>
