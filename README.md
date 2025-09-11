@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For an introvert his environment is himself and can never be subject to startling or unforeseen change.</b>
-> <p><i>Quentin Crisp</i></p>
+> <b>Art is the most passionate orgy within man's grasp.</b>
+> <p><i>John Donne</i></p>
 
 <br>
