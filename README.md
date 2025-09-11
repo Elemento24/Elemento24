@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best cure for the body is a quiet mind.</b>
-> <p><i>Napoleon Bonaparte</i></p>
+> <b>If you haven't turned rebel by twenty you've got no heart if you haven't turned establishment by thirty you've got no brains!</b>
+> <p><i>Kevin Spacey</i></p>
 
 <br>
