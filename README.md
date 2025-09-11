@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Science fiction is any idea that occurs in the head and doesn't exist yet, but soon will, and will change everything for everybody, and nothing will ever be the same again. As soon as you have an idea that changes some small part of the world you are writing science fiction. It is always the art of the possible, never the impossible.</b>
-> <p><i>Ray Bradbury</i></p>
+> <b>I want to be remembered for the work that I've done, rather than the car accidents that I've gotten into, the men that I've not dated - or the man that I have.</b>
+> <p><i>Lindsay Lohan</i></p>
 
 <br>
