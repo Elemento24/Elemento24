@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you haven't turned rebel by twenty you've got no heart if you haven't turned establishment by thirty you've got no brains!</b>
-> <p><i>Kevin Spacey</i></p>
+> <b>He who is incapable of feeling strong passions, of being shaken by anger, of living in every sense of the word, will never be a good actor.</b>
+> <p><i>Sarah Bernhardt</i></p>
 
 <br>
