@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me, pointing and clicking my phone is absolutely fine. People say that isn't the art of photography but I don't agree.</b>
-> <p><i>Annie Lennox</i></p>
+> <b>Revived in this country the long forgotten beauties of Gothic architecture.</b>
+> <p><i>James Wyatt</i></p>
 
 <br>
