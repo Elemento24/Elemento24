@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once you go inside and weed through the muck, you will find the real beauty, the truth about yourself.</b>
-> <p><i>Lindsay Wagner</i></p>
+> <b>I am a thing of beauty.</b>
+> <p><i>Frank Sinatra</i></p>
 
 <br>
