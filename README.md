@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every man should follow the bent of his nature in art and letters, always provided that he does not offend against the rules of morality and good taste.</b>
-> <p><i>Thomas Edward Brown</i></p>
+> <b>I guess winning an Oscar is the ultimate dream. A lot of amazing actors go their whole career without even being nominated. So that would definitely be a goal to reach. It's a difficult one, but I'm aiming for it!</b>
+> <p><i>Taylor Lautner</i></p>
 
 <br>
