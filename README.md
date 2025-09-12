@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was so wild and crazy and dumb in my car. It didn't run but 30 miles an hour. You made do.</b>
-> <p><i>Muddy Waters</i></p>
+> <b>Middle age occurs when you are too young to take up golf and too old to rush up to the net.</b>
+> <p><i>Franklin P. Adams</i></p>
 
 <br>
