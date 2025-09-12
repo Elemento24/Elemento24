@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wouldn't change a thing - except my bank balance.</b>
-> <p><i>Johnny Thunders</i></p>
+> <b>All of our unhappiness comes from our inability to be alone.</b>
+> <p><i>Jean de la Bruyere</i></p>
 
 <br>
