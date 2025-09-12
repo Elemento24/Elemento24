@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Revived in this country the long forgotten beauties of Gothic architecture.</b>
-> <p><i>James Wyatt</i></p>
+> <b>Steven Tyler is awesome. He is so humble. He's really sweet and coming from him and his career, it's amazing.</b>
+> <p><i>Ashthon Jones</i></p>
 
 <br>
