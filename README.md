@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a big fan of Courtney Love. I love Hole and I love her acting and I love her attitude. I just hope I never meet her in a dark alley.</b>
-> <p><i>Jeff Ross</i></p>
+> <b>I had never walked on the street alone when I was growing up in Calcutta, up to age 20. I had never handled money. You know, there was always a couple of bodyguards behind me, who took care if I wanted... I needed pencils for school, I needed a notebook, they were the ones who were taking out the money. I was constantly guarded.</b>
+> <p><i>Bharati Mukherjee</i></p>
 
 <br>
