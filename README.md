@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All of our unhappiness comes from our inability to be alone.</b>
-> <p><i>Jean de la Bruyere</i></p>
+> <b>For me, pointing and clicking my phone is absolutely fine. People say that isn't the art of photography but I don't agree.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
