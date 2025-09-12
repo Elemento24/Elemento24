@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of my grandfathers, actually, having gone out there as a minister, decided he would better serve the people as a doctor. So at a very late age - at the age of 38 in fact - he changed course and decided to become a doctor.</b>
-> <p><i>Colin Firth</i></p>
+> <b>Well, you can't trust most people in this game, period it can be a very shady business.</b>
+> <p><i>Marvin Hagler</i></p>
 
 <br>
