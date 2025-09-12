@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had never walked on the street alone when I was growing up in Calcutta, up to age 20. I had never handled money. You know, there was always a couple of bodyguards behind me, who took care if I wanted... I needed pencils for school, I needed a notebook, they were the ones who were taking out the money. I was constantly guarded.</b>
-> <p><i>Bharati Mukherjee</i></p>
+> <b>Every man should follow the bent of his nature in art and letters, always provided that he does not offend against the rules of morality and good taste.</b>
+> <p><i>Thomas Edward Brown</i></p>
 
 <br>
