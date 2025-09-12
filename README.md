@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My business doesn't keep me warm at night.</b>
-> <p><i>Bethenny Frankel</i></p>
+> <b>The momentous thing in human life is the art of winning the soul to good or evil.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
