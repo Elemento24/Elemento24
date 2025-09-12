@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Steven Tyler is awesome. He is so humble. He's really sweet and coming from him and his career, it's amazing.</b>
-> <p><i>Ashthon Jones</i></p>
+> <b>Reason clears and plants the wilderness of the imagination to harvest the wheat of art.</b>
+> <p><i>Austin O'Malley</i></p>
 
 <br>
