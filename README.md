@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age occurs when you are too young to take up golf and too old to rush up to the net.</b>
-> <p><i>Franklin P. Adams</i></p>
+> <b>I wore my first pair of Louboutins during this press tour. It was absolutely amazing, they weren't heels, they were little shoes, but they were velvet and they were blue.</b>
+> <p><i>Chloe Moretz</i></p>
 
 <br>
