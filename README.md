@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a thing of beauty.</b>
-> <p><i>Frank Sinatra</i></p>
+> <b>I'm a big fan of Courtney Love. I love Hole and I love her acting and I love her attitude. I just hope I never meet her in a dark alley.</b>
+> <p><i>Jeff Ross</i></p>
 
 <br>
