@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really believe you can predict when someone has a great attitude, a real well of talent.</b>
-> <p><i>Taylor Hackford</i></p>
+> <b>Look, the center right coalition in American politics today is best understood as a coalition of groups and individuals that on the issue that brings them to politics what they want from the government is to be left alone.</b>
+> <p><i>Grover Norquist</i></p>
 
 <br>
