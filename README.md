@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The biggest danger to the European Union comes not from those who advocate change, but from those who denounce new thinking as heresy. In its long history Europe has experience of heretics who turned out to have a point.</b>
-> <p><i>David Cameron</i></p>
+> <b>And this year is going to be the 25th anniversary of the 17-0 team, the only undefeated season.</b>
+> <p><i>Don Shula</i></p>
 
 <br>
