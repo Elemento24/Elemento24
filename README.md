@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to put on hardcore when I have to clean my apartment, which I hate to do, but it's motivational. I like old heavy metal when I'm outside working on my car. Music has definite functions for me.</b>
-> <p><i>Peter Steele</i></p>
+> <b>I was so wild and crazy and dumb in my car. It didn't run but 30 miles an hour. You made do.</b>
+> <p><i>Muddy Waters</i></p>
 
 <br>
