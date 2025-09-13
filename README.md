@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've still got that little freedom part of me that wants to have a car that looks really sexy.</b>
-> <p><i>Patrice O'Neal</i></p>
+> <b>My professional life has been a constant record of disillusion, and many things that seem wonderful to most men are the every-day commonplaces of my business.</b>
+> <p><i>Harry Houdini</i></p>
 
 <br>
