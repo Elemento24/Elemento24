@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's getting better generally, daily, especially in TV, for women in acting and age and looks count less. As more women come into the business. Change of any sort takes a long time to happen.</b>
-> <p><i>Julie Walters</i></p>
+> <b>I am also hugely excited to then be competing to defend my three Paralympic titles at the Paralympic Games. I believe we will see some amazing times posted and I am very much looking forward to what will be an incredible Olympics and Paralympics in London.</b>
+> <p><i>Oscar Pistorius</i></p>
 
 <br>
