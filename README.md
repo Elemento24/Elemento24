@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Switching over to a hybrid car is one of those right things, but, unfairly or not, it still has a reputation among car enthusiasts as something you have to pedal really fast when you're on the ramp merging into traffic on the 401.</b>
-> <p><i>Linwood Barclay</i></p>
+> <b>I thought it might be a good move to get into a beauty contest so I tried for Miss Pennsylvania and won. I think that helped me get noticed, at least by the people of Pennsylvania.</b>
+> <p><i>Sharon Stone</i></p>
 
 <br>
