@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Though there might not be any easy answers to the problem of poverty, its most compelling scribes do not resign themselves to representation solely for the sake of those age-old verities of truth and beauty.</b>
-> <p><i>Leslie Jamison</i></p>
+> <b>As an actor, to have achieved financial stability is amazing. But I always have this weird fear that I'm not going to get any more work it's about not having enough money.</b>
+> <p><i>Paul Giamatti</i></p>
 
 <br>
