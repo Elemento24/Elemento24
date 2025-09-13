@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We of Africa protest that, in this day and age, we should continue to be treated as lesser human beings than other races.</b>
-> <p><i>Robert Mugabe</i></p>
+> <b>Independent film is almost nonexistent right now, because all the distributers that used to love to put out these little art films are all out of business right now, because it costs so much to open a movie.</b>
+> <p><i>Ron Perlman</i></p>
 
 <br>
