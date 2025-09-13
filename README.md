@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My professional life has been a constant record of disillusion, and many things that seem wonderful to most men are the every-day commonplaces of my business.</b>
-> <p><i>Harry Houdini</i></p>
+> <b>We of Africa protest that, in this day and age, we should continue to be treated as lesser human beings than other races.</b>
+> <p><i>Robert Mugabe</i></p>
 
 <br>
