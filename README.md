@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always obsessed with being famous. I had Marilyn Monroe paper dolls as a child, and I was always obsessed with her. I've just been really driven in that direction, and none of my friends were. So, I don't know what put that bug in me at a young age.</b>
-> <p><i>Holly Madison</i></p>
+> <b>And Shanghai is amazing. I'm a fan of science fiction so when you're there in the night with all the lights and all this modernity, it's like a set in a movie.</b>
+> <p><i>Berenice Marlohe</i></p>
 
 <br>
