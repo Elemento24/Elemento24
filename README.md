@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A visitor from Mars could easily pick out the civilized nations. They have the best implements of war.</b>
-> <p><i>Herbert V. Prochnow</i></p>
+> <b>I mean, it's amazing that I get to meet all these people. I've learned so much from all of them. I just worked with Sofia Coppola and that was amazing. I learned so much from her. I can't even describe how much fun I had.</b>
+> <p><i>Elle Fanning</i></p>
 
 <br>
