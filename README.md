@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my job, people tell you that all the time: 'This shoot was great. You look amazing.' But you never know what they say when you turn away.</b>
-> <p><i>Heidi Klum</i></p>
+> <b>Switching over to a hybrid car is one of those right things, but, unfairly or not, it still has a reputation among car enthusiasts as something you have to pedal really fast when you're on the ramp merging into traffic on the 401.</b>
+> <p><i>Linwood Barclay</i></p>
 
 <br>
