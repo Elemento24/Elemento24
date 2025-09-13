@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As an actor, to have achieved financial stability is amazing. But I always have this weird fear that I'm not going to get any more work it's about not having enough money.</b>
-> <p><i>Paul Giamatti</i></p>
+> <b>A visitor from Mars could easily pick out the civilized nations. They have the best implements of war.</b>
+> <p><i>Herbert V. Prochnow</i></p>
 
 <br>
