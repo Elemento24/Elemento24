@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And this year is going to be the 25th anniversary of the 17-0 team, the only undefeated season.</b>
-> <p><i>Don Shula</i></p>
+> <b>There's nothing wrong with the car except that it's on fire.</b>
+> <p><i>Murray Walker</i></p>
 
 <br>
