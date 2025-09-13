@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Independent film is almost nonexistent right now, because all the distributers that used to love to put out these little art films are all out of business right now, because it costs so much to open a movie.</b>
-> <p><i>Ron Perlman</i></p>
+> <b>It's getting better generally, daily, especially in TV, for women in acting and age and looks count less. As more women come into the business. Change of any sort takes a long time to happen.</b>
+> <p><i>Julie Walters</i></p>
 
 <br>
