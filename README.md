@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's nothing wrong with the car except that it's on fire.</b>
-> <p><i>Murray Walker</i></p>
+> <b>A car is useless in New York, essential everywhere else. The same with good manners.</b>
+> <p><i>Mignon McLaughlin</i></p>
 
 <br>
