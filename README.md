@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, it's amazing that I get to meet all these people. I've learned so much from all of them. I just worked with Sofia Coppola and that was amazing. I learned so much from her. I can't even describe how much fun I had.</b>
-> <p><i>Elle Fanning</i></p>
+> <b>It's harder, but we're still finding oil in Oklahoma today. The bar has been raised on startup companies, but it can still be done. Every regulation and every rule limits you, but, yes, it can still be done. That's the beauty of living in a free country and having the freedom to have an idea and become an entrepreneur.</b>
+> <p><i>Harold Hamm</i></p>
 
 <br>
