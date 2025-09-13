@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The energy of the crowd is insane. Twenty thousand people. It's the biggest jolt of adrenaline. It's very hard to explain. You know the old story about the woman lifting the car off her kid? It's in that realm. You can actually hurt yourself and not know it.</b>
-> <p><i>Tom Petty</i></p>
+> <b>In my job, people tell you that all the time: 'This shoot was great. You look amazing.' But you never know what they say when you turn away.</b>
+> <p><i>Heidi Klum</i></p>
 
 <br>
