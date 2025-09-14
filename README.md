@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Growing up in a particular neighborhood, growing up in a working-class family, not having much money, all of those things fire you and can give you an edge, can give you an anger.</b>
-> <p><i>Gary Oldman</i></p>
+> <b>That there's no more important decision in life than who you marry.</b>
+> <p><i>Brad Paisley</i></p>
 
 <br>
