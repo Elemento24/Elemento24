@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's better for me to play with guys because Rock 'n' Roll has such an aggressive attitude.</b>
-> <p><i>Lita Ford</i></p>
+> <b>Suits are looked at more now as a business thing which is kind of a shame. If you're not wearing it just for work, you should try and trick it up a bit.</b>
+> <p><i>Daniel Craig</i></p>
 
 <br>
