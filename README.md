@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Painting is just another way of keeping a diary.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>Strike an average between what a woman thinks of her husband a month before she marries him and what she thinks of him a year afterward, and you will have the truth about him.</b>
+> <p><i>H. L. Mencken</i></p>
 
 <br>
