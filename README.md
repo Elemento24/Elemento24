@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The return of my birthday, if I remember it, fills me with thoughts which it seems to be the general care of humanity to escape.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>A little anger is a good thing if it isn't on your own behalf, if it's for others deserving of your anger, your empathy.</b>
+> <p><i>David Simon</i></p>
 
 <br>
