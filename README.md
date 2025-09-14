@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even in the presence of others he was completely alone.</b>
-> <p><i>Robert M. Pirsig</i></p>
+> <b>A State without the means of some change is without the means of its conservation.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
