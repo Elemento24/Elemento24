@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Too many Christians have a commitment of convenience. They'll stay faithful as long as it's safe and doesn't involve risk, rejection, or criticism. Instead of standing alone in the face of challenge or temptation, they check to see which way their friends are going.</b>
-> <p><i>Charles Stanley</i></p>
+> <b>When I'm in town on Sundays, I sometimes go down to the Central Bar in the East Village to watch English football. But my natural inclination now is to get in the car with my wife and kids and get out of town.</b>
+> <p><i>Joe Scarborough</i></p>
 
 <br>
