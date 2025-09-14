@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That there's no more important decision in life than who you marry.</b>
-> <p><i>Brad Paisley</i></p>
+> <b>What is being called the UN 'gender architecture' is more like a shack. Women need a bigger global house if equality is ever to become a reality.</b>
+> <p><i>Charlotte Bunch</i></p>
 
 <br>
