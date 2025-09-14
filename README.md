@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The senior officer who met with reporters in Baghdad said there had been 21 car bombings in the capital in May, and 126 in the past 80 days. All last year, he said, there were only about 25 car bombings in Baghdad.</b>
-> <p><i>Rich Lowry</i></p>
+> <b>This is a fantastic time to be entering the business world, because business is going to change more in the next 10 years than it has in the last 50.</b>
+> <p><i>Bill Gates</i></p>
 
 <br>
