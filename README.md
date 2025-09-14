@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Strike an average between what a woman thinks of her husband a month before she marries him and what she thinks of him a year afterward, and you will have the truth about him.</b>
-> <p><i>H. L. Mencken</i></p>
+> <b>Even in the presence of others he was completely alone.</b>
+> <p><i>Robert M. Pirsig</i></p>
 
 <br>
