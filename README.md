@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, no one asks beauty secrets of me, or 'What size do you wear?' or 'Who's your couturier?' They ask me about really deep things and I love that.</b>
-> <p><i>Shirley MacLaine</i></p>
+> <b>Exploiting people's emotions of fear, envy and anxiety is not hope, it's not change, it's partisanship. We don't need partisanship. We don't need demagoguery, we need solutions.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
