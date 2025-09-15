@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the revision in the world will not save a bad first draft: for the architecture of the thing comes, or fails to come, in the first conception, and revision only affects the detail and ornament, alas!</b>
-> <p><i>T. E. Lawrence</i></p>
+> <b>What is necessary to change a person is to change his awareness of himself.</b>
+> <p><i>Abraham Maslow</i></p>
 
 <br>
