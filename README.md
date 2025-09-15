@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh yeah, I mean every fighter has got be dedicated, learn how to sacrifice, know what the devotion is all about, make sure you're paying attention and studying your art.</b>
-> <p><i>Marvin Hagler</i></p>
+> <b>Sometimes, when my wife and I were going out to dinner, I would take my laptop with me and work in the car, so as to take advantage of the half hour going and coming.</b>
+> <p><i>Thomas Friedman</i></p>
 
 <br>
