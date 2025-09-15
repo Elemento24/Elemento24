@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love grows more tremendously full, swift, poignant, as the years multiply.</b>
-> <p><i>Zane Grey</i></p>
+> <b>Diplomats make it their business to conceal the facts.</b>
+> <p><i>Margaret Sanger</i></p>
 
 <br>
