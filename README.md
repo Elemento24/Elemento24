@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to say that probably 24 hours after I told CBS that I was stepping down at my 65th birthday, I was already regretting it. And I regretted it every day since.</b>
-> <p><i>Walter Cronkite</i></p>
+> <b>Age is not all decay it is the ripening, the swelling, of the fresh life within, that withers and bursts the husk.</b>
+> <p><i>George MacDonald</i></p>
 
 <br>
