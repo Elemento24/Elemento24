@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the oracle that speaks to us all.</b>
-> <p><i>Luis Barragan</i></p>
+> <b>There is such amazing talent at Disney. My job is 100% creative, and I am very excited to creatively lead them.</b>
+> <p><i>John Lasseter</i></p>
 
 <br>
