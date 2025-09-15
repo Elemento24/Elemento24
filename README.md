@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who knows best knows how little he knows.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>I take a lot from everywhere. I take from music, architecture, novels, and plays. Anywhere that hits you.</b>
+> <p><i>Alex Winter</i></p>
 
 <br>
