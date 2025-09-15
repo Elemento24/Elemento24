@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes, when my wife and I were going out to dinner, I would take my laptop with me and work in the car, so as to take advantage of the half hour going and coming.</b>
-> <p><i>Thomas Friedman</i></p>
+> <b>Love grows more tremendously full, swift, poignant, as the years multiply.</b>
+> <p><i>Zane Grey</i></p>
 
 <br>
