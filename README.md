@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Women are smart in business and dumb in love. They won't date outside their zip code, let alone outside the city. They are city snobs.</b>
-> <p><i>Patti Stanger</i></p>
+> <b>You cannot expect to achieve new goals or move beyond your present circumstances unless you change.</b>
+> <p><i>Les Brown</i></p>
 
 <br>
