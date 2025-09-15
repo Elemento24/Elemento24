@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With guys I revere, like Marcus Garvey or Malcolm X, their look is less about style than purpose and the expression of beauty. It wasn't just about being noticed, you know?</b>
-> <p><i>Mos Def</i></p>
+> <b>All the revision in the world will not save a bad first draft: for the architecture of the thing comes, or fails to come, in the first conception, and revision only affects the detail and ornament, alas!</b>
+> <p><i>T. E. Lawrence</i></p>
 
 <br>
