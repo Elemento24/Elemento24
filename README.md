@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You cannot expect to achieve new goals or move beyond your present circumstances unless you change.</b>
-> <p><i>Les Brown</i></p>
+> <b>Beauty is the oracle that speaks to us all.</b>
+> <p><i>Luis Barragan</i></p>
 
 <br>
