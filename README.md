@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diplomats make it their business to conceal the facts.</b>
-> <p><i>Margaret Sanger</i></p>
+> <b>Truthfully, being pregnant is changing me as a person. Each day is part of this amazing journey that has completely shifted the focus of my life and made me reevaluate my personal and professional goals.</b>
+> <p><i>Holly Madison</i></p>
 
 <br>
