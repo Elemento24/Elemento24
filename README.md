@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned you have to fight for yourself in the picture business.</b>
-> <p><i>Loretta Young</i></p>
+> <b>I do not believe a man can ever leave his business. He ought to think of it by day and dream of it by night.</b>
+> <p><i>Henry Ford</i></p>
 
 <br>
