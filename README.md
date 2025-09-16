@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All nature is but art unknown to thee.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>The perception of beauty is a moral test.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
