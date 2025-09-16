@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To some extent, Seattle remains a frontier metropolis, a place where people can experiment with their lives, and change and grow and make things happen.</b>
-> <p><i>Tom Robbins</i></p>
+> <b>Acting advice is a bit like your parents teaching you how to drive a car. You know they're right, but you still kind of want them to shut up a bit.</b>
+> <p><i>Max Irons</i></p>
 
 <br>
