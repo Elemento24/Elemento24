@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Acting advice is a bit like your parents teaching you how to drive a car. You know they're right, but you still kind of want them to shut up a bit.</b>
-> <p><i>Max Irons</i></p>
+> <b>You, too, women, cast away all the cowards from your embraces they will give you only cowards for children, and you who are the daughters of the land of beauty must bear children who are noble and brave.</b>
+> <p><i>Giuseppe Garibaldi</i></p>
 
 <br>
