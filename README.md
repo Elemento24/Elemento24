@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hatred is an affair of the heart contempt that of the head.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>I learned you have to fight for yourself in the picture business.</b>
+> <p><i>Loretta Young</i></p>
 
 <br>
