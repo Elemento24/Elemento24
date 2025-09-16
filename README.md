@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You, too, women, cast away all the cowards from your embraces they will give you only cowards for children, and you who are the daughters of the land of beauty must bear children who are noble and brave.</b>
-> <p><i>Giuseppe Garibaldi</i></p>
+> <b>The business that people do in LA on the social level is amazing. You go to a restaurant, bump into this guy or that guy. The next day you get a call, and they want you in their movie.</b>
+> <p><i>Kevin Bacon</i></p>
 
 <br>
