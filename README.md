@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That sort of half sigh, which, accompanied by two or three slight nods of the head, is pity's small change in general society.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>No, but way before that, I've been doing little dances in movies for years. Yeah, that was an amazing chance. You know, at my age to be able to do a music dance video, very unusual.</b>
+> <p><i>Christopher Walken</i></p>
 
 <br>
