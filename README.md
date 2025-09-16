@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love is our true destiny. We do not find the meaning of life by ourselves alone - we find it with another.</b>
-> <p><i>Thomas Merton</i></p>
+> <b>Envy is the art of counting the other fellow's blessings instead of your own.</b>
+> <p><i>Harold Coffin</i></p>
 
 <br>
