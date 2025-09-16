@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No, but way before that, I've been doing little dances in movies for years. Yeah, that was an amazing chance. You know, at my age to be able to do a music dance video, very unusual.</b>
-> <p><i>Christopher Walken</i></p>
+> <b>On banks, I make no apology for attacking spivs and gamblers who did more harm to the British economy than Bob Crow could achieve in his wildest Trotskyite fantasies, while paying themselves outrageous bonuses underwritten by the taxpayer. There is much public anger about banks and it is well deserved.</b>
+> <p><i>Vince Cable</i></p>
 
 <br>
