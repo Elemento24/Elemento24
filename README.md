@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love my family very much. I wish I could see them a little more often than I do. But we understand because we're a show business family and we all work.</b>
-> <p><i>Michael Jackson</i></p>
+> <b>That sort of half sigh, which, accompanied by two or three slight nods of the head, is pity's small change in general society.</b>
+> <p><i>Charles Dickens</i></p>
 
 <br>
