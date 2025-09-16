@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What has made America amazing has been the fact that throughout our history, throughout the more than 200 years of our history, there have been men and women of courage who stood up and decided it was more important to look out for the future of their children and their grandchildren than their own political futures.</b>
-> <p><i>Scott Walker</i></p>
+> <b>Any architectural project we do takes at least four or five years, so increasingly there is a discrepancy between the acceleration of culture and the continuing slowness of architecture.</b>
+> <p><i>Rem Koolhaas</i></p>
 
 <br>
