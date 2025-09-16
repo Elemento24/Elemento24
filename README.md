@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, it is so difficult right now when you look out on the road and how fast people go and the more and more cars you see out there, for teenagers, you'd think a kid that literally, a few years before, was sitting back in a car seat in the back seat is now behind the wheel.</b>
-> <p><i>Amy Klobuchar</i></p>
+> <b>Every good painter paints what he is.</b>
+> <p><i>Jackson Pollock</i></p>
 
 <br>
