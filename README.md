@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Something about Texas I'm not proud of is that our state murdered 37 people last year alone.</b>
-> <p><i>Richard Linklater</i></p>
+> <b>Make the best use of what is in your power, and take the rest as it happens.</b>
+> <p><i>Epictetus</i></p>
 
 <br>
