@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My daily beauty regimen consists of washing my face before bed and putting on moisturizer.</b>
-> <p><i>Rachel Bilson</i></p>
+> <b>The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
