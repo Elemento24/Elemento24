@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is one of those things that make us feel a little less alone in the world.</b>
-> <p><i>Tom Cochrane</i></p>
+> <b>Every artist writes his own autobiography.</b>
+> <p><i>Havelock Ellis</i></p>
 
 <br>
