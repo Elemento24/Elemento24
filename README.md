@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every artist writes his own autobiography.</b>
-> <p><i>Havelock Ellis</i></p>
+> <b>Let your Discourse with Men of Business be Short and Comprehensive.</b>
+> <p><i>George Washington</i></p>
 
 <br>
