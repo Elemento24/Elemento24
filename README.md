@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I want to be alone, some place I can write, I can read, I can pray, I can cry, I can do whatever I want - I go to the bathroom.</b>
-> <p><i>Alicia Keys</i></p>
+> <b>These women whose antics we smirk at good-naturedly in the pap-traps put themselves out there at least partly on their beauty they are in showbiz, and showing what they've got is part of their business as much as it is for male show-ponies from the Chippendales to George Clooney.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
