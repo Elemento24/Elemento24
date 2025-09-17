@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe we should encourage children to sing and play instruments from an early age.</b>
-> <p><i>Mick Jagger</i></p>
+> <b>A bad manner spoils everything, even reason and justice a good one supplies everything, gilds a No, sweetens a truth, and adds a touch of beauty to old age itself.</b>
+> <p><i>Baltasar Gracian</i></p>
 
 <br>
