@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My husband and I are best of friends first and foremost. We fight like cats and dogs, but never stay mad for long. I was lucky to find him, he is in every way, my soulmate.</b>
-> <p><i>Carnie Wilson</i></p>
+> <b>I accept the Old Testament as more of an action movie: blood, car chases, evacuations, a lot of special effects, seas dividing, mass murder, adultery. The children of God are running amok, wayward. Maybe that's why they're so relatable.</b>
+> <p><i>Bono</i></p>
 
 <br>
