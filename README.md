@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>These women whose antics we smirk at good-naturedly in the pap-traps put themselves out there at least partly on their beauty they are in showbiz, and showing what they've got is part of their business as much as it is for male show-ponies from the Chippendales to George Clooney.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>Beware of him that is slow to anger for when it is long coming, it is the stronger when it comes, and the longer kept. Abused patience turns to fury.</b>
+> <p><i>Francis Quarles</i></p>
 
 <br>
