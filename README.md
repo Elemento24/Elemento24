@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best place a person can die, is where they die for others.</b>
-> <p><i>James M. Barrie</i></p>
+> <b>Something about Texas I'm not proud of is that our state murdered 37 people last year alone.</b>
+> <p><i>Richard Linklater</i></p>
 
 <br>
