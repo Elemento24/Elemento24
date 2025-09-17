@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let your Discourse with Men of Business be Short and Comprehensive.</b>
-> <p><i>George Washington</i></p>
+> <b>I believe we should encourage children to sing and play instruments from an early age.</b>
+> <p><i>Mick Jagger</i></p>
 
 <br>
