@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.</b>
-> <p><i>Peter Drucker</i></p>
+> <b>Music is one of those things that make us feel a little less alone in the world.</b>
+> <p><i>Tom Cochrane</i></p>
 
 <br>
