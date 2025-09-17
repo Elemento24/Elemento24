@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>High expectations weren't nurtured in my neck of nowhere back then - children weren't fawned over from an early age as 'gifted' and groomed for a prizewinning future self-esteem was considered something you had to pick from the garden yourself.</b>
-> <p><i>James Wolcott</i></p>
+> <b>I did a cake for the 60th birthday of Elton John, for Britney Spears' 27th birthday and for the 'Circus' album she put out - the cake had circus themes. I prepared a cake for a surprise 82nd birthday event for the architect Frank Gehry the cake was comprised of mini-replicas of his buildings.</b>
+> <p><i>Ron Ben-Israel</i></p>
 
 <br>
