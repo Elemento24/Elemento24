@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Although my family - parents and sister - all work in the personnel management business, their real passion is performing, amateur operatic societies and so on.</b>
-> <p><i>Michael Sheen</i></p>
+> <b>Let each man exercise the art he knows.</b>
+> <p><i>Aristophanes</i></p>
 
 <br>
