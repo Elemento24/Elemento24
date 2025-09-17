@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beware of him that is slow to anger for when it is long coming, it is the stronger when it comes, and the longer kept. Abused patience turns to fury.</b>
-> <p><i>Francis Quarles</i></p>
+> <b>The cottage garden most for use designed, Yet not of beauty destitute.</b>
+> <p><i>Charlotte Smith</i></p>
 
 <br>
