@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Remote villages and communities have lost their identity, and their peace and charm have been sacrificed to that worst of abominations, the automobile.</b>
-> <p><i>James Norman Hall</i></p>
+> <b>What you have now is a Hollywood that is pure poison. Hollywood was a central place in the history of art in the 20th century: it was human idealism preserved. And then, like any great place, it collapsed, and it collapsed into the most awful machinery in the world.</b>
+> <p><i>Emir Kusturica</i></p>
 
 <br>
