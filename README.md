@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Make the best use of what is in your power, and take the rest as it happens.</b>
-> <p><i>Epictetus</i></p>
+> <b>It was 100 feet of 16 mm black-and-white film of a car coming to a stop sign, and driving off. I had to decide how to frame and light it. It was magic. There was a sense of mystery.</b>
+> <p><i>Conrad Hall</i></p>
 
 <br>
