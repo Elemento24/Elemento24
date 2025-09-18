@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As for everything else, so for a mathematical theory: beauty can be perceived but not explained.</b>
-> <p><i>Arthur Cayley</i></p>
+> <b>Love and business and family and religion and art and patriotism are nothing but shadows of words when a man's starving!</b>
+> <p><i>O. Henry</i></p>
 
 <br>
