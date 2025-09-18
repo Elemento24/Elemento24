@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's what show business is, sincere insincerity.</b>
-> <p><i>Benny Hill</i></p>
+> <b>If art is to nourish the roots of our culture, society must set the artist free to follow his vision wherever it takes him.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
