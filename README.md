@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My culture-deprived, aspirational mother dragged me once a month from our northern suburb - where the word art never came up - to the Art Institute of Chicago. I hated it.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Bridges are perhaps the most invisible form of public architecture.</b>
+> <p><i>Bruce Jackson</i></p>
 
 <br>
