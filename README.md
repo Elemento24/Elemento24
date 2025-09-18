@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love and business and family and religion and art and patriotism are nothing but shadows of words when a man's starving!</b>
-> <p><i>O. Henry</i></p>
+> <b>When I joined Bill Clinton's start-up presidential campaign in 1991, I was confident that women would play an ever more important role, but I never gave a minute's thought to what would happen if we won. When we did - and I became the first woman to serve as White House press secretary - it changed my life. But it didn't change the world.</b>
+> <p><i>Dee Dee Myers</i></p>
 
 <br>
