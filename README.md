@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If art is to nourish the roots of our culture, society must set the artist free to follow his vision wherever it takes him.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>I have to hit the gym. I have beauty appointments. I have to work toward my next job and maintaining my image, just like an athlete.</b>
+> <p><i>Linda Evangelista</i></p>
 
 <br>
