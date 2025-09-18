@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If anger proceeds from a great cause, it turns to fury if from a small cause, it is peevishness and so is always either terrible or ridiculous.</b>
-> <p><i>Jeremy Taylor</i></p>
+> <b>Walking with a friend in the dark is better than walking alone in the light.</b>
+> <p><i>Helen Keller</i></p>
 
 <br>
