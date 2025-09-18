@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A mode of conduct, a standard of courage, discipline, fortitude and integrity can do a great deal to make a woman beautiful.</b>
-> <p><i>Jacqueline Bisset</i></p>
+> <b>If anger proceeds from a great cause, it turns to fury if from a small cause, it is peevishness and so is always either terrible or ridiculous.</b>
+> <p><i>Jeremy Taylor</i></p>
 
 <br>
