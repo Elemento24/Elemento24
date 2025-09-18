@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just always expect the best because I'm a competitor and if I'm competing, then obviously I'm trying to be better in everything.</b>
-> <p><i>Lil Wayne</i></p>
+> <b>When you do not know what you are doing and what you are doing is the best - that is inspiration.</b>
+> <p><i>Robert Bresson</i></p>
 
 <br>
