@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to hit the gym. I have beauty appointments. I have to work toward my next job and maintaining my image, just like an athlete.</b>
-> <p><i>Linda Evangelista</i></p>
+> <b>Remote villages and communities have lost their identity, and their peace and charm have been sacrificed to that worst of abominations, the automobile.</b>
+> <p><i>James Norman Hall</i></p>
 
 <br>
