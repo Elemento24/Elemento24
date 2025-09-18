@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you do not know what you are doing and what you are doing is the best - that is inspiration.</b>
-> <p><i>Robert Bresson</i></p>
+> <b>Excuses change nothing, but make everyone feel better.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
