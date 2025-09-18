@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Excuses change nothing, but make everyone feel better.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>Twitter is the most amazing medium for a comedy writer. I can't get in every idea I want on the show no matter how hard I try to bully the other writers, so it's a way of me getting out other comic ideas and immediately getting feedback.</b>
+> <p><i>Mindy Kaling</i></p>
 
 <br>
