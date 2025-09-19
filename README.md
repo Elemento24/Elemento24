@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People spend so much time in their cars, and it's a legal way to have fun by speeding a little bit or testing yourself a little bit, and you get to invest in your car. For some people, it becomes their baby.</b>
-> <p><i>Jordana Brewster</i></p>
+> <b>The environmental benefits of hydrogen are also outstanding. When used as an energy source, hydrogen produces no emissions besides water. Zero polluting emissions, an amazing advance over the current sources of energy that we use.</b>
+> <p><i>Dan Lipinski</i></p>
 
 <br>
