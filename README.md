@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're old, don't try to change yourself, change your environment.</b>
-> <p><i>B. F. Skinner</i></p>
+> <b>I believe God is managing affairs and that He doesn't need any advice from me. With God in charge, I believe everything will work out for the best in the end. So what is there to worry about.</b>
+> <p><i>Henry Ford</i></p>
 
 <br>
