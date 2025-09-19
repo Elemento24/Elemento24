@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of leadership is saying no, not saying yes. It is very easy to say yes.</b>
-> <p><i>Tony Blair</i></p>
+> <b>It's not some great work of beauty and love to be a rock-and-roll singer.</b>
+> <p><i>Robert Plant</i></p>
 
 <br>
