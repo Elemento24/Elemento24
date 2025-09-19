@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look, if I were alone in the world, I would have the right to choose despair, solitude and self-fulfillment. But I am not alone.</b>
-> <p><i>Elie Wiesel</i></p>
+> <b>For a while I felt very alone sort of out there in the world of comics, especially here in the States.</b>
+> <p><i>Bill Sienkiewicz</i></p>
 
 <br>
