@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any role that big is going to be a challenge for any actor, but for an actor of a young age, it's going to be even tougher.</b>
-> <p><i>Jeff Bridges</i></p>
+> <b>As I grow older, I pay less attention to what men say. I just watch what they do.</b>
+> <p><i>Andrew Carnegie</i></p>
 
 <br>
