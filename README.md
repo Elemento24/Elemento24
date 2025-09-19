@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love alone could waken love.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>People spend so much time in their cars, and it's a legal way to have fun by speeding a little bit or testing yourself a little bit, and you get to invest in your car. For some people, it becomes their baby.</b>
+> <p><i>Jordana Brewster</i></p>
 
 <br>
