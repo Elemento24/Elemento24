@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The environmental benefits of hydrogen are also outstanding. When used as an energy source, hydrogen produces no emissions besides water. Zero polluting emissions, an amazing advance over the current sources of energy that we use.</b>
-> <p><i>Dan Lipinski</i></p>
+> <b>It was on my fifth birthday that Papa put his hand on my shoulder and said, 'Remember, my son, if you ever need a helping hand, you'll find one at the end of your arm.'</b>
+> <p><i>Sam Levenson</i></p>
 
 <br>
