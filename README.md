@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The components of anxiety, stress, fear, and anger do not exist independently of you in the world. They simply do not exist in the physical world, even though we talk about them as if they do.</b>
-> <p><i>Wayne Dyer</i></p>
+> <b>Look, if I were alone in the world, I would have the right to choose despair, solitude and self-fulfillment. But I am not alone.</b>
+> <p><i>Elie Wiesel</i></p>
 
 <br>
