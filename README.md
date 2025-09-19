@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to get old gracefully. I want to have good posture, I want to be healthy and be an example to my children.</b>
-> <p><i>Sting</i></p>
+> <b>Any role that big is going to be a challenge for any actor, but for an actor of a young age, it's going to be even tougher.</b>
+> <p><i>Jeff Bridges</i></p>
 
 <br>
