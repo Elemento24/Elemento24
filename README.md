@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And remember don't high post when you're far from home, and high posting when you're all alone.</b>
-> <p><i>Mos Def</i></p>
+> <b>If you're old, don't try to change yourself, change your environment.</b>
+> <p><i>B. F. Skinner</i></p>
 
 <br>
