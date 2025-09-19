@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For a while I felt very alone sort of out there in the world of comics, especially here in the States.</b>
-> <p><i>Bill Sienkiewicz</i></p>
+> <b>Car designers are just going to have to come up with an automobile that outlasts the payments.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
