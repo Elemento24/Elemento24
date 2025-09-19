@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our attitude toward life determines life's attitude towards us.</b>
-> <p><i>John N. Mitchell</i></p>
+> <b>And remember don't high post when you're far from home, and high posting when you're all alone.</b>
+> <p><i>Mos Def</i></p>
 
 <br>
