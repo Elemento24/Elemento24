@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Information is the oxygen of the modern age. It seeps through the walls topped by barbed wire, it wafts across the electrified borders.</b>
-> <p><i>Ronald Reagan</i></p>
+> <b>The worst disease which can afflict business executives in their work is not, as popularly supposed, alcoholism it's egotism.</b>
+> <p><i>Harold S. Geneen</i></p>
 
 <br>
