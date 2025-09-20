@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have believed the best of every man. And find that to believe is enough to make a bad man show him at his best, or even a good man swings his lantern higher.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>'Tis best to weigh the enemy more mighty than he seems.</b>
+> <p><i>William Shakespeare</i></p>
 
 <br>
