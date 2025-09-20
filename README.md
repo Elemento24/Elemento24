@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I discovered that the horse is life itself, a metaphor but also an example of life's mystery and unpredictability, of life's generosity and beauty, a worthy object of repeated and ever changing contemplation.</b>
-> <p><i>Jane Smiley</i></p>
+> <b>In this business it takes time to be really good - and by that time, you're obsolete.</b>
+> <p><i>Cher</i></p>
 
 <br>
