@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're living in an era of unprecedented change, and I want to be a part of documenting it.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>In this age of media and Internet access, we are much more talkative than ever before.</b>
+> <p><i>David Duchovny</i></p>
 
 <br>
