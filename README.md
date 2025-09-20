@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty in distress is much the most affecting beauty.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>I feel comfortable around every driver out there and each driver is in charge of their own car, but you feel very secure racing the competition out there.</b>
+> <p><i>Kurt Busch</i></p>
 
 <br>
