@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Towns find it as hard as houses of business to rise again from ruin.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>The compensation of a very early success is a conviction that life is a romantic matter. In the best sense one stays young.</b>
+> <p><i>F. Scott Fitzgerald</i></p>
 
 <br>
