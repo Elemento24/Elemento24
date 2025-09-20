@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to inspire people to superior performance is to convince them by everything you do and by your everyday attitude that you are wholeheartedly supporting them.</b>
-> <p><i>Harold S. Geneen</i></p>
+> <b>I have believed the best of every man. And find that to believe is enough to make a bad man show him at his best, or even a good man swings his lantern higher.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
