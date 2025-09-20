@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without change, something sleeps inside us, and seldom awakens. The sleeper must awaken.</b>
-> <p><i>Frank Herbert</i></p>
+> <b>America won the Cold War by protecting our strategic resources from the threat of foreign control. We must bring the same attitude to our trade relationship with China.</b>
+> <p><i>Jo Ann Emerson</i></p>
 
 <br>
