@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been an avid reader. If I don't have a book in the car, I'll stop and pick one up just to have something to read. I don't even remember learning to read.</b>
-> <p><i>Janis Ian</i></p>
+> <b>Towns find it as hard as houses of business to rise again from ruin.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
