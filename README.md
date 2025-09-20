@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>America won the Cold War by protecting our strategic resources from the threat of foreign control. We must bring the same attitude to our trade relationship with China.</b>
-> <p><i>Jo Ann Emerson</i></p>
+> <b>I discovered that the horse is life itself, a metaphor but also an example of life's mystery and unpredictability, of life's generosity and beauty, a worthy object of repeated and ever changing contemplation.</b>
+> <p><i>Jane Smiley</i></p>
 
 <br>
