@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is pretty amazing. My parents, who came from Nicaragua to the U.S. - who would have thought that they would have American kids on the Olympic team? I think that's the epitome of the Olympic dream.</b>
-> <p><i>Diana Lopez</i></p>
+> <b>The best way to inspire people to superior performance is to convince them by everything you do and by your everyday attitude that you are wholeheartedly supporting them.</b>
+> <p><i>Harold S. Geneen</i></p>
 
 <br>
