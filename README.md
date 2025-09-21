@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art seduces, but does not exploit.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>The love of all-inclusiveness is as dangerous in philosophy as in art.</b>
+> <p><i>George Santayana</i></p>
 
 <br>
