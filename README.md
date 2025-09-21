@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A special kind of beauty exists which is born in language, of language, and for language.</b>
-> <p><i>Gaston Bachelard</i></p>
+> <b>Beauty is our weapon against nature by it we make objects, giving them limit, symmetry, proportion. Beauty halts and freezes the melting flux of nature.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
