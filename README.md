@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What sculptors do is represent the essence of gesture. What is important in mime is attitude.</b>
-> <p><i>Marcel Marceau</i></p>
+> <b>A special kind of beauty exists which is born in language, of language, and for language.</b>
+> <p><i>Gaston Bachelard</i></p>
 
 <br>
