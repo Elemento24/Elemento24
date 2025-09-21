@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is great folly to wish to be wise all alone.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>Men are fair, and they have learned not to personalize anger - they can disagree with you and argue to the bone, but afterward they still consider you a nice person with whom the underlying human relationship need not be altered.</b>
+> <p><i>Warren Farrell</i></p>
 
 <br>
