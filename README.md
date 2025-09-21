@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I think is amazing is not that 85% of people who get married under the age of 25 get divorced, it's that 15% of them stay together. How did they manage to pull that off? You almost can't wait too long. It's the single simplest measure to predict divorce.</b>
-> <p><i>Elizabeth Gilbert</i></p>
+> <b>When I was young my Father used to tell me that the two most worthwhile pursuits in life were the pursuit of truth and of beauty and I believe that Alfred Nobel must have felt much the same when he gave these prizes for literature and the sciences.</b>
+> <p><i>Frederick Sanger</i></p>
 
 <br>
