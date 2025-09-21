@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Gardening is not trivial. If you believe that it is, closely examine why you feel that way. You may discover that this attitude has been forced upon you by mass media and the crass culture it creates and maintains. The fact is, gardening is just the opposite - it is, or should be, a central, basic expression of human life.</b>
-> <p><i>Andrew Weil</i></p>
+> <b>Camping is nature's way of promoting the motel business.</b>
+> <p><i>Dave Barry</i></p>
 
 <br>
