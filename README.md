@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Camping is nature's way of promoting the motel business.</b>
-> <p><i>Dave Barry</i></p>
+> <b>Discount air fares, a car in every parking space and the interstate highway system have made every place accessible - and every place alike.</b>
+> <p><i>Ronald Steel</i></p>
 
 <br>
