@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've given it my all. I've done my best. Now, I'm ready with my family to begin the next phase of our lives.</b>
-> <p><i>Richard M. Daley</i></p>
+> <b>I think it has something to do with being British. We don't take ourselves as seriously as some other countries do. I think a lot of people take themselves far too seriously I find that a very tedious attitude.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
