@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men are fair, and they have learned not to personalize anger - they can disagree with you and argue to the bone, but afterward they still consider you a nice person with whom the underlying human relationship need not be altered.</b>
-> <p><i>Warren Farrell</i></p>
+> <b>What makes America amazing is that there have always been men and women of courage who were willing to think more about the future of their children and grandchildren than they did about their own political careers.</b>
+> <p><i>Scott Walker</i></p>
 
 <br>
