@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My kids always perceived the bathroom as a place where you wait it out until all the groceries are unloaded from the car.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>Ah! how annoying that the law doesn't allow a woman to change husbands just as one does shirts.</b>
+> <p><i>Moliere</i></p>
 
 <br>
