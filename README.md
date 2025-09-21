@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was young my Father used to tell me that the two most worthwhile pursuits in life were the pursuit of truth and of beauty and I believe that Alfred Nobel must have felt much the same when he gave these prizes for literature and the sciences.</b>
-> <p><i>Frederick Sanger</i></p>
+> <b>My kids always perceived the bathroom as a place where you wait it out until all the groceries are unloaded from the car.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
