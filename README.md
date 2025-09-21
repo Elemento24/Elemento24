@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ah! how annoying that the law doesn't allow a woman to change husbands just as one does shirts.</b>
-> <p><i>Moliere</i></p>
+> <b>I think having a child can really change you if you're open to it.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
