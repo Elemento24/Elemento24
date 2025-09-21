@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The love of all-inclusiveness is as dangerous in philosophy as in art.</b>
-> <p><i>George Santayana</i></p>
+> <b>It is great folly to wish to be wise all alone.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
