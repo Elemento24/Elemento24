@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Simplicity is the final achievement. After one has played a vast quantity of notes and more notes, it is simplicity that emerges as the crowning reward of art.</b>
-> <p><i>Frederic Chopin</i></p>
+> <b>Some years ago there was a study to discover the most stressful occupation. It turned out not to be the head of a large business, football manager or prime minister, but rather: bus driver.</b>
+> <p><i>Jonathan Sacks</i></p>
 
 <br>
