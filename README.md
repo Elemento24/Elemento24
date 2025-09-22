@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After a decade this glum, we deserved a shot of 'Glee,' a show that restored our faith in the power of song, the beauty of dance, and the magic of 'spirit fingers' to chase our cares and woes into somebody else's backyard.</b>
-> <p><i>James Wolcott</i></p>
+> <b>The best car safety device is a rear-view mirror with a cop in it.</b>
+> <p><i>Dudley Moore</i></p>
 
 <br>
