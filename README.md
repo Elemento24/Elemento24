@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>None of us will ever accomplish anything excellent or commanding except when he listens to this whisper which is heard by him alone.</b>
-> <p><i>Thomas Carlyle</i></p>
+> <b>Art is changing. Again. Here. Now. Opportunities to witness this are rare, so attend and observe.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
