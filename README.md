@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I worked at an ice cream parlor called Chadwicks. We wore old-timey outfits and had to bang a drum, play a kazoo, and sing 'Happy Birthday' to people while giving them free birthday sundaes. Lots of ice cream scooping and $1 tips.</b>
-> <p><i>Amy Poehler</i></p>
+> <b>If you actually want to change your world, there is a better way of doing it than blowing yourself up.</b>
+> <p><i>Salman Rushdie</i></p>
 
 <br>
