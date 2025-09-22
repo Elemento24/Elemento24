@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For a while I couldn't leave the house by myself. Even if I was just grocery shopping alone, I'd get self-conscious.</b>
-> <p><i>Shannen Doherty</i></p>
+> <b>I was very much into buying contemporary art, but I've just decided I want to get rid of it all. Not that it's not great art, but all of a sudden my mood has changed, and I want to go back to seventeenth- and eighteenth-century masters.</b>
+> <p><i>Sylvester Stallone</i></p>
 
 <br>
