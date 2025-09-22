@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you actually want to change your world, there is a better way of doing it than blowing yourself up.</b>
-> <p><i>Salman Rushdie</i></p>
+> <b>You watch an old 'Jeopardy!' and the categories alone are very plain. 'Poetry,' or 'Movies,' or 'Physics.' If you watch it now, though, there'll be a theme board where the categories are all Hitchcock movies. Lots more jokes, lots more high-concept categories and questions.</b>
+> <p><i>Ken Jennings</i></p>
 
 <br>
