@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was very much into buying contemporary art, but I've just decided I want to get rid of it all. Not that it's not great art, but all of a sudden my mood has changed, and I want to go back to seventeenth- and eighteenth-century masters.</b>
-> <p><i>Sylvester Stallone</i></p>
+> <b>My philosophy is: It's none of my business what people say of me and think of me.</b>
+> <p><i>Anthony Hopkins</i></p>
 
 <br>
