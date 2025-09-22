@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I started Netscape I was brand new out of college and all the aspects of building a business, like balance sheets and hiring people, were new to me.</b>
-> <p><i>Marc Andreessen</i></p>
+> <b>Wisdom is the abstract of the past, but beauty is the promise of the future.</b>
+> <p><i>Oliver Wendell Holmes</i></p>
 
 <br>
