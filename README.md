@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>San Francisco is a mad city - inhabited for the most part by perfectly insane people whose women are of a remarkable beauty.</b>
-> <p><i>Rudyard Kipling</i></p>
+> <b>None of us will ever accomplish anything excellent or commanding except when he listens to this whisper which is heard by him alone.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
