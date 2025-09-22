@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In every age there has been a stream of popular opinion that has carried all before it, and given a family character, as it were, to the century.</b>
-> <p><i>Mary Wollstonecraft</i></p>
+> <b>For a while I couldn't leave the house by myself. Even if I was just grocery shopping alone, I'd get self-conscious.</b>
+> <p><i>Shannen Doherty</i></p>
 
 <br>
