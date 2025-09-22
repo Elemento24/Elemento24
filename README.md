@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wisdom is the abstract of the past, but beauty is the promise of the future.</b>
-> <p><i>Oliver Wendell Holmes</i></p>
+> <b>In every age there has been a stream of popular opinion that has carried all before it, and given a family character, as it were, to the century.</b>
+> <p><i>Mary Wollstonecraft</i></p>
 
 <br>
