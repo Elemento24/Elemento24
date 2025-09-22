@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A suburban mother's role is to deliver children obstetrically once, and by car forever after.</b>
-> <p><i>Peter De Vries</i></p>
+> <b>I try to give people a different way of looking at their surroundings. That's art to me.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
