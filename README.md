@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our attitude towards others determines their attitude towards us.</b>
-> <p><i>Earl Nightingale</i></p>
+> <b>Nonsense and beauty have close connections.</b>
+> <p><i>E. M. Forster</i></p>
 
 <br>
