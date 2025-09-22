@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My philosophy is: It's none of my business what people say of me and think of me.</b>
-> <p><i>Anthony Hopkins</i></p>
+> <b>After a decade this glum, we deserved a shot of 'Glee,' a show that restored our faith in the power of song, the beauty of dance, and the magic of 'spirit fingers' to chase our cares and woes into somebody else's backyard.</b>
+> <p><i>James Wolcott</i></p>
 
 <br>
