@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We try, we fail, we posture, we aspire, we pontificate - and then we age, shrink, die, and vanish.</b>
-> <p><i>George Saunders</i></p>
+> <b>The best thing to do with the best things in life is to give them up.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
