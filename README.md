@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The seated lotus postures are an amazing way to go into meditation, or simply just to take a moment to ground oneself.</b>
-> <p><i>Christy Turlington</i></p>
+> <b>It was really cool going to Sea World. We had an amazing time. They were amazing to us. We got to swim with the dolphins, and it was really special.</b>
+> <p><i>Sarah Chalke</i></p>
 
 <br>
