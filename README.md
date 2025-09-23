@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man's best fortune, or his worst, is his wife.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>To talk about a relationship trivializes something that's nobody's business.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
