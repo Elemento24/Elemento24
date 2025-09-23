@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is very nice, but it lacks form. It's the aim of art to give it some.</b>
-> <p><i>Jean Anouilh</i></p>
+> <b>Age does not protect you from love. But love, to some extent, protects you from age.</b>
+> <p><i>Jeanne Moreau</i></p>
 
 <br>
