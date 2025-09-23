@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the first present nature gives to women and the first it takes away.</b>
-> <p><i>Fay Weldon</i></p>
+> <b>The tendency of old age to the body, say the physiologists, is to form bone. It is as rare as it is pleasant to meet with an old man whose opinions are not ossified.</b>
+> <p><i>Bob Wells</i></p>
 
 <br>
