@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be like Tom Cruise from 'The Outsiders' and go on and do amazing movies for a long time.</b>
-> <p><i>Ashton Kutcher</i></p>
+> <b>A man's best fortune, or his worst, is his wife.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
