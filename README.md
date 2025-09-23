@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Michelle Pfeiffer hasn't been finding a lot of work recently because she doesn't like what a woman her age is offered. That's a real double standard. You get Sean Connery, who gets older and older, still playing opposite young ladies, but it doesn't work the other way around.</b>
-> <p><i>Denzel Washington</i></p>
+> <b>Well, I'm in my 60s now. I finally look it, I think. People until I was 60 would always say they thought I looked younger, which I think, without flattering myself, I did, but I think I certainly have, as George Orwell says people do after a certain age, the face they deserve.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
