@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age does not protect you from love. But love, to some extent, protects you from age.</b>
-> <p><i>Jeanne Moreau</i></p>
+> <b>But now I realize that this record business really needs me. No one else is trying to take a chance or do something different.</b>
+> <p><i>Erykah Badu</i></p>
 
 <br>
