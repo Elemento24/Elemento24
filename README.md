@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But now I realize that this record business really needs me. No one else is trying to take a chance or do something different.</b>
-> <p><i>Erykah Badu</i></p>
+> <b>The majority does not rule in America, but the minority shouldn't hijack it. And it's because we're afraid. They have isolated us and made us feel as though we're alone. We're not.</b>
+> <p><i>Glenn Beck</i></p>
 
 <br>
