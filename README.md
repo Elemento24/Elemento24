@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was really cool going to Sea World. We had an amazing time. They were amazing to us. We got to swim with the dolphins, and it was really special.</b>
-> <p><i>Sarah Chalke</i></p>
+> <b>The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone.</b>
+> <p><i>Laura Bush</i></p>
 
 <br>
