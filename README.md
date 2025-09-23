@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone.</b>
-> <p><i>Laura Bush</i></p>
+> <b>An artist must be a reactionary. He has to stand out against the tenor of the age and not go flopping along.</b>
+> <p><i>Andre Maurois</i></p>
 
 <br>
