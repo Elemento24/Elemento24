@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To change a habit, make a conscious decision, then act out the new behavior.</b>
-> <p><i>Maxwell Maltz</i></p>
+> <b>I was advised by an American agent when I was about 19 to change my surname.</b>
+> <p><i>Rachel Weisz</i></p>
 
 <br>
