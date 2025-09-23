@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was advised by an American agent when I was about 19 to change my surname.</b>
-> <p><i>Rachel Weisz</i></p>
+> <b>I really enjoy being single again. I spent a lot of time in a relationship and the nearer we came to the end, the more difficult it got. You don't see things clearly as long as you're still involved.</b>
+> <p><i>Dido Armstrong</i></p>
 
 <br>
