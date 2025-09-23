@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, I'm in my 60s now. I finally look it, I think. People until I was 60 would always say they thought I looked younger, which I think, without flattering myself, I did, but I think I certainly have, as George Orwell says people do after a certain age, the face they deserve.</b>
-> <p><i>Christopher Hitchens</i></p>
+> <b>Boys, they can't take my refrigerator now. They'll never get my car now. I paid cash for 'em and they're mine, and I'm keepin' 'em!</b>
+> <p><i>Patsy Cline</i></p>
 
 <br>
