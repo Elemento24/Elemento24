@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember when I started off, my first car was a Kia Spectra. With a spoiler kit and some rims.</b>
-> <p><i>Gio Gonzalez</i></p>
+> <b>Change your thoughts and you change your world.</b>
+> <p><i>Norman Vincent Peale</i></p>
 
 <br>
