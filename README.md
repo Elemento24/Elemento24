@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change your thoughts and you change your world.</b>
-> <p><i>Norman Vincent Peale</i></p>
+> <b>Not by age but by capacity is wisdom acquired.</b>
+> <p><i>Plautus</i></p>
 
 <br>
