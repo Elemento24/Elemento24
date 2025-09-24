@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Film editing is now something almost everyone can do at a simple level and enjoy it, but to take it to a higher level requires the same dedication and persistence that any art form does.</b>
-> <p><i>Walter Murch</i></p>
+> <b>Understand why casinos and racetracks stay in business - the gambler always loses over the long term.</b>
+> <p><i>Marilyn vos Savant</i></p>
 
 <br>
