@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Holidays are the best. I couldn't imagine being from a small family.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>Film editing is now something almost everyone can do at a simple level and enjoy it, but to take it to a higher level requires the same dedication and persistence that any art form does.</b>
+> <p><i>Walter Murch</i></p>
 
 <br>
