@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A thing is right when it tends to preserve the integrity, stability and beauty of the biotic community. It is wrong when it tends otherwise.</b>
-> <p><i>Aldo Leopold</i></p>
+> <b>Abstract art: a product of the untalented sold by the unprincipled to the utterly bewildered.</b>
+> <p><i>Al Capp</i></p>
 
 <br>
