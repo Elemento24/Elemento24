@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never wanted to go on stage alone because if you mess up, who can you blame?</b>
-> <p><i>Patti LaBelle</i></p>
+> <b>Of all the lessons most relevant to architecture today, Japanese flexibility is the greatest.</b>
+> <p><i>Stephen Gardiner</i></p>
 
 <br>
