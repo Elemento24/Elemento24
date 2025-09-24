@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Where I come from, it was a heresy to say you wanted to be in movies, leave alone American movies.</b>
-> <p><i>Daniel Day-Lewis</i></p>
+> <b>Holidays are the best. I couldn't imagine being from a small family.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
