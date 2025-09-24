@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Understand why casinos and racetracks stay in business - the gambler always loses over the long term.</b>
-> <p><i>Marilyn vos Savant</i></p>
+> <b>In regard to music, I just think that it's always best to have an attitude of being a perpetual student and always look to learn something new about music, because there's always something new to learn.</b>
+> <p><i>David Sanborn</i></p>
 
 <br>
