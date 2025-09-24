@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Abstract art: a product of the untalented sold by the unprincipled to the utterly bewildered.</b>
-> <p><i>Al Capp</i></p>
+> <b>A majority is always better than the best repartee.</b>
+> <p><i>Benjamin Disraeli</i></p>
 
 <br>
