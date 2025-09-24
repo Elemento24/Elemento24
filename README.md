@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of all the lessons most relevant to architecture today, Japanese flexibility is the greatest.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>It is my belief that we all have the need to feel special. It is this need that can bring out the best in us, yet the worst in us.</b>
+> <p><i>Janet Jackson</i></p>
 
 <br>
