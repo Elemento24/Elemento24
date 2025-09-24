@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are generally amazed that I would take an interest in any form that would require me to stop talking for three hours.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>Where I come from, it was a heresy to say you wanted to be in movies, leave alone American movies.</b>
+> <p><i>Daniel Day-Lewis</i></p>
 
 <br>
