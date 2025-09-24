@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that one's art is a growth inside one. I do not think one can explain growth. It is silent and subtle. One does not keep digging up a plant to see how it grows.</b>
-> <p><i>Emily Carr</i></p>
+> <b>There is certainly no absolute standard of beauty. That precisely is what makes its pursuit so interesting.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
