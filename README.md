@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing to do with the best things in life is to give them up.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>I had a friend whose family had dinner together. The mother would tuck you in at night and make breakfast in the morning. They even had a spare bike for a friend. It just seemed so amazing to me.</b>
+> <p><i>Moon Unit Zappa</i></p>
 
 <br>
