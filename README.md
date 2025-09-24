@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In regard to music, I just think that it's always best to have an attitude of being a perpetual student and always look to learn something new about music, because there's always something new to learn.</b>
-> <p><i>David Sanborn</i></p>
+> <b>Truth is, I cut my hair for freedom, not for beauty.</b>
+> <p><i>Chrisette Michele</i></p>
 
 <br>
