@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not by age but by capacity is wisdom acquired.</b>
-> <p><i>Plautus</i></p>
+> <b>A thing is right when it tends to preserve the integrity, stability and beauty of the biotic community. It is wrong when it tends otherwise.</b>
+> <p><i>Aldo Leopold</i></p>
 
 <br>
