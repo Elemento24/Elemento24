@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maybe I'm old-fashioned. But I remember the beauty and thrill of being moved by Broadway musicals - particularly the endings of shows.</b>
-> <p><i>Marvin Hamlisch</i></p>
+> <b>It ought to be illegal for an artist to marry. If the artist must marry let him find someone more interested in art, or his art, or the artist part of him, than in him. After which let them take tea together three times a week.</b>
+> <p><i>Ezra Pound</i></p>
 
 <br>
