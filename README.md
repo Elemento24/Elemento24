@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The second album was emotionally exhausting and my life felt like it had become very serious at a very young age.</b>
-> <p><i>Delta Goodrem</i></p>
+> <b>There is no self-knowledge but an historical one. No one knows what he himself is who does not know his fellow men, especially the most prominent one of the community, the master's master, the genius of the age.</b>
+> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
 
 <br>
