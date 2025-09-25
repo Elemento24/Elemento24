@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For real change, we need feminine energy in the management of the world. We need a critical number of women in positions of power, and we need to nurture the feminine energy in men.</b>
-> <p><i>Isabel Allende</i></p>
+> <b>Your children need your presence more than your presents.</b>
+> <p><i>Jesse Jackson</i></p>
 
 <br>
