@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no self-knowledge but an historical one. No one knows what he himself is who does not know his fellow men, especially the most prominent one of the community, the master's master, the genius of the age.</b>
-> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
+> <b>See, the 'On the Road' that came out in 1957 was censored. A lot of the honesty of it, the bitter honesty, is in the original scroll version that came out in 2007 on the 50-year anniversary. Back then, there was so much post-Second World War fear that was imposed on everybody - 'You must live life this way' - and these guys were bored.</b>
+> <p><i>Garrett Hedlund</i></p>
 
 <br>
