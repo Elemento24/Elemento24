@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've spent more on my Dodger tickets that I did on my car.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>Maybe I'm old-fashioned. But I remember the beauty and thrill of being moved by Broadway musicals - particularly the endings of shows.</b>
+> <p><i>Marvin Hamlisch</i></p>
 
 <br>
