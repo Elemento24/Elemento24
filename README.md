@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>See, the 'On the Road' that came out in 1957 was censored. A lot of the honesty of it, the bitter honesty, is in the original scroll version that came out in 2007 on the 50-year anniversary. Back then, there was so much post-Second World War fear that was imposed on everybody - 'You must live life this way' - and these guys were bored.</b>
-> <p><i>Garrett Hedlund</i></p>
+> <b>Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
