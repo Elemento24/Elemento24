@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Belief is nothing but a more vivid, lively, forcible, firm, steady conception of an object, than what the imagination alone is ever able to attain.</b>
-> <p><i>David Hume</i></p>
+> <b>By all means use some time to be alone.</b>
+> <p><i>Edward Young</i></p>
 
 <br>
