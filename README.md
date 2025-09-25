@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not into watching stuff I did last week, let alone three or four years ago.</b>
-> <p><i>Chris Hemsworth</i></p>
+> <b>For real change, we need feminine energy in the management of the world. We need a critical number of women in positions of power, and we need to nurture the feminine energy in men.</b>
+> <p><i>Isabel Allende</i></p>
 
 <br>
