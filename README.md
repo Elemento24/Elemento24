@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way to avoid being unhappy is to close yourself up in Art and to count for nothing all the rest.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>I've spent more on my Dodger tickets that I did on my car.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
