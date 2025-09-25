@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So much of life is luck. One day you make a right turn and get hit by a car. Turn left and you meet the love of your life. I think I made the correct turn.</b>
-> <p><i>Loretta Swit</i></p>
+> <b>The only way to avoid being unhappy is to close yourself up in Art and to count for nothing all the rest.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
