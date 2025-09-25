@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By all means use some time to be alone.</b>
-> <p><i>Edward Young</i></p>
+> <b>I still have a lot to learn - about the business, about music, and about myself. Its exciting.</b>
+> <p><i>Britney Spears</i></p>
 
 <br>
