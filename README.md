@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the best friend. An educated person is respected everywhere. Education beats the beauty and the youth.</b>
-> <p><i>Chanakya</i></p>
+> <b>Belief is nothing but a more vivid, lively, forcible, firm, steady conception of an object, than what the imagination alone is ever able to attain.</b>
+> <p><i>David Hume</i></p>
 
 <br>
