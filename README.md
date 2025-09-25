@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is it not careless to become too local when there are four hundred billion stars in our galaxy alone.</b>
-> <p><i>A. R. Ammons</i></p>
+> <b>So much of life is luck. One day you make a right turn and get hit by a car. Turn left and you meet the love of your life. I think I made the correct turn.</b>
+> <p><i>Loretta Swit</i></p>
 
 <br>
