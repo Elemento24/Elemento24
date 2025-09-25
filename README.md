@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Female rappers get it the hardest. You have to be a girl, yet you have to be just as hard as the guys. I think some female rappers get scared out of the business before they can make it.</b>
-> <p><i>Nicki Minaj</i></p>
+> <b>If an Internet company steals content, they shut it down. And let me tell you, Apple France, Yahoo France or Google France, none of them have gone out of business.</b>
+> <p><i>Harvey Weinstein</i></p>
 
 <br>
