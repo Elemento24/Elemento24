@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It ought to be illegal for an artist to marry. If the artist must marry let him find someone more interested in art, or his art, or the artist part of him, than in him. After which let them take tea together three times a week.</b>
-> <p><i>Ezra Pound</i></p>
+> <b>I'm not into watching stuff I did last week, let alone three or four years ago.</b>
+> <p><i>Chris Hemsworth</i></p>
 
 <br>
