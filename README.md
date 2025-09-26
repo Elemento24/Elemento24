@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Who among us has never looked up into the heavens on a starlit night, lost in wonder at the vastness of space and the beauty of the stars?</b>
-> <p><i>Jeb Bush</i></p>
+> <b>Oh, if I had been loved at the age of seventeen, what an idiot I would be today. Happiness is like smallpox: if you catch it too soon, it can completely ruin your constitution.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
