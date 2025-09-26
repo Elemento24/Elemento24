@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great effort springs naturally from great attitude.</b>
-> <p><i>Pat Riley</i></p>
+> <b>You watch an old 'Jeopardy!' and the categories alone are very plain. 'Poetry,' or 'Movies,' or 'Physics.' If you watch it now, though, there'll be a theme board where the categories are all Hitchcock movies. Lots more jokes, lots more high-concept categories and questions.</b>
+> <p><i>Ken Jennings</i></p>
 
 <br>
