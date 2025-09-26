@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Romans were not inventors of the supporting arch, but its extended use in vaults and intersecting barrel shapes and domes is theirs.</b>
-> <p><i>Harry Seidler</i></p>
+> <b>European investment in Texas alone exceeds all U.S. investment in China and Japan put together.</b>
+> <p><i>John Bruton</i></p>
 
 <br>
