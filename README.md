@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>European investment in Texas alone exceeds all U.S. investment in China and Japan put together.</b>
-> <p><i>John Bruton</i></p>
+> <b>Anger elicits anger, fear elicits fear, no matter how well meaning we may be.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
