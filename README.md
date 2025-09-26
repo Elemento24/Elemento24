@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's so touching is the way we fight the war right until the moment our business is taken care of and then we turn on a dime and we immediately start taking care of people. It's like a shock and aw shucks campaign.</b>
-> <p><i>Dennis Miller</i></p>
+> <b>Britain, relative to the U.S., is a highly secular society. Philanthropy alone cannot fill the gap left by government cutbacks. And the sources of altruism go deep into our evolutionary past.</b>
+> <p><i>Jonathan Sacks</i></p>
 
 <br>
