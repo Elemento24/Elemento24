@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not follow vain desires for verily he who prospers is preserved from lust, greed and anger.</b>
-> <p><i>Abu Bakr</i></p>
+> <b>The Romans were not inventors of the supporting arch, but its extended use in vaults and intersecting barrel shapes and domes is theirs.</b>
+> <p><i>Harry Seidler</i></p>
 
 <br>
