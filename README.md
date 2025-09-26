@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I understand Tea Partyers' anger with the system, but they are in way over their heads and often racially motivated, and I can't be part of that.</b>
-> <p><i>Zach Galifianakis</i></p>
+> <b>Who among us has never looked up into the heavens on a starlit night, lost in wonder at the vastness of space and the beauty of the stars?</b>
+> <p><i>Jeb Bush</i></p>
 
 <br>
