@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone takes pause at 40. It's the age you have to assess everything in your life. It's the fictitious marker that's always coming up when you're young. The world really does look at you to kind of have it together by 40, and be successful by 40. Whatever success means.</b>
-> <p><i>Paul Feig</i></p>
+> <b>What's so touching is the way we fight the war right until the moment our business is taken care of and then we turn on a dime and we immediately start taking care of people. It's like a shock and aw shucks campaign.</b>
+> <p><i>Dennis Miller</i></p>
 
 <br>
