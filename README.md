@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A successful economic development strategy must focus on improving the skills of the area's workforce, reducing the cost of doing business and making available the resources business needs to compete and thrive in today's global economy.</b>
-> <p><i>Rod Blagojevich</i></p>
+> <b>Do not follow vain desires for verily he who prospers is preserved from lust, greed and anger.</b>
+> <p><i>Abu Bakr</i></p>
 
 <br>
