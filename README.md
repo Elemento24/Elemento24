@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was a fairly good amateur musician, and I was an average professional. But the one thing I saw was that the big band business was fading.</b>
-> <p><i>Alan Greenspan</i></p>
+> <b>My point is that perceptual bias can affect nut jobs and scientists alike. If we hold too rigidly to what we think we know, we ignore or avoid evidence of anything that might change our mind.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
