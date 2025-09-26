@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Britain, relative to the U.S., is a highly secular society. Philanthropy alone cannot fill the gap left by government cutbacks. And the sources of altruism go deep into our evolutionary past.</b>
-> <p><i>Jonathan Sacks</i></p>
+> <b>Good acting is good acting, however you learn it. Some people who haven't studied are amazing. Some people like Leonardo DiCaprio are naturally gifted - he's learned technique by working with people early on.</b>
+> <p><i>Sam Rockwell</i></p>
 
 <br>
