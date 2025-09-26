@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the best things that ever happened to me is that I'm a woman. That is the way all females should feel.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>I love my kids, and the moments I have with them, and it's kind of weird, it's such an age old cliche, but the way that my sons, the way they make me feel when I look at them, the way they say things, no one else would probably react to them, but it's a special thing for me.</b>
+> <p><i>Michael Rapaport</i></p>
 
 <br>
