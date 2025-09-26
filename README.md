@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm trying to build a strong business. I want to create new stars, new shows and new products for my audience and create a legacy that outlives me. There are so many other ways I want to reach women besides doing a talk show.</b>
-> <p><i>Tyra Banks</i></p>
+> <b>There is only one real sin and that is to persuade oneself that the second best is anything but second best.</b>
+> <p><i>Doris Lessing</i></p>
 
 <br>
