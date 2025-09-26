@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger elicits anger, fear elicits fear, no matter how well meaning we may be.</b>
-> <p><i>Martha Beck</i></p>
+> <b>Rest assured that whatever station of life we are placed, princely or lowly, it contains the lessons and experiences necessary at the moment for our evolution, and gives us the best advantage for the development of ourselves.</b>
+> <p><i>Edward Bach</i></p>
 
 <br>
