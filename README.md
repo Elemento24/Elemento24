@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh, if I had been loved at the age of seventeen, what an idiot I would be today. Happiness is like smallpox: if you catch it too soon, it can completely ruin your constitution.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>I was a fairly good amateur musician, and I was an average professional. But the one thing I saw was that the big band business was fading.</b>
+> <p><i>Alan Greenspan</i></p>
 
 <br>
