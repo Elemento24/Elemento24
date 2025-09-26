@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The meek shall inherit the Earth, but not its mineral rights.</b>
-> <p><i>J. Paul Getty</i></p>
+> <b>Great effort springs naturally from great attitude.</b>
+> <p><i>Pat Riley</i></p>
 
 <br>
