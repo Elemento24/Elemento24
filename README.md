@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The secret of genius is to carry the spirit of the child into old age, which mean never losing your enthusiasm.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>The best of us must sometimes eat our words.</b>
+> <p><i>J. K. Rowling</i></p>
 
 <br>
