@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm gonna be making records anyway, even if I had to sell 'em out of the trunk of my car. I'm that kind of musician and singer.</b>
-> <p><i>Dolly Parton</i></p>
+> <b>Clever men are good, but they are not the best.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
