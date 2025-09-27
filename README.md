@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Barack Obama doesn't believe in free enterprise. He's never going to admit it. For instance, he's never going to come straight out and say, 'If you own a business you didn't build it.' Alright, maybe he will.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>When everything else physical and mental seems to diminish, the appreciation of beauty is on the increase.</b>
+> <p><i>Bernard Berenson</i></p>
 
 <br>
