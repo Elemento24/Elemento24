@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The team architecture means setting up an organization that helps people produce that great work in teams.</b>
-> <p><i>Jay Chiat</i></p>
+> <b>To play safe, I prefer to accept only one type of power: the power of art over trash, the triumph of magic over the brute.</b>
+> <p><i>Vladimir Nabokov</i></p>
 
 <br>
