@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have the same attitude with work - I like to go to work, I like to work really hard I, like to give everything my all, I like to try things that are new, you know.</b>
-> <p><i>Rosie Huntington-Whiteley</i></p>
+> <b>Beauty is a radiance that originates from within and comes from inner security and strong character.</b>
+> <p><i>Jane Seymour</i></p>
 
 <br>
