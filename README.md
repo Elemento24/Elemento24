@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We don't have any CGI with any of the car stuff. I think it's a real experience when you see this car going through really fast really wild and you see me driving a lot of the times and also a big chase in downtown Atlanta. It's just incredible.</b>
-> <p><i>Sean William Scott</i></p>
+> <b>Imagination disposes of everything it creates beauty, justice, and happiness, which are everything in this world.</b>
+> <p><i>Blaise Pascal</i></p>
 
 <br>
