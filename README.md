@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Woman must have her freedom, the fundamental freedom of choosing whether or not she will be a mother and how many children she will have. Regardless of what man's attitude may be, that problem is hers - and before it can be his, it is hers alone.</b>
-> <p><i>Margaret Sanger</i></p>
+> <b>I would have probably stolen cars - it would have given me the same adrenaline rush as racing.</b>
+> <p><i>Valentino Rossi</i></p>
 
 <br>
