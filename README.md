@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love my family very much. I wish I could see them a little more often than I do. But we understand because we're a show business family and we all work.</b>
-> <p><i>Michael Jackson</i></p>
+> <b>Barack Obama doesn't believe in free enterprise. He's never going to admit it. For instance, he's never going to come straight out and say, 'If you own a business you didn't build it.' Alright, maybe he will.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
