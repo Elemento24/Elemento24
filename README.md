@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is only one real sin and that is to persuade oneself that the second best is anything but second best.</b>
-> <p><i>Doris Lessing</i></p>
+> <b>My heart is so light that it's amazing. I get to play all this grief, all this loss, all this disaster and chaos. It's hysterically funny. I am very light.</b>
+> <p><i>Linda Hamilton</i></p>
 
 <br>
