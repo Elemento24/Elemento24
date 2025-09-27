@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Imagination disposes of everything it creates beauty, justice, and happiness, which are everything in this world.</b>
-> <p><i>Blaise Pascal</i></p>
+> <b>I'm gonna be making records anyway, even if I had to sell 'em out of the trunk of my car. I'm that kind of musician and singer.</b>
+> <p><i>Dolly Parton</i></p>
 
 <br>
