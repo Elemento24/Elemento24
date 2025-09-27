@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best of us must sometimes eat our words.</b>
-> <p><i>J. K. Rowling</i></p>
+> <b>Design, in its broadest sense, is the enabler of the digital era - it's a process that creates order out of chaos, that renders technology usable to business. Design means being good, not just looking good.</b>
+> <p><i>Clement Mok</i></p>
 
 <br>
