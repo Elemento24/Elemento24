@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>From year to year, environmental changes are incremental and often barely register in our lives, but from evolutionary or geological perspectives, what is happening is explosive change.</b>
-> <p><i>David Suzuki</i></p>
+> <b>There are as many kinds of beauty as there are habitual ways of seeking happiness.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
