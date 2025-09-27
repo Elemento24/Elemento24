@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am endlessly busy, bringing up five young kids, and trying to keep up with the three older ones. I still spend most of my life driving car pools.</b>
-> <p><i>Danielle Steel</i></p>
+> <b>One irreducible residual of 38 years in the business is the number of lasting, loving friendships I have made.</b>
+> <p><i>Carroll O'Connor</i></p>
 
 <br>
