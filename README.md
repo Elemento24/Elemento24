@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of the individual poems, some are more lyric and some are more descriptive or narrative. Each poem is fixed in a moment. All those moments written or read together take on the movement and architecture of a narrative.</b>
-> <p><i>Marilyn Hacker</i></p>
+> <b>This is the curse of our age, even the strangest aberrations are no cure for boredom.</b>
+> <p><i>Stendhal</i></p>
 
 <br>
