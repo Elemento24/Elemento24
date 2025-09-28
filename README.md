@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That attitude does not exist so much today, but in those days there was a very sharp distinction between basic physics and applied physics. Columbia did not deal with applied physics.</b>
-> <p><i>Gordon Gould</i></p>
+> <b>The camera fails to capture the 'business' in show business! We typically will give 10 percent of our salary to the agent, 10 percent to the manager, and 5 percent to the lawyer, plus the publicist gets a flat fee, which needs to be budgeted for.</b>
+> <p><i>Danica McKellar</i></p>
 
 <br>
