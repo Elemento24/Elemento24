@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the curse of our age, even the strangest aberrations are no cure for boredom.</b>
-> <p><i>Stendhal</i></p>
+> <b>And I trusted someone to look after me on the business side of life.</b>
+> <p><i>Elton John</i></p>
 
 <br>
