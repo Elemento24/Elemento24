@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Design, in its broadest sense, is the enabler of the digital era - it's a process that creates order out of chaos, that renders technology usable to business. Design means being good, not just looking good.</b>
-> <p><i>Clement Mok</i></p>
+> <b>Most of us start out with a positive attitude and a plan to do our best.</b>
+> <p><i>Marilu Henner</i></p>
 
 <br>
