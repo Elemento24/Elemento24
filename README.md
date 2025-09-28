@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know if it has set in or not. Honestly, it's crazy. It's such an amazing honor. I remember thinking back to being in my room waiting for the call to see if I got the part. It's like winning the lottery. I'm proud to be a member of such an amazing cast - that's the best award of all.</b>
-> <p><i>Hailee Steinfeld</i></p>
+> <b>A lot of people say I'd miss show business if I quit. I'd miss some of it. Now it's the only life I know.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
