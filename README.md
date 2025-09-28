@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is a relation, and the apprehension of it a comparison.</b>
-> <p><i>Gerard Manley Hopkins</i></p>
+> <b>Without realizing it, the individual composes his life according to the laws of beauty even in times of greatest distress.</b>
+> <p><i>Milan Kundera</i></p>
 
 <br>
