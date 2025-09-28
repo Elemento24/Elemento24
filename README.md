@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is the art of choosing between the disastrous and the unpalatable.</b>
-> <p><i>John Kenneth Galbraith</i></p>
+> <b>The best artist has that thought alone Which is contained within the marble shell The sculptor's hand can only break the spell To free the figures slumbering in the stone.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
