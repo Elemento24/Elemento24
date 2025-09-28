@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I happened to come along in the music business when there was no trend.</b>
-> <p><i>Elvis Presley</i></p>
+> <b>Of the individual poems, some are more lyric and some are more descriptive or narrative. Each poem is fixed in a moment. All those moments written or read together take on the movement and architecture of a narrative.</b>
+> <p><i>Marilyn Hacker</i></p>
 
 <br>
