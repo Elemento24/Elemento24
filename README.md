@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thought came to me that all one loves in art becomes beautiful. Beauty is nothing but the expression of the fact that something is being loved. Only thus could she be defined.</b>
-> <p><i>Robert Musil</i></p>
+> <b>Excellence is not a skill. It is an attitude.</b>
+> <p><i>Ralph Marston</i></p>
 
 <br>
