@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My opponents attitude is, 'If it moves, tax it, if it keeps moving, regulate it and when it stops, subsidize it.</b>
-> <p><i>Rob Simmons</i></p>
+> <b>The components of anxiety, stress, fear, and anger do not exist independently of you in the world. They simply do not exist in the physical world, even though we talk about them as if they do.</b>
+> <p><i>Wayne Dyer</i></p>
 
 <br>
