@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never been more in love with anyone nearly half my age than I am today. I'd get married in a minute if I weren't still married to somebody else.</b>
-> <p><i>Rod Stewart</i></p>
+> <b>I'm gonna be the best dad that ever lived. I'll have a ranch with a race car track and a golf course.</b>
+> <p><i>Jeremy London</i></p>
 
 <br>
