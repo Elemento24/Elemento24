@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Can anyone understand how it is to have lived in the White House and then, suddenly, to be living alone as the President's widow?</b>
-> <p><i>Jackie Kennedy</i></p>
+> <b>There are a lot of people using technology that are playing to a click with backing vocals already stuck in there on some computerized thing that runs along in time to the show so they have these amazing vocals that are only partly the guys on stage producing them at the time.</b>
+> <p><i>James Young</i></p>
 
 <br>
