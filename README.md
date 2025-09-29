@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the addition of strangeness to beauty that constitutes the romantic character in art.</b>
-> <p><i>Walter Hagen</i></p>
+> <b>We now accept the fact that learning is a lifelong process of keeping abreast of change. And the most pressing task is to teach people how to learn.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
