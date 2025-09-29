@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people who live in a golden age usually go around complaining how yellow everything looks.</b>
-> <p><i>Randall Jarrell</i></p>
+> <b>Can anyone understand how it is to have lived in the White House and then, suddenly, to be living alone as the President's widow?</b>
+> <p><i>Jackie Kennedy</i></p>
 
 <br>
