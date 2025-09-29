@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obamacare has got everyone on edge. I mean, small business - men and women or big business are sitting out there saying we have no idea what this is going to cost, but we know it's going to cost us and cost us a lot.</b>
-> <p><i>Rick Perry</i></p>
+> <b>It's not always thankless. Let's face it - it's not always thankless. I've gotten a lot of really great recognition and I've worked with amazing people.</b>
+> <p><i>Kyra Sedgwick</i></p>
 
 <br>
