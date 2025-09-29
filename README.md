@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best doctor is the one you run to and can't find.</b>
-> <p><i>Denis Diderot</i></p>
+> <b>Obamacare has got everyone on edge. I mean, small business - men and women or big business are sitting out there saying we have no idea what this is going to cost, but we know it's going to cost us and cost us a lot.</b>
+> <p><i>Rick Perry</i></p>
 
 <br>
