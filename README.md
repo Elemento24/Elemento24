@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is your business when the wall next door catches fire.</b>
-> <p><i>Horace</i></p>
+> <b>I think of my peace paintings as one long poem, with each painting being a single stanza.</b>
+> <p><i>Robert Indiana</i></p>
 
 <br>
