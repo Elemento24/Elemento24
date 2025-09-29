@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have never yet seen any plan which has not been mended by the observations of those who were much inferior in understanding to the person who took the lead in the business.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>I'm not an Adonis, that's for damn sure. I've never really thought of myself that way, and it doesn't matter to me. My favorite actors aren't Adonises. Dustin Hoffman is a flawed-looking man he's amazing to me. Tom Hanks is flawed-looking people love him. Same with Gene Hackman.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
