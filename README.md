@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The flame of anger, bright and brief, sharpens the barb of love.</b>
-> <p><i>Walter Savage Landor</i></p>
+> <b>I wrote a screenplay for a 'Sweet Valley High' adaptation, and it's really amazing to me how many women who are my age have responded to the idea and are excited about the movie.</b>
+> <p><i>Diablo Cody</i></p>
 
 <br>
