@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm gonna be the best dad that ever lived. I'll have a ranch with a race car track and a golf course.</b>
-> <p><i>Jeremy London</i></p>
+> <b>It is the addition of strangeness to beauty that constitutes the romantic character in art.</b>
+> <p><i>Walter Hagen</i></p>
 
 <br>
