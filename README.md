@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Detainee policy in this war is hard, it's complicated, but we must get it right. We would be better off as a nation if we could close Gitmo safely and start a new prison that he could use that the world would see as a better way to doing business.</b>
-> <p><i>Lindsey Graham</i></p>
+> <b>Physical beauty is such a strange thing.</b>
+> <p><i>Jock Sturges</i></p>
 
 <br>
