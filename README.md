@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Health is the greatest gift, contentment the greatest wealth, faithfulness the best relationship.</b>
-> <p><i>Buddha</i></p>
+> <b>The biggest challenge is how to affect public attitudes and make people care.</b>
+> <p><i>Jim Fowler</i></p>
 
 <br>
