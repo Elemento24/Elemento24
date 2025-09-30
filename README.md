@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think whether you're having setbacks or not, the role of a leader is to always display a winning attitude.</b>
-> <p><i>Colin Powell</i></p>
+> <b>I don't think any movie or any book or any work of art can solve the stalemate in the Middle East today. But it's certainly worth a try.</b>
+> <p><i>Steven Spielberg</i></p>
 
 <br>
