@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Physical beauty is such a strange thing.</b>
-> <p><i>Jock Sturges</i></p>
+> <b>What I love best in life is new starts.</b>
+> <p><i>Karl Lagerfeld</i></p>
 
 <br>
