@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once you become successful, people know where you live, the type of house you live in, the kind of car you drive, the clothes you wear, and so it would be patronising to go and talk like a welder. Welding's a mystery to me now. You can't go back, your life changes every day.</b>
-> <p><i>Billy Connolly</i></p>
+> <b>I don't feel old. I don't feel anything till noon. That's when it's time for my nap.</b>
+> <p><i>Bob Hope</i></p>
 
 <br>
