@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's so funny looking back, but my so-called overnight success actually took 15 years. I remember when I didn't have any money, and my only car was mom's Hyundai.</b>
-> <p><i>Criss Angel</i></p>
+> <b>One accusation you can't throw at me is that I've always done my best.</b>
+> <p><i>Alan Shearer</i></p>
 
 <br>
