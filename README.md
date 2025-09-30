@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't feel old. I don't feel anything till noon. That's when it's time for my nap.</b>
-> <p><i>Bob Hope</i></p>
+> <b>Old age: the crown of life, our play's last act.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
