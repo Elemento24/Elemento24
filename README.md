@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to talk to the bullied kids of the world. Tell them to hang on, it will get better. Know that an 'Iron Chef,' actors, musicians, artists and all successful people have probably been bullied in their life. And the best part of your life is yet to come. Whatever it takes to live, do it!</b>
-> <p><i>Cat Cora</i></p>
+> <b>As far as the girls in my grade, it was always kind of an on-and-off thing. When all this came up, it was kind of hard. My guy friends and my family friends have been so amazing and supportive.</b>
+> <p><i>Stacie Orrico</i></p>
 
 <br>
