@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One accusation you can't throw at me is that I've always done my best.</b>
-> <p><i>Alan Shearer</i></p>
+> <b>I think whether you're having setbacks or not, the role of a leader is to always display a winning attitude.</b>
+> <p><i>Colin Powell</i></p>
 
 <br>
