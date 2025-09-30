@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man's wisdom is his best friend folly his worst enemy.</b>
-> <p><i>William Temple</i></p>
+> <b>I'll tell you, Quentin Tarantino really writes the most amazing dialogue.</b>
+> <p><i>Christopher Walken</i></p>
 
 <br>
