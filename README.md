@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religion is essentially the art and the theory of the remaking of man. Man is not a finished creation.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>I've spent more on my Dodger tickets that I did on my car.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
