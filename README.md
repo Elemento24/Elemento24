@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know as an actor there is a certain liberation auditioning for a role that has no beauty requirements.</b>
-> <p><i>Mireille Enos</i></p>
+> <b>Rigid, the skeleton of habit alone upholds the human frame.</b>
+> <p><i>Virginia Woolf</i></p>
 
 <br>
