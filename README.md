@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you are interested enough in the climate crisis to read this post, you probably know that 2 degrees Centigrade of warming (or 3.6 degrees Fahrenheit) is the widely acknowledged threshold for "dangerous" climate change.</b>
-> <p><i>Jeff Goodell</i></p>
+> <b>This is the America that I love. This is a great people. We can do anything. We can achieve anything. We've got a government that has gotten in the way of the American people. We're going to change that in November.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
