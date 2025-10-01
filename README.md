@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no such thing is aging, but maturing and knowledge. It's beautiful, I call that beauty.</b>
-> <p><i>Celine Dion</i></p>
+> <b>The only way to make sense out of change is to plunge into it, move with it, and join the dance.</b>
+> <p><i>Alan Watts</i></p>
 
 <br>
