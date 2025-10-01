@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think any movie or any book or any work of art can solve the stalemate in the Middle East today. But it's certainly worth a try.</b>
-> <p><i>Steven Spielberg</i></p>
+> <b>My view is that you still, in order to win from the Labour perspective, have to have a strong alliance with business as well as the unions. You have got to be very much in the centre ground on things like public sector reform.</b>
+> <p><i>Tony Blair</i></p>
 
 <br>
