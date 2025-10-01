@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is about public space held by buildings.</b>
-> <p><i>Richard Rogers</i></p>
+> <b>I was bringing my attitude as a regular person 'cause this is my attitude.</b>
+> <p><i>Glenn Danzig</i></p>
 
 <br>
