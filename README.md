@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.</b>
-> <p><i>Moliere</i></p>
+> <b>A diplomat is a man who always remembers a woman's birthday but never remembers her age.</b>
+> <p><i>Robert Frost</i></p>
 
 <br>
