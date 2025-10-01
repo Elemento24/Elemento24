@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Endurance is nobler than strength, and patience than beauty.</b>
-> <p><i>John Ruskin</i></p>
+> <b>There's no such thing is aging, but maturing and knowledge. It's beautiful, I call that beauty.</b>
+> <p><i>Celine Dion</i></p>
 
 <br>
