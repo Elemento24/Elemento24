@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At root fame is a sham. I'm not going to live forever and if I am I certainly need don't you to tell me that so that I will buy a car or a box of dried up crackers.</b>
-> <p><i>Nick Mancuso</i></p>
+> <b>Man, I don't want to have nothing to do with computers. I don't want the government in my business.</b>
+> <p><i>Erykah Badu</i></p>
 
 <br>
