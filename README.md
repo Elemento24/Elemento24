@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Culture is the arts elevated to a set of beliefs.</b>
-> <p><i>Thomas Wolfe</i></p>
+> <b>A sense of blessedness comes from a change of heart, not from more blessings.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
