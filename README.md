@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My buildings will be my legacy... they will speak for me long after I'm gone.</b>
-> <p><i>Julia Morgan</i></p>
+> <b>I know as an actor there is a certain liberation auditioning for a role that has no beauty requirements.</b>
+> <p><i>Mireille Enos</i></p>
 
 <br>
