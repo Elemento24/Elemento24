@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Temper never mellows with age, and a sharp tongue is the only edged tool that grows keener with constant use.</b>
-> <p><i>Washington Irving</i></p>
+> <b>The beauty of dystopia is that it lets us vicariously experience future worlds - but we still have the power to change our own.</b>
+> <p><i>Ally Condie</i></p>
 
 <br>
