@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be honest, I sort of feel like 'movie actor' isn't of this time. I love it. But it's a 20th-century art form.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>Temper never mellows with age, and a sharp tongue is the only edged tool that grows keener with constant use.</b>
+> <p><i>Washington Irving</i></p>
 
 <br>
