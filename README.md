@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the America that I love. This is a great people. We can do anything. We can achieve anything. We've got a government that has gotten in the way of the American people. We're going to change that in November.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>Architecture is about public space held by buildings.</b>
+> <p><i>Richard Rogers</i></p>
 
 <br>
