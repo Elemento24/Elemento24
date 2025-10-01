@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A diplomat is a man who always remembers a woman's birthday but never remembers her age.</b>
-> <p><i>Robert Frost</i></p>
+> <b>Endurance is nobler than strength, and patience than beauty.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
