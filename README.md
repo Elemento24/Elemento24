@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My view is that you still, in order to win from the Labour perspective, have to have a strong alliance with business as well as the unions. You have got to be very much in the centre ground on things like public sector reform.</b>
-> <p><i>Tony Blair</i></p>
+> <b>When you buy a gallon of gas, over 60 percent of the energy you pay for goes out the radiator in the form of waste heat? That's why you have a radiator in your car in the first place.</b>
+> <p><i>Wilson Greatbatch</i></p>
 
 <br>
