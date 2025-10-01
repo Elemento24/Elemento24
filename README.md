@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man, I don't want to have nothing to do with computers. I don't want the government in my business.</b>
-> <p><i>Erykah Badu</i></p>
+> <b>My buildings will be my legacy... they will speak for me long after I'm gone.</b>
+> <p><i>Julia Morgan</i></p>
 
 <br>
