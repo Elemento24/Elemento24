@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rigid, the skeleton of habit alone upholds the human frame.</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>If you are interested enough in the climate crisis to read this post, you probably know that 2 degrees Centigrade of warming (or 3.6 degrees Fahrenheit) is the widely acknowledged threshold for "dangerous" climate change.</b>
+> <p><i>Jeff Goodell</i></p>
 
 <br>
