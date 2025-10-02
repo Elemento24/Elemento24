@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To study the abnormal is the best way of understanding the normal.</b>
-> <p><i>William James</i></p>
+> <b>I am trying to make art that relates to the deepest and most mythic concerns of human kind and I believe that, at this moment of history, feminism is humanism.</b>
+> <p><i>Judy Chicago</i></p>
 
 <br>
