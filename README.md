@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A sense of blessedness comes from a change of heart, not from more blessings.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>With 'Twilight,' you have these massive tomes that you have to condense. With 'Penoza,' we had an eight episode Dutch series that, just for the pilot alone, I condensed three episodes. So, there's a lot of filling in and a ton of invention that has to happen to fill out eight episodes.</b>
+> <p><i>Melissa Rosenberg</i></p>
 
 <br>
