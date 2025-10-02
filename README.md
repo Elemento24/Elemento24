@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Television is such an evolving medium. When you're doing a TV show, it's not like you just shoot for six weeks and you're in an editing room with all of your footage. It's like a guitar or a car, you have to fine tune things. You stop doing what's not working, you work on what is working and you add things that do work.</b>
-> <p><i>Chris Pratt</i></p>
+> <b>I don't even own a car.</b>
+> <p><i>Bill Nighy</i></p>
 
 <br>
