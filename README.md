@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To say that a work of art is good, but incomprehensible to the majority of men, is the same as saying of some kind of food that it is very good but that most people can't eat it.</b>
-> <p><i>Leo Tolstoy</i></p>
+> <b>Have you heard about the Irishman who reversed into a car boot sale and sold the engine?</b>
+> <p><i>Frank Carson</i></p>
 
 <br>
