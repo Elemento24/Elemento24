@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I buy when other people are selling.</b>
-> <p><i>J. Paul Getty</i></p>
+> <b>My whole family actually, but my parents. I had such a normal and amazing childhood. I've been so lucky. My parents are cool and normal. They don't talk about the business and I still have stuff to do at their house.</b>
+> <p><i>Kaley Cuoco</i></p>
 
 <br>
