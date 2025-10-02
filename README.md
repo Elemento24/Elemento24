@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am trying to make art that relates to the deepest and most mythic concerns of human kind and I believe that, at this moment of history, feminism is humanism.</b>
-> <p><i>Judy Chicago</i></p>
+> <b>Although you may spend your life killing, You will not exhaust all your foes. But if you quell your own anger, your real enemy will be slain.</b>
+> <p><i>Nagarjuna</i></p>
 
 <br>
