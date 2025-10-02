@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of the songs start with an image. I was sitting there playing the guitar and I pictured this old, dirty green car, with the window rolled down, in the hot, hot, hot Texas heat, and this beautiful woman I knew when I was a kid sitting behind the wheel, looking out at me.</b>
-> <p><i>Edie Brickell</i></p>
+> <b>I didn't get my first car until I was 22. It was a BMW 1602 and now I've got it back I'm waiting to restore it.</b>
+> <p><i>Jay Kay</i></p>
 
 <br>
