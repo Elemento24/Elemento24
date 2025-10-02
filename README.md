@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are at our very best, and we are happiest, when we are fully engaged in work we enjoy on the journey toward the goal we've established for ourselves. It gives meaning to our time off and comfort to our sleep. It makes everything else in life so wonderful, so worthwhile.</b>
-> <p><i>Earl Nightingale</i></p>
+> <b>To write the lives of the great in separating them from their works necessarily ends by above all stressing their pettiness, because it is in their work that they have put the best of themselves.</b>
+> <p><i>Simone Weil</i></p>
 
 <br>
