@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In this business, until you're known as a monster you're not a star.</b>
-> <p><i>Bette Davis</i></p>
+> <b>Experts tell us that 90% of all brain development occurs by the age of five. If we don't begin thinking about education in the early years, our children are at risk of falling behind by the time they start Kindergarten.</b>
+> <p><i>Robert. L. Ehrlich</i></p>
 
 <br>
