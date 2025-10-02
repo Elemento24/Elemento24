@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Envy is the art of counting the other fellow's blessings instead of your own.</b>
-> <p><i>Harold Coffin</i></p>
+> <b>Age does not protect you from love. But love, to some extent, protects you from age.</b>
+> <p><i>Anais Nin</i></p>
 
 <br>
