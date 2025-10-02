@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When one is trying to do something beyond his known powers it is useless to seek the approval of friends. Friends are at their best in moments of defeat.</b>
-> <p><i>Henry Miller</i></p>
+> <b>I always have one or two, sometimes more, Navajo or other tribes' cultural elements in mind when I start a plot. In Thief of Time, I wanted to make readers aware of Navajo attitude toward the dead, respect for burial sites.</b>
+> <p><i>Tony Hillerman</i></p>
 
 <br>
