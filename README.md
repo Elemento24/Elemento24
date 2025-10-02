@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Although you may spend your life killing, You will not exhaust all your foes. But if you quell your own anger, your real enemy will be slain.</b>
-> <p><i>Nagarjuna</i></p>
+> <b>At this age, I should be leading a quiet life.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
