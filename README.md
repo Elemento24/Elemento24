@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success has a simple formula: do your best, and people may like it.</b>
-> <p><i>Sam Ewing</i></p>
+> <b>Dressing up is a bore. At a certain age, you decorate yourself to attract the opposite sex, and at a certain age, I did that. But I'm past that age.</b>
+> <p><i>Katharine Hepburn</i></p>
 
 <br>
