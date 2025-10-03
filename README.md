@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of medicine consists in amusing the patient while nature cures the disease.</b>
-> <p><i>Voltaire</i></p>
+> <b>Success has a simple formula: do your best, and people may like it.</b>
+> <p><i>Sam Ewing</i></p>
 
 <br>
