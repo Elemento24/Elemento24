@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sensual love deceives one as to the nature of heavenly love it could not do so alone, but since it unconsciously has the element of heavenly love within it, it can do so.</b>
-> <p><i>Franz Kafka</i></p>
+> <b>The art of medicine consists in amusing the patient while nature cures the disease.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
