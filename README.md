@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dressing up is a bore. At a certain age, you decorate yourself to attract the opposite sex, and at a certain age, I did that. But I'm past that age.</b>
-> <p><i>Katharine Hepburn</i></p>
+> <b>I can put my legs behind my head and sing 'Happy Birthday.' Because that's something that me and my friends used to do when we were in gymnastics class as kids, and I can still do it. I was doing it since I was 8 and 9. They used to call me Gumby. Very bendy.</b>
+> <p><i>Emmy Rossum</i></p>
 
 <br>
