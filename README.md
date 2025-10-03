@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our company is built on people - those who work for us, and those we do business with.</b>
-> <p><i>Harvey S. Firestone</i></p>
+> <b>You can't fake it when you're alone with God, you know.</b>
+> <p><i>Jim Bakker</i></p>
 
 <br>
