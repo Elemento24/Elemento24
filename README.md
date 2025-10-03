@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a civilized society, all crimes are likely to be sins, but most sins are not and ought not to be treated as crimes. Man's ultimate responsibility is to God alone.</b>
-> <p><i>Geoffrey Fisher</i></p>
+> <b>We don't change what we are, we change what we think what we are.</b>
+> <p><i>Eric Butterworth</i></p>
 
 <br>
