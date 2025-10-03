@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't fake it when you're alone with God, you know.</b>
-> <p><i>Jim Bakker</i></p>
+> <b>There are worlds of experience beyond the world of the aggressive man, beyond history, and beyond science. The moods and qualities of nature and the revelations of great art are equally difficult to define we can grasp them only in the depths of our perceptive spirit.</b>
+> <p><i>Ansel Adams</i></p>
 
 <br>
