@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you buy a gallon of gas, over 60 percent of the energy you pay for goes out the radiator in the form of waste heat? That's why you have a radiator in your car in the first place.</b>
-> <p><i>Wilson Greatbatch</i></p>
+> <b>In a civilized society, all crimes are likely to be sins, but most sins are not and ought not to be treated as crimes. Man's ultimate responsibility is to God alone.</b>
+> <p><i>Geoffrey Fisher</i></p>
 
 <br>
