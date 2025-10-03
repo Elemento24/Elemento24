@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first crocodile I ever caught was at nine years of age, and it was a rescue.</b>
-> <p><i>Steve Irwin</i></p>
+> <b>While I relish our warm months, winter forms our character and brings out our best.</b>
+> <p><i>Tom Allen</i></p>
 
 <br>
