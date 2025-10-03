@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was a good amateur but only an average professional. I soon realized that there was a limit to how far I could rise in the music business, so I left the band and enrolled at New York University.</b>
-> <p><i>Alan Greenspan</i></p>
+> <b>The first crocodile I ever caught was at nine years of age, and it was a rescue.</b>
+> <p><i>Steve Irwin</i></p>
 
 <br>
