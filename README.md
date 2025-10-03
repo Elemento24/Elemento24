@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Have you heard about the Irishman who reversed into a car boot sale and sold the engine?</b>
-> <p><i>Frank Carson</i></p>
+> <b>I was a good amateur but only an average professional. I soon realized that there was a limit to how far I could rise in the music business, so I left the band and enrolled at New York University.</b>
+> <p><i>Alan Greenspan</i></p>
 
 <br>
