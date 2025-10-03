@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can put my legs behind my head and sing 'Happy Birthday.' Because that's something that me and my friends used to do when we were in gymnastics class as kids, and I can still do it. I was doing it since I was 8 and 9. They used to call me Gumby. Very bendy.</b>
-> <p><i>Emmy Rossum</i></p>
+> <b>I swim like a fish and I have an amazing kick.</b>
+> <p><i>Gordon Ramsay</i></p>
 
 <br>
