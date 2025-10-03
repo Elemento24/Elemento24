@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people who are competing business-wise out there want what other successful labels and artists have. I don't want what they have I want my own path, my own sound, my own identity. Record labels care nothing about identity or artistic freedom, they want good business.</b>
-> <p><i>Joe Nichols</i></p>
+> <b>The best form of flattery is to be admired, imitated or respected. I've always felt proud our fans look up to us or feel we are inspirational.</b>
+> <p><i>Cheryl James</i></p>
 
 <br>
