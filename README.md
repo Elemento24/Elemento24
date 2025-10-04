@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A city building, you experience when you walk a suburban building, you experience when you drive.</b>
-> <p><i>Helmut Jahn</i></p>
+> <b>Some of us may just, in one-on-one conversations with our family, with our friends, over the back fence with our neighbors, talk about the reality of our lives and realize that we're not alone, that we have a right to be physically safe and emotionally safe in our own homes.</b>
+> <p><i>Patricia Ireland</i></p>
 
 <br>
