@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Friends are very important to me, and I have always had many of them. There are probably many reasons why this is so, but two seem to me more valid than any of the others I am a naturally friendly person, and I hate to be alone.</b>
-> <p><i>Georg Solti</i></p>
+> <b>The beauty we love is very silent. It smiles softly to itself, but never speaks.</b>
+> <p><i>Richard Le Gallienne</i></p>
 
 <br>
