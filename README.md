@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think anything changes until ideas change. The usual American viewpoint is to believe that something is wrong with the person.</b>
-> <p><i>James Hillman</i></p>
+> <b>If you don't have the story and the unfolding of the trajectory of the saga, it's like getting in a car and not having any gas.</b>
+> <p><i>Gus Van Sant</i></p>
 
 <br>
