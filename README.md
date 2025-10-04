@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best form of flattery is to be admired, imitated or respected. I've always felt proud our fans look up to us or feel we are inspirational.</b>
-> <p><i>Cheryl James</i></p>
+> <b>The work of art assumes the existence of the perfect spectator, and is indifferent to the fact that no such person exists.</b>
+> <p><i>E. M. Forster</i></p>
 
 <br>
