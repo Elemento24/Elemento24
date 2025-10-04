@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm no longer dependent on the movie business to make a living. So if I want to make movies as other old guys would play golf, I can.</b>
-> <p><i>Francis Ford Coppola</i></p>
+> <b>The best way to obtain truth and wisdom is not to ask from books, but to go to God in prayer, and obtain divine teaching.</b>
+> <p><i>Joseph Smith, Jr.</i></p>
 
 <br>
