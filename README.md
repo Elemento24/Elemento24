@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Childhood obesity is best tackled at home through improved parental involvement, increased physical exercise, better diet and restraint from eating.</b>
-> <p><i>Bob Filner</i></p>
+> <b>But no nation can base its survival and development on luck and prayers alone while its leadership fritters away every available opportunity for success and concrete achievement.</b>
+> <p><i>Ibrahim Babangida</i></p>
 
 <br>
