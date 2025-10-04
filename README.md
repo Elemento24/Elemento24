@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If truth is beauty, how come no one has their hair done in the library?</b>
-> <p><i>Lily Tomlin</i></p>
+> <b>There is only one failure in life possible, and that is not to be true to the best one knows.</b>
+> <p><i>George Eliot</i></p>
 
 <br>
