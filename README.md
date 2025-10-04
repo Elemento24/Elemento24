@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a child but I have to think and act like a woman, this business forces you to.</b>
-> <p><i>Rihanna</i></p>
+> <b>Confidence is something you're born with. I know I had loads of it even at the age of 15.</b>
+> <p><i>Hedy Lamarr</i></p>
 
 <br>
