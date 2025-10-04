@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is the best means we have of digesting time.</b>
-> <p><i>W. H. Auden</i></p>
+> <b>Knowing who the actors were as you were designing them helped, with Catherine's beauty and Renee's frailty, they directed me visually just by who they were.</b>
+> <p><i>Colleen Atwood</i></p>
 
 <br>
