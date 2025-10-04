@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Drawing is like making an expressive gesture with the advantage of permanence.</b>
-> <p><i>Henri Matisse</i></p>
+> <b>I'm no longer dependent on the movie business to make a living. So if I want to make movies as other old guys would play golf, I can.</b>
+> <p><i>Francis Ford Coppola</i></p>
 
 <br>
