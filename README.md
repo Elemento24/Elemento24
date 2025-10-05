@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And we know there has been horrendous loss of life and suffering and we know that there is anger. Anyone who came anywhere near the general election in constituencies with a substantial Muslim population knows that.</b>
-> <p><i>Clare Short</i></p>
+> <b>There are two kinds of fools: those who can't change their opinions and those who won't.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
