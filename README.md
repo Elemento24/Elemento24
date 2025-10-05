@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I buy when other people are selling.</b>
-> <p><i>J. Paul Getty</i></p>
+> <b>It was really cool to work with Dakota Fanning. I've watched her grow up and I've always loved her films, loved her. It was amazing working with someone who was American as well, because obviously it's going to be a different energy straightaway. We got on really well she's so professional and hardworking.</b>
+> <p><i>Kaya Scodelario</i></p>
 
 <br>
