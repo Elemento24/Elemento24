@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is always and everywhere the secret confession, and at the same time the immortal movement of its time.</b>
-> <p><i>Karl Marx</i></p>
+> <b>What I loved about 'Summer' was that they were these four bright kids with a wonderful future. In a way, she was the one with the brains, and then you have the beauty queen and the jock and the introvert.</b>
+> <p><i>Kevin Williamson</i></p>
 
 <br>
