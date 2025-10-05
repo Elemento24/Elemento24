@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to obtain truth and wisdom is not to ask from books, but to go to God in prayer, and obtain divine teaching.</b>
-> <p><i>Joseph Smith, Jr.</i></p>
+> <b>Art is always and everywhere the secret confession, and at the same time the immortal movement of its time.</b>
+> <p><i>Karl Marx</i></p>
 
 <br>
