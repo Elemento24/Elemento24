@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Speak when you are angry - and you'll make the best speech you'll ever regret.</b>
-> <p><i>Laurence J. Peter</i></p>
+> <b>If we listened to our intellect, we'd never have a love affair. We'd never have a friendship. We'd never go into business, because we'd be cynical. Well, that's nonsense. You've got to jump off cliffs all the time and build your wings on the way down.</b>
+> <p><i>Ray Bradbury</i></p>
 
 <br>
