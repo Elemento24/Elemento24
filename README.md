@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes, my grandfather worked with Thomas Edison on the electric car, and he sold electric cars at the 1900 World's Fair in Paris.</b>
-> <p><i>Al Jardine</i></p>
+> <b>Speak when you are angry - and you'll make the best speech you'll ever regret.</b>
+> <p><i>Laurence J. Peter</i></p>
 
 <br>
