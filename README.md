@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had more clothes than I had closets, more cars than garage space, but no money.</b>
-> <p><i>Sammy Davis, Jr.</i></p>
+> <b>I saw how many people were poor and how many kids my age went to school hungry in the morning, which I don't think most of my contemporaries in racially segregated schools in the South thought very much about at the time.</b>
+> <p><i>Charles Kuralt</i></p>
 
 <br>
