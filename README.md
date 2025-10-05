@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work of art, just like any fragment of human life considered in its deepest meaning, seems to me devoid of value if it does not offer the hardness, the rigidity, the regularity, the luster on every interior and exterior facet, of the crystal.</b>
-> <p><i>Pope Paul VI</i></p>
+> <b>Yes, my grandfather worked with Thomas Edison on the electric car, and he sold electric cars at the 1900 World's Fair in Paris.</b>
+> <p><i>Al Jardine</i></p>
 
 <br>
