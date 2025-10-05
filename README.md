@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Successful people recognize crisis as a time for change - from lesser to greater, smaller to bigger.</b>
-> <p><i>Edwin Louis Cole</i></p>
+> <b>Often times when you face such an overwhelming challenge as global climate change, it can be somewhat daunting - it's kind of like trying to lose weight, which I know something about.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
