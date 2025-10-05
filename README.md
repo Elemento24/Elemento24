@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If we listened to our intellect, we'd never have a love affair. We'd never have a friendship. We'd never go into business, because we'd be cynical. Well, that's nonsense. You've got to jump off cliffs all the time and build your wings on the way down.</b>
-> <p><i>Ray Bradbury</i></p>
+> <b>You don't change the course of history by turning the faces of portraits to the wall.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
