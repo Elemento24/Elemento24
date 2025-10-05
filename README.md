@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do more than is required. What is the distance between someone who achieves their goals consistently and those who spend their lives and careers merely following? The extra mile.</b>
-> <p><i>Gary Ryan Blair</i></p>
+> <b>Many believe - and I believe - that I have been designated for this work by God. In spite of my old age, I do not want to give it up I work out of love for God and I put all my hope in Him.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
