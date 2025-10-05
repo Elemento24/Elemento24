@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Many believe - and I believe - that I have been designated for this work by God. In spite of my old age, I do not want to give it up I work out of love for God and I put all my hope in Him.</b>
-> <p><i>Michelangelo</i></p>
+> <b>The work of art, just like any fragment of human life considered in its deepest meaning, seems to me devoid of value if it does not offer the hardness, the rigidity, the regularity, the luster on every interior and exterior facet, of the crystal.</b>
+> <p><i>Pope Paul VI</i></p>
 
 <br>
