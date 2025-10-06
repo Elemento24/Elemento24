@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you think Abraham Lincoln became famous for inventing the town car, it is time to spend a few hours on history.</b>
-> <p><i>Bo Bennett</i></p>
+> <b>The double hundred Fowler hit in the Madras Test was an absolute beauty.</b>
+> <p><i>David Gower</i></p>
 
 <br>
