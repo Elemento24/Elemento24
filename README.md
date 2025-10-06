@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Kinkade's paintings are worthless schmaltz, and the lamestream media that love him are wrong. However, I'd love to see a museum mount a small show of Kinkade's work. I would like the art world and the wider world to argue about him in public, out in the open.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>As life runs on, the road grows strange with faces new - and near the end. The milestones into headstones change, Neath every one a friend.</b>
+> <p><i>James Russell Lowell</i></p>
 
 <br>
