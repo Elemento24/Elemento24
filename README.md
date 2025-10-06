@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One thing is certain in business. You and everyone around you will make mistakes.</b>
-> <p><i>Richard Branson</i></p>
+> <b>Negroes - Sweet and docile, Meek, humble, and kind: Beware the day - They change their mind.</b>
+> <p><i>Langston Hughes</i></p>
 
 <br>
