@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is the worst of woes that wait on age? What stamps the wrinkle deeper on the brow? To view each loved one blotted from life's page, And be alone on earth, as I am now.</b>
-> <p><i>Lord Byron</i></p>
+> <b>My husband gave me a necklace. It's fake. I requested fake. Maybe I'm paranoid, but in this day and age, I don't want something around my neck that's worth more than my head.</b>
+> <p><i>Rita Rudner</i></p>
 
 <br>
