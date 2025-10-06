@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, there are better cartoonists now than there ever have been. I firmly believe that. There's some amazing work being done.</b>
-> <p><i>Chris Ware</i></p>
+> <b>One of the tough things about being an actor, probably the hardest thing, is getting your foot in the door, and my father handled that for me at a very early age.</b>
+> <p><i>Jeff Bridges</i></p>
 
 <br>
