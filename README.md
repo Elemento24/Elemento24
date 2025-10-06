@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Back in the 1960s, I saw Peter, Paul and Mary. I was at that age, about 14, and I was mesmerized.</b>
-> <p><i>Lucinda Williams</i></p>
+> <b>I can't live without my beauty products. I love to be in my bathroom with my candles lit, morning, noon and night. I like taking hot baths and hot showers, using my body scrubs and lotions.</b>
+> <p><i>Traci Bingham</i></p>
 
 <br>
