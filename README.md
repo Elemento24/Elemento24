@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The double hundred Fowler hit in the Madras Test was an absolute beauty.</b>
-> <p><i>David Gower</i></p>
+> <b>Politics would be a helluva good business if it weren't for the goddamned people.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
