@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know much about auctions. I sometimes go to previews and see art sardined into ugly rooms. I've gawked at the gaudy prices, and gaped at well-clad crowds of happy white people conspicuously spending hundreds of millions of dollars.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>The best things and best people rise out of their separateness I'm against a homogenized society because I want the cream to rise.</b>
+> <p><i>Robert Frost</i></p>
 
 <br>
