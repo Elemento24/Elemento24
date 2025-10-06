@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that in itself is kind of an amazing achievement to be able to say that your full-time career is in any creative arts, let alone a show that has kept people interested for coming on four seasons and hopefully more.</b>
-> <p><i>Anna Paquin</i></p>
+> <b>No, but way before that, I've been doing little dances in movies for years. Yeah, that was an amazing chance. You know, at my age to be able to do a music dance video, very unusual.</b>
+> <p><i>Christopher Walken</i></p>
 
 <br>
