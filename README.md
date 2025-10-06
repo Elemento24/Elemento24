@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As I grew older, I realized that it was much better to insist on the genuine forms of nature, for simplicity is the greatest adornment of art.</b>
-> <p><i>Albrecht Durer</i></p>
+> <b>What is the worst of woes that wait on age? What stamps the wrinkle deeper on the brow? To view each loved one blotted from life's page, And be alone on earth, as I am now.</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
