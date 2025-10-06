@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't live without my beauty products. I love to be in my bathroom with my candles lit, morning, noon and night. I like taking hot baths and hot showers, using my body scrubs and lotions.</b>
-> <p><i>Traci Bingham</i></p>
+> <b>Blondes make the best victims. They're like virgin snow that shows up the bloody footprints.</b>
+> <p><i>Alfred Hitchcock</i></p>
 
 <br>
