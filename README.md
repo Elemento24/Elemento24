@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best things and best people rise out of their separateness I'm against a homogenized society because I want the cream to rise.</b>
-> <p><i>Robert Frost</i></p>
+> <b>Well, there are better cartoonists now than there ever have been. I firmly believe that. There's some amazing work being done.</b>
+> <p><i>Chris Ware</i></p>
 
 <br>
