@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We need to become good citizens in the global village, instead of competing. What are we competing for - to drive more cars, eat more steaks? That will destroy the world.</b>
-> <p><i>Yuan T. Lee</i></p>
+> <b>Post-Modernism was a reaction against Modernism. It came quite early to music and literature, and a little later to architecture. And I think it's still coming to computer science.</b>
+> <p><i>Larry Wall</i></p>
 
 <br>
