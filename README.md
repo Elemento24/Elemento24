@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think fun is an important part of the entertainment industry, and it should be. Anybody who's not incorporating some of that into their work needs to take a break, go away, and have an attitude adjustment.</b>
-> <p><i>Diane Lane</i></p>
+> <b>I have the most amazing support network around me.</b>
+> <p><i>Jenny Frost</i></p>
 
 <br>
