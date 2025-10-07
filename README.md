@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Absolute truth belongs to Thee alone.</b>
-> <p><i>Gotthold Ephraim Lessing</i></p>
+> <b>I have an amazing relationship with food.</b>
+> <p><i>Katharine McPhee</i></p>
 
 <br>
