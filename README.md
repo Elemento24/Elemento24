@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're going to put yourself above everybody else, you might end up alone.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>No lying knight or lying priest ever prospered in any age, but especially not in the dark ones. Men prospered then only in following an openly declared purpose, and preaching candidly beloved and trusted creeds.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
