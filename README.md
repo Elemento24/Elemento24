@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Blondes make the best victims. They're like virgin snow that shows up the bloody footprints.</b>
-> <p><i>Alfred Hitchcock</i></p>
+> <b>Youth has no age.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
