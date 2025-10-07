@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always looked the same. Since I was a child, I hated having to deal with my hair. I hated having to change my clothes. As a kid, I had a sailor shirt and the same old corduroy pants, and that's what I wanted to wear everyday.</b>
-> <p><i>Patti Smith</i></p>
+> <b>Courtesy is a silver lining around the dark clouds of civilization it is the best part of refinement and in many ways, an art of heroic beauty in the vast gallery of man's cruelty and baseness.</b>
+> <p><i>Bryant H. McGill</i></p>
 
 <br>
