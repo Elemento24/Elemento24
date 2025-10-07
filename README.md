@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In today's social business marketplace Facebook is one of the best places for nonprofits to be discovered and connect with a larger audience on the basis of shared values. So to get started, a non-profit should launch a Facebook page and invite your existing real world community to connect your cause and their networks.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>We need to become good citizens in the global village, instead of competing. What are we competing for - to drive more cars, eat more steaks? That will destroy the world.</b>
+> <p><i>Yuan T. Lee</i></p>
 
 <br>
