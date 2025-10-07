@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change brings opportunities. On the other hand, change can be confusing.</b>
-> <p><i>Michael Porter</i></p>
+> <b>In today's social business marketplace Facebook is one of the best places for nonprofits to be discovered and connect with a larger audience on the basis of shared values. So to get started, a non-profit should launch a Facebook page and invite your existing real world community to connect your cause and their networks.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
