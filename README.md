@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Post-Modernism was a reaction against Modernism. It came quite early to music and literature, and a little later to architecture. And I think it's still coming to computer science.</b>
-> <p><i>Larry Wall</i></p>
+> <b>The pool is terrible, but that doesn't have much to do with my record swims. That's all mental attitude.</b>
+> <p><i>Mark Spitz</i></p>
 
 <br>
