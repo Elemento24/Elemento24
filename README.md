@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being seventy is not a sin.</b>
-> <p><i>Golda Meir</i></p>
+> <b>Environmentalism opposes reckless innovation and makes conservation the central order of business.</b>
+> <p><i>Christopher Lasch</i></p>
 
 <br>
