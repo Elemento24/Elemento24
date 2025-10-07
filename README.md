@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Environmentalism opposes reckless innovation and makes conservation the central order of business.</b>
-> <p><i>Christopher Lasch</i></p>
+> <b>Absolute truth belongs to Thee alone.</b>
+> <p><i>Gotthold Ephraim Lessing</i></p>
 
 <br>
