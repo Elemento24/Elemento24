@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pool is terrible, but that doesn't have much to do with my record swims. That's all mental attitude.</b>
-> <p><i>Mark Spitz</i></p>
+> <b>A building has integrity just like a man. And just as seldom.</b>
+> <p><i>Ayn Rand</i></p>
 
 <br>
