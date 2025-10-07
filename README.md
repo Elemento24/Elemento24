@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part of beauty is that which no picture can express.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>Change brings opportunities. On the other hand, change can be confusing.</b>
+> <p><i>Michael Porter</i></p>
 
 <br>
