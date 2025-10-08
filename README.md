@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What turns me on about the digital age, what excited me personally, is that you have closed the gap between dreaming and doing. You see, it used to be that if you wanted to make a record of a song, you needed a studio and a producer. Now, you need a laptop.</b>
-> <p><i>Bono</i></p>
+> <b>I get to do the most amazing things. We call it Host in Peril quite often, because people love to see me risk my life or be in danger.</b>
+> <p><i>Rick Mercer</i></p>
 
 <br>
