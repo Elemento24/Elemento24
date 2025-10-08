@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men may change their climate, but they cannot change their nature. A man that goes out a fool cannot ride or sail himself into common sense.</b>
-> <p><i>Joseph Addison</i></p>
+> <b>The magic kit we developed with Idea Village is an extraordinary success in 40,000 stores across America. The TV commercial we shot for it has produced amazing results - unbelievable.</b>
+> <p><i>Criss Angel</i></p>
 
 <br>
