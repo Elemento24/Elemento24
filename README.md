@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Money is such an amazing teacher: What you choose to do with your money shows whether you are truly powerful or powerless.</b>
-> <p><i>Suze Orman</i></p>
+> <b>Nothing can stop the man with the right mental attitude from achieving his goal nothing on earth can help the man with the wrong mental attitude.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
