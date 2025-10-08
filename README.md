@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can support going in after Saddam Hussein, but I want to make sure I don't go alone.</b>
-> <p><i>John Dingell</i></p>
+> <b>You can be around 100 people and be completely alone. People don't realize what it's really like.</b>
+> <p><i>Lenny Kravitz</i></p>
 
 <br>
