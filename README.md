@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Emotions have no place in business, unless you do business with them.</b>
-> <p><i>Friedrich Durrenmatt</i></p>
+> <b>Men may change their climate, but they cannot change their nature. A man that goes out a fool cannot ride or sail himself into common sense.</b>
+> <p><i>Joseph Addison</i></p>
 
 <br>
