@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the most intense mode of individualism that the world has known.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>Money is such an amazing teacher: What you choose to do with your money shows whether you are truly powerful or powerless.</b>
+> <p><i>Suze Orman</i></p>
 
 <br>
