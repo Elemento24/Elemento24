@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I played with the same band for years and years and there's a beauty to having one solid core that you keep exploring. On the other hand, it's nice to throw yourself in different situations where you find out things about your own resources.</b>
-> <p><i>Grant-Lee Phillips</i></p>
+> <b>The best argument against democracy is a five-minute conversation with the average voter.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
