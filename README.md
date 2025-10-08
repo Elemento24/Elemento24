@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can be around 100 people and be completely alone. People don't realize what it's really like.</b>
-> <p><i>Lenny Kravitz</i></p>
+> <b>It is not the beauty of a building you should look at its the construction of the foundation that will stand the test of time.</b>
+> <p><i>David Allan Coe</i></p>
 
 <br>
