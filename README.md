@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best argument against democracy is a five-minute conversation with the average voter.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>I can support going in after Saddam Hussein, but I want to make sure I don't go alone.</b>
+> <p><i>John Dingell</i></p>
 
 <br>
