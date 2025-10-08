@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get to do the most amazing things. We call it Host in Peril quite often, because people love to see me risk my life or be in danger.</b>
-> <p><i>Rick Mercer</i></p>
+> <b>The deferring of anger is the best antidote to anger.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
