@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most men are individuals no longer so far as their business, its activities, or its moralities are concerned. They are not units but fractions.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>I started running around my 30th birthday. I wanted to lose weight I didn't anticipate the serenity. Being in motion, suddenly my body was busy and so my head could work out some issues I had swept under a carpet of wine and cheese. Good therapy, that's a good run.</b>
+> <p><i>Michael Weatherly</i></p>
 
 <br>
