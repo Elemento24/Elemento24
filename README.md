@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not the destination that matters. It's the change of scene.</b>
-> <p><i>Brian Eno</i></p>
+> <b>To wear your heart on your sleeve isn't a very good plan you should wear it inside, where it functions best.</b>
+> <p><i>Margaret Thatcher</i></p>
 
 <br>
