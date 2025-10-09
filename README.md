@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never go to bed mad. Stay up and fight.</b>
-> <p><i>Phyllis Diller</i></p>
+> <b>It's not the destination that matters. It's the change of scene.</b>
+> <p><i>Brian Eno</i></p>
 
 <br>
