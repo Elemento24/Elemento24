@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have become aware of the responsibility for our attitude towards the dark pages in our history. We have understood that bad service is done to the nation by those who are impelling to renounce that past.</b>
-> <p><i>Aleksander Kwasniewski</i></p>
+> <b>She's 32, and she has three children. She loves to be pregnant but she doesn't want anymore children in her life. So she decided to help another couple. And she's just been amazing.</b>
+> <p><i>Cheryl Tiegs</i></p>
 
 <br>
