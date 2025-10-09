@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My whole family's been in the business. My whole family is crazy.</b>
-> <p><i>Blake Lively</i></p>
+> <b>We have become aware of the responsibility for our attitude towards the dark pages in our history. We have understood that bad service is done to the nation by those who are impelling to renounce that past.</b>
+> <p><i>Aleksander Kwasniewski</i></p>
 
 <br>
