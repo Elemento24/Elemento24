@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success.</b>
-> <p><i>Swami Vivekananda</i></p>
+> <b>There are so many opportunities in life, that the loss of two or three capabilities is not necessarily debilitating. A handicap can give you the opportunity to focus more on art, writing, or music.</b>
+> <p><i>Jim Davis</i></p>
 
 <br>
