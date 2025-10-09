@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The heresy of one age becomes the orthodoxy of the next.</b>
-> <p><i>Helen Keller</i></p>
+> <b>I don't have clear-cut positions. I get baffled by things. I have viewpoints. Sometimes they change.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
