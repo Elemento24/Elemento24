@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I started crying the other day just thinking that the baby is going to leave me soon! You have this relationship with this person in your belly and it's really amazing.</b>
-> <p><i>Emily Procter</i></p>
+> <b>Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success.</b>
+> <p><i>Swami Vivekananda</i></p>
 
 <br>
