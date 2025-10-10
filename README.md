@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother gave me this book called Feature Films at Used Car Prices by a guy named Rick Schmidt. I gotta credit the guy, cuz he gave me the most practical advice. It empowers you.</b>
-> <p><i>Vin Diesel</i></p>
+> <b>Choose your corner, pick away at it carefully, intensely and to the best of your ability and that way you might change the world.</b>
+> <p><i>Charles Eames</i></p>
 
 <br>
