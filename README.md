@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is one of the sinews of the soul.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>Art is the lie that enables us to realize the truth.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
