@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the biggest disease the world suffers from in this day and age is the disease of people feeling unloved. I know that I can give love for a minute, for half an hour, for a day, for a month, but I can give. I am very happy to do that, I want to do that.</b>
-> <p><i>Princess Diana</i></p>
+> <b>I think Serena Williams is the best tennis player of this generation, if not the best ever. It is amazing for her to be playing as well as she is at the age of 31.</b>
+> <p><i>Samantha Stosur</i></p>
 
 <br>
