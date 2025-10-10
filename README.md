@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the lie that enables us to realize the truth.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>He who is fixed to a star does not change his mind.</b>
+> <p><i>Leonardo da Vinci</i></p>
 
 <br>
