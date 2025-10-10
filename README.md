@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Serena Williams is the best tennis player of this generation, if not the best ever. It is amazing for her to be playing as well as she is at the age of 31.</b>
-> <p><i>Samantha Stosur</i></p>
+> <b>Nobody grows old merely by living a number of years. We grow old by deserting our ideals. Years may wrinkle the skin, but to give up enthusiasm wrinkles the soul.</b>
+> <p><i>Samuel Ullman</i></p>
 
 <br>
