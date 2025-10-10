@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The phenomenon of home schooling is a wonderful example of the American can-do attitude. Growing numbers of parents have become disenchanted with government-run public schools. Many parents have simply taken matters into their own hands, literally.</b>
-> <p><i>Steve Forbes</i></p>
+> <b>To me - old age is always ten years older than I am.</b>
+> <p><i>John Burroughs</i></p>
 
 <br>
