@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If only we could persuade galleries to observe a fallow period in which, for two months every other year, new and old works of art could be sold in back rooms and all main galleries would be devoted to revisiting shows gone by.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I'm just part of a tradition of people who aren't pleased. I would never think anyone else who has the same attitude was getting it from me. I'd just think they're... sensible.</b>
+> <p><i>Jack Dee</i></p>
 
 <br>
