@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are so many opportunities in life, that the loss of two or three capabilities is not necessarily debilitating. A handicap can give you the opportunity to focus more on art, writing, or music.</b>
-> <p><i>Jim Davis</i></p>
+> <b>I couldn't find the sports car of my dreams, so I built it myself.</b>
+> <p><i>Ferdinand Porsche</i></p>
 
 <br>
