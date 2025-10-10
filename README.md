@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pictures must not be too picturesque.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>In places where this beauty has already disappeared, we will reconstruct it.</b>
+> <p><i>Fritz Todt</i></p>
 
 <br>
