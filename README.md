@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I couldn't find the sports car of my dreams, so I built it myself.</b>
-> <p><i>Ferdinand Porsche</i></p>
+> <b>Achievement is not always success, while reputed failure often is. It is honest endeavor, persistent effort to do the best possible under any and all circumstances.</b>
+> <p><i>Orison Swett Marden</i></p>
 
 <br>
