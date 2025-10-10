@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The tendency of old age to the body, say the physiologists, is to form bone. It is as rare as it is pleasant to meet with an old man whose opinions are not ossified.</b>
-> <p><i>Bob Wells</i></p>
+> <b>Beauty without grace is the hook without the bait.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
