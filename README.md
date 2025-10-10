@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Choose your corner, pick away at it carefully, intensely and to the best of your ability and that way you might change the world.</b>
-> <p><i>Charles Eames</i></p>
+> <b>The only thing better than singing is more singing.</b>
+> <p><i>Ella Fitzgerald</i></p>
 
 <br>
