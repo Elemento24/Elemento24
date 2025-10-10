@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Achievement is not always success, while reputed failure often is. It is honest endeavor, persistent effort to do the best possible under any and all circumstances.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>Women didn't want to be on the stage with other women because they didn't want their bodies to be compared. They didn't want another female act opening for them because of this weird competitive and tokenistic attitude.</b>
+> <p><i>Kathleen Hanna</i></p>
 
 <br>
