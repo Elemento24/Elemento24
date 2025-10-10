@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm just part of a tradition of people who aren't pleased. I would never think anyone else who has the same attitude was getting it from me. I'd just think they're... sensible.</b>
-> <p><i>Jack Dee</i></p>
+> <b>The tendency of old age to the body, say the physiologists, is to form bone. It is as rare as it is pleasant to meet with an old man whose opinions are not ossified.</b>
+> <p><i>Bob Wells</i></p>
 
 <br>
