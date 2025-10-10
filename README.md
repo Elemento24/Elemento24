@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty without grace is the hook without the bait.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>The counterfeit and counterpart of Nature is reproduced in art.</b>
+> <p><i>Henry Wadsworth Longfellow</i></p>
 
 <br>
