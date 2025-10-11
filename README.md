@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The concept of two people living together for 25 years without a serious dispute suggests a lack of spirit only to be admired in sheep.</b>
-> <p><i>A. P. Herbert</i></p>
+> <b>I sing a little bit. I got a guitar for my 16th birthday.</b>
+> <p><i>Jesse Plemons</i></p>
 
 <br>
