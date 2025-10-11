@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The signs of outstanding leadership appear primarily among the followers. Are the followers reaching their potential? Are they learning? Serving? Do they achieve the required results? Do they change with grace? Manage conflict?</b>
-> <p><i>Max de Pree</i></p>
+> <b>The 'self-image' is the key to human personality and human behavior. Change the self image and you change the personality and the behavior.</b>
+> <p><i>Maxwell Maltz</i></p>
 
 <br>
