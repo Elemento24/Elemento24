@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I also believe that government has no business telling us how we should live our lives. I think our lifestyle choices should be left up to us. What we do in our private lives is none of the government's business. That position rules out the Republican Party for me.</b>
-> <p><i>Jesse Ventura</i></p>
+> <b>If a man's character is to be abused there's nobody like a relative to do the business.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
