@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I also like to shower my parents with presents. I bought them a beautiful car and a house.</b>
-> <p><i>Eva Herzigova</i></p>
+> <b>It is in the mind and the heart where we meet. It's not the body-the body will change.</b>
+> <p><i>Amber Valletta</i></p>
 
 <br>
