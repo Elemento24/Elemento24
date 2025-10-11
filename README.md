@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a man's character is to be abused there's nobody like a relative to do the business.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>I would love to work with Anthony Hopkins I would love to work with Meryl Streep I would love to work with DeNiro I would love to work with Johnny Depp I'd love to work with Brad Pitt, Matt Damon, Gwyneth Paltrow... I think she's amazing.</b>
+> <p><i>Tara Reid</i></p>
 
 <br>
