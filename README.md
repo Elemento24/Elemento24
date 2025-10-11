@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After a while of getting jerked around, you realize what the business is really made up of.</b>
-> <p><i>Tori Amos</i></p>
+> <b>In times of rapid change, experience could be your worst enemy.</b>
+> <p><i>J. Paul Getty</i></p>
 
 <br>
