@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would love to work with Anthony Hopkins I would love to work with Meryl Streep I would love to work with DeNiro I would love to work with Johnny Depp I'd love to work with Brad Pitt, Matt Damon, Gwyneth Paltrow... I think she's amazing.</b>
-> <p><i>Tara Reid</i></p>
+> <b>I was told to avoid the business all together because of the rejection. People would say to me, 'Don't you want to have a normal job and a normal family?' I guess that would be good advice for some people, but I wanted to act.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
