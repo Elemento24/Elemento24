@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How do you nurture a positive attitude when all the statistics say you're a dead man? You go to work.</b>
-> <p><i>Patrick Swayze</i></p>
+> <b>The signs of outstanding leadership appear primarily among the followers. Are the followers reaching their potential? Are they learning? Serving? Do they achieve the required results? Do they change with grace? Manage conflict?</b>
+> <p><i>Max de Pree</i></p>
 
 <br>
