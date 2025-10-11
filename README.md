@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of the things we decide are not what we know to be the best. We say yes, merely because we are driven into a corner and must say something.</b>
-> <p><i>Frank Crane</i></p>
+> <b>The concept of two people living together for 25 years without a serious dispute suggests a lack of spirit only to be admired in sheep.</b>
+> <p><i>A. P. Herbert</i></p>
 
 <br>
