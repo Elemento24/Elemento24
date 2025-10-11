@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is in the mind and the heart where we meet. It's not the body-the body will change.</b>
-> <p><i>Amber Valletta</i></p>
+> <b>We had a relationship that lasted 44 years. Herbert and I lived together 10 years before we were married. He always gave me a little heart for whatever anniversary.</b>
+> <p><i>Uta Hagen</i></p>
 
 <br>
