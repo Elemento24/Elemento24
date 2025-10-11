@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At my age the only problem is with remembering names. When I call everyone darling, it has damn all to do with passionately adoring them, but I know I'm safe calling them that. Although, of course, I adore them too.</b>
-> <p><i>Richard Attenborough</i></p>
+> <b>Most of the things we decide are not what we know to be the best. We say yes, merely because we are driven into a corner and must say something.</b>
+> <p><i>Frank Crane</i></p>
 
 <br>
