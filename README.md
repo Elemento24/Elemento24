@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I sing a little bit. I got a guitar for my 16th birthday.</b>
-> <p><i>Jesse Plemons</i></p>
+> <b>Newspapers with declining circulations can complain all they want about their readers and even say they have no taste. But you will still go out of business over time. A newspaper is not a public trust - it has a business model that either works or it doesn't.</b>
+> <p><i>Marc Andreessen</i></p>
 
 <br>
