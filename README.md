@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People who refuse to rest honorably on their laurels when they reach retirement age seem very admirable to me.</b>
-> <p><i>Helen Hayes</i></p>
+> <b>When I was really little I would sit in the back of my dad's car when he'd be playing old-school music. He'd turn down the music and turn around and I'd be singing and know all of the words but I didn't even know how to talk. From then on I've always wanted to be a singer.</b>
+> <p><i>Leona Lewis</i></p>
 
 <br>
