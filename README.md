@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Academy Awards was an amazing night. I know I kind of lost my mind a little bit. I apologize for that. That night went so fast I can't remember what I said or what happened.</b>
-> <p><i>Cuba Gooding, Jr.</i></p>
+> <b>At my age the only problem is with remembering names. When I call everyone darling, it has damn all to do with passionately adoring them, but I know I'm safe calling them that. Although, of course, I adore them too.</b>
+> <p><i>Richard Attenborough</i></p>
 
 <br>
