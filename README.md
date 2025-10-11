@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Both my brothers became physicians and I, of course, wandered into a business where the undisciplined are welcome.</b>
-> <p><i>Carroll O'Connor</i></p>
+> <b>My humour has always come from anger, but I have to make sure I don't just get angry and jump on a soapbox.</b>
+> <p><i>Carl Hiaasen</i></p>
 
 <br>
