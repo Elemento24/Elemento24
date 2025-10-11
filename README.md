@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember when I first started in the business, I lost a lot of friends. Some were jealous, some were annoyed at the fact that I was an actress.</b>
-> <p><i>Amber Tamblyn</i></p>
+> <b>People who refuse to rest honorably on their laurels when they reach retirement age seem very admirable to me.</b>
+> <p><i>Helen Hayes</i></p>
 
 <br>
