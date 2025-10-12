@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even in this day and age, if you're not married, there are people who are like, 'Awww! Don't worry, it'll happen for you someday.'</b>
-> <p><i>Kristen Wiig</i></p>
+> <b>The notion that Congress can change the meaning given a constitutional provision by the Court is subversive of the function of judicial review and it is not the less so because the Court promises to allow it only when the Constitution is moved to the left.</b>
+> <p><i>Robert Bork</i></p>
 
 <br>
