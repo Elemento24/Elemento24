@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every performance is different. That's the beauty of it.</b>
-> <p><i>Van Morrison</i></p>
+> <b>I don't think that you can fake warmth. You can fake lust, jealousy, anger those are all quite easy. But actual, genuine warmth? I don't think you can fake it.</b>
+> <p><i>Keira Knightley</i></p>
 
 <br>
