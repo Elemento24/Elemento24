@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best beauty advice I ever received is to keep skin hydrated and limit harsh exposure to the sun. If you are set on the tanned look, there are plenty of great creams that will give you a healthy-looking glow.</b>
-> <p><i>Erica Durance</i></p>
+> <b>Even in this day and age, if you're not married, there are people who are like, 'Awww! Don't worry, it'll happen for you someday.'</b>
+> <p><i>Kristen Wiig</i></p>
 
 <br>
