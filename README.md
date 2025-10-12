@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body is an amazing machine... If you eat the right things your body will perform incredibly well!</b>
-> <p><i>Shawn Johnson</i></p>
+> <b>I'm very pleased to be here. Let's face it, at my age I'm very pleased to be anywhere.</b>
+> <p><i>George Burns</i></p>
 
 <br>
