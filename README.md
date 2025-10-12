@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm so happy to have been a part of that process and I would go straight back into the desert in a ton of chain mail for Ridley any day of the week. He's an amazing director and I can't wait to see the long version.</b>
-> <p><i>Orlando Bloom</i></p>
+> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
+> <p><i>Euripides</i></p>
 
 <br>
