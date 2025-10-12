@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think there's a great beauty to having problems. That's one of the ways we learn.</b>
-> <p><i>Herbie Hancock</i></p>
+> <b>I never thought a basketball shoe would be named after a woman, let alone me.</b>
+> <p><i>Sheryl Swoopes</i></p>
 
 <br>
