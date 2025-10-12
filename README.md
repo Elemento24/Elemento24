@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The 'self-image' is the key to human personality and human behavior. Change the self image and you change the personality and the behavior.</b>
-> <p><i>Maxwell Maltz</i></p>
+> <b>Why is it you feel like a dope if you laugh alone, but that's usually how you end up crying?</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
