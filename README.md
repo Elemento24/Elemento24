@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why is it you feel like a dope if you laugh alone, but that's usually how you end up crying?</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>When I decided to get married at 40, I couldn't find a dress with the modernity or sophistication I wanted. That's when I saw the opportunity for a wedding gown business.</b>
+> <p><i>Vera Wang</i></p>
 
 <br>
