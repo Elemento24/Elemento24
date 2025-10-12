@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not just Bin Laden or just those that are involved in the counterterrorism effort. We've gotta cast the net broader than that. But I think it's a - very special tribute that we all owe to the bravery and courage of the men and women in the intelligence and military business who performed so well to finally get it done.</b>
-> <p><i>Dick Cheney</i></p>
+> <b>Every performance is different. That's the beauty of it.</b>
+> <p><i>Van Morrison</i></p>
 
 <br>
