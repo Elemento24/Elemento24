@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no pleasure to me without communication: there is not so much as a sprightly thought comes into my mind that it does not grieve me to have produced alone, and that I have no one to tell it to.</b>
-> <p><i>Michel de Montaigne</i></p>
+> <b>I'm so happy to have been a part of that process and I would go straight back into the desert in a ton of chain mail for Ridley any day of the week. He's an amazing director and I can't wait to see the long version.</b>
+> <p><i>Orlando Bloom</i></p>
 
 <br>
