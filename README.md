@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The notion that Congress can change the meaning given a constitutional provision by the Court is subversive of the function of judicial review and it is not the less so because the Court promises to allow it only when the Constitution is moved to the left.</b>
-> <p><i>Robert Bork</i></p>
+> <b>To create architecture is to put in order. Put what in order? Function and objects.</b>
+> <p><i>Le Corbusier</i></p>
 
 <br>
