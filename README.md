@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Keep a good attitude and do the right thing even when it's hard. When you do that you are passing the test. And God promises you your marked moments are on their way.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>You live in a deranged age, more deranged that usual, because in spite of great scientific and technological advances, man has not the faintest idea of who he is or what he is doing.</b>
+> <p><i>Walker Percy</i></p>
 
 <br>
