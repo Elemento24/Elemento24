@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You live in a deranged age, more deranged that usual, because in spite of great scientific and technological advances, man has not the faintest idea of who he is or what he is doing.</b>
-> <p><i>Walker Percy</i></p>
+> <b>It's not just Bin Laden or just those that are involved in the counterterrorism effort. We've gotta cast the net broader than that. But I think it's a - very special tribute that we all owe to the bravery and courage of the men and women in the intelligence and military business who performed so well to finally get it done.</b>
+> <p><i>Dick Cheney</i></p>
 
 <br>
