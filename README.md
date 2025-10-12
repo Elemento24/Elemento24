@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very pleased to be here. Let's face it, at my age I'm very pleased to be anywhere.</b>
-> <p><i>George Burns</i></p>
+> <b>The future belongs to those who believe in the beauty of their dreams.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
