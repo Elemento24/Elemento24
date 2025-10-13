@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I felt that it's best just to be as transparent as possible.</b>
-> <p><i>Rupert Murdoch</i></p>
+> <b>The English light is so very subtle, so very soft and misty, that the architecture responded with great delicacy of detail.</b>
+> <p><i>Stephen Gardiner</i></p>
 
 <br>
