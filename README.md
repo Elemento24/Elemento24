@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Loneliness adds beauty to life. It puts a special burn on sunsets and makes night air smell better.</b>
-> <p><i>Henry Rollins</i></p>
+> <b>When a management with a reputation for brilliance tackles a business with a reputation for bad economics, it is the reputation of the business that remains intact.</b>
+> <p><i>Warren Buffett</i></p>
 
 <br>
