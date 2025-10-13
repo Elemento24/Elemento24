@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When a management with a reputation for brilliance tackles a business with a reputation for bad economics, it is the reputation of the business that remains intact.</b>
-> <p><i>Warren Buffett</i></p>
+> <b>I try to push ideas away, and the ones that will not leave me alone are the ones that ultimately end up happening.</b>
+> <p><i>J. J. Abrams</i></p>
 
 <br>
