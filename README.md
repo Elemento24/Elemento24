@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm glad I was born when I was. My time was the golden age of variety. If I were starting out again now, maybe things would happen for me, but it certainly would not be on a variety show with 28 musicians, 12 dancers, two major guest stars, 50 costumes a week by Bob Mackie. The networks just wouldn't spend the money today.</b>
-> <p><i>Carol Burnett</i></p>
+> <b>We have an amazing fan base all around the world that love 40FT.</b>
+> <p><i>Steve Brown</i></p>
 
 <br>
