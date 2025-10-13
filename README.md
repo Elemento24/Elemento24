@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The English light is so very subtle, so very soft and misty, that the architecture responded with great delicacy of detail.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>I think the sport of wrestling, which I became involved with at the age of 14... I competed until I was 34, kind of old for a contact sport. I coached the sport until I was 47. I think the discipline of wrestling has given me the discipline I have to write.</b>
+> <p><i>John Irving</i></p>
 
 <br>
