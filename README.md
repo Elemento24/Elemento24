@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have an amazing fan base all around the world that love 40FT.</b>
-> <p><i>Steve Brown</i></p>
+> <b>In the business world today, failure is apparently not an option. We need to change this attitude toward failure - and celebrate the idea that only by falling on our collective business faces do we learn enough to succeed down the road.</b>
+> <p><i>Naveen Jain</i></p>
 
 <br>
