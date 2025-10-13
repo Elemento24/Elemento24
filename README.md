@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the amazing thing about gospel music is that not only does it lift up the death and resurrection of our Lord, which is consistent with the Gospel, but it is uniquely communicated depending upon the generation.</b>
-> <p><i>T. D. Jakes</i></p>
+> <b>I'd love to write something for a male protagonist. That's sort of the next frontier for me. I think it'd be really amazing to write the kind of parts that I love for women but for a guy.</b>
+> <p><i>Lena Dunham</i></p>
 
 <br>
