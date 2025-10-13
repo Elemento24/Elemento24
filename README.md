@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In such ugly times, the only true protest is beauty.</b>
-> <p><i>Phil Ochs</i></p>
+> <b>Loneliness adds beauty to life. It puts a special burn on sunsets and makes night air smell better.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
