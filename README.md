@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obamacare has got everyone on edge. I mean, small business - men and women or big business are sitting out there saying we have no idea what this is going to cost, but we know it's going to cost us and cost us a lot.</b>
-> <p><i>Rick Perry</i></p>
+> <b>Modernity is the transitory, the fugitive, the contingent, which make up one half of art, the other being the eternal and the immutable. This transitory fugitive element, which is constantly changing, must not be despised or neglected.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
