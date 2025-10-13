@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the sport of wrestling, which I became involved with at the age of 14... I competed until I was 34, kind of old for a contact sport. I coached the sport until I was 47. I think the discipline of wrestling has given me the discipline I have to write.</b>
-> <p><i>John Irving</i></p>
+> <b>In such ugly times, the only true protest is beauty.</b>
+> <p><i>Phil Ochs</i></p>
 
 <br>
