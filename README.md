@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lead singers not only do the majority of the work, but their personalities are singled out and taken as the general attitude of the unit.</b>
-> <p><i>Martha Reeves</i></p>
+> <b>Obamacare has got everyone on edge. I mean, small business - men and women or big business are sitting out there saying we have no idea what this is going to cost, but we know it's going to cost us and cost us a lot.</b>
+> <p><i>Rick Perry</i></p>
 
 <br>
