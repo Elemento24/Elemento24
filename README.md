@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think people are fools, and I think they deserve a good attitude and smart entertainment.</b>
-> <p><i>Tatyana Tolstaya</i></p>
+> <b>I appreciate and enjoy my age.</b>
+> <p><i>Nikki Giovanni</i></p>
 
 <br>
