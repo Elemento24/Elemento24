@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Amazing that the human race has taken enough time out from thinking about food or sex to create the arts and sciences.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>Madonna remains the most visible performer on the planet, as well as one of the wealthiest, but would anyone seriously say that artistic self-development is her primary motivating principle? She is too busy with Kabbalah, fashion merchandising, adoption melodramas, the gym, and ill-starred horseback riding to study art.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
