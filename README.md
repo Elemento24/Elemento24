@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>However, democracy cannot be defined as the existence of parliaments and elections alone.</b>
-> <p><i>Recep Tayyip Erdogan</i></p>
+> <b>The best audience is intelligent, well-educated and a little drunk.</b>
+> <p><i>Alben W. Barkley</i></p>
 
 <br>
