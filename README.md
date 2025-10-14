@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The radiation left over from the Big Bang is the same as that in your microwave oven but very much less powerful. It would heat your pizza only to minus 271.3*C - not much good for defrosting the pizza, let alone cooking it.</b>
-> <p><i>Stephen Hawking</i></p>
+> <b>You know, if you're Guy Kawasaki and you create a car that gets 500 miles a gallon with zero emissions, people on the Internet would say: 'I could have done that in half an hour, and it's been done before. What's the big deal? I expected something more from him.' Meanwhile, they didn't do it, right? They're still living at home with their mothers.</b>
+> <p><i>Guy Kawasaki</i></p>
 
 <br>
