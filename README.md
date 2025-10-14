@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world changes in direct proportion to the number of people willing to be honest about their lives.</b>
-> <p><i>Armistead Maupin</i></p>
+> <b>People until I was 60 would always say they thought I looked younger, which I think, without flattering myself, I did, but I think I certainly have, as George Orwell says people do after a certain age, the face they deserve.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
