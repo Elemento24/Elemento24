@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Bombing Afghanistan back into the Stone Age' was quite a favourite headline for some wobbly liberals. The slogan does all the work. But an instant's thought shows that Afghanistan is being, if anything, bombed out of the Stone Age.</b>
-> <p><i>Christopher Hitchens</i></p>
+> <b>However, democracy cannot be defined as the existence of parliaments and elections alone.</b>
+> <p><i>Recep Tayyip Erdogan</i></p>
 
 <br>
