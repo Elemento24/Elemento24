@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do you remember when you were 10 or 11 years old and you really thought your folks were the best? They were completely omniscient and you took their word for everything. And then you got older and you went through this hideous age when suddenly they were the devil, they were bullies, and they didn't know anything.</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>The world changes in direct proportion to the number of people willing to be honest about their lives.</b>
+> <p><i>Armistead Maupin</i></p>
 
 <br>
