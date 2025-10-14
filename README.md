@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, if you're Guy Kawasaki and you create a car that gets 500 miles a gallon with zero emissions, people on the Internet would say: 'I could have done that in half an hour, and it's been done before. What's the big deal? I expected something more from him.' Meanwhile, they didn't do it, right? They're still living at home with their mothers.</b>
-> <p><i>Guy Kawasaki</i></p>
+> <b>Well, I want to do The Music Man. I think it's an amazing opportunity, but I think that they are probably looking at major movie stars right now, and I don't blame them.</b>
+> <p><i>Gregory Harrison</i></p>
 
 <br>
