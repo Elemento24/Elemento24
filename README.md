@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was the hero of the young insurgent working class art movement.</b>
-> <p><i>Elia Kazan</i></p>
+> <b>This is a wonderful way to celebrate an 80th birthday... I wanted to be 65 again, but they wouldn't let me - Homeland Security.</b>
+> <p><i>Art Buchwald</i></p>
 
 <br>
