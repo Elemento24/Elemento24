@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is beauty, the perpetual invention of detail, the choice of words, the exquisite care of execution.</b>
-> <p><i>Theophile Gautier</i></p>
+> <b>To love and win is the best thing. To love and lose, the next best.</b>
+> <p><i>William Makepeace Thackeray</i></p>
 
 <br>
