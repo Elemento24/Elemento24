@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To love and win is the best thing. To love and lose, the next best.</b>
-> <p><i>William Makepeace Thackeray</i></p>
+> <b>If you spend enough time in or around Washington, you'll meet amazing people who work for the government.</b>
+> <p><i>Judy Woodruff</i></p>
 
 <br>
