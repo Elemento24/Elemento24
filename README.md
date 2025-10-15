@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In our daily life, we encounter people who are angry, deceitful, intent only on satisfying their own needs. There is so much anger, distrust, greed, and pettiness that we are losing our capacity to work well together.</b>
-> <p><i>Margaret J. Wheatley</i></p>
+> <b>I didn't make my first solo record until 1981 so I don't have any 60's or 70's recordings but I am working on a large boxed set called DUST to be released next year, the 20th anniversary of my first solo record.</b>
+> <p><i>Adrian Belew</i></p>
 
 <br>
