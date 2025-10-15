@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You will also allow me to thank the Academy for inviting me to lecture in Stockholm, for its hospitality, and for the opportunity afforded me for admiring the charm of your people and the beauty of your country.</b>
-> <p><i>Guglielmo Marconi</i></p>
+> <b>We now accept the fact that learning is a lifelong process of keeping abreast of change. And the most pressing task is to teach people how to learn.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
