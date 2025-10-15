@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, I want to do The Music Man. I think it's an amazing opportunity, but I think that they are probably looking at major movie stars right now, and I don't blame them.</b>
-> <p><i>Gregory Harrison</i></p>
+> <b>George Clooney is a super-human, he's just such an amazing human being, he taught me how to be a better person and a better actor!</b>
+> <p><i>Shailene Woodley</i></p>
 
 <br>
