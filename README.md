@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is the law of life. And those who look only to the past or present are certain to miss the future.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>The work of the individual still remains the spark that moves mankind ahead even more than teamwork.</b>
+> <p><i>Igor Sikorsky</i></p>
 
 <br>
