@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We now accept the fact that learning is a lifelong process of keeping abreast of change. And the most pressing task is to teach people how to learn.</b>
-> <p><i>Peter Drucker</i></p>
+> <b>I can work myself up into a fearful, paralyzing state of mind that can last for days, weeks even months where I feel mad, totally isolated and alone, overwhelmed and completely out of control.</b>
+> <p><i>Vinny Guadagnino</i></p>
 
 <br>
