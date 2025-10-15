@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Muslims have a very bad attitude to homosexuality, they're very intolerant.</b>
-> <p><i>Pim Fortuyn</i></p>
+> <b>Beauty is a relation, and the apprehension of it a comparison.</b>
+> <p><i>Gerard Manley Hopkins</i></p>
 
 <br>
