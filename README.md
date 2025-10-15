@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't make my first solo record until 1981 so I don't have any 60's or 70's recordings but I am working on a large boxed set called DUST to be released next year, the 20th anniversary of my first solo record.</b>
-> <p><i>Adrian Belew</i></p>
+> <b>Change is the law of life. And those who look only to the past or present are certain to miss the future.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
