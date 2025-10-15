@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work of the individual still remains the spark that moves mankind ahead even more than teamwork.</b>
-> <p><i>Igor Sikorsky</i></p>
+> <b>I love those who can smile in trouble, who can gather strength from distress, and grow brave by reflection. 'Tis the business of little minds to shrink, but they whose heart is firm, and whose conscience approves their conduct, will pursue their principles unto death.</b>
+> <p><i>Leonardo da Vinci</i></p>
 
 <br>
