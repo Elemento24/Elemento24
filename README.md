@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love those who can smile in trouble, who can gather strength from distress, and grow brave by reflection. 'Tis the business of little minds to shrink, but they whose heart is firm, and whose conscience approves their conduct, will pursue their principles unto death.</b>
-> <p><i>Leonardo da Vinci</i></p>
+> <b>Every time I hear, Cut. Print, something cold and electrical goes off in my head, because I'm never going to change that film.</b>
+> <p><i>David Ogden Stiers</i></p>
 
 <br>
