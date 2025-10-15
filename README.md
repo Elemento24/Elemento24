@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lying just for the fun of it is either art or pathology.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>I think, at a child's birth, if a mother could ask a fairy godmother to endow it with the most useful gift, that gift should be curiosity.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
