@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was impressed by Hendrix. Not so much by his playing, as his attitude - he wasn't a great player, but everything else about him was brilliant.</b>
-> <p><i>Ritchie Blackmore</i></p>
+> <b>Just as the left has to be more willing to question 'Government knows best,' the right has to rethink its laissez-faire attitude toward government.</b>
+> <p><i>Jack Kemp</i></p>
 
 <br>
