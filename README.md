@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just as the left has to be more willing to question 'Government knows best,' the right has to rethink its laissez-faire attitude toward government.</b>
-> <p><i>Jack Kemp</i></p>
+> <b>I do think I feel it but you don't think you are cause at a certain time you are no age but you don't think you are anything. You feel the life you have lived. I feel that. It's been a long fifty years.</b>
+> <p><i>Bob Geldof</i></p>
 
 <br>
