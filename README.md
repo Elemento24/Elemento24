@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>George Clooney is a super-human, he's just such an amazing human being, he taught me how to be a better person and a better actor!</b>
-> <p><i>Shailene Woodley</i></p>
+> <b>Muslims have a very bad attitude to homosexuality, they're very intolerant.</b>
+> <p><i>Pim Fortuyn</i></p>
 
 <br>
