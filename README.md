@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At least 50 times. I've jumped off a building, jumped off a cliff in a car. I've been in bedrooms when women came in with knives and guns.</b>
-> <p><i>Dennis Rodman</i></p>
+> <b>I would have liked maybe to be in architecture or painting, something connected to the fine arts.</b>
+> <p><i>Catherine Deneuve</i></p>
 
 <br>
