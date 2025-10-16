@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age and the passage of time teach all things.</b>
-> <p><i>Sophocles</i></p>
+> <b>Grow old with me! The best is yet to be.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
