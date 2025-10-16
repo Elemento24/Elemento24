@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's the thing about interviews, at some point you're going to change your mind. But it's there forever and you can't escape it.</b>
-> <p><i>Martha Plimpton</i></p>
+> <b>At least 50 times. I've jumped off a building, jumped off a cliff in a car. I've been in bedrooms when women came in with knives and guns.</b>
+> <p><i>Dennis Rodman</i></p>
 
 <br>
