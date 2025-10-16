@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art gives me the freedom I don't have when I make music.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader.</b>
+> <p><i>Ben Okri</i></p>
 
 <br>
