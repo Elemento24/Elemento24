@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had a very happy childhood, but I wasn't that happy a child. I liked being alone and creating characters and voices. I think that's when your creativity is developed, when you're young. I liked the world of the imagination because it was an easy place to go to.</b>
-> <p><i>David Walliams</i></p>
+> <b>That's the thing about interviews, at some point you're going to change your mind. But it's there forever and you can't escape it.</b>
+> <p><i>Martha Plimpton</i></p>
 
 <br>
