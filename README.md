@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A bad manner spoils everything, even reason and justice a good one supplies everything, gilds a No, sweetens a truth, and adds a touch of beauty to old age itself.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>Old age and the passage of time teach all things.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
