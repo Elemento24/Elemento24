@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grow old with me! The best is yet to be.</b>
-> <p><i>Robert Browning</i></p>
+> <b>Art gives me the freedom I don't have when I make music.</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
