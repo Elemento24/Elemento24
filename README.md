@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But men are men the best sometimes forget.</b>
-> <p><i>William Shakespeare</i></p>
+> <b>I will give you the best I have.</b>
+> <p><i>George C. Marshall</i></p>
 
 <br>
