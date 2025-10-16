@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing can atone for the lack of modesty without which beauty is ungraceful and wit detestable.</b>
-> <p><i>Richard Steele</i></p>
+> <b>But men are men the best sometimes forget.</b>
+> <p><i>William Shakespeare</i></p>
 
 <br>
