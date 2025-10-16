@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After about the first Millennium, Italy was the cradle of Romanesque architecture, which spread throughout Europe, much of it extending the structural daring with minimal visual elaboration.</b>
-> <p><i>Harry Seidler</i></p>
+> <b>I know some people say it's not the best to work with your family, but I have never understood that because it's always worked so well for me.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
