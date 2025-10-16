@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader.</b>
-> <p><i>Ben Okri</i></p>
+> <b>There are things I can't force. I must adjust. There are times when the greatest change needed is a change of my viewpoint.</b>
+> <p><i>Denis Diderot</i></p>
 
 <br>
