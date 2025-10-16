@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We should so provide for old age that it may have no urgent wants of this world to absorb it from meditation on the next. It is awful to see the lean hands of dotage making a coffer of the grave.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>After about the first Millennium, Italy was the cradle of Romanesque architecture, which spread throughout Europe, much of it extending the structural daring with minimal visual elaboration.</b>
+> <p><i>Harry Seidler</i></p>
 
 <br>
