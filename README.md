@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would have liked maybe to be in architecture or painting, something connected to the fine arts.</b>
-> <p><i>Catherine Deneuve</i></p>
+> <b>What I've discovered is that in art, as in music, there's a lot of truth-and then there's a lie. The artist is essentially creating his work to make this lie a truth, but he slides it in amongst all the others. The tiny little lie is the moment I live for, my moment. It's the moment that the audience falls in love.</b>
+> <p><i>Lady Gaga</i></p>
 
 <br>
