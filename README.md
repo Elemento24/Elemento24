@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will give you the best I have.</b>
-> <p><i>George C. Marshall</i></p>
+> <b>I had a very happy childhood, but I wasn't that happy a child. I liked being alone and creating characters and voices. I think that's when your creativity is developed, when you're young. I liked the world of the imagination because it was an easy place to go to.</b>
+> <p><i>David Walliams</i></p>
 
 <br>
