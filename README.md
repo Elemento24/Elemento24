@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've watched my peers get better with age and hoped that would happen with me.</b>
-> <p><i>Bonnie Raitt</i></p>
+> <b>Nothing can atone for the lack of modesty without which beauty is ungraceful and wit detestable.</b>
+> <p><i>Richard Steele</i></p>
 
 <br>
