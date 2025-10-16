@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When art dresses in worn-out material it is most easily recognized as art.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>I've watched my peers get better with age and hoped that would happen with me.</b>
+> <p><i>Bonnie Raitt</i></p>
 
 <br>
