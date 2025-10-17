@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not materialistic. I believe in presents from the heart, like a drawing that a child does.</b>
-> <p><i>Victoria Beckham</i></p>
+> <b>I definitely I prefer to sing in the car. I don't sing in the shower, maybe its because that's the one time I don't need to talk to anyone so I should just shut up, otherwise I'm just, you know, jibber jabber.</b>
+> <p><i>Haley Reinhart</i></p>
 
 <br>
