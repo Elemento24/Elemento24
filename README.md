@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think one of the things that language poets are very involved with is getting away from conventional ideas of beauty, because those ideas contain a certain attitude toward women, certain attitudes toward sex, certain attitudes toward race, etc.</b>
-> <p><i>Diane Wakoski</i></p>
+> <b>I have a lot of amazing women, you know, women in my life who have been an example for me of what not to do.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
