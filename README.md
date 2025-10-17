@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, what was called the blessed hope of the Bible is that one day Jesus Christ would come back again, start a whole new era, that this world order that we know it would change into something that would be wonderful that we'd call the millennium.</b>
-> <p><i>Pat Robertson</i></p>
+> <b>There is at least one point in the history of any company when you have to change dramatically to rise to the next level of performance. Miss that moment - and you start to decline.</b>
+> <p><i>Andy Grove</i></p>
 
 <br>
