@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a lot of amazing women, you know, women in my life who have been an example for me of what not to do.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>Most high courts in other nations do not have discretion, such as we enjoy, in selecting the cases that the high court reviews. Our court is virtually alone in the amount of discretion it has.</b>
+> <p><i>Sandra Day O'Connor</i></p>
 
 <br>
