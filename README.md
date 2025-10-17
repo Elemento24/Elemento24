@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We often attribute 'understanding' and other cognitive predicates by metaphor and analogy to cars, adding machines, and other artifacts, but nothing is proved by such attributions.</b>
-> <p><i>John Searle</i></p>
+> <b>Rarely do great beauty and great virtue dwell together.</b>
+> <p><i>Petrarch</i></p>
 
 <br>
