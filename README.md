@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We each own one car, and we have a reasonable house. It's a lovely place to be, but it's not extravagant.</b>
-> <p><i>Reese Witherspoon</i></p>
+> <b>Well, what was called the blessed hope of the Bible is that one day Jesus Christ would come back again, start a whole new era, that this world order that we know it would change into something that would be wonderful that we'd call the millennium.</b>
+> <p><i>Pat Robertson</i></p>
 
 <br>
