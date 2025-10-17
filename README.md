@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most high courts in other nations do not have discretion, such as we enjoy, in selecting the cases that the high court reviews. Our court is virtually alone in the amount of discretion it has.</b>
-> <p><i>Sandra Day O'Connor</i></p>
+> <b>I don't purposely speed, but I might go over by five or six miles an hour from time to time. It doesn't give me a buzz driving on normal roads, because I can't go fast enough. It's never going to be anything like an F1 car.</b>
+> <p><i>Jenson Button</i></p>
 
 <br>
