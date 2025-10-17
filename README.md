@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rarely do great beauty and great virtue dwell together.</b>
-> <p><i>Petrarch</i></p>
+> <b>We each own one car, and we have a reasonable house. It's a lovely place to be, but it's not extravagant.</b>
+> <p><i>Reese Witherspoon</i></p>
 
 <br>
