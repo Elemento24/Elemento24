@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cities are the greatest creations of humanity.</b>
-> <p><i>Daniel Libeskind</i></p>
+> <b>The successful man is the one who finds out what is the matter with his business before his competitors do.</b>
+> <p><i>Roy L. Smith</i></p>
 
 <br>
