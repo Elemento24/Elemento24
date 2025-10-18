@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm happily single.</b>
-> <p><i>Paula Abdul</i></p>
+> <b>For me, the best times are always going to be the most intense, the ones with the highest highs and the lowest lows.</b>
+> <p><i>Fiona Apple</i></p>
 
 <br>
