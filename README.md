@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest discovery of my generation is that man can alter his life simply by altering his attitude of mind.</b>
-> <p><i>James Truslow Adams</i></p>
+> <b>I don't like to work with assistants. I'm already one too many the camera alone would be enough.</b>
+> <p><i>Alfred Eisenstaedt</i></p>
 
 <br>
