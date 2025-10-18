@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look at all the buses now that want exact change, exact change. I figure if I give them exact change, they should take me exactly where I want to go.</b>
-> <p><i>George C. Wallace</i></p>
+> <b>To change what you get you must change who you are.</b>
+> <p><i>Vernon Howard</i></p>
 
 <br>
