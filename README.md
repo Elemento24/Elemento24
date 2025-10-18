@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our marriage is between us. If we decide to continue being together or not, it's our business.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>I need to develop a car and engineer a car in a position that feels comfortable for me, and I don't think anyone can do a better job than I can in that position. The problem for me is if I can't get the car there I do struggle more than some.</b>
+> <p><i>Jenson Button</i></p>
 
 <br>
