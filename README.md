@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is with rivers as it is with people: the greatest are not always the most agreeable nor the best to live with.</b>
-> <p><i>Henry Van Dyke</i></p>
+> <b>Our lives are not determined by what happens to us but how we react to what happens, not by what life brings us but the attitude we bring to life.</b>
+> <p><i>Wade Boggs</i></p>
 
 <br>
