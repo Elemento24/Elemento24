@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me, the best times are always going to be the most intense, the ones with the highest highs and the lowest lows.</b>
-> <p><i>Fiona Apple</i></p>
+> <b>For people who are really talented, what you don't say becomes extremely important. You have to judge what to say and what to leave alone so you can let the talent develop.</b>
+> <p><i>Itzhak Perlman</i></p>
 
 <br>
