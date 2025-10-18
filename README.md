@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like to work with assistants. I'm already one too many the camera alone would be enough.</b>
-> <p><i>Alfred Eisenstaedt</i></p>
+> <b>Beauty saves. Beauty heals. Beauty motivates. Beauty unites. Beauty returns us to our origins, and here lies the ultimate act of saving, of healing, of overcoming dualism.</b>
+> <p><i>Matthew Fox</i></p>
 
 <br>
