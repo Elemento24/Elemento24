@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In plain terms, a child is a complicated creature who can drive you crazy. There's a cruelty to childhood, there's an anger.</b>
-> <p><i>Maurice Sendak</i></p>
+> <b>It is with rivers as it is with people: the greatest are not always the most agreeable nor the best to live with.</b>
+> <p><i>Henry Van Dyke</i></p>
 
 <br>
