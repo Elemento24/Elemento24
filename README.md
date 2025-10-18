@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For people who are really talented, what you don't say becomes extremely important. You have to judge what to say and what to leave alone so you can let the talent develop.</b>
-> <p><i>Itzhak Perlman</i></p>
+> <b>I can't hit on women in public any more. I didn't decide this it just doesn't feel right at my age.</b>
+> <p><i>Jack Nicholson</i></p>
 
 <br>
