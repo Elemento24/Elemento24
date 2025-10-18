@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't hit on women in public any more. I didn't decide this it just doesn't feel right at my age.</b>
-> <p><i>Jack Nicholson</i></p>
+> <b>In plain terms, a child is a complicated creature who can drive you crazy. There's a cruelty to childhood, there's an anger.</b>
+> <p><i>Maurice Sendak</i></p>
 
 <br>
