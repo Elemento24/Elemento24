@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I need to develop a car and engineer a car in a position that feels comfortable for me, and I don't think anyone can do a better job than I can in that position. The problem for me is if I can't get the car there I do struggle more than some.</b>
-> <p><i>Jenson Button</i></p>
+> <b>Look at all the buses now that want exact change, exact change. I figure if I give them exact change, they should take me exactly where I want to go.</b>
+> <p><i>George C. Wallace</i></p>
 
 <br>
