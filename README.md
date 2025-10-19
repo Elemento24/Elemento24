@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was very sexual from a very young age.</b>
-> <p><i>Portia de Rossi</i></p>
+> <b>Our age knows nothing but reaction, and leaps from one extreme to another.</b>
+> <p><i>Reinhold Niebuhr</i></p>
 
 <br>
