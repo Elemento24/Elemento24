@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not understand how it is that financial institutions could think that they could take taxpayer money and then turn around and act like it's business as usual. I don't understand how they can't see that the world has changed in a fundamental way, that it is not business as usual when you take taxpayer dollars.</b>
-> <p><i>Elizabeth Warren</i></p>
+> <b>My mother asked me what I wanted for my birthday, so I said I wanted to read poetry with her.</b>
+> <p><i>Guy Johnson</i></p>
 
 <br>
