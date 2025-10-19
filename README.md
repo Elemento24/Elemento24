@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was well motivated. What I wanted to do was work for myself. I had twenty two jobs before I started my business at the age of twenty three and I didn't want one more boss telling me what to do. So I was motivated simply because I didn't want a boss.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>There's a punk-rock attitude, clearly, to 'Hated.' There's even a punk-rock attitude to 'The Hangover,' I think. We start the movie with a Glenn Danzig song.</b>
+> <p><i>Todd Phillips</i></p>
 
 <br>
