@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents armed me with an amazing sense of humor, and it's what you need when, well, it's what anyone needs in this world.</b>
-> <p><i>Warwick Davis</i></p>
+> <b>Can space break? I mean the space of art galleries. Over the past 100 years, art galleries have gone from looking like Beaux Arts salons to simple storefronts to industrial lofts to the gleaming giant white cubes of Chelsea with their shiny concrete floors.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
