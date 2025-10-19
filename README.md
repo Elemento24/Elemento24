@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is like a border of flowers along the course of civilization.</b>
-> <p><i>Lincoln Steffens</i></p>
+> <b>I perfectly understood President Obama's attitude throughout the French presidential campaign. He had no reason to distance himself from Nicolas Sarkozy. It's the basic solidarity that leaders who worked together owe to each other.</b>
+> <p><i>Francois Hollande</i></p>
 
 <br>
