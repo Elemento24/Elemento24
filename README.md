@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'10' was amazing! I had no career before '10' and then all of a sudden I was able to do pretty much whatever I was able to do in the business.</b>
-> <p><i>Bo Derek</i></p>
+> <b>Obviously, there's the seedy side of the strip club world and pole dancing. But, pole dancing, as an art form, is really beautiful. It's been hyper-sexualized because it's associated with strippers, but if you think about it, just in terms of other kinds of dancing, they're using an instrument to create these amazing dance forms.</b>
+> <p><i>Megalyn Echikunwoke</i></p>
 
 <br>
