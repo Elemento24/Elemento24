@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our age knows nothing but reaction, and leaps from one extreme to another.</b>
-> <p><i>Reinhold Niebuhr</i></p>
+> <b>A boy's story is the best that is ever told.</b>
+> <p><i>Charles Dickens</i></p>
 
 <br>
