@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The city needs a car like a fish needs a bicycle.</b>
-> <p><i>Dean Kamen</i></p>
+> <b>Gossip is the art of saying nothing in a way that leaves practically nothing unsaid.</b>
+> <p><i>Walter Winchell</i></p>
 
 <br>
