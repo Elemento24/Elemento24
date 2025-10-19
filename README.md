@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty saves. Beauty heals. Beauty motivates. Beauty unites. Beauty returns us to our origins, and here lies the ultimate act of saving, of healing, of overcoming dualism.</b>
-> <p><i>Matthew Fox</i></p>
+> <b>Truthfully, being pregnant is changing me as a person. Each day is part of this amazing journey that has completely shifted the focus of my life and made me reevaluate my personal and professional goals.</b>
+> <p><i>Holly Madison</i></p>
 
 <br>
