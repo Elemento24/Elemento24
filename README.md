@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not let circumstances control you. You change your circumstances.</b>
-> <p><i>Jackie Chan</i></p>
+> <b>The seated lotus postures are an amazing way to go into meditation, or simply just to take a moment to ground oneself.</b>
+> <p><i>Christy Turlington</i></p>
 
 <br>
