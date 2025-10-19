@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Character isn't something you were born with and can't change, like your fingerprints. It's something you weren't born with and must take responsibility for forming.</b>
-> <p><i>Jim Rohn</i></p>
+> <b>I first fell in love with music when I was a little boy. When I first heard music, I felt the beauty in it. Then, being able to tap along on a table top and box was great, but my favorite thing to do was to watch records spin. I would almost get hypnotized by it. These things are what drew me in initially.</b>
+> <p><i>Narada Michael Walden</i></p>
 
 <br>
