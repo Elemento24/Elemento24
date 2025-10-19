@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no question that climate change is happening the only arguable point is what part humans are playing in it.</b>
-> <p><i>David Attenborough</i></p>
+> <b>'10' was amazing! I had no career before '10' and then all of a sudden I was able to do pretty much whatever I was able to do in the business.</b>
+> <p><i>Bo Derek</i></p>
 
 <br>
