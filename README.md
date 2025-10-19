@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I perfectly understood President Obama's attitude throughout the French presidential campaign. He had no reason to distance himself from Nicolas Sarkozy. It's the basic solidarity that leaders who worked together owe to each other.</b>
-> <p><i>Francois Hollande</i></p>
+> <b>My happiest memory of childhood was my first birthday in reform school. This teacher took an interest in me. In fact, he gave me the first birthday presents I ever got: a box of Cracker Jacks and a can of ABC shoe polish.</b>
+> <p><i>Flip Wilson</i></p>
 
 <br>
