@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My happiest memory of childhood was my first birthday in reform school. This teacher took an interest in me. In fact, he gave me the first birthday presents I ever got: a box of Cracker Jacks and a can of ABC shoe polish.</b>
-> <p><i>Flip Wilson</i></p>
+> <b>The city needs a car like a fish needs a bicycle.</b>
+> <p><i>Dean Kamen</i></p>
 
 <br>
