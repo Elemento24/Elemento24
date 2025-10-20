@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My imagination can picture no fairer happiness than to continue living for art.</b>
-> <p><i>Clara Schumann</i></p>
+> <b>People will buy anything that is 'one to a customer.'</b>
+> <p><i>Sinclair Lewis</i></p>
 
 <br>
