@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People will buy anything that is 'one to a customer.'</b>
-> <p><i>Sinclair Lewis</i></p>
+> <b>I did that Dior Couture 60th anniversary show in July. It took so long to get ready, I think I would have rather been watching.</b>
+> <p><i>Linda Evangelista</i></p>
 
 <br>
