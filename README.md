@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can only know one thing about God - that he is what we are not. Our wretchedness alone is an image of this. The more we contemplate it, the more we contemplate him.</b>
-> <p><i>Simone Weil</i></p>
+> <b>Change alone is eternal, perpetual, immortal.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
