@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change alone is eternal, perpetual, immortal.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>Turbulence is life force. It is opportunity. Let's love turbulence and use it for change.</b>
+> <p><i>Ramsey Clark</i></p>
 
 <br>
