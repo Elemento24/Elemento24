@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Turbulence is life force. It is opportunity. Let's love turbulence and use it for change.</b>
-> <p><i>Ramsey Clark</i></p>
+> <b>Every formula of every religion has in this age of reason, to submit to the acid test of reason and universal assent.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
