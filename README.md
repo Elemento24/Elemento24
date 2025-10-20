@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that a man should not live beyond the age when he begins to deteriorate, when the flame that lighted the brightest moment of his life has weakened.</b>
-> <p><i>Fidel Castro</i></p>
+> <b>Since we live in this world, we have to do our best for this world.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
