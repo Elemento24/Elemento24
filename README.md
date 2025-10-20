@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Excellence is the best deterrent to racism or sexism.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>We can only know one thing about God - that he is what we are not. Our wretchedness alone is an image of this. The more we contemplate it, the more we contemplate him.</b>
+> <p><i>Simone Weil</i></p>
 
 <br>
