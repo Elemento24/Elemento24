@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think having children is the most amazing thing.</b>
-> <p><i>Rachel Stevens</i></p>
+> <b>There's one more thing I want to say. It's a touchy subject. Black beauty. Black sensuality. We live in a culture where the beauty of black people isn't always as celebrated as other types. I'd like to help change that if I can!</b>
+> <p><i>Jody Watley</i></p>
 
 <br>
