@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The TV business is like the produce section of the market. Today everything is fresh and glistening and firm. And tomorrow, when they find a bruise on you, they toss you out.</b>
-> <p><i>Bryan Cranston</i></p>
+> <b>You don't have to carry a designer bag that costs more than a car to look cool.</b>
+> <p><i>Kesha</i></p>
 
 <br>
