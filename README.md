@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To have striven, to have made the effort, to have been true to certain ideals - this alone is worth the struggle.</b>
-> <p><i>William Osler</i></p>
+> <b>A nation devoid of art and artists cannot have a full existence.</b>
+> <p><i>Kemal Ataturk</i></p>
 
 <br>
