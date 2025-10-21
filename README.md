@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The history of my life must begin by the earliest circumstance which my memory can evoke it will therefore commence when I had attained the age of eight years and four months.</b>
-> <p><i>Giacomo Casanova</i></p>
+> <b>If anything I try to write something that would be more difficult to film. I tend to see film as competition and would like instead to do what books do best.</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
