@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was a kid, for my birthday every year, my mother made me pasta bechamel, which is rigatoni with a white cream sauce.</b>
-> <p><i>Giada De Laurentiis</i></p>
+> <b>Peace is the one condition of survival in this nuclear age.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
