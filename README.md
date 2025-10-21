@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have the power to make this the best generation of mankind in the history of the world or to make it the last.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>In every work of art the subject is primordial, whether the artist knows it or not. The measure of the formal qualities is only a sign of the measure of the artist's obsession with his subject the form is always in proportion to the obsession.</b>
+> <p><i>Alberto Giacometti</i></p>
 
 <br>
