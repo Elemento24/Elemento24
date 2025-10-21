@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Peace is the one condition of survival in this nuclear age.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>And it is very sexy as well: somebody says I'm taking you on a surprise date, you don't know where you are going and you can't see and then you put your hand out and there is a tiger. Amazing.</b>
+> <p><i>Emily Watson</i></p>
 
 <br>
