@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone takes pause at 40. It's the age you have to assess everything in your life. It's the fictitious marker that's always coming up when you're young. The world really does look at you to kind of have it together by 40, and be successful by 40. Whatever success means.</b>
-> <p><i>Paul Feig</i></p>
+> <b>Architecture in general is frozen music.</b>
+> <p><i>Friedrich von Schelling</i></p>
 
 <br>
