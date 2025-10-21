@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For a man who has compared himself to Theodore Roosevelt and the nation's challenges to those of the Gilded Age, Obama put forward a tepid agenda.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>I was sleeping the other night, alone, thanks to the exterminator.</b>
+> <p><i>Emo Philips</i></p>
 
 <br>
