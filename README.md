@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Trying to force creativity is never good.</b>
-> <p><i>Sarah McLachlan</i></p>
+> <b>You know, the reward for 'Captain America' is amazing. It's always fun to see a giant spectacle film and see the fun stuff - the special effects.</b>
+> <p><i>Chris Evans</i></p>
 
 <br>
