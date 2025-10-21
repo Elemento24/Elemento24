@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't believe in happy endings, but I do believe in happy travels, because ultimately, you die at a very young age, or you live long enough to watch your friends die. It's a mean thing, life.</b>
-> <p><i>George Clooney</i></p>
+> <b>Inductive reason, which alone makes man master of his environment, is an achievement and when once born it must be reinforced by inhibiting the growth of other modes of knowledge.</b>
+> <p><i>Muhammad Iqbal</i></p>
 
 <br>
