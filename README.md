@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, the reward for 'Captain America' is amazing. It's always fun to see a giant spectacle film and see the fun stuff - the special effects.</b>
-> <p><i>Chris Evans</i></p>
+> <b>In 1993 my birthday present was a star on Hollywood's Walk of Fame.</b>
+> <p><i>Annette Funicello</i></p>
 
 <br>
