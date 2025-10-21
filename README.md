@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Consider the perverse effect cap and trade has on altruistic actions. Say you decide to buy a small, high-efficiency car. That reduces your emissions, but not your country's. Instead it allows somebody else to buy a bigger S.U.V. - because the total emissions are set by the cap.</b>
-> <p><i>James Hansen</i></p>
+> <b>To have striven, to have made the effort, to have been true to certain ideals - this alone is worth the struggle.</b>
+> <p><i>William Osler</i></p>
 
 <br>
