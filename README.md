@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In 1993 my birthday present was a star on Hollywood's Walk of Fame.</b>
-> <p><i>Annette Funicello</i></p>
+> <b>The philosophies of one age have become the absurdities of the next, and the foolishness of yesterday has become the wisdom of tomorrow.</b>
+> <p><i>William Osler</i></p>
 
 <br>
