@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And it is very sexy as well: somebody says I'm taking you on a surprise date, you don't know where you are going and you can't see and then you put your hand out and there is a tiger. Amazing.</b>
-> <p><i>Emily Watson</i></p>
+> <b>We have the power to make this the best generation of mankind in the history of the world or to make it the last.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
