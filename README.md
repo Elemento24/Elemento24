@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I suddenly realized how much I loved her when we attended Alfred Hitchcock's 75th birthday party last August. There was something magical about that night, and it made me see how much she really meant to me.</b>
-> <p><i>Rod Taylor</i></p>
+> <b>The best part about being alone is that you really don't have to answer to anybody. You do what you want.</b>
+> <p><i>Justin Timberlake</i></p>
 
 <br>
