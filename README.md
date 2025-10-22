@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best part about being alone is that you really don't have to answer to anybody. You do what you want.</b>
-> <p><i>Justin Timberlake</i></p>
+> <b>Loss means losing what was We want to change but we don't want to lose. Without time for loss, we don't have time for soul.</b>
+> <p><i>James Hillman</i></p>
 
 <br>
