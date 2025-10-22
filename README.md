@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In art the best is good enough.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>Be assured those will be thy worst enemies, not to whom thou hast done evil, but who have done evil to thee. And those will be thy best friends, not to whom thou hast done good, but who have done good to thee.</b>
+> <p><i>Tacitus</i></p>
 
 <br>
