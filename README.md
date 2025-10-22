@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Trying to force creativity is never good.</b>
-> <p><i>Sarah McLachlan</i></p>
+> <b>I was never jailed. The fact is that I was arrested, but I went into a diversion programme, and by that time I'd already begun working in what was called anger management. It was a painful and awful moment.</b>
+> <p><i>David Soul</i></p>
 
 <br>
