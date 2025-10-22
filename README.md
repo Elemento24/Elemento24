@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All great art is the work of the whole living creature, body and soul, and chiefly of the soul.</b>
-> <p><i>John Ruskin</i></p>
+> <b>Riding a race bike is an art - a thing that you do because you feel something inside.</b>
+> <p><i>Valentino Rossi</i></p>
 
 <br>
