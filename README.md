@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do seem to like to combine the dramatic emotional warmth of strings with the grooves and body business of drums and bass.</b>
-> <p><i>David Byrne</i></p>
+> <b>Scholarship was one thing, drudgery another. I very soon concluded that nothing would induce me to read, let alone make notes on, hundreds and hundreds of very, very, very boring books.</b>
+> <p><i>Simon Raven</i></p>
 
 <br>
