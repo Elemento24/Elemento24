@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was never jailed. The fact is that I was arrested, but I went into a diversion programme, and by that time I'd already begun working in what was called anger management. It was a painful and awful moment.</b>
-> <p><i>David Soul</i></p>
+> <b>Here is the amazing thing about Easter the Resurrection Sunday for Christians is this, that Christ in the dying moments on the cross gives us the greatest illustration of forgiveness possible.</b>
+> <p><i>T. D. Jakes</i></p>
 
 <br>
