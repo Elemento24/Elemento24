@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do like to shock and surprise people. When it's all in good fun, of course.</b>
-> <p><i>Ruth Warrick</i></p>
+> <b>Color in certain places has the great value of making the outlines and structural planes seem more energetic.</b>
+> <p><i>Antonio Gaudi</i></p>
 
 <br>
