@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The creed of a true saint is to make the best of life, and to make the most of it.</b>
-> <p><i>Edwin Hubbel Chapin</i></p>
+> <b>Good satire comes from anger. It comes from a sense of injustice, that there are wrongs in the world that need to be fixed. And what better place to get that well of venom and outrage boiling than a newsroom, because you're on the front lines.</b>
+> <p><i>Carl Hiaasen</i></p>
 
 <br>
