@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Loss means losing what was We want to change but we don't want to lose. Without time for loss, we don't have time for soul.</b>
-> <p><i>James Hillman</i></p>
+> <b>I don't want a flashy car, just something that would allow me to stop using the Tube. And it would be good not to have to rely on my mum all the time, particularly when I have to listen to her singing in her car.</b>
+> <p><i>Andy Murray</i></p>
 
 <br>
