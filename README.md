@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be assured those will be thy worst enemies, not to whom thou hast done evil, but who have done evil to thee. And those will be thy best friends, not to whom thou hast done good, but who have done good to thee.</b>
-> <p><i>Tacitus</i></p>
+> <b>Central banks don't have divine wisdom. They try to do the best analysis they can and must be prepared to stand or fall by the quality of that analysis.</b>
+> <p><i>Mary Kay Ash</i></p>
 
 <br>
