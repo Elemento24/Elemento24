@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the things I like enormously about Bob Weinstein is that that he's the only studio head I have ever known who will change his mind and say he was wrong.</b>
-> <p><i>Dean Koontz</i></p>
+> <b>I had never walked on the street alone when I was growing up in Calcutta, up to age 20. I had never handled money. You know, there was always a couple of bodyguards behind me, who took care if I wanted... I needed pencils for school, I needed a notebook, they were the ones who were taking out the money. I was constantly guarded.</b>
+> <p><i>Bharati Mukherjee</i></p>
 
 <br>
