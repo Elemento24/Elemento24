@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Situational unawareness in the private marketplace or on the battlefield will cost you your livelihood or your life. In the Age of Obama, however, such willful ignorance is a job prerequisite. The less you know the better.</b>
-> <p><i>Michelle Malkin</i></p>
+> <b>I think this is the most extraordinary collection of talent, of human knowledge, that has ever been gathered at the White House - with the possible exception of when Thomas Jefferson dined alone.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
