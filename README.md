@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think this is the most extraordinary collection of talent, of human knowledge, that has ever been gathered at the White House - with the possible exception of when Thomas Jefferson dined alone.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>Italy is full of historical buildings. And Europe holds a great history of philosophy from Greece until today. I read all those books and see these buildings, and I think of where I stand when I design my architecture.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
