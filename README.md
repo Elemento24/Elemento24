@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Color in certain places has the great value of making the outlines and structural planes seem more energetic.</b>
-> <p><i>Antonio Gaudi</i></p>
+> <b>Heaven has no rage like love to hatred turned, nor hell a fury like a woman scorned.</b>
+> <p><i>William Congreve</i></p>
 
 <br>
