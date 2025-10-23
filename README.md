@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is precious and there's not a lot of room for anger.</b>
-> <p><i>Fran Drescher</i></p>
+> <b>What if you threw a protest and no one showed up? The lack of angst and anger and emotion is a big positive.</b>
+> <p><i>Jay Alan Sekulow</i></p>
 
 <br>
