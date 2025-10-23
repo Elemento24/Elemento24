@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think we should be about the business of denying voters in Michigan and Florida the right to be heard.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>This world is but a canvas to our imagination.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
