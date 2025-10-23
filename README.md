@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Italy is full of historical buildings. And Europe holds a great history of philosophy from Greece until today. I read all those books and see these buildings, and I think of where I stand when I design my architecture.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>Let us not look back in anger, nor forward in fear, but around in awareness.</b>
+> <p><i>James Thurber</i></p>
 
 <br>
