@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To say the word Romanticism is to say modern art - that is, intimacy, spirituality, color, aspiration towards the infinite, expressed by every means available to the arts.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>It's a question of keeping one's eyes and ears open and watching how other people play the game. They're watching me too, to see what my attitude is like.</b>
+> <p><i>Charles Dance</i></p>
 
 <br>
