@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My method of helping someone is saying, 'Wow, you look amazing. Let me help you look even better.' I think tearing someone down is an awful thing to do. It has a lasting impression on people.</b>
-> <p><i>Carson Kressley</i></p>
+> <b>To improve is to change to be perfect is to change often.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
