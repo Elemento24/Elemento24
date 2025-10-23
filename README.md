@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What if you threw a protest and no one showed up? The lack of angst and anger and emotion is a big positive.</b>
-> <p><i>Jay Alan Sekulow</i></p>
+> <b>One of the things I like enormously about Bob Weinstein is that that he's the only studio head I have ever known who will change his mind and say he was wrong.</b>
+> <p><i>Dean Koontz</i></p>
 
 <br>
