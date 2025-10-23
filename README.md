@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To separate children from others of similar age and qualifications solely because of their race generates a feeling of inferiority as to their status in the community that may affect their hearts and minds in a way unlikely ever to be undone.</b>
-> <p><i>Earl Warren</i></p>
+> <b>We need quiet time to examine our lives openly and honestly - spending quiet time alone gives your mind an opportunity to renew itself and create order.</b>
+> <p><i>Susan Taylor</i></p>
 
 <br>
