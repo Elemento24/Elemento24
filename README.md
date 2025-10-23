@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Heaven has no rage like love to hatred turned, nor hell a fury like a woman scorned.</b>
-> <p><i>William Congreve</i></p>
+> <b>To say the word Romanticism is to say modern art - that is, intimacy, spirituality, color, aspiration towards the infinite, expressed by every means available to the arts.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
