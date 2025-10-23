@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am certainly not one of those who need to be prodded. In fact, if anything, I am the prod.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>I don't think we should be about the business of denying voters in Michigan and Florida the right to be heard.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
