@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let us not look back in anger, nor forward in fear, but around in awareness.</b>
-> <p><i>James Thurber</i></p>
+> <b>I am certainly not one of those who need to be prodded. In fact, if anything, I am the prod.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
