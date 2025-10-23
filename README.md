@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a question of keeping one's eyes and ears open and watching how other people play the game. They're watching me too, to see what my attitude is like.</b>
-> <p><i>Charles Dance</i></p>
+> <b>My method of helping someone is saying, 'Wow, you look amazing. Let me help you look even better.' I think tearing someone down is an awful thing to do. It has a lasting impression on people.</b>
+> <p><i>Carson Kressley</i></p>
 
 <br>
