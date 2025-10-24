@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's an amazing luxury to say I'm 31 years old and I'm gonna take a year off. That's pretty amazing.</b>
-> <p><i>Sarah McLachlan</i></p>
+> <b>To go to the Oscars for Moneyball - that was pretty amazing. And to be able to go work with Kathryn Bigelow - that's going to be pretty sweet. Hopefully I don't have to go back to being a waiter. That's still my main goal.</b>
+> <p><i>Chris Pratt</i></p>
 
 <br>
