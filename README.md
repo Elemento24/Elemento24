@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The career stuff is for business people.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>The future hasn't happened yet and the past is gone. So I think the only moment we have is right here and now, and I try to make the best of those moments, the moments that I'm in.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
