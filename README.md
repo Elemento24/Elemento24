@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All my fans tell me what a glamorous life I have, but I tell them how hard I work and how many nights I spend alone with my dogs, eating chicken pot pie in my bedroom.</b>
-> <p><i>Shannen Doherty</i></p>
+> <b>And it is still true, no matter how old you are, when you go out into the world it is best to hold hands and stick together.</b>
+> <p><i>Robert Fulghum</i></p>
 
 <br>
