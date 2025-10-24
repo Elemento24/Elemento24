@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Elle MacPherson is absolutely amazing she is just so beautiful.</b>
-> <p><i>Carol Alt</i></p>
+> <b>I've always been fascinated with the juxtaposition of technology in music, not only in recording, but in the keyboard. It's amazing the way you can apply technology to an art form.</b>
+> <p><i>Geoff Downes</i></p>
 
 <br>
