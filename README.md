@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just don't believe that you have to come in and insult people when you want to change things.</b>
-> <p><i>Sydney Schanberg</i></p>
+> <b>All my fans tell me what a glamorous life I have, but I tell them how hard I work and how many nights I spend alone with my dogs, eating chicken pot pie in my bedroom.</b>
+> <p><i>Shannen Doherty</i></p>
 
 <br>
