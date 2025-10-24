@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I knew I was alone in a way that no earthling has ever been before.</b>
-> <p><i>Michael Collins</i></p>
+> <b>Beauty is grace and confidence. I've learned to accept and appreciate what nature gave me.</b>
+> <p><i>Lindsay Lohan</i></p>
 
 <br>
