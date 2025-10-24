@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When a place gets crowded enough to require ID's, social collapse is not far away. It is time to go elsewhere. The best thing about space travel is that it made it possible to go elsewhere.</b>
-> <p><i>Robert A. Heinlein</i></p>
+> <b>Elle MacPherson is absolutely amazing she is just so beautiful.</b>
+> <p><i>Carol Alt</i></p>
 
 <br>
