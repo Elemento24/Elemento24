@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art can never exist without naked beauty displayed.</b>
-> <p><i>William Blake</i></p>
+> <b>We are always the same age inside.</b>
+> <p><i>Gertrude Stein</i></p>
 
 <br>
