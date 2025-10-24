@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life belongs to the living, and he who lives must be prepared for changes.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>I knew I was alone in a way that no earthling has ever been before.</b>
+> <p><i>Michael Collins</i></p>
 
 <br>
