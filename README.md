@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is grace and confidence. I've learned to accept and appreciate what nature gave me.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>I just don't believe that you have to come in and insult people when you want to change things.</b>
+> <p><i>Sydney Schanberg</i></p>
 
 <br>
