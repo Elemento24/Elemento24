@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fatherhood is the most amazing thing that could ever have happened in my life.</b>
-> <p><i>Corey Feldman</i></p>
+> <b>I owe much to mother. She had an expert's understanding, but also approached art emotionally.</b>
+> <p><i>David Rockefeller</i></p>
 
 <br>
