@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your attitude, not your aptitude, will determine your altitude.</b>
-> <p><i>Zig Ziglar</i></p>
+> <b>I'm really lucky that my record companies have been patient with me and leave me alone and give me the time to make it right in my mind.</b>
+> <p><i>Sarah McLachlan</i></p>
 
 <br>
