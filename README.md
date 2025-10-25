@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since love grows within you, so beauty grows. For love is the beauty of the soul.</b>
-> <p><i>Saint Augustine</i></p>
+> <b>I heard someone from the music business saying they are no longer looking for talent, they want people with a certain look and a willingness to cooperate.</b>
+> <p><i>Joni Mitchell</i></p>
 
 <br>
