@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man can think clearly when his fists are clenched.</b>
-> <p><i>George Jean Nathan</i></p>
+> <b>People got insights into what was bothering them, but they hardly did a damn thing to change.</b>
+> <p><i>Albert Ellis</i></p>
 
 <br>
