@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I owe much to mother. She had an expert's understanding, but also approached art emotionally.</b>
-> <p><i>David Rockefeller</i></p>
+> <b>Once you are labeled 'the best' you want to stay up there, and you can't do it by loafing around.</b>
+> <p><i>Larry Bird</i></p>
 
 <br>
