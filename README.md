@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The price of success is hard work, dedication to the job at hand, and the determination that whether we win or lose, we have applied the best of ourselves to the task at hand.</b>
-> <p><i>Vince Lombardi</i></p>
+> <b>Nobody who ever gave his best regretted it.</b>
+> <p><i>George Halas</i></p>
 
 <br>
