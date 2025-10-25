@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are always the same age inside.</b>
-> <p><i>Gertrude Stein</i></p>
+> <b>Since love grows within you, so beauty grows. For love is the beauty of the soul.</b>
+> <p><i>Saint Augustine</i></p>
 
 <br>
