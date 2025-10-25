@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I heard someone from the music business saying they are no longer looking for talent, they want people with a certain look and a willingness to cooperate.</b>
-> <p><i>Joni Mitchell</i></p>
+> <b>The best part of the art of living is to know how to grow old gracefully.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
