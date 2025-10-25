@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The corruption of the best things gives rise to the worst.</b>
-> <p><i>David Hume</i></p>
+> <b>My boyfriend keeps telling me I've got to own things. So, first I bought this car. And then he told me I oughta get a house. 'Why a house?' 'Well, you gotta have a place to park the car.'</b>
+> <p><i>Julia Roberts</i></p>
 
 <br>
