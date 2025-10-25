@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most important loan to pay is your student loan. It's more important than your mortgage, car and credit card payments. You cannot discharge student loan debt in the majority of cases.</b>
-> <p><i>Suze Orman</i></p>
+> <b>What would be ugly in a garden constitutes beauty in a mountain.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
