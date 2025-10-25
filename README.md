@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I must confess, I was born at a very early age.</b>
-> <p><i>Groucho Marx</i></p>
+> <b>The corruption of the best things gives rise to the worst.</b>
+> <p><i>David Hume</i></p>
 
 <br>
