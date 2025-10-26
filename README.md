@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My love of fine art increased - the more of it I saw, the more of it I wanted to see.</b>
-> <p><i>Paul Getty</i></p>
+> <b>Although born in a prosperous realm, we did not believe that its boundaries should limit our knowledge, and that the lore of the East should alone enlighten us.</b>
+> <p><i>Charles de Secondat</i></p>
 
 <br>
