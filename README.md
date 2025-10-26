@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A majority is always better than the best repartee.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>Yes, we're still five little people with a noisy attitude.</b>
+> <p><i>Angus Young</i></p>
 
 <br>
