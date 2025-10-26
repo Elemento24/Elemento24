@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When they searched my car, they said that they found a gasoline canister and I think duct tape. Who wouldn't have a gasoline canister on them when driving 3,000 miles across country?</b>
-> <p><i>Sherman Austin</i></p>
+> <b>I think it's your mental attitude. So many of us start dreading age in high school and that's a waste of a lovely life. 'Oh... I'm 30, oh, I'm 40, oh, 50.' Make the most of it.</b>
+> <p><i>Betty White</i></p>
 
 <br>
