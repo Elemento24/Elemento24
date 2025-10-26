@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>New needs need new techniques. And the modern artists have found new ways and new means of making their statements... the modern painter cannot express this age, the airplane, the atom bomb, the radio, in the old forms of the Renaissance or of any other past culture.</b>
-> <p><i>Jackson Pollock</i></p>
+> <b>I realized the other day that I've lived in New York longer than I've lived anywhere else. It's amazing: I am a New Yorker. It's strange I never thought I would be.</b>
+> <p><i>David Bowie</i></p>
 
 <br>
