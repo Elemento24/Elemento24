@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Warmth isn't what minimalists are thought to have.</b>
-> <p><i>Maya Lin</i></p>
+> <b>My love of fine art increased - the more of it I saw, the more of it I wanted to see.</b>
+> <p><i>Paul Getty</i></p>
 
 <br>
