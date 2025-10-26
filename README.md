@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got Asperger's syndrome and I'm not a very good people person, so I've always been more comfortable around machinery. Not in a weird way - I don't want to marry my car or anything stupid like that!</b>
-> <p><i>Gary Numan</i></p>
+> <b>When they searched my car, they said that they found a gasoline canister and I think duct tape. Who wouldn't have a gasoline canister on them when driving 3,000 miles across country?</b>
+> <p><i>Sherman Austin</i></p>
 
 <br>
