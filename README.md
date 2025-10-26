@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a teenager, but I'm independent - I have my own apartment, I have my own life. And I think I have learned more than any of those teenagers have in school. I learned to be responsible, leaving my family and coming here alone.</b>
-> <p><i>Adriana Lima</i></p>
+> <b>I avoid talking before the youth of the age as I would dancing before them: for if one's tongue don't move in the steps of the day, and thinks to please by its old graces, it is only an object of ridicule.</b>
+> <p><i>Horace Walpole</i></p>
 
 <br>
