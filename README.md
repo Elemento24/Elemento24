@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I realized the other day that I've lived in New York longer than I've lived anywhere else. It's amazing: I am a New Yorker. It's strange I never thought I would be.</b>
-> <p><i>David Bowie</i></p>
+> <b>A majority is always better than the best repartee.</b>
+> <p><i>Benjamin Disraeli</i></p>
 
 <br>
