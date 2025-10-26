@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I avoid talking before the youth of the age as I would dancing before them: for if one's tongue don't move in the steps of the day, and thinks to please by its old graces, it is only an object of ridicule.</b>
-> <p><i>Horace Walpole</i></p>
+> <b>New needs need new techniques. And the modern artists have found new ways and new means of making their statements... the modern painter cannot express this age, the airplane, the atom bomb, the radio, in the old forms of the Renaissance or of any other past culture.</b>
+> <p><i>Jackson Pollock</i></p>
 
 <br>
