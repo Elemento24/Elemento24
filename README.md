@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men of my age live in a state of continual desperation.</b>
-> <p><i>Vita Sackville-West</i></p>
+> <b>Warmth isn't what minimalists are thought to have.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
