@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Although born in a prosperous realm, we did not believe that its boundaries should limit our knowledge, and that the lore of the East should alone enlighten us.</b>
-> <p><i>Charles de Secondat</i></p>
+> <b>Hungary is, in a word, in a state of WAR against the Hapsburg dynasty, a war of legitimate defence, by which alone it can ever regain independence and freedom.</b>
+> <p><i>Lajos Kossuth</i></p>
 
 <br>
