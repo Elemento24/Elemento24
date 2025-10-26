@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yes, we're still five little people with a noisy attitude.</b>
-> <p><i>Angus Young</i></p>
+> <b>I believe we should reframe our response to climate change as an imperative for growth rather than merely being a way of being green or meeting environmental commitments.</b>
+> <p><i>William Hague</i></p>
 
 <br>
