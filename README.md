@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The intoxication of anger, like that of the grape, shows us to others, but hides us from ourselves.</b>
-> <p><i>John Dryden</i></p>
+> <b>Seek out that particular mental attribute which makes you feel most deeply and vitally alive, along with which comes the inner voice which says, 'This is the real me,' and when you have found that attitude, follow it.</b>
+> <p><i>James Truslow Adams</i></p>
 
 <br>
