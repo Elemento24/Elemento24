@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We of Africa protest that, in this day and age, we should continue to be treated as lesser human beings than other races.</b>
-> <p><i>Robert Mugabe</i></p>
+> <b>Personality is everything in art and poetry.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
