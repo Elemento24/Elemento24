@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At fifteen, beauty and talent do not exist there can only be promise of the coming woman.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>I'm a teenager, but I'm independent - I have my own apartment, I have my own life. And I think I have learned more than any of those teenagers have in school. I learned to be responsible, leaving my family and coming here alone.</b>
+> <p><i>Adriana Lima</i></p>
 
 <br>
