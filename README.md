@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's your mental attitude. So many of us start dreading age in high school and that's a waste of a lovely life. 'Oh... I'm 30, oh, I'm 40, oh, 50.' Make the most of it.</b>
-> <p><i>Betty White</i></p>
+> <b>You sell a screenplay like you sell a car. If someone drives it off a cliff, that's it.</b>
+> <p><i>Rita Mae Brown</i></p>
 
 <br>
