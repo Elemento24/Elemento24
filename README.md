@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best smell in the world is that man that you love.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>I've got Asperger's syndrome and I'm not a very good people person, so I've always been more comfortable around machinery. Not in a weird way - I don't want to marry my car or anything stupid like that!</b>
+> <p><i>Gary Numan</i></p>
 
 <br>
