@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You sell a screenplay like you sell a car. If someone drives it off a cliff, that's it.</b>
-> <p><i>Rita Mae Brown</i></p>
+> <b>Men of my age live in a state of continual desperation.</b>
+> <p><i>Vita Sackville-West</i></p>
 
 <br>
