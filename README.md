@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Personality is everything in art and poetry.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>At fifteen, beauty and talent do not exist there can only be promise of the coming woman.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
