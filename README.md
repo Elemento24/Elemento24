@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cannot stand the people who get wonderful starts in show business and who abuse it. Lindsay Lohan and Charlie Sheen, for example, although there are plenty of others, too. They are the most blessed people in the world, and they don't appreciate it.</b>
-> <p><i>Betty White</i></p>
+> <b>Keep a good attitude and do the right thing even when it's hard. When you do that you are passing the test. And God promises you your marked moments are on their way.</b>
+> <p><i>Joel Osteen</i></p>
 
 <br>
