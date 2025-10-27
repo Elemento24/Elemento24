@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did not think that I was angry, but clearly anger was reflected in my writing. I did not think that I had been affected emotionally, but it was clear from my writing that I was still very emotional about the trial some six months after it ended.</b>
-> <p><i>Christopher Darden</i></p>
+> <b>Why has not anyone seen that fossils alone gave birth to a theory about the formation of the earth, that without them, no one would have ever dreamed that there were successive epochs in the formation of the globe.</b>
+> <p><i>Georges Cuvier</i></p>
 
 <br>
