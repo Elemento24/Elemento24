@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always knew that St. Jude was an amazing organization but meeting the kids and seeing how the hospital works first hand was truly beautiful. It doesn't feel like a regular hospital all dreary and sad. It's a colorful, beautiful, comfortable, fun place to live and the energy is wonderful.</b>
-> <p><i>Ariana Grande</i></p>
+> <b>All works of art are commissioned in the sense that no artist can create one by a simple act of will but must wait until what he believes to be a good idea for a work comes to him.</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
