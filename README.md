@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whenever I have bid a hasty goodbye to a loved one, I've always made sure that my record collection was safely stored away in the boot of the car.</b>
-> <p><i>Robert Plant</i></p>
+> <b>I think I'm in a business where you have to look good, and it's totally youth-oriented.</b>
+> <p><i>Joan Rivers</i></p>
 
 <br>
