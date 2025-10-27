@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hope to bring much more attention to important issues and change for issues and practices that are harming animals.</b>
-> <p><i>Kesha</i></p>
+> <b>What if I couldn't handle people's opinions of me? I know that shouldn't dictate a person's degree of peace or happiness in life, but the problem is, I chose a business saturated in judgment.</b>
+> <p><i>Chris Evans</i></p>
 
 <br>
