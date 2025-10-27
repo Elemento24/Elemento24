@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Keep a good attitude and do the right thing even when it's hard. When you do that you are passing the test. And God promises you your marked moments are on their way.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>Most of what we call management consists of making it difficult for people to get their work done.</b>
+> <p><i>Peter Drucker</i></p>
 
 <br>
