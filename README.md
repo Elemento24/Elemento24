@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why has not anyone seen that fossils alone gave birth to a theory about the formation of the earth, that without them, no one would have ever dreamed that there were successive epochs in the formation of the globe.</b>
-> <p><i>Georges Cuvier</i></p>
+> <b>I cannot stand the people who get wonderful starts in show business and who abuse it. Lindsay Lohan and Charlie Sheen, for example, although there are plenty of others, too. They are the most blessed people in the world, and they don't appreciate it.</b>
+> <p><i>Betty White</i></p>
 
 <br>
