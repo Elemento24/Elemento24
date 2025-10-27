@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm at the age now where just putting my cigar in its holder is a thrill.</b>
-> <p><i>George Burns</i></p>
+> <b>It's amazing marrying someone who wants nothing to do with Hollywood.</b>
+> <p><i>Nicolas Cage</i></p>
 
 <br>
