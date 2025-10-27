@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's time to get real, folks. Hope and change ain't working. Hope and change is not a solution. Hope and change is not a job.</b>
-> <p><i>Herman Cain</i></p>
+> <b>We all have a social mask, right? We put it on, we go out, put our best foot forward, our best image. But behind that social mask is a personal truth, what we really, really believe about who we are and what we're capable of.</b>
+> <p><i>Phil McGraw</i></p>
 
 <br>
