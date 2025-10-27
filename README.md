@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best men of the best epochs are simply those who make the fewest blunders and commit the fewest sins.</b>
-> <p><i>Thomas Huxley</i></p>
+> <b>I'm at the age now where just putting my cigar in its holder is a thrill.</b>
+> <p><i>George Burns</i></p>
 
 <br>
