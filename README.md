@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to sing in the car with the windows rolled down and hair blowing all over my face.</b>
-> <p><i>Lauren Alaina</i></p>
+> <b>It's time to get real, folks. Hope and change ain't working. Hope and change is not a solution. Hope and change is not a job.</b>
+> <p><i>Herman Cain</i></p>
 
 <br>
