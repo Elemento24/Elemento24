@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every job has its downside. For example, being in a band the travel part of it - getting picked up from your house in a car, going to the airport, getting on a plane, going from the airplane to a van, then going from the van to a hotel.</b>
-> <p><i>Dave Lombardo</i></p>
+> <b>There are amazingly wonderful people in all walks of life some familiar to us and others not. Stretch yourself and really get to know people. People are in many ways one of our greatest treasures.</b>
+> <p><i>Bryant H. McGill</i></p>
 
 <br>
