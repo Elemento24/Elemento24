@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Common sense is the collection of prejudices acquired by age eighteen.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>I am 54 and age is slowly writing itself on my face.</b>
+> <p><i>Arthur Smith</i></p>
 
 <br>
