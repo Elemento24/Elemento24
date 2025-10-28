@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cock your hat - angles are attitudes.</b>
-> <p><i>Frank Sinatra</i></p>
+> <b>Of course art world ethics are important. But museums are no purer than any other institution or business. Academics aren't necessarily more high-minded than gallerists.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
