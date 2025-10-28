@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All architecture is great architecture after sunset perhaps architecture is really a nocturnal art, like the art of fireworks.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>Change is certain. Peace is followed by disturbances departure of evil men by their return. Such recurrences should not constitute occasions for sadness but realities for awareness, so that one may be happy in the interim.</b>
+> <p><i>Percy Bysshe Shelley</i></p>
 
 <br>
