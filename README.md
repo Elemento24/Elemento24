@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>President Johnson did not want the Vietnam War to broaden. He wanted the North Vietnamese to leave their brothers in the South alone.</b>
-> <p><i>William Westmoreland</i></p>
+> <b>A great revolution in just one single individual will help achieve a change in the destiny of a society and, further, will enable a change in the destiny of humankind.</b>
+> <p><i>Daisaku Ikeda</i></p>
 
 <br>
