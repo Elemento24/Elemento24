@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am also hugely excited to then be competing to defend my three Paralympic titles at the Paralympic Games. I believe we will see some amazing times posted and I am very much looking forward to what will be an incredible Olympics and Paralympics in London.</b>
-> <p><i>Oscar Pistorius</i></p>
+> <b>We think the Mac will sell zillions, but we didn't build the Mac for anybody else. We built it for ourselves. We were the group of people who were going to judge whether it was great or not. We weren't going to go out and do market research. We just wanted to build the best thing we could build.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
