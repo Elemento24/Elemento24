@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course art world ethics are important. But museums are no purer than any other institution or business. Academics aren't necessarily more high-minded than gallerists.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>All architecture is great architecture after sunset perhaps architecture is really a nocturnal art, like the art of fireworks.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
