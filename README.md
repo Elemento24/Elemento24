@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All works of art are commissioned in the sense that no artist can create one by a simple act of will but must wait until what he believes to be a good idea for a work comes to him.</b>
-> <p><i>W. H. Auden</i></p>
+> <b>I shall not change my course because those who assume to be better than I desire it.</b>
+> <p><i>Victoria Woodhull</i></p>
 
 <br>
