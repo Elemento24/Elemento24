@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One's mind has a way of making itself up in the background, and it suddenly becomes clear what one means to do.</b>
-> <p><i>A. C. Benson</i></p>
+> <b>My parents were really, really cool about supporting what I wanted to do at a really young age. I think I was about 10 when I caught the bug. They would drive me down to New York if there were auditions. When I was 12, I did this show on Broadway called 'High Society,' so we moved to New York for the run of that.</b>
+> <p><i>Anna Kendrick</i></p>
 
 <br>
