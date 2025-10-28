@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Genuine forgiveness does not deny anger but faces it head-on.</b>
-> <p><i>Alice Duer Miller</i></p>
+> <b>Happy he who learns to bear what he cannot change.</b>
+> <p><i>Friedrich Schiller</i></p>
 
 <br>
