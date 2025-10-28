@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are like a woman with a difficult pregnancy. We have to rebuild the social classes in Egypt, and we must change the way things were.</b>
-> <p><i>Naguib Mahfouz</i></p>
+> <b>I want to let my friend Buster know that I would like to have dinner with him tonight. Does Buster work at home? Then how likely is he to have his cell phone on? Is he one of those people who only turns on his cell when he's in his car? I hate that.</b>
+> <p><i>Susan Orlean</i></p>
 
 <br>
