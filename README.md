@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We think the Mac will sell zillions, but we didn't build the Mac for anybody else. We built it for ourselves. We were the group of people who were going to judge whether it was great or not. We weren't going to go out and do market research. We just wanted to build the best thing we could build.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>Genuine forgiveness does not deny anger but faces it head-on.</b>
+> <p><i>Alice Duer Miller</i></p>
 
 <br>
