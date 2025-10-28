@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who's lost someone to cancer will say this, that you have to struggle to try to remember the person before the diagnosis happened, because they really do change - as anyone would change.</b>
-> <p><i>Mindy Kaling</i></p>
+> <b>One's mind has a way of making itself up in the background, and it suddenly becomes clear what one means to do.</b>
+> <p><i>A. C. Benson</i></p>
 
 <br>
