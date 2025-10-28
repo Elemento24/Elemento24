@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents were really, really cool about supporting what I wanted to do at a really young age. I think I was about 10 when I caught the bug. They would drive me down to New York if there were auditions. When I was 12, I did this show on Broadway called 'High Society,' so we moved to New York for the run of that.</b>
-> <p><i>Anna Kendrick</i></p>
+> <b>We are like a woman with a difficult pregnancy. We have to rebuild the social classes in Egypt, and we must change the way things were.</b>
+> <p><i>Naguib Mahfouz</i></p>
 
 <br>
