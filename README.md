@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Surely being a Professional Beauty - let alone an ageing one - is one of the most insecure and doomed careers imaginable.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>The problem was just a mean attitude that festers and has to be challenged.</b>
+> <p><i>Major Owens</i></p>
 
 <br>
