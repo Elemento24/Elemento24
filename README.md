@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think you have to be willing to take a bullet for somebody if you're going to stand up there, take your vows, and be married to them for the rest of your life.</b>
-> <p><i>Blake Shelton</i></p>
+> <b>Pebble Beach. It is tough and the lay out is amazing.</b>
+> <p><i>Natalie Gulbis</i></p>
 
 <br>
