@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got volumes on how not to behave. I've got more information now than a guy should have at my age.</b>
-> <p><i>Charlie Sheen</i></p>
+> <b>Middle age occurs when you are too young to take up golf and too old to rush up to the net.</b>
+> <p><i>Franklin P. Adams</i></p>
 
 <br>
