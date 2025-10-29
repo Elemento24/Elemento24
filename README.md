@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pebble Beach. It is tough and the lay out is amazing.</b>
-> <p><i>Natalie Gulbis</i></p>
+> <b>Surely being a Professional Beauty - let alone an ageing one - is one of the most insecure and doomed careers imaginable.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
