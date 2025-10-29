@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The more decisions that you are forced to make alone, the more you are aware of your freedom to choose.</b>
-> <p><i>Thornton Wilder</i></p>
+> <b>The best security for civilization is the dwelling, and upon properly appointed and becoming dwellings depends, more than anything else, the improvement of mankind.</b>
+> <p><i>Benjamin Disraeli</i></p>
 
 <br>
