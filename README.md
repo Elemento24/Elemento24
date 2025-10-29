@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Besides the noble art of getting things done, there is the noble art of leaving things undone. The wisdom of life consists in the elimination of non-essentials.</b>
-> <p><i>Lin Yutang</i></p>
+> <b>I thoroughly enjoyed working on Enemy of the State. Tony Scott is an important director, and has an amazing ability to express himself, and he doesn't do it in musical terms , he does it in emotional terms. I got along really well with him.</b>
+> <p><i>Trevor Rabin</i></p>
 
 <br>
