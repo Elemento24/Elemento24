@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is my personality alone that has brought back the waltz and made it a global craze.</b>
-> <p><i>Andre Rieu</i></p>
+> <b>I've got volumes on how not to behave. I've got more information now than a guy should have at my age.</b>
+> <p><i>Charlie Sheen</i></p>
 
 <br>
