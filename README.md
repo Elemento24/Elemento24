@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No one can really honestly be the very best, no one.</b>
-> <p><i>John Wooden</i></p>
+> <b>What matters poverty? What matters anything to him who is enamoured of our art? Does he not carry in himself every joy and every beauty?</b>
+> <p><i>Sarah Bernhardt</i></p>
 
 <br>
