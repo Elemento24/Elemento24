@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best security for civilization is the dwelling, and upon properly appointed and becoming dwellings depends, more than anything else, the improvement of mankind.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>When I drank, I had a very different attitude towards my playing. It was sloppier but I kind of liked it that way. It was like the alcohol was telling my mind what to do.</b>
+> <p><i>Mick Mars</i></p>
 
 <br>
