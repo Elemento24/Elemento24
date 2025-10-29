@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age occurs when you are too young to take up golf and too old to rush up to the net.</b>
-> <p><i>Franklin P. Adams</i></p>
+> <b>The more decisions that you are forced to make alone, the more you are aware of your freedom to choose.</b>
+> <p><i>Thornton Wilder</i></p>
 
 <br>
