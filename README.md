@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was blessed, because I come from a family where they knock you down before you float away. I have a lot of brothers who just make sure we have our feet on the ground, and my mom is a rock star. She is an amazing mother.</b>
-> <p><i>Kellan Lutz</i></p>
+> <b>People find themselves in ruts all the time. You're in a complacent lifestyle where you work 9 to 5 and then you add a mortgage and kids. You feel trapped, but guess what, brother? You constructed that life. If you're OK with it, there's nothing wrong with that. But if you've got unease, then you've got to make a change.</b>
+> <p><i>Jeremy Renner</i></p>
 
 <br>
