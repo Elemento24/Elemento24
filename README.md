@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger makes dull men witty, but it keeps them poor.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>It is my personality alone that has brought back the waltz and made it a global craze.</b>
+> <p><i>Andre Rieu</i></p>
 
 <br>
