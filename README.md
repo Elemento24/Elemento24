@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I drank, I had a very different attitude towards my playing. It was sloppier but I kind of liked it that way. It was like the alcohol was telling my mind what to do.</b>
-> <p><i>Mick Mars</i></p>
+> <b>I was blessed, because I come from a family where they knock you down before you float away. I have a lot of brothers who just make sure we have our feet on the ground, and my mom is a rock star. She is an amazing mother.</b>
+> <p><i>Kellan Lutz</i></p>
 
 <br>
