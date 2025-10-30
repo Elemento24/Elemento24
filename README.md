@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, a building - if it's beautiful - is the love of one man, he's made it out of his love for space, materials, things like that.</b>
-> <p><i>Martha Graham</i></p>
+> <b>For me beauty is valued more than anything - the beauty that is manifest in a curved line or in an act of creativity.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
