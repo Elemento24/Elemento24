@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You and I and everybody in show business and the entertainment industry fly by the seat of our pants. We don't know quite what is going to happen.</b>
-> <p><i>William Shatner</i></p>
+> <b>Beauty is a precious trace that eternity causes to appear to us and that it takes away from us. A manifestation of eternity, and a sign of death as well.</b>
+> <p><i>Eugene Ionesco</i></p>
 
 <br>
