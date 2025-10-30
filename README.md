@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who excel in virtue have the best right of all to rebel, but then they are of all men the least inclined to do so.</b>
-> <p><i>Aristotle</i></p>
+> <b>Why do only boys get to chase? Nuh-uh! If anything, I think this whole sitting back and waiting thing can be self-sabotaging. We have to send up flares. We have to let guys know we're open for business.</b>
+> <p><i>Ginnifer Goodwin</i></p>
 
 <br>
