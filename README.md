@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well I do find the beauty in animals. I find beauty everywhere. I find beauty in my garden.</b>
-> <p><i>Doris Day</i></p>
+> <b>Those who excel in virtue have the best right of all to rebel, but then they are of all men the least inclined to do so.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
