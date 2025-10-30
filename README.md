@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No employer today is independent of those about him. He cannot succeed alone, no matter how great his ability or capital. Business today is more than ever a question of cooperation.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>When you create art, the world has to wait.</b>
+> <p><i>Will Smith</i></p>
 
 <br>
