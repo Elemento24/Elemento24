@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is a precious trace that eternity causes to appear to us and that it takes away from us. A manifestation of eternity, and a sign of death as well.</b>
-> <p><i>Eugene Ionesco</i></p>
+> <b>The art of pleasing is the art of deception.</b>
+> <p><i>Luc de Clapiers</i></p>
 
 <br>
