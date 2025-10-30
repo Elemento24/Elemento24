@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God grant me the serenity to accept the things I cannot change, the courage to change the things I can, and the wisdom to know the difference.</b>
-> <p><i>Reinhold Niebuhr</i></p>
+> <b>One morning, about four o'clock, I was driving my car just about as fast as I could. I thought, Why am I out this time of night? I was miserable, and it came to me: I'm falling in love with somebody I have no right to fall in love with.</b>
+> <p><i>June Carter Cash</i></p>
 
 <br>
