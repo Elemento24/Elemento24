@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the oracle that speaks to us all.</b>
-> <p><i>Luis Barragan</i></p>
+> <b>America doesn't reward people of my age, either in day-to-day life or for their performances.</b>
+> <p><i>Meryl Streep</i></p>
 
 <br>
