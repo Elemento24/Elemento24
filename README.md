@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>America doesn't reward people of my age, either in day-to-day life or for their performances.</b>
-> <p><i>Meryl Streep</i></p>
+> <b>For me, I don't expect to have a really amazing meal each time I dine out. Having a good meal with your loved ones - that's what makes the experience.</b>
+> <p><i>Wolfgang Puck</i></p>
 
 <br>
