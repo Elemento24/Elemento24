@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the age of six I wanted to be a cook. At seven I wanted to be Napoleon. And my ambition has been growing steadily ever since.</b>
-> <p><i>Salvador Dali</i></p>
+> <b>He travels the fastest who travels alone.</b>
+> <p><i>Rudyard Kipling</i></p>
 
 <br>
