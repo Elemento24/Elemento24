@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He travels the fastest who travels alone.</b>
-> <p><i>Rudyard Kipling</i></p>
+> <b>Good manners is the art of making those people easy with whom we converse. Whoever makes the fewest people uneasy is the best bred in the room.</b>
+> <p><i>Jonathan Swift</i></p>
 
 <br>
