@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But Apple really beats to a different drummer. I used to say that Apple should be the Sony of this business, but in reality, I think Apple should be the Apple of this business.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>Art has the power to transform, to illuminate, to educate, inspire and motivate.</b>
+> <p><i>Harvey Fierstein</i></p>
 
 <br>
