@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist is not paid for his labor but for his vision.</b>
-> <p><i>James Whistler</i></p>
+> <b>But Apple really beats to a different drummer. I used to say that Apple should be the Sony of this business, but in reality, I think Apple should be the Apple of this business.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
