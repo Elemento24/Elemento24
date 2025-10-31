@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A grocer is attracted to his business by a magnetic force as great as the repulsion which renders it odious to artists.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>An artist is not paid for his labor but for his vision.</b>
+> <p><i>James Whistler</i></p>
 
 <br>
