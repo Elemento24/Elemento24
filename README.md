@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the bait which with delight allures man to enlarge his kind.</b>
-> <p><i>Socrates</i></p>
+> <b>My mother is a beauty.</b>
+> <p><i>Mary-Louise Parker</i></p>
 
 <br>
