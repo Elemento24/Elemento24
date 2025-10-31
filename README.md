@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all have to find beauty within us, as opposed to just our exterior.</b>
-> <p><i>Shay Mitchell</i></p>
+> <b>June 2005 is the five year anniversary of the debut of Battle Pope.</b>
+> <p><i>Robert Kirkman</i></p>
 
 <br>
