@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To make a prairie it takes a clover and one bee, One clover, and a bee, And revery. The revery alone will do, If bees are few.</b>
-> <p><i>Emily Dickinson</i></p>
+> <b>I feel like women are asked their age more than men.</b>
+> <p><i>Kristen Wiig</i></p>
 
 <br>
