@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the best provision for old age.</b>
-> <p><i>Aristotle</i></p>
+> <b>God is not on the side of the big battalions, but on the side of those who shoot best.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
