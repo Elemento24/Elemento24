@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all get stuck. We all lose ourselves a little bit in a fantasy or in our jobs and forget how we feel about other things. It's really important to check yourself, to spend some time alone.</b>
-> <p><i>Amanda Seyfried</i></p>
+> <b>Even if people do wrong, we're social animals, so what can we do about stopping them doing the same things in future? Saying people are 'bad' or 'evil' is just an unwillingness to engage an unwillingness to try to empathise. That sanctimonious attitude doesn't help anyone.</b>
+> <p><i>Denise Mina</i></p>
 
 <br>
