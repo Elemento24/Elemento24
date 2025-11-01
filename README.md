@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you feel like it's difficult to change, you will probably have a harder time succeeding.</b>
-> <p><i>Andrea Jung</i></p>
+> <b>I came to poetry through the urgent need to denounce injustice, exploitation, humiliation. I know that's not enough to change the world. But to remain silent would have been a kind of intolerable complicity.</b>
+> <p><i>Tahar Ben Jelloun</i></p>
 
 <br>
