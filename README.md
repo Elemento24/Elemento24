@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age has its pleasures, which, though different, are not less than the pleasures of youth.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>Poetry is the art of substantiating shadows, and of lending existence to nothing.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
