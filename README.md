@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dream car would be a Maserati. That would be amazing.</b>
-> <p><i>Jordana Brewster</i></p>
+> <b>I have Graham Greene's telephone number, but I wouldn't dream of using it. I don't seek out writers because we all want to be alone.</b>
+> <p><i>Patricia Highsmith</i></p>
 
 <br>
