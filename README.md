@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That which you create in beauty and goodness and truth lives on for all time to come. Don't spend your life accumulating material objects that will only turn to dust and ashes.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>It's such a diversion to be constantly thinking of better ways I can teach people math that my hunger is for that really, for new ways of translating the beauty of it.</b>
+> <p><i>Danica McKellar</i></p>
 
 <br>
