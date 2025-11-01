@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't despair about something like the Middle East, you just do the best you can.</b>
-> <p><i>P. J. O'Rourke</i></p>
+> <b>Old age has its pleasures, which, though different, are not less than the pleasures of youth.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
