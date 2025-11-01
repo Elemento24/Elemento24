@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty always promises, but never gives anything.</b>
-> <p><i>Simone Weil</i></p>
+> <b>That which you create in beauty and goodness and truth lives on for all time to come. Don't spend your life accumulating material objects that will only turn to dust and ashes.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
