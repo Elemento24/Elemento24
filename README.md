@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been going through photos of my mother, looking back on her life and trying to put it into context. Very few people age gracefully enough to be photographed through their aging.</b>
-> <p><i>Jamie Lee Curtis</i></p>
+> <b>I'm not at the point where I'd feel safe in a house alone. I would be really scared. I'm the kind of person that when I get up to go use the bathroom I have this big long hallway, and I just know someone's going to jump out and get me.</b>
+> <p><i>Britney Spears</i></p>
 
 <br>
