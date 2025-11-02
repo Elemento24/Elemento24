@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While I relish our warm months, winter forms our character and brings out our best.</b>
-> <p><i>Tom Allen</i></p>
+> <b>A guilty conscience needs to confess. A work of art is a confession.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
