@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When someone asks if you'd like cake or pie, why not say you want cake and pie?</b>
-> <p><i>Lisa Loeb</i></p>
+> <b>Get mad, then get over it.</b>
+> <p><i>Colin Powell</i></p>
 
 <br>
