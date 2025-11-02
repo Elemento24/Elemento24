@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even in the centuries which appear to us to be the most monstrous and foolish, the immortal appetite for beauty has always found satisfaction.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>Art is the stored honey of the human soul, gathered on wings of misery and travail.</b>
+> <p><i>Theodore Dreiser</i></p>
 
 <br>
