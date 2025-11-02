@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing in the world of art like the songs mother used to sing.</b>
-> <p><i>Billy Sunday</i></p>
+> <b>I've been going through photos of my mother, looking back on her life and trying to put it into context. Very few people age gracefully enough to be photographed through their aging.</b>
+> <p><i>Jamie Lee Curtis</i></p>
 
 <br>
