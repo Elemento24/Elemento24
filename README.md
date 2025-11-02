@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since 'Idol' I've gotten used to having an amazing hair and make-up team around me, so I'm starting to get picky. I know what I like now and I'm happy to say 'Could we maybe change that?' if I don't like something. I don't yell or anything, but I think I could definitely start to act a little diva-ish when it comes to my look.</b>
-> <p><i>Jordin Sparks</i></p>
+> <b>While I relish our warm months, winter forms our character and brings out our best.</b>
+> <p><i>Tom Allen</i></p>
 
 <br>
