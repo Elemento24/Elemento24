@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You hear entertainers all the time, saying, 'If I couldn't get paid for this, I'd do it for free.' When's the last time you ever heard a business person say, 'If I couldn't get paid for being chairman of British Petroleum, I'd do it for free'?</b>
-> <p><i>Dick Gregory</i></p>
+> <b>Even in the centuries which appear to us to be the most monstrous and foolish, the immortal appetite for beauty has always found satisfaction.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
