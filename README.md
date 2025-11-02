@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was 16 years old, driving to LA, and sleeping in my car, just trying to make it happen.</b>
-> <p><i>Nick Cannon</i></p>
+> <b>Thirty was so strange for me. I've really had to come to terms with the fact that I am now a walking and talking adult.</b>
+> <p><i>C. S. Lewis</i></p>
 
 <br>
