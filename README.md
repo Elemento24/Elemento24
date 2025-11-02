@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some women feel the best cure for a broken heart is a new beau.</b>
-> <p><i>Gene Tierney</i></p>
+> <b>You hear entertainers all the time, saying, 'If I couldn't get paid for this, I'd do it for free.' When's the last time you ever heard a business person say, 'If I couldn't get paid for being chairman of British Petroleum, I'd do it for free'?</b>
+> <p><i>Dick Gregory</i></p>
 
 <br>
