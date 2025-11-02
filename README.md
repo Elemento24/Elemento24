@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I keep my weight low, although you need to be able to move your weight around the race car to change the balance. I'm 6ft and I'm 70kg so I haven't much fat on me.</b>
-> <p><i>Jenson Button</i></p>
+> <b>All my favorite stars, my family and my friends are here. I'm having the happiest birthday that an 18-year-old girl could ever have.</b>
+> <p><i>Brandy Norwood</i></p>
 
 <br>
