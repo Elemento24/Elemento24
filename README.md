@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The moment you think you understand a great work of art, it's dead for you.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>If I could set a world record, it would be that I have 150 business partners, all with thriving businesses of their own that started with nothing and I made the difference to make them all billionaires.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
