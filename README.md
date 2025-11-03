@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>High expectations weren't nurtured in my neck of nowhere back then - children weren't fawned over from an early age as 'gifted' and groomed for a prizewinning future self-esteem was considered something you had to pick from the garden yourself.</b>
-> <p><i>James Wolcott</i></p>
+> <b>Americans are the only people in the world known to me whose status anxiety prompts them to advertise their college and university affiliations in the rear window of their automobiles.</b>
+> <p><i>Paul Fussell</i></p>
 
 <br>
