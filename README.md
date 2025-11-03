@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I were to try to read, much less answer, all the attacks made on me, this shop might as well be closed for any other business.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>It's amazing how a competitive nature can turn a negative into something positive.</b>
+> <p><i>Barry Mann</i></p>
 
 <br>
