@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mass transportation is doomed to failure in North America because a person's car is the only place where he can be alone and think.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>Meetings are indispensable when you don't want to do anything.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
