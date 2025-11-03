@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like science and I love gym. Oh, and I like art, but I'm really bad at it. I'm just a terrible drawer. I can't draw a circle. Even with a ruler, I can't draw a straight line.</b>
-> <p><i>Daniel Radcliffe</i></p>
+> <b>Art is either plagiarism or revolution.</b>
+> <p><i>Paul Gauguin</i></p>
 
 <br>
