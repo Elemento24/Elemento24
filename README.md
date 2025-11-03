@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Work is transformative. It gives you a greater chance of a greater income. You can affect your life while you're of working age, so you have scope and opportunity. Pensioners do not.</b>
-> <p><i>Iain Duncan Smith</i></p>
+> <b>True ease in writing comes from art, not chance, as those who move easiest have learned to dance.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
