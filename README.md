@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>True ease in writing comes from art, not chance, as those who move easiest have learned to dance.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>I like making films about old people because they are repositories of amazing stories that they tell well. And they're incredibly good telly.</b>
+> <p><i>Ian Hislop</i></p>
 
 <br>
