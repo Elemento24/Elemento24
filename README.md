@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude is your acceptance of the natural laws, or your rejection of the natural laws.</b>
-> <p><i>Stuart Chase</i></p>
+> <b>The arrogance of age must submit to be taught by youth.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
