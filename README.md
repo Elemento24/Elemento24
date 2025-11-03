@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The history of modern art is also the history of the progressive loss of art's audience. Art has increasingly become the concern of the artist and the bafflement of the public.</b>
-> <p><i>Paul Gauguin</i></p>
+> <b>Mass transportation is doomed to failure in North America because a person's car is the only place where he can be alone and think.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
