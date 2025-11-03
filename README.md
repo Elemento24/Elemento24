@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how a competitive nature can turn a negative into something positive.</b>
-> <p><i>Barry Mann</i></p>
+> <b>Attitude is your acceptance of the natural laws, or your rejection of the natural laws.</b>
+> <p><i>Stuart Chase</i></p>
 
 <br>
