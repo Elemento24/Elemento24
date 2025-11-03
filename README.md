@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is either plagiarism or revolution.</b>
-> <p><i>Paul Gauguin</i></p>
+> <b>High expectations weren't nurtured in my neck of nowhere back then - children weren't fawned over from an early age as 'gifted' and groomed for a prizewinning future self-esteem was considered something you had to pick from the garden yourself.</b>
+> <p><i>James Wolcott</i></p>
 
 <br>
