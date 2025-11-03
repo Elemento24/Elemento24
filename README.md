@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The law does not pretend to punish everything that is dishonest. That would seriously interfere with business.</b>
-> <p><i>Clarence Darrow</i></p>
+> <b>I like science and I love gym. Oh, and I like art, but I'm really bad at it. I'm just a terrible drawer. I can't draw a circle. Even with a ruler, I can't draw a straight line.</b>
+> <p><i>Daniel Radcliffe</i></p>
 
 <br>
