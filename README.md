@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The dialogue of architecture has been centered too long around the idea of truth.</b>
-> <p><i>Michael Graves</i></p>
+> <b>What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.</b>
+> <p><i>Wayne Dyer</i></p>
 
 <br>
