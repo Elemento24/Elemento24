@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You look at the steamboat, the railroad, the car, the airplane - not all of these were invented in the Anglo-American world, but they were popularized and extended by it. They were made possible by the financial architecture, the capital intensive operations invented and developed by the Anglo-Americans.</b>
-> <p><i>Walter Russell Mead</i></p>
+> <b>The dialogue of architecture has been centered too long around the idea of truth.</b>
+> <p><i>Michael Graves</i></p>
 
 <br>
