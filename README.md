@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Americans are the only people in the world known to me whose status anxiety prompts them to advertise their college and university affiliations in the rear window of their automobiles.</b>
-> <p><i>Paul Fussell</i></p>
+> <b>I don't know why, it's the same reason why you like some music and you don't like others. There's something about it that you like. Ultimately I don't find it's in my best interests to try and analyze it, since it's fundamentally emotional.</b>
+> <p><i>Jerry Garcia</i></p>
 
 <br>
