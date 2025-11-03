@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To really be centered and to really work well and to think about the kinds of things that I need to think about, I need to spend large amounts of time alone.</b>
-> <p><i>Donna Tartt</i></p>
+> <b>Work is transformative. It gives you a greater chance of a greater income. You can affect your life while you're of working age, so you have scope and opportunity. Pensioners do not.</b>
+> <p><i>Iain Duncan Smith</i></p>
 
 <br>
