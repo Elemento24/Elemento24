@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't grow up identifying with beauty. I grew up thinking I could be smart and funny - those are the things I got feedback on.</b>
-> <p><i>Lauren Graham</i></p>
+> <b>Others indeed may talk, and write, and fight about liberty, and make an outward pretence to it but the free-thinker alone is truly free.</b>
+> <p><i>George Berkeley</i></p>
 
 <br>
