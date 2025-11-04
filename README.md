@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you explode onto the scene at a very young age, there are so many people pulling you in different directions. It takes time to recalibrate and see what's important.</b>
-> <p><i>Clive Owen</i></p>
+> <b>Young people in the business have grown up and made the wrong decisions, or bad decisions, and haven't been good role models. To be someone that people look up to is important to me.</b>
+> <p><i>Justin Bieber</i></p>
 
 <br>
