@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.</b>
-> <p><i>Wayne Dyer</i></p>
+> <b>When someone asks if you'd like cake or pie, why not say you want cake and pie?</b>
+> <p><i>Lisa Loeb</i></p>
 
 <br>
