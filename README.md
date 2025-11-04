@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I could play it safe by recording songs that are familiar, but am I expanding myself as an artist by doing covers? It's a catch-22. It's called show business: The word 'business' is in it, and you've got to be a businessman. But then again, you have to be true to yourself as an artist.</b>
-> <p><i>Donny Osmond</i></p>
+> <b>Marriage is an alliance entered into by a man who can't sleep with the window shut, and a woman who can't sleep with the window open.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
