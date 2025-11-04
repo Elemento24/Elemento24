@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I once asked a hermit in Italy how he could venture to live alone, in a single cottage, on the top of a mountain, a mile from any habitation? He replied, that Providence was his next-door neighbor.</b>
-> <p><i>Laurence Sterne</i></p>
+> <b>Beauty in art is often nothing but ugliness subdued.</b>
+> <p><i>Jean Rostand</i></p>
 
 <br>
