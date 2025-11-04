@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I take cabs if I need to get somewhere or I take car service. I don't drive, I wouldn't mind riding a bike... People think that because you become an entertainer you gotta have this rock star thug image. I'm an artist, man. I'm going to live like an artist.</b>
-> <p><i>ASAP Rocky</i></p>
+> <b>It is with rivers as it is with people: the greatest are not always the most agreeable nor the best to live with.</b>
+> <p><i>Henry Van Dyke</i></p>
 
 <br>
