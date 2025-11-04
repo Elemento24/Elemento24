@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Noble life demands a noble architecture for noble uses of noble men. Lack of culture means what it has always meant: ignoble civilization and therefore imminent downfall.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>If you explode onto the scene at a very young age, there are so many people pulling you in different directions. It takes time to recalibrate and see what's important.</b>
+> <p><i>Clive Owen</i></p>
 
 <br>
