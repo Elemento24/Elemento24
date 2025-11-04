@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is with rivers as it is with people: the greatest are not always the most agreeable nor the best to live with.</b>
-> <p><i>Henry Van Dyke</i></p>
+> <b>The way I see it, you should live everyday like its your birthday.</b>
+> <p><i>Paris Hilton</i></p>
 
 <br>
