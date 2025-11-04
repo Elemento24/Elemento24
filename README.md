@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He alone is free who lives with free consent under the entire guidance of reason.</b>
-> <p><i>Baruch Spinoza</i></p>
+> <b>Noble life demands a noble architecture for noble uses of noble men. Lack of culture means what it has always meant: ignoble civilization and therefore imminent downfall.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
