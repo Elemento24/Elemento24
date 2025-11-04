@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never tell a secret to a bride or a groom wait until they have been married longer.</b>
-> <p><i>E. W. Howe</i></p>
+> <b>I could play it safe by recording songs that are familiar, but am I expanding myself as an artist by doing covers? It's a catch-22. It's called show business: The word 'business' is in it, and you've got to be a businessman. But then again, you have to be true to yourself as an artist.</b>
+> <p><i>Donny Osmond</i></p>
 
 <br>
