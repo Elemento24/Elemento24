@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Young people in the business have grown up and made the wrong decisions, or bad decisions, and haven't been good role models. To be someone that people look up to is important to me.</b>
-> <p><i>Justin Bieber</i></p>
+> <b>Love implies anger. The man who is angered by nothing cares about nothing.</b>
+> <p><i>Edward Abbey</i></p>
 
 <br>
