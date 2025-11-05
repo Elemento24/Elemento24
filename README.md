@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In this business, my business, I get to meet all kinds of incredible people, fascinating people, glamorous people and sexy people and highly intellectual people. And you meet them and you go 'interesting, interesting, interesting'. They're interesting, but not very many people stop you in your tracks.</b>
-> <p><i>Madonna Ciccone</i></p>
+> <b>Business is always interfering with pleasure - but it makes other pleasures possible.</b>
+> <p><i>William Feather</i></p>
 
 <br>
