@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're an entrepreneur and you think that the president makes a difference to your business, you should stay at your current job.</b>
-> <p><i>Guy Kawasaki</i></p>
+> <b>You can't play a symphony alone, it takes an orchestra to play it.</b>
+> <p><i>Navjot Singh Sidhu</i></p>
 
 <br>
