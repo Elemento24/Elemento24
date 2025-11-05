@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is he alone who has courage on his right hand and faith on his left hand?</b>
-> <p><i>Charles Lindbergh</i></p>
+> <b>Sometimes you get the best light from a burning bridge.</b>
+> <p><i>Don Henley</i></p>
 
 <br>
