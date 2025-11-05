@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes you get the best light from a burning bridge.</b>
-> <p><i>Don Henley</i></p>
+> <b>Business, you know, may bring you money, but friendship hardly ever does.</b>
+> <p><i>Jane Austen</i></p>
 
 <br>
