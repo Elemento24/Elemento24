@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business, you know, may bring you money, but friendship hardly ever does.</b>
-> <p><i>Jane Austen</i></p>
+> <b>If you're an entrepreneur and you think that the president makes a difference to your business, you should stay at your current job.</b>
+> <p><i>Guy Kawasaki</i></p>
 
 <br>
