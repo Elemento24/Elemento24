@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing that people who think we cannot afford to pay for doctors, hospitals, and medication somehow think that we can afford to pay for doctors, hospitals, medication and a government bureaucracy to administer it.</b>
-> <p><i>Thomas Sowell</i></p>
+> <b>In today's interdependent world, a threat to one becomes a menace to all. And no state can defeat these challenges and threats alone.</b>
+> <p><i>Michelle Bachelet</i></p>
 
 <br>
