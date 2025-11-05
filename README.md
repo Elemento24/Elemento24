@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In today's interdependent world, a threat to one becomes a menace to all. And no state can defeat these challenges and threats alone.</b>
-> <p><i>Michelle Bachelet</i></p>
+> <b>Old age and sickness bring out the essential characteristics of a man.</b>
+> <p><i>Felix Frankfurter</i></p>
 
 <br>
