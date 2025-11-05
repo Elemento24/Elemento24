@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>None are so old as those who have outlived enthusiasm.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>The best defense against usurpatory government is an assertive citizenry.</b>
+> <p><i>William F. Buckley, Jr.</i></p>
 
 <br>
