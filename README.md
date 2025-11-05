@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any form of art is a form of power it has impact, it can affect change - it can not only move us, it makes us move.</b>
-> <p><i>Ossie Davis</i></p>
+> <b>In this business, my business, I get to meet all kinds of incredible people, fascinating people, glamorous people and sexy people and highly intellectual people. And you meet them and you go 'interesting, interesting, interesting'. They're interesting, but not very many people stop you in your tracks.</b>
+> <p><i>Madonna Ciccone</i></p>
 
 <br>
