@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best defense against usurpatory government is an assertive citizenry.</b>
-> <p><i>William F. Buckley, Jr.</i></p>
+> <b>Is he alone who has courage on his right hand and faith on his left hand?</b>
+> <p><i>Charles Lindbergh</i></p>
 
 <br>
