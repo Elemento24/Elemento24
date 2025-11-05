@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't play a symphony alone, it takes an orchestra to play it.</b>
-> <p><i>Navjot Singh Sidhu</i></p>
+> <b>Never doubt that you can change history. You already have.</b>
+> <p><i>Marge Piercy</i></p>
 
 <br>
