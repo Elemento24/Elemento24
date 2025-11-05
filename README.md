@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love alone could waken love.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>It is amazing that people who think we cannot afford to pay for doctors, hospitals, and medication somehow think that we can afford to pay for doctors, hospitals, medication and a government bureaucracy to administer it.</b>
+> <p><i>Thomas Sowell</i></p>
 
 <br>
