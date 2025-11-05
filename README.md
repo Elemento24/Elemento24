@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never go to bed angry, stay up and fight.</b>
-> <p><i>William Congreve</i></p>
+> <b>Any form of art is a form of power it has impact, it can affect change - it can not only move us, it makes us move.</b>
+> <p><i>Ossie Davis</i></p>
 
 <br>
