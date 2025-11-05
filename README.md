@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Government, even in its best state, is but a necessary evil in its worst state, an intolerable one.</b>
-> <p><i>Thomas Paine</i></p>
+> <b>Brain power improves by brain use, just as our bodily strength grows with exercise. And there is no doubt that a large proportion of the female population, from school days to late middle age, now have very complicated lives indeed.</b>
+> <p><i>A. N. Wilson</i></p>
 
 <br>
