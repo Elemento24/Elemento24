@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age and sickness bring out the essential characteristics of a man.</b>
-> <p><i>Felix Frankfurter</i></p>
+> <b>The music business is motivated by money. Music is motivated by energy and feelings.</b>
+> <p><i>Erykah Badu</i></p>
 
 <br>
