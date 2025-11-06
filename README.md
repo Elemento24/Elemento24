@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I haven't got the slightest idea how to change people, but still I keep a long list of prospective candidates just in case I should ever figure it out.</b>
-> <p><i>David Sedaris</i></p>
+> <b>My goal is to be one with the music. I just dedicate my whole life to this art.</b>
+> <p><i>Jimi Hendrix</i></p>
 
 <br>
