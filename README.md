@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The upside to anger? Getting it out of your system. You got to express your anger. Then you have room for more positive things. If I hold something in a long time, and then I speak it, it's amazing how the light shines so much brighter.</b>
-> <p><i>Reba McEntire</i></p>
+> <b>I haven't got the slightest idea how to change people, but still I keep a long list of prospective candidates just in case I should ever figure it out.</b>
+> <p><i>David Sedaris</i></p>
 
 <br>
