@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Normally in dangerous situations I have a getaway car.</b>
-> <p><i>Sacha Baron Cohen</i></p>
+> <b>The upside to anger? Getting it out of your system. You got to express your anger. Then you have room for more positive things. If I hold something in a long time, and then I speak it, it's amazing how the light shines so much brighter.</b>
+> <p><i>Reba McEntire</i></p>
 
 <br>
