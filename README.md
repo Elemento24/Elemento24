@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After I finished high school I went to Hong Kong and Thailand and spent some time there. Just to get that whole experience of being out of the bubble that I was in from high school in Vancouver, to be able to travel around and be on your own was an amazing experience.</b>
-> <p><i>Shay Mitchell</i></p>
+> <b>Art is not a treasure in the past or an importation from another land, but part of the present life of all living and creating peoples.</b>
+> <p><i>Franklin D. Roosevelt</i></p>
 
 <br>
