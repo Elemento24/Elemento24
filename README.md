@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's the kind of clothes that mothers and daughters can wear, in terms of concept... It's not about age. It's about taste, and it's about lifestyle. I believe women of all ages can wear anything.</b>
-> <p><i>Ralph Lauren</i></p>
+> <b>My first love is art, and I see a lot of things in an artistic way.</b>
+> <p><i>Robert Carlyle</i></p>
 
 <br>
