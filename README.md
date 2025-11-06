@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first love is art, and I see a lot of things in an artistic way.</b>
-> <p><i>Robert Carlyle</i></p>
+> <b>Only when inspired to go beyond consciousness by some extraordinary insight does beauty manifest unexpectedly.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
