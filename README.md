@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Solitude, though it may be silent as light, is like light, the mightiest of agencies for solitude is essential to man. All men come into this world alone and leave it alone.</b>
-> <p><i>Thomas de Quincey</i></p>
+> <b>I keep guitars that are, you know, the neck's a little bit bent and it's a little bit out of tune. I want to work and battle it and conquer it and make it express whatever attitude I have at that moment. I want it to be a struggle.</b>
+> <p><i>Jack White</i></p>
 
 <br>
