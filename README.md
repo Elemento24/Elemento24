@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only when inspired to go beyond consciousness by some extraordinary insight does beauty manifest unexpectedly.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>As a kid, I always loved serialized books. It's the reason why people love 'Harry Potter.' Serialization is amazing. It works in television. It works in film and it works in books. Especially when you're a young kid, you get attached to these characters.</b>
+> <p><i>Mindy Kaling</i></p>
 
 <br>
