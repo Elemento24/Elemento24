@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I suppose there's an anger in all of us. Some hidden rage that you keep at bay.</b>
-> <p><i>Dominic Cooper</i></p>
+> <b>Normally in dangerous situations I have a getaway car.</b>
+> <p><i>Sacha Baron Cohen</i></p>
 
 <br>
