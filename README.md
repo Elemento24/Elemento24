@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do believe very much in the idea of unexpected or 'convulsive' beauty - beauty in the service of liberty.</b>
-> <p><i>Jeff Vandermeer</i></p>
+> <b>It's show business. No show, no business.</b>
+> <p><i>Dick Wolf</i></p>
 
 <br>
