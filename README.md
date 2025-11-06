@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of fun stuff happens when you go out on a bike compared to when you're in a car. You're more in the environment. It's enjoyable. Even when It's raining It's still fun.</b>
-> <p><i>Stone Gossard</i></p>
+> <b>I suppose there's an anger in all of us. Some hidden rage that you keep at bay.</b>
+> <p><i>Dominic Cooper</i></p>
 
 <br>
