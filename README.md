@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>She had lost the art of conversation but not, unfortunately, the power of speech.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>I moved to New York last year and I love it. It's a huge change and I've always wanted to spend time there. It's like a more intense London, and everything's up a few notches. The lights are brighter, the pace is faster and the food's better.</b>
+> <p><i>Rachel Weisz</i></p>
 
 <br>
