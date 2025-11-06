@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's show business. No show, no business.</b>
-> <p><i>Dick Wolf</i></p>
+> <b>Words can be said in bitterness and anger, and often there seems to be an element of truth in the nastiness. And words don't go away, they just echo around.</b>
+> <p><i>Jane Goodall</i></p>
 
 <br>
