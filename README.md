@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me music is a vehicle to bring our pain to the surface, getting it back to that humble and tender spot where, with luck, it can lose its anger and become compassion again.</b>
-> <p><i>Paula Cole</i></p>
+> <b>The essence of all beautiful art, all great art, is gratitude.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
