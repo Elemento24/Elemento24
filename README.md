@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's far too much to say that effective hoping is the only - or even the biggest - part of what it takes to succeed. If 14% of business productivity can be attributed to hope, that means 86% is dependent on raw talent, fickle business cycles, the quality of the product you're selling, and often pure, dumb luck.</b>
-> <p><i>Jeffrey Kluger</i></p>
+> <b>Forty is the old age of youth, fifty is the youth of old age.</b>
+> <p><i>Hosea Ballou</i></p>
 
 <br>
