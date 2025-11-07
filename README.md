@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry a criticism of life under the conditions fixed for such a criticism by the laws of poetic truth and poetic beauty.</b>
-> <p><i>Matthew Arnold</i></p>
+> <b>For me music is a vehicle to bring our pain to the surface, getting it back to that humble and tender spot where, with luck, it can lose its anger and become compassion again.</b>
+> <p><i>Paula Cole</i></p>
 
 <br>
