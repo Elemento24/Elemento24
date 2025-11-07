@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is best for the wise man not to seem wise.</b>
-> <p><i>Aeschylus</i></p>
+> <b>Each player must accept the cards life deals him or her: but once they are in hand, he or she alone must decide how to play the cards in order to win the game.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
