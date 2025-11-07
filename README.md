@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody kind of perceives me as being angry. It's not anger, it's motivation.</b>
-> <p><i>Roger Clemens</i></p>
+> <b>English people don't have very good diction. In France you have to pronounce very particularly and clearly, and learning French at an early age helped me enormously.</b>
+> <p><i>Vivien Leigh</i></p>
 
 <br>
