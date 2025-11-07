@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're unhappy, you should change what you're doing.</b>
-> <p><i>Marc Andreessen</i></p>
+> <b>A comfortable old age is the reward of a well-spent youth. Instead of its bringing sad and melancholy prospects of decay, it would give us hopes of eternal youth in a better world.</b>
+> <p><i>Maurice Chevalier</i></p>
 
 <br>
