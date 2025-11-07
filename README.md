@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not longer loved or fostered by religion, beauty is lifted from its face as a mask, and its absence exposes features on that face which threaten to become incomprehensible to man.</b>
-> <p><i>Hans Urs von Balthasar</i></p>
+> <b>Time plays a role in almost every decision. And some decisions define your attitude about time.</b>
+> <p><i>John Cale</i></p>
 
 <br>
