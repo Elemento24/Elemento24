@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tried to bake a cake for my mother's birthday - it took me four hours. It was terrible, and I cried for three days.</b>
-> <p><i>Rachael Ray</i></p>
+> <b>Everybody kind of perceives me as being angry. It's not anger, it's motivation.</b>
+> <p><i>Roger Clemens</i></p>
 
 <br>
