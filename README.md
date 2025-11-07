@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If youth knew if age could.</b>
-> <p><i>Sigmund Freud</i></p>
+> <b>Change your thoughts and you change your world.</b>
+> <p><i>Norman Vincent Peale</i></p>
 
 <br>
