@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The essence of all beautiful art, all great art, is gratitude.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>Not longer loved or fostered by religion, beauty is lifted from its face as a mask, and its absence exposes features on that face which threaten to become incomprehensible to man.</b>
+> <p><i>Hans Urs von Balthasar</i></p>
 
 <br>
