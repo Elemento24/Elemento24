@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Black literature is taught as sociology, as tolerance, not as a serious, rigorous art form.</b>
-> <p><i>Toni Morrison</i></p>
+> <b>Poetry a criticism of life under the conditions fixed for such a criticism by the laws of poetic truth and poetic beauty.</b>
+> <p><i>Matthew Arnold</i></p>
 
 <br>
