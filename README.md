@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>English people don't have very good diction. In France you have to pronounce very particularly and clearly, and learning French at an early age helped me enormously.</b>
-> <p><i>Vivien Leigh</i></p>
+> <b>Only that thing is free which exists by the necessities of its own nature, and is determined in its actions by itself alone.</b>
+> <p><i>Baruch Spinoza</i></p>
 
 <br>
