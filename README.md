@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Forty is the old age of youth, fifty is the youth of old age.</b>
-> <p><i>Hosea Ballou</i></p>
+> <b>The art which we may call generally art of the wayside, as opposed to that which is the business of men's lives, is, in the best sense of the word, Grotesque.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
