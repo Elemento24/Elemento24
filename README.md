@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Heat cannot be separated from fire, or beauty from The Eternal.</b>
-> <p><i>Dante Alighieri</i></p>
+> <b>For the man sound of body and serene of mind there is no such thing as bad weather every day has its beauty, and storms which whip the blood do but make it pulse more vigorously.</b>
+> <p><i>George Gissing</i></p>
 
 <br>
