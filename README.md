@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always vote for principle, though you may vote alone, and you may cherish the sweetest reflection that your vote is never lost.</b>
-> <p><i>John Quincy Adams</i></p>
+> <b>A stockbroker urged me to buy a stock that would triple its value every year. I told him, 'At my age, I don't even buy green bananas.'</b>
+> <p><i>Claude Pepper</i></p>
 
 <br>
