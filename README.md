@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes movie-making happens like clockwork other times, like a car accident.</b>
-> <p><i>Eric Roberts</i></p>
+> <b>Always vote for principle, though you may vote alone, and you may cherish the sweetest reflection that your vote is never lost.</b>
+> <p><i>John Quincy Adams</i></p>
 
 <br>
