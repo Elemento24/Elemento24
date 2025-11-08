@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of art, the glory of expression and the sunshine of the light of letters, is simplicity.</b>
-> <p><i>Walt Whitman</i></p>
+> <b>Art is not necessary at all. All that is necessary to make this world a better place to live in is to love - to love as Christ loved, as Buddha loved.</b>
+> <p><i>Isadora Duncan</i></p>
 
 <br>
