@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the man sound of body and serene of mind there is no such thing as bad weather every day has its beauty, and storms which whip the blood do but make it pulse more vigorously.</b>
-> <p><i>George Gissing</i></p>
+> <b>Hath the spirit of all beauty Kissed you in the path of duty?</b>
+> <p><i>Anna Katharine Green</i></p>
 
 <br>
