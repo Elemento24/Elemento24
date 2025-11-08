@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Muslims must believe that all power, success and victory comes from God alone.</b>
-> <p><i>Abu Bakar Bashir</i></p>
+> <b>The art of art, the glory of expression and the sunshine of the light of letters, is simplicity.</b>
+> <p><i>Walt Whitman</i></p>
 
 <br>
