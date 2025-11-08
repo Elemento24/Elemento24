@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A stockbroker urged me to buy a stock that would triple its value every year. I told him, 'At my age, I don't even buy green bananas.'</b>
-> <p><i>Claude Pepper</i></p>
+> <b>If I can change than anyone can change. I promise you that.</b>
+> <p><i>Brett Favre</i></p>
 
 <br>
