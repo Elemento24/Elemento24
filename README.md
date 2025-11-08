@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm at the age where food has taken the place of sex in my life. In fact, I've just had a mirror put over my kitchen table.</b>
-> <p><i>Rodney Dangerfield</i></p>
+> <b>Muslims must believe that all power, success and victory comes from God alone.</b>
+> <p><i>Abu Bakar Bashir</i></p>
 
 <br>
