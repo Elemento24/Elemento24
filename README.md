@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your experiences will be yours alone. But truth and best friendship will rarely if ever disappoint you.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>Heat cannot be separated from fire, or beauty from The Eternal.</b>
+> <p><i>Dante Alighieri</i></p>
 
 <br>
