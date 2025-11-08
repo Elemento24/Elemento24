@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Statistics suggest that when customers complain, business owners and managers ought to get excited about it. The complaining customer represents a huge opportunity for more business.</b>
-> <p><i>Zig Ziglar</i></p>
+> <b>I'm not interested in age. People who tell me their age are silly. You're as old as you feel.</b>
+> <p><i>Henri Frederic Amiel</i></p>
 
 <br>
