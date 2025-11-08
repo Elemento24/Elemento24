@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think having a child can really change you if you're open to it.</b>
-> <p><i>Tori Amos</i></p>
+> <b>Sometimes movie-making happens like clockwork other times, like a car accident.</b>
+> <p><i>Eric Roberts</i></p>
 
 <br>
