@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always carry lip balm and lipstick. Lipstick is a very important beauty product because I find that lips are the most beautiful feature of anyone's face.</b>
-> <p><i>Fan Binbing</i></p>
+> <b>Your experiences will be yours alone. But truth and best friendship will rarely if ever disappoint you.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
