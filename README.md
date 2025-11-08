@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My best kiss was on stage. Kelly Rowland from Destiny's Child gave me a really nice soft kiss on my lips during a performance on my birthday. It was amazing.</b>
-> <p><i>Chris Brown</i></p>
+> <b>I think it is an immutable law in business that words are words, explanations are explanations, promises are promises - but only performance is reality.</b>
+> <p><i>Harold S. Geneen</i></p>
 
 <br>
