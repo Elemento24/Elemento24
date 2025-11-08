@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best measure of a man's honesty isn't his income tax return. It's the zero adjust on his bathroom scale.</b>
-> <p><i>Arthur C. Clarke</i></p>
+> <b>The devil had as good have let Paul alone, for he no sooner comes into prison but he falls a preaching, at which the gates of Satan's prison fly open, and poor sinners come forth.</b>
+> <p><i>William Gurnall</i></p>
 
 <br>
