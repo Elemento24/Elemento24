@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I can change than anyone can change. I promise you that.</b>
-> <p><i>Brett Favre</i></p>
+> <b>My best kiss was on stage. Kelly Rowland from Destiny's Child gave me a really nice soft kiss on my lips during a performance on my birthday. It was amazing.</b>
+> <p><i>Chris Brown</i></p>
 
 <br>
