@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The fear really hits you. That's what you feel first. And then it's the anger and frustration. Part of the problem is how little we understand about the ultimate betrayal of the body when it rebels against itself.</b>
-> <p><i>Charles Bronson</i></p>
+> <b>I own stock, and I also insure my car with Geico.</b>
+> <p><i>Ernie Banks</i></p>
 
 <br>
