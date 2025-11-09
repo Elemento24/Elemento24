@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Venice is the perfect place for a phase of art to die. No other city on earth embraces entropy quite like this magical floating mall.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It is, finally, a word is untimely in three different senses, and bearing it as one's treasure will not win one anyone's favours one rather risks finding oneself outside everyone's camp... Beauty is the word that shall be our first.</b>
+> <p><i>Hans Urs von Balthasar</i></p>
 
 <br>
