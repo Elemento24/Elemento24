@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best sermon is preached by the minister who has a sermon to preach and not by the man who has to preach a sermon.</b>
-> <p><i>William Feather</i></p>
+> <b>O human beauty, what a dream art thou, that we should cast our life and hopes away on thee!</b>
+> <p><i>Barry Cornwall</i></p>
 
 <br>
