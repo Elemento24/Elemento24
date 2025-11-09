@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The question is what will Mitt Romney do as president if his policy is simply to be hands off and let the government be made so small it can be drowned in a bathtub. In the 21st century global economy, no state alone has the ability to compete against China.</b>
-> <p><i>Jennifer Granholm</i></p>
+> <b>The best sermon is preached by the minister who has a sermon to preach and not by the man who has to preach a sermon.</b>
+> <p><i>William Feather</i></p>
 
 <br>
