@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not the beauty of a building you should look at its the construction of the foundation that will stand the test of time.</b>
-> <p><i>David Allan Coe</i></p>
+> <b>The body is like a car: the older you become the more care you have to take care of it - and you don't leave a Ferrari out in the sun.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
