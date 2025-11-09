@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most beautiful thing we can experience is the mysterious. It is the source of all true art and science.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>The question is what will Mitt Romney do as president if his policy is simply to be hands off and let the government be made so small it can be drowned in a bathtub. In the 21st century global economy, no state alone has the ability to compete against China.</b>
+> <p><i>Jennifer Granholm</i></p>
 
 <br>
