@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Birdie is amazing and such an incredible child and I'm having such a great time being a mom but I still want to have a career and I still look forward to auditions and parts, and when I don't get them I'm disappointed.</b>
-> <p><i>Busy Philipps</i></p>
+> <b>The senior officer who met with reporters in Baghdad said there had been 21 car bombings in the capital in May, and 126 in the past 80 days. All last year, he said, there were only about 25 car bombings in Baghdad.</b>
+> <p><i>Rich Lowry</i></p>
 
 <br>
