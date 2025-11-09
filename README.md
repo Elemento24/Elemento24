@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who govern, having much business on their hands, do not generally like to take the trouble of considering and carrying into execution new projects. The best public measures are therefore seldom adopted from previous wisdom, but forced by the occasion.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>Anger may repast with thee for an hour, but not repose for a night the continuance of anger is hatred, the continuance of hatred turns malice.</b>
+> <p><i>Francis Quarles</i></p>
 
 <br>
