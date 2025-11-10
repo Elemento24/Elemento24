@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Qualifying is all about putting everything that you have and that the car has in one lap. It's like a rush, I really enjoy that.</b>
-> <p><i>Sebastian Vettel</i></p>
+> <b>I think it's very empowering to be able to have a career and to be a mother. It gives you an amazing sense of self.</b>
+> <p><i>Georgina Chapman</i></p>
 
 <br>
