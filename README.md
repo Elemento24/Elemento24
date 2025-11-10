@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps people, and kids especially, are spoiled today, because all the kids today have cars, it seems. When I was young you were lucky to have a bike.</b>
-> <p><i>James Cagney</i></p>
+> <b>Unless we love and are loved, each of us is alone, each of us is deeply lonely.</b>
+> <p><i>Mortimer Adler</i></p>
 
 <br>
