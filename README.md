@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's very empowering to be able to have a career and to be a mother. It gives you an amazing sense of self.</b>
-> <p><i>Georgina Chapman</i></p>
+> <b>It's been such a deep and amazing journey for me, getting close to John Keats, and also I love Shelley and Byron. I mean, the thing about the Romantic poets is that they've got the epitaph of romantic posthumously. They all died really young, and Keats, the youngest of them all.</b>
+> <p><i>Jane Campion</i></p>
 
 <br>
