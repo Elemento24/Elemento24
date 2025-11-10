@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You wouldn't want to be called a sell-out by selling a product. Selling out was frowned on, whereas now you can major in it at business school.</b>
-> <p><i>Alan Alda</i></p>
+> <b>When a man opens a car door for his wife, it's either a new car or a new wife.</b>
+> <p><i>Prince Philip</i></p>
 
 <br>
