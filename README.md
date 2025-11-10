@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of living does not consist in preserving and clinging to a particular mode of happiness, but in allowing happiness to change its form without being disappointed by the change happiness, like a child, must be allowed to grow up.</b>
-> <p><i>Charles Morgan</i></p>
+> <b>Qualifying is all about putting everything that you have and that the car has in one lap. It's like a rush, I really enjoy that.</b>
+> <p><i>Sebastian Vettel</i></p>
 
 <br>
