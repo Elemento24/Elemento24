@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When a man opens a car door for his wife, it's either a new car or a new wife.</b>
-> <p><i>Prince Philip</i></p>
+> <b>A budget tells us what we can't afford, but it doesn't keep us from buying it.</b>
+> <p><i>William Feather</i></p>
 
 <br>
