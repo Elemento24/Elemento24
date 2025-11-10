@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The characteristic political attitude of today is not one of positive belief, but of despair.</b>
-> <p><i>Herbert Read</i></p>
+> <b>Through Kurt I saw the beauty of minimalism and the importance of music that's stripped down.</b>
+> <p><i>Dave Grohl</i></p>
 
 <br>
