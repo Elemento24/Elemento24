@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of the trouble in this world has been caused by folks who can't mind their own business, because they have no business of their own to mind, any more than a smallpox virus has.</b>
-> <p><i>William S. Burroughs</i></p>
+> <b>Even with, or perhaps, because of, this background, I have over the past few years sensed a very dramatic change in attitude on the part of Prince Edward Islanders towards the on-going rush for so-called modernization.</b>
+> <p><i>Alex Campbell</i></p>
 
 <br>
