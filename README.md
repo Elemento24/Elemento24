@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even with, or perhaps, because of, this background, I have over the past few years sensed a very dramatic change in attitude on the part of Prince Edward Islanders towards the on-going rush for so-called modernization.</b>
-> <p><i>Alex Campbell</i></p>
+> <b>You wouldn't want to be called a sell-out by selling a product. Selling out was frowned on, whereas now you can major in it at business school.</b>
+> <p><i>Alan Alda</i></p>
 
 <br>
