@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Younger women have no problem in reconciling beauty with ambitions as a professional woman.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>I have never been able to grasp the meaning of time. I don't believe it exists. I've felt this again and again, when alone and out in nature. On such occasions, time does not exist. Nor does the future exist.</b>
+> <p><i>Thor Heyerdahl</i></p>
 
 <br>
