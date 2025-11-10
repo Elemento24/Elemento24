@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of people think Formula One isn't a sport because everyone drives a car when they go to work in the morning. But we're pulling up to six G on a corner or during breaking, which is almost like being a fighter pilot. So we have to do a lot of work on our neck muscles.</b>
-> <p><i>Jenson Button</i></p>
+> <b>We all know now that people can look good for their age. It isn't so extraordinary, I don't know why people go on about it so much.</b>
+> <p><i>Francesca Annis</i></p>
 
 <br>
