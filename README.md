@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rashness belongs to youth prudence to old age.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>I was willing to accept what I couldn't change.</b>
+> <p><i>Abdul Kalam</i></p>
 
 <br>
