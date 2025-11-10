@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was willing to accept what I couldn't change.</b>
-> <p><i>Abdul Kalam</i></p>
+> <b>Common sense is the collection of prejudices acquired by age eighteen.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
