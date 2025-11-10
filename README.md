@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have never been able to grasp the meaning of time. I don't believe it exists. I've felt this again and again, when alone and out in nature. On such occasions, time does not exist. Nor does the future exist.</b>
-> <p><i>Thor Heyerdahl</i></p>
+> <b>The chances of a bank going out of business are extremely slim, but it's always a good idea to spread around major sums so every penny is backed by insurance.</b>
+> <p><i>Suze Orman</i></p>
 
 <br>
