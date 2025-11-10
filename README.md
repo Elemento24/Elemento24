@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unless we love and are loved, each of us is alone, each of us is deeply lonely.</b>
-> <p><i>Mortimer Adler</i></p>
+> <b>Rashness belongs to youth prudence to old age.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
