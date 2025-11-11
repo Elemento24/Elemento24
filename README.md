@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and brains, pleasure and usability - they should go hand in hand.</b>
-> <p><i>Donald Norman</i></p>
+> <b>Power will intoxicate the best hearts, as wine the strongest heads. No man is wise enough, nor good enough to be trusted with unlimited power.</b>
+> <p><i>Charles Caleb Colton</i></p>
 
 <br>
