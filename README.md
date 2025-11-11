@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're an entrepreneur and you think that the president makes a difference to your business, you should stay at your current job.</b>
-> <p><i>Guy Kawasaki</i></p>
+> <b>In terms of the technology I use the most, it's probably a tie between my Blackberry and my MacBook Pro laptop. That's how I communicate with the rest of the world and how I handle all the business I have to handle.</b>
+> <p><i>John Legend</i></p>
 
 <br>
