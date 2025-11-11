@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sleep is good, death is better but of course, the best thing would to have never been born at all.</b>
-> <p><i>Heinrich Heine</i></p>
+> <b>The dialogue between client and architect is about as intimate as any conversation you can have, because when you're talking about building a house, you're talking about dreams.</b>
+> <p><i>Robert A. M. Stern</i></p>
 
 <br>
