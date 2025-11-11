@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Allowing children to show their guilt, show their grief, show their anger, takes the sting out of the situation.</b>
-> <p><i>Martha Beck</i></p>
+> <b>I love to be alone. I never found the companion that was so companionable as solitude.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
