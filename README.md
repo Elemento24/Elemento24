@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In terms of the technology I use the most, it's probably a tie between my Blackberry and my MacBook Pro laptop. That's how I communicate with the rest of the world and how I handle all the business I have to handle.</b>
-> <p><i>John Legend</i></p>
+> <b>Had 'Bridesmaids' not ended up being so amazing and successful, we would never have been able to make 'Bachelorette.' So we are in awe of 'Bridesmaids' and totally owe them so much.</b>
+> <p><i>Lizzy Caplan</i></p>
 
 <br>
