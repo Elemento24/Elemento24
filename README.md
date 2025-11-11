@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Power will intoxicate the best hearts, as wine the strongest heads. No man is wise enough, nor good enough to be trusted with unlimited power.</b>
-> <p><i>Charles Caleb Colton</i></p>
+> <b>A national political campaign is better than the best circus ever heard of, with a mass baptism and a couple of hangings thrown in.</b>
+> <p><i>H. L. Mencken</i></p>
 
 <br>
