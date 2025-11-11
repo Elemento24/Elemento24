@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We all know now that people can look good for their age. It isn't so extraordinary, I don't know why people go on about it so much.</b>
-> <p><i>Francesca Annis</i></p>
+> <b>Allowing children to show their guilt, show their grief, show their anger, takes the sting out of the situation.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
