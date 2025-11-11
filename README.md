@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are all revolutionaries now, addicts of change.</b>
-> <p><i>Christopher Lasch</i></p>
+> <b>Sure I played, did you think I was born at the age of 70 sitting in a dugout trying to manage guys like you?</b>
+> <p><i>Casey Stengel</i></p>
 
 <br>
