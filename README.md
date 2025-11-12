@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitudes are more important than facts.</b>
-> <p><i>George MacDonald</i></p>
+> <b>Let us take things as we find them: let us not attempt to distort them into what they are not... We cannot make facts. All our wishing cannot change them. We must use them.</b>
+> <p><i>John Henry Newman</i></p>
 
 <br>
