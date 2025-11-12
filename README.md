@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It can be kind of gruesome at times, making things alone.</b>
-> <p><i>Jenny Holzer</i></p>
+> <b>In the laughing times we know that we are lucky, and in the quiet times we know that we are blessed. And we will not be alone.</b>
+> <p><i>Dar Williams</i></p>
 
 <br>
