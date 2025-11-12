@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I could set a world record, it would be that I have 150 business partners, all with thriving businesses of their own that started with nothing and I made the difference to make them all billionaires.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>Mr. Janet Reno? I think Mr. Janet Reno... I think he's one of the best hunting dogs in the world.</b>
+> <p><i>Ted Nugent</i></p>
 
 <br>
