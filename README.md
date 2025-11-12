@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is produced by the pleasing appearance and good taste of the whole, and by the dimensions of all the parts being duly proportioned to each other.</b>
-> <p><i>Marcus V. Pollio</i></p>
+> <b>Old age is the most unexpected of all the things that can happen to a man.</b>
+> <p><i>James Thurber</i></p>
 
 <br>
