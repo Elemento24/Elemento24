@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the laughing times we know that we are lucky, and in the quiet times we know that we are blessed. And we will not be alone.</b>
-> <p><i>Dar Williams</i></p>
+> <b>I was a queen, and you took away my crown a wife, and you killed my husband a mother, and you deprived me of my children. My blood alone remains: take it, but do not make me suffer long.</b>
+> <p><i>Marie Antoinette</i></p>
 
 <br>
