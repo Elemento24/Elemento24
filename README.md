@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In every man's heart there is a secret nerve that answers to the vibrations of beauty.</b>
-> <p><i>Christopher Morley</i></p>
+> <b>Health is the thing that makes you feel that now is the best time of the year.</b>
+> <p><i>Franklin P. Adams</i></p>
 
 <br>
