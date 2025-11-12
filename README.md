@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Interventions are really emotionally exhausting and I would never ever want to have one. In the same way, I would never want to have a surprise birthday party. That would be horrible.</b>
-> <p><i>Margaret Cho</i></p>
+> <b>In every man's heart there is a secret nerve that answers to the vibrations of beauty.</b>
+> <p><i>Christopher Morley</i></p>
 
 <br>
