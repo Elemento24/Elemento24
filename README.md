@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The music is first and foremost everything - no egos, no attitude, nothing - it's about the music.</b>
-> <p><i>Big Boi</i></p>
+> <b>Vengeance is not the point change is. But the trouble is that in most people's minds the thought of victory and the thought of punishing the enemy coincide.</b>
+> <p><i>Barbara Deming</i></p>
 
 <br>
