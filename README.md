@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mr. Janet Reno? I think Mr. Janet Reno... I think he's one of the best hunting dogs in the world.</b>
-> <p><i>Ted Nugent</i></p>
+> <b>The camera fails to capture the 'business' in show business! We typically will give 10 percent of our salary to the agent, 10 percent to the manager, and 5 percent to the lawyer, plus the publicist gets a flat fee, which needs to be budgeted for.</b>
+> <p><i>Danica McKellar</i></p>
 
 <br>
