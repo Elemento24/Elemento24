@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change alone is unchanging.</b>
-> <p><i>Heraclitus</i></p>
+> <b>It can be kind of gruesome at times, making things alone.</b>
+> <p><i>Jenny Holzer</i></p>
 
 <br>
