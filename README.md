@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Vengeance is not the point change is. But the trouble is that in most people's minds the thought of victory and the thought of punishing the enemy coincide.</b>
-> <p><i>Barbara Deming</i></p>
+> <b>Beauty is produced by the pleasing appearance and good taste of the whole, and by the dimensions of all the parts being duly proportioned to each other.</b>
+> <p><i>Marcus V. Pollio</i></p>
 
 <br>
