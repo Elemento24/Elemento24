@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was a queen, and you took away my crown a wife, and you killed my husband a mother, and you deprived me of my children. My blood alone remains: take it, but do not make me suffer long.</b>
-> <p><i>Marie Antoinette</i></p>
+> <b>There are two kinds of artists in this world those that work because the spirit is in them, and they cannot be silent if they would, and those that speak from a conscientious desire to make apparent to others the beauty that has awakened their own admiration.</b>
+> <p><i>Anna Katharine Green</i></p>
 
 <br>
