@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is always the best policy to speak the truth, unless, of course, you are an exceptionally good liar.</b>
-> <p><i>Jerome K. Jerome</i></p>
+> <b>Youth is the gift of nature, but age is a work of art.</b>
+> <p><i>Stanislaw Lec</i></p>
 
 <br>
