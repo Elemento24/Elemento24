@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Common looking people are the best in the world: that is the reason the Lord makes so many of them.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>The Jew does not wish to be isolated. He fears being alone, without allies.</b>
+> <p><i>Meir Kahane</i></p>
 
 <br>
