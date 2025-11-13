@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Health is the thing that makes you feel that now is the best time of the year.</b>
-> <p><i>Franklin P. Adams</i></p>
+> <b>Old age is ready to undertake tasks that youth shirked because they would take too long.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
