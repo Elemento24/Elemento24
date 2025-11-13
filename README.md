@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Guys want a 500 horsepower car. I'd rather have one horsepower - in a horse. That's macho. You go to pick up your date and you show up on a horse.</b>
-> <p><i>Bryan Callen</i></p>
+> <b>It is always the best policy to speak the truth, unless, of course, you are an exceptionally good liar.</b>
+> <p><i>Jerome K. Jerome</i></p>
 
 <br>
