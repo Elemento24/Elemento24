@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been such a deep and amazing journey for me, getting close to John Keats, and also I love Shelley and Byron. I mean, the thing about the Romantic poets is that they've got the epitaph of romantic posthumously. They all died really young, and Keats, the youngest of them all.</b>
-> <p><i>Jane Campion</i></p>
+> <b>A mode of conduct, a standard of courage, discipline, fortitude and integrity can do a great deal to make a woman beautiful.</b>
+> <p><i>Jacqueline Bisset</i></p>
 
 <br>
