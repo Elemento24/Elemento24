@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a horrible visual artist. I can't fix a car, sew, knit, cook, etc. Statistically, there is more I don't do than do.</b>
-> <p><i>Carrie Brownstein</i></p>
+> <b>I get all fired up about aging in America.</b>
+> <p><i>Willard Scott</i></p>
 
 <br>
