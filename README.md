@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All conservatism is based upon the idea that if you leave things alone you leave them as they are. But you do not. If you leave a thing alone you leave it to a torrent of change.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>I don't like to produce albums. I hate producing albums, as a matter of fact, because I'm an obsessed mixer and I can't leave it alone.</b>
+> <p><i>David Friedman</i></p>
 
 <br>
