@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, old age is always fifteen years older than I am.</b>
-> <p><i>Bernard Baruch</i></p>
+> <b>Common looking people are the best in the world: that is the reason the Lord makes so many of them.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
