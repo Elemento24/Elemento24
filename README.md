@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get all fired up about aging in America.</b>
-> <p><i>Willard Scott</i></p>
+> <b>For me art and chess are closely related, both are forms in which the self finds beauty and expression.</b>
+> <p><i>Vladimir Kramnik</i></p>
 
 <br>
