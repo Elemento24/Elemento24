@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a big popcorn fanatic. I love popcorn. In fact one year for my birthday, my husband bought me one of those big popcorn machines like they have in movie theaters.</b>
-> <p><i>Debbie Macomber</i></p>
+> <b>Virtue is not left to stand alone. He who practices it will have neighbors.</b>
+> <p><i>Confucius</i></p>
 
 <br>
