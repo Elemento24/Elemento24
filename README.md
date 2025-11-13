@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like to produce albums. I hate producing albums, as a matter of fact, because I'm an obsessed mixer and I can't leave it alone.</b>
-> <p><i>David Friedman</i></p>
+> <b>If bad things are going to be said about me, I have to bear that. If I don't understand that it's part of being in show business, then I'd better go work in a bank.</b>
+> <p><i>Antonio Banderas</i></p>
 
 <br>
