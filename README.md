@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you eat something and get fat, you should be responsible for it. I think that is the attitude of the great majority of Americans, that you should be responsible for what you eat.</b>
-> <p><i>Vic Snyder</i></p>
+> <b>It is sad to grow old but nice to ripen.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
