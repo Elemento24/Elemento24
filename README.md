@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh, if I had been loved at the age of seventeen, what an idiot I would be today. Happiness is like smallpox: if you catch it too soon, it can completely ruin your constitution.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>You just can't get too focused on worrying about what's going to happen in the next quarter. You have to worry about where the business is headed long-term.</b>
+> <p><i>James Sinegal</i></p>
 
 <br>
