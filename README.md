@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can rule ignorance you can manipulate the illiterate you can do whatever you want when a people are uneducated, so that goes in line with corrupt business and corrupt politics.</b>
-> <p><i>will.i.am</i></p>
+> <b>It's sad, actually, because my anxiety keeps me from enjoying things as much as I should at this age.</b>
+> <p><i>Amanda Seyfried</i></p>
 
 <br>
