@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get uncomfortable when people give me presents and watch me open them. I don't have birthday parties, because the idea of a group of people singing and looking at me while I'm blowing out candles gives me hives.</b>
-> <p><i>Brit Marling</i></p>
+> <b>The beauty of golf, you're in charge out here.</b>
+> <p><i>Mike Weir</i></p>
 
 <br>
