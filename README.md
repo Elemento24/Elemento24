@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Show me a man who lives alone and has a perpetually clean kitchen, and 8 times out of 9 I'll show you a man with detestable spiritual qualities.</b>
-> <p><i>Charles Bukowski</i></p>
+> <b>We couldn't get the car back until well after the end of the race and we had very little time for repairs.</b>
+> <p><i>John Surtees</i></p>
 
 <br>
