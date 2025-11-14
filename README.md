@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's an amazing quality to be able to roll with the punches and not be totally ruined as a person because life's been rough for you. That's a really admirable way to go through your life.</b>
-> <p><i>Anna Paquin</i></p>
+> <b>Oh, if I had been loved at the age of seventeen, what an idiot I would be today. Happiness is like smallpox: if you catch it too soon, it can completely ruin your constitution.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
