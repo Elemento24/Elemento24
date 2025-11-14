@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is an exciting business, and most exciting when it is lived for others.</b>
-> <p><i>Helen Keller</i></p>
+> <b>In Sleep we lie all naked and alone, in Sleep we are united at the heart of night and darkness, and we are strange and beautiful asleep for we are dying the darkness and we know no death.</b>
+> <p><i>Thomas Wolfe</i></p>
 
 <br>
