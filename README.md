@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of times I find that people who are blessed with the most talent don't ever develop that attitude, and the ones who aren't blessed in that way are the most competitive and have the biggest heart.</b>
-> <p><i>Tom Brady</i></p>
+> <b>It's amazing the clarity that comes with psychotic jealousy.</b>
+> <p><i>Rupert Everett</i></p>
 
 <br>
