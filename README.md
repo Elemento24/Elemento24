@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is best to avoid the beginnings of evil.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Not having to own a car has made me realize what a waste of time the automobile is.</b>
+> <p><i>Diane Johnson</i></p>
 
 <br>
