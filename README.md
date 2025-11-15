@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For me, I don't expect to have a really amazing meal each time I dine out. Having a good meal with your loved ones - that's what makes the experience.</b>
-> <p><i>Wolfgang Puck</i></p>
+> <b>Life's too short when you find yourself sitting in a car for four hours every day trying to get from East L.A. to West L.A. to Hollywood and then back to East L.A.</b>
+> <p><i>Garrett Hedlund</i></p>
 
 <br>
