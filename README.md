@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Finds progress, man's distinctive mark alone, Not God's, and not the beast's God is, they are, Man partly is, and wholly hopes to be.</b>
-> <p><i>Robert Browning</i></p>
+> <b>Any change is resisted because bureaucrats have a vested interest in the chaos in which they exist.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
