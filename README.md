@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dogs feel very strongly that they should always go with you in the car, in case the need should arise for them to bark violently at nothing right in your ear.</b>
-> <p><i>Dave Barry</i></p>
+> <b>Once I got out of architecture school I decided not to be an architect, I just started my own little design studio.</b>
+> <p><i>Joseph Kosinski</i></p>
 
 <br>
