@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I am not going to live for ever. And the more I know it, the more amazed I am by being here at all.</b>
-> <p><i>William Hurt</i></p>
+> <b>Anything that's different from your own realm of experience as a human being, whether it's driving a car or a boat, or using guns, anything that separates you from yourself and leads you more towards this character's existence is a big help.</b>
+> <p><i>Colin Farrell</i></p>
 
 <br>
