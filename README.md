@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anything that's different from your own realm of experience as a human being, whether it's driving a car or a boat, or using guns, anything that separates you from yourself and leads you more towards this character's existence is a big help.</b>
-> <p><i>Colin Farrell</i></p>
+> <b>It is with rivers as it is with people: the greatest are not always the most agreeable nor the best to live with.</b>
+> <p><i>Henry Van Dyke</i></p>
 
 <br>
