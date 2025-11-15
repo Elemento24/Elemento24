@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's great about TV, and what I love about being on 'Parenthood,' is you have this family. I'm now going on four years of working with the same 100 people, and that helps you feel like your life has more roots. It's more conducive to having a family, and you're staying in town. So that part is amazing.</b>
-> <p><i>Dax Shepard</i></p>
+> <b>I've created, directed and choreographed for Lady Gaga since the beginning, so 'Born This Way,' this was musically such an amazing evolution and such a brilliant record. So when she played it for me, it took me a while to find out the visual interpretation that I could give back to her.</b>
+> <p><i>Laurieann Gibson</i></p>
 
 <br>
