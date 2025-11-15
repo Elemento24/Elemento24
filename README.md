@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never run into a guy who could win at the top level in anything today and didn't have the right attitude, didn't give it everything he had, at least while he was doing it wasn't prepared and didn't have the whole program worked out.</b>
-> <p><i>Ted Turner</i></p>
+> <b>But I am not going to live for ever. And the more I know it, the more amazed I am by being here at all.</b>
+> <p><i>William Hurt</i></p>
 
 <br>
