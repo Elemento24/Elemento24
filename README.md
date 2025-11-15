@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life's too short when you find yourself sitting in a car for four hours every day trying to get from East L.A. to West L.A. to Hollywood and then back to East L.A.</b>
-> <p><i>Garrett Hedlund</i></p>
+> <b>There's this thing of you can live in a city and be completely alone, not notice anything going on around you.</b>
+> <p><i>Simon Pegg</i></p>
 
 <br>
