@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of voice-over work is that maybe you come in and record once every two weeks for a couple of hours and do a couple episodes a session. It's awesome! You spend an afternoon playing in the booth, and there you have it. It doesn't interfere with much.</b>
-> <p><i>Emmanuelle Chriqui</i></p>
+> <b>Always remember that the future comes one day at a time.</b>
+> <p><i>Dean Acheson</i></p>
 
 <br>
