@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any change is resisted because bureaucrats have a vested interest in the chaos in which they exist.</b>
-> <p><i>Richard M. Nixon</i></p>
+> <b>I have always been a business person.</b>
+> <p><i>Bethenny Frankel</i></p>
 
 <br>
