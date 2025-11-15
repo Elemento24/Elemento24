@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always been a business person.</b>
-> <p><i>Bethenny Frankel</i></p>
+> <b>We should often feel ashamed of our best actions if the world could see all the motives which produced them.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
