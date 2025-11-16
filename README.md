@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Doing the best at this moment puts you in the best place for the next moment.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>The successful man is the one who finds out what is the matter with his business before his competitors do.</b>
+> <p><i>Roy L. Smith</i></p>
 
 <br>
