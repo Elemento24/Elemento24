@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The successful man is the one who finds out what is the matter with his business before his competitors do.</b>
-> <p><i>Roy L. Smith</i></p>
+> <b>The wisdom of age: don't stop walking.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
