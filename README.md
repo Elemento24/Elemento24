@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was one of those evenings when men feel that truth, goodness and beauty are one. In the morning, when they commit their discovery to paper, when others read it written there, it looks wholly ridiculous.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>Tact is the art of making a point without making an enemy.</b>
+> <p><i>Isaac Newton</i></p>
 
 <br>
