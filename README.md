@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think your alcohol intake has to change. You know, usually a big person feels they can drink anything they want to and as much as they want to and I've cut that way back.</b>
-> <p><i>Mike Ditka</i></p>
+> <b>Life expectancy in many parts of Africa can be something around the age of thirty five to thirty eight. I mean you're very fortunate if you live to that age. In fact when I went to Uganda for the first time one of the things that occurred to me was that I saw very few elderly people.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
