@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I still don't like going to bed alone.</b>
-> <p><i>James Franco</i></p>
+> <b>It's hard for women at my age in Hollywood, but I'm not discouraged.</b>
+> <p><i>Jane Fonda</i></p>
 
 <br>
