@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look, demanding somebody do anything in this day and age is not going to fly.</b>
-> <p><i>John Mayer</i></p>
+> <b>Be courageous. I have seen many depressions in business. Always America has emerged from these stronger and more prosperous. Be brave as your fathers before you. Have faith! Go forward!</b>
+> <p><i>Thomas A. Edison</i></p>
 
 <br>
