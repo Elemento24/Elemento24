@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Believe me, that was a happy age, before the days of architects, before the days of builders.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>The intoxication of anger, like that of the grape, shows us to others, but hides us from ourselves.</b>
+> <p><i>John Dryden</i></p>
 
 <br>
