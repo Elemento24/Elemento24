@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Tact is the art of making a point without making an enemy.</b>
-> <p><i>Isaac Newton</i></p>
+> <b>By being friends with all, we are not alone.</b>
+> <p><i>Hamad bin Isa Al Khalifa</i></p>
 
 <br>
