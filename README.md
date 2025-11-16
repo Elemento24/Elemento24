@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By being friends with all, we are not alone.</b>
-> <p><i>Hamad bin Isa Al Khalifa</i></p>
+> <b>I think your alcohol intake has to change. You know, usually a big person feels they can drink anything they want to and as much as they want to and I've cut that way back.</b>
+> <p><i>Mike Ditka</i></p>
 
 <br>
