@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always feel like the art's there and I just see it, so it's not really a lot of work.</b>
-> <p><i>Damien Hirst</i></p>
+> <b>I search for surprise in my architecture. A work of art should cause the emotion of newness.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
