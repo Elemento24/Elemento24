@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The intoxication of anger, like that of the grape, shows us to others, but hides us from ourselves.</b>
-> <p><i>John Dryden</i></p>
+> <b>When thinking about companions gone, we feel ourselves doubly alone.</b>
+> <p><i>Walter Scott</i></p>
 
 <br>
