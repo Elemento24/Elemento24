@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The artist must create a spark before he can make a fire and before art is born, the artist must be ready to be consumed by the fire of his own creation.</b>
-> <p><i>Auguste Rodin</i></p>
+> <b>No, but way before that, I've been doing little dances in movies for years. Yeah, that was an amazing chance. You know, at my age to be able to do a music dance video, very unusual.</b>
+> <p><i>Christopher Walken</i></p>
 
 <br>
