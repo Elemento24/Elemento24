@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like charity, I believe glamour should begin at home.</b>
-> <p><i>Loretta Young</i></p>
+> <b>It seems that when you have cancer you are a brave battler against the disease, but when you have Alzheimer's you are an old fart. That's how people see you. It makes you feel quite alone.</b>
+> <p><i>Terry Pratchett</i></p>
 
 <br>
