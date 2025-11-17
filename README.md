@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Turkey wants a policy of engagement exactly like President Obama's new approach. Policy of engagement, less confrontation, less tense attitude, especially in the region.</b>
-> <p><i>Ahmet Davutoglu</i></p>
+> <b>You should not consider a man's age but his acts.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
