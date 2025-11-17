@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wisdom alone is the science of other sciences.</b>
-> <p><i>Plato</i></p>
+> <b>The best way to keep one's word is not to give it.</b>
+> <p><i>Napoleon Bonaparte</i></p>
 
 <br>
