@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not afraid of aging.</b>
-> <p><i>Shelley Duvall</i></p>
+> <b>A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.</b>
+> <p><i>Horace</i></p>
 
 <br>
