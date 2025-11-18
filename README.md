@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up on the golden age of children's TV.</b>
-> <p><i>Edward Norton</i></p>
+> <b>It's odd, because I used to see pictures, on telly or wherever, of what I now know to be Shaftesbury Avenue and I used to wonder what that amazing street with all the lights was. Well, now I know. I think when you get a wee taste of something, it maybe isn't what you thought it was.</b>
+> <p><i>Shirley Henderson</i></p>
 
 <br>
