@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think my principles change. I think the way in which you apply those principles to modern society changes.</b>
-> <p><i>William Hague</i></p>
+> <b>It's amazing what we can get away with and what we can't. But it's not for me to decide.</b>
+> <p><i>Mike Judge</i></p>
 
 <br>
