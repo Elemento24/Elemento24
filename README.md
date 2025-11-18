@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A couple of months ago, I was down in Florida for the Food and Wine Festival. And this journalist grabbed me and said, 'How does it feel to be a TV guy? You're no longer in the restaurant business.' And I laughed. I asked him, 'How long do you think it takes me to do a season?' He said, 'Well, 200 days.' And I was like, '200 days? Try 20!'</b>
-> <p><i>Tom Colicchio</i></p>
+> <b>There is at least one point in the history of any company when you have to change dramatically to rise to the next level of performance. Miss that moment - and you start to decline.</b>
+> <p><i>Andy Grove</i></p>
 
 <br>
