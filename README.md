@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For every minute you remain angry, you give up sixty seconds of peace of mind.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>I love being around my friends and my family and spending time with my husband. I like being normal and recharging my batteries, and I feel like I have the coolest job in the world where I get to get on stage and perform and get to do a lot of really amazing things.</b>
+> <p><i>Carrie Underwood</i></p>
 
 <br>
