@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My favorite laser disk ever was the laser disk for The Graduate, which had a commentary track that wasn't even the filmmakers, it was a professor, some film criticism guy who just happen to be this amazing commentator who went off into the whole theory of comedy.</b>
-> <p><i>Jay Roach</i></p>
+> <b>You need only reflect that one of the best ways to get yourself a reputation as a dangerous citizen these days is to go about repeating the very phrases which our founding fathers used in the struggle for independence.</b>
+> <p><i>Charles A. Beard</i></p>
 
 <br>
