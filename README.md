@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our humor turns our anger into a fine art.</b>
-> <p><i>Mary Kay Blakely</i></p>
+> <b>Much good art got made while money ruled I like a lot of it, and hardship and poverty aren't virtues. The good news is that, since almost no one will be selling art, artists - especially emerging ones - won't have to think about turning out a consistent style or creating a brand. They'll be able to experiment as much as they want.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
