@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I only know it takes weeks to recover, as if one had been in a car accident.</b>
-> <p><i>Patricia Highsmith</i></p>
+> <b>I don't think my principles change. I think the way in which you apply those principles to modern society changes.</b>
+> <p><i>William Hague</i></p>
 
 <br>
