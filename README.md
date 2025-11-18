@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Glasgow's not a media center. When you're there, when you're hanging about, you feel quite detached from musical movements or fashions or anything like that. You do feel quite alone, in a good way.</b>
-> <p><i>Alex Kapranos</i></p>
+> <b>Our humor turns our anger into a fine art.</b>
+> <p><i>Mary Kay Blakely</i></p>
 
 <br>
