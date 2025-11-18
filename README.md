@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing what we can get away with and what we can't. But it's not for me to decide.</b>
-> <p><i>Mike Judge</i></p>
+> <b>Glasgow's not a media center. When you're there, when you're hanging about, you feel quite detached from musical movements or fashions or anything like that. You do feel quite alone, in a good way.</b>
+> <p><i>Alex Kapranos</i></p>
 
 <br>
