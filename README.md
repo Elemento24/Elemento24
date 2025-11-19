@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have got to change our ethics and our financial system and our whole way of understanding the world. It has to be a world in which people live rather than die a sustainable world. It could be great.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>Civilization had too many rules for me, so I did my best to rewrite them.</b>
+> <p><i>Bill Cosby</i></p>
 
 <br>
