@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Who among us has never looked up into the heavens on a starlit night, lost in wonder at the vastness of space and the beauty of the stars?</b>
-> <p><i>Jeb Bush</i></p>
+> <b>I would be married, but I'd have no wife, I would be married to a single life.</b>
+> <p><i>Charles Bukowski</i></p>
 
 <br>
