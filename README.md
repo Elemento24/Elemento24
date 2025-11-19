@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of living well and the art of dying well are one.</b>
-> <p><i>Epicurus</i></p>
+> <b>The second album was emotionally exhausting and my life felt like it had become very serious at a very young age.</b>
+> <p><i>Delta Goodrem</i></p>
 
 <br>
