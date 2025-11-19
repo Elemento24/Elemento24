@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage is a coming together for better or for worse, hopefully enduring, and intimate to the degree of being sacred.</b>
-> <p><i>William O. Douglas</i></p>
+> <b>I've had to calm down, I have a kid! It is amazing. It's the best thing ever. Nothing better than it.</b>
+> <p><i>Kevin Pietersen</i></p>
 
 <br>
