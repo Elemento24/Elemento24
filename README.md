@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know what I really love? The CD players in a car. How when you put the CD right up by the slot, it actually takes it out of your hand, like it's hungry. It pulls it in, and you feel like it wants more silver discs.</b>
-> <p><i>Tom Waits</i></p>
+> <b>We have got to change our ethics and our financial system and our whole way of understanding the world. It has to be a world in which people live rather than die a sustainable world. It could be great.</b>
+> <p><i>Vivienne Westwood</i></p>
 
 <br>
