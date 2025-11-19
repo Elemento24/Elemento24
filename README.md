@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty fades! I just turned 29, so I probably don't have that many good years left in me.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>That sort of half sigh, which, accompanied by two or three slight nods of the head, is pity's small change in general society.</b>
+> <p><i>Charles Dickens</i></p>
 
 <br>
