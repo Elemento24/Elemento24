@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Civilization had too many rules for me, so I did my best to rewrite them.</b>
-> <p><i>Bill Cosby</i></p>
+> <b>I have two ideas for novels at the moment, neither of them all that conventional, but I'm not ready to choose between them yet, let alone settle down to the process of writing.</b>
+> <p><i>Jonathan Coe</i></p>
 
 <br>
