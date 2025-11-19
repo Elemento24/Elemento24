@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The momentum of freedom in our world is unmistakable - and it is not carried forward by our power alone. We can trust in that greater power Who guides the unfolding of the years. And in all that is to come, we can know that His purposes are just and true.</b>
-> <p><i>George W. Bush</i></p>
+> <b>If we don't like what the Republicans do, we need to get in there and change it.</b>
+> <p><i>Medgar Evers</i></p>
 
 <br>
