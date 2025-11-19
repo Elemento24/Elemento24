@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The second album was emotionally exhausting and my life felt like it had become very serious at a very young age.</b>
-> <p><i>Delta Goodrem</i></p>
+> <b>Beauty fades! I just turned 29, so I probably don't have that many good years left in me.</b>
+> <p><i>Gwyneth Paltrow</i></p>
 
 <br>
