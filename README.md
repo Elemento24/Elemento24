@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had to calm down, I have a kid! It is amazing. It's the best thing ever. Nothing better than it.</b>
-> <p><i>Kevin Pietersen</i></p>
+> <b>Priests are not men of the world it is not intended that they should be and a University training is the one best adapted to prevent their becoming so.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
