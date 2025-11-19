@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Going to church doesn't make you any more a Christian than going to the garage makes you a car.</b>
-> <p><i>Laurence J. Peter</i></p>
+> <b>We have art in order not to die of the truth.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
