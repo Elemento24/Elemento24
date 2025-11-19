@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have art in order not to die of the truth.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>I am just at that stage of wondering where I go from here. I came into this business almost by accident, but now it has become serious. What started as a bit of fun, something to do other than be a model, has taken on a different career curve. I have been forced to ask where that curve is going to end up.</b>
+> <p><i>Cameron Diaz</i></p>
 
 <br>
