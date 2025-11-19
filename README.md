@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the most beautiful passages of Rousseau is that in the sixth book of Confessions, where he describes the awakening in him of the literary sense. Of such wisdom, the poetic passion, the desire of beauty, the love of art for its own sake, has most.</b>
-> <p><i>Walter Pater</i></p>
+> <b>Marriage is a coming together for better or for worse, hopefully enduring, and intimate to the degree of being sacred.</b>
+> <p><i>William O. Douglas</i></p>
 
 <br>
