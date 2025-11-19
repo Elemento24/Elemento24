@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would be married, but I'd have no wife, I would be married to a single life.</b>
-> <p><i>Charles Bukowski</i></p>
+> <b>The art of living well and the art of dying well are one.</b>
+> <p><i>Epicurus</i></p>
 
 <br>
