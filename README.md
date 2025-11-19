@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have two ideas for novels at the moment, neither of them all that conventional, but I'm not ready to choose between them yet, let alone settle down to the process of writing.</b>
-> <p><i>Jonathan Coe</i></p>
+> <b>The momentum of freedom in our world is unmistakable - and it is not carried forward by our power alone. We can trust in that greater power Who guides the unfolding of the years. And in all that is to come, we can know that His purposes are just and true.</b>
+> <p><i>George W. Bush</i></p>
 
 <br>
