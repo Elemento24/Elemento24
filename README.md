@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's when it really came together for me that I was in a Bond film, to have my own spy car!</b>
-> <p><i>Rick Yune</i></p>
+> <b>All the times being like, 'Who rented this car and why are we going to this place?' You take the easy route and go, 'Oh, thanks for the champagne. I'll have another.'</b>
+> <p><i>Rosario Dawson</i></p>
 
 <br>
