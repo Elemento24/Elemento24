@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The dialogue between client and architect is about as intimate as any conversation you can have, because when you're talking about building a house, you're talking about dreams.</b>
-> <p><i>Robert A. M. Stern</i></p>
+> <b>Painting, n.: The art of protecting flat surfaces from the weather, and exposing them to the critic.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
