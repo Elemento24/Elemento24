@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty always promises, but never gives anything.</b>
-> <p><i>Simone Weil</i></p>
+> <b>The only way to avoid being unhappy is to close yourself up in Art and to count for nothing all the rest.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
