@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Christina Ricci is amazing, the most professional actor I think I've ever met. You can be chatting with her and when they call action, she's right there.</b>
-> <p><i>Lisa Kudrow</i></p>
+> <b>I learned from a very young age that if I pursued the things that truly excited me, that they would reward in more important ways, like happiness.</b>
+> <p><i>Brandon Boyd</i></p>
 
 <br>
