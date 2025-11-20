@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't change on me. Don't extort me unless you intend to do it forever.</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>Can anyone understand how it is to have lived in the White House and then, suddenly, to be living alone as the President's widow?</b>
+> <p><i>Jackie Kennedy</i></p>
 
 <br>
