@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Under any circumstance, simply do your best, and you will avoid self-judgment, self-abuse and regret.</b>
-> <p><i>Miguel Angel Ruiz</i></p>
+> <b>The art of government is to make two-thirds of a nation pay all it possibly can pay for the benefit of the other third.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
