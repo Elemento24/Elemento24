@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Can anyone understand how it is to have lived in the White House and then, suddenly, to be living alone as the President's widow?</b>
-> <p><i>Jackie Kennedy</i></p>
+> <b>Christina Ricci is amazing, the most professional actor I think I've ever met. You can be chatting with her and when they call action, she's right there.</b>
+> <p><i>Lisa Kudrow</i></p>
 
 <br>
