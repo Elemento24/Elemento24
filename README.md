@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's odd, because I used to see pictures, on telly or wherever, of what I now know to be Shaftesbury Avenue and I used to wonder what that amazing street with all the lights was. Well, now I know. I think when you get a wee taste of something, it maybe isn't what you thought it was.</b>
-> <p><i>Shirley Henderson</i></p>
+> <b>The dialogue between client and architect is about as intimate as any conversation you can have, because when you're talking about building a house, you're talking about dreams.</b>
+> <p><i>Robert A. M. Stern</i></p>
 
 <br>
