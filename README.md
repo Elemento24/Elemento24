@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the times being like, 'Who rented this car and why are we going to this place?' You take the easy route and go, 'Oh, thanks for the champagne. I'll have another.'</b>
-> <p><i>Rosario Dawson</i></p>
+> <b>Don't change on me. Don't extort me unless you intend to do it forever.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
