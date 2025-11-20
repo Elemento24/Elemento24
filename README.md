@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After all these years, it's still amazing what Obama is allowed to get away with. He says low gas prices in 2009 were caused by a terrible economy, but then claims that the lower number of illegal aliens crossing the border is because of his border policies, not the same lousy economy.</b>
-> <p><i>Howie Carr</i></p>
+> <b>A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.</b>
+> <p><i>Horace</i></p>
 
 <br>
