@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way to avoid being unhappy is to close yourself up in Art and to count for nothing all the rest.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>Change is the end result of all true learning.</b>
+> <p><i>Leo Buscaglia</i></p>
 
 <br>
