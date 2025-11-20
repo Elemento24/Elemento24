@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned from a very young age that if I pursued the things that truly excited me, that they would reward in more important ways, like happiness.</b>
-> <p><i>Brandon Boyd</i></p>
+> <b>Anger may be kindled in the noblest breasts: but in these slow droppings of an unforgiving temper never takes the shape of consistency of enduring hatred.</b>
+> <p><i>M. Kathleen Casey</i></p>
 
 <br>
