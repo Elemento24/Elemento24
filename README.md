@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always thought that change you can see and feel is best.</b>
-> <p><i>Henry Rollins</i></p>
+> <b>Beauty always promises, but never gives anything.</b>
+> <p><i>Simone Weil</i></p>
 
 <br>
