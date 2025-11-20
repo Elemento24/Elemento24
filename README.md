@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.</b>
-> <p><i>Horace</i></p>
+> <b>In fact, it will be very easy to climb the building because of its shape and architecture.</b>
+> <p><i>Alain Robert</i></p>
 
 <br>
