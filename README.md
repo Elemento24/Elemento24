@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Living in an age of advertisement, we are perpetually disillusioned. The perfect life is spread before us every day, but it changes and withers at a touch.</b>
-> <p><i>J. B. Priestley</i></p>
+> <b>Prose is architecture, not interior decoration, and the Baroque is over.</b>
+> <p><i>Ernest Hemingway</i></p>
 
 <br>
