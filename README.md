@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All I owe the world is my art.</b>
-> <p><i>Sherman Alexie</i></p>
+> <b>A large income is the best recipe for happiness I ever heard of.</b>
+> <p><i>Jane Austen</i></p>
 
 <br>
