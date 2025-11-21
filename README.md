@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Literature isn't a moral beauty contest. Its power arises from the authority and audacity with which the impersonation is pulled off the belief it inspires is what counts.</b>
-> <p><i>Philip Roth</i></p>
+> <b>You wouldn't want to be called a sell-out by selling a product. Selling out was frowned on, whereas now you can major in it at business school.</b>
+> <p><i>Alan Alda</i></p>
 
 <br>
