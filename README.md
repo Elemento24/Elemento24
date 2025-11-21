@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People must feel that the natural world is important and valuable and beautiful and wonderful and an amazement and a pleasure.</b>
-> <p><i>David Attenborough</i></p>
+> <b>Follow sound business trends, not fashion trends.</b>
+> <p><i>Janice Dickinson</i></p>
 
 <br>
