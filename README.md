@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Follow sound business trends, not fashion trends.</b>
-> <p><i>Janice Dickinson</i></p>
+> <b>Architecture is my work, and I've spent my whole life at a drawing board, but life is more important than architecture. What matters is to improve human beings.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
