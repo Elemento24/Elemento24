@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With 'Twilight,' you have these massive tomes that you have to condense. With 'Penoza,' we had an eight episode Dutch series that, just for the pilot alone, I condensed three episodes. So, there's a lot of filling in and a ton of invention that has to happen to fill out eight episodes.</b>
-> <p><i>Melissa Rosenberg</i></p>
+> <b>To study the abnormal is the best way of understanding the normal.</b>
+> <p><i>William James</i></p>
 
 <br>
