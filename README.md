@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is my work, and I've spent my whole life at a drawing board, but life is more important than architecture. What matters is to improve human beings.</b>
-> <p><i>Oscar Niemeyer</i></p>
+> <b>I left my job in the fall, and now I can set my life up around writing instead of squeezing writing into my day it's amazing to have that time, and I feel very lucky.</b>
+> <p><i>Karen Thompson Walker</i></p>
 
 <br>
