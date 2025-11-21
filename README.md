@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I prefer to sing in the shower vs. the car. The shower is just steam, you know, its just you, and nature, and no clothing. You know, there's nothing separating you. It's just you, and the voice - you, and the water.</b>
-> <p><i>Jacob Lusk</i></p>
+> <b>Let the beauty of what you love be what you do.</b>
+> <p><i>Rumi</i></p>
 
 <br>
