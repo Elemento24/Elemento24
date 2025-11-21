@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let the beauty of what you love be what you do.</b>
-> <p><i>Rumi</i></p>
+> <b>You look at a herd of cattle and well, they all look the same... but they know. They all have an individual personality, and those personalities change from day to day. They can have their grumpy days and their happy days and their serene days. But it's unpredictable. You can't be off in outer space when you're dealing with animals.</b>
+> <p><i>Chris Cooper</i></p>
 
 <br>
