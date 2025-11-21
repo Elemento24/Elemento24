@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For, when with beauty we can virtue join, We paint the semblance of a form divine.</b>
-> <p><i>Matthew Prior</i></p>
+> <b>Gary Ross is amazing. He's just - he always has a billion ideas of what he wants, but has a very clear perspective also he just makes it work. He really does. He's trying different things and making everything look amazing.</b>
+> <p><i>Liam Hemsworth</i></p>
 
 <br>
