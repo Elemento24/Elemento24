@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I married two weeks after my 18th birthday, far too young, and by the time I was 23 I was a single mother of three small children, Sean, Daniel and Victoria, living in a prefab house.</b>
-> <p><i>Sue Townsend</i></p>
+> <b>I know no subject more elevating, more amazing, more ready to the poetical enthusiasm, the philosophical reflection, and the moral sentiment than the works of nature. Where can we meet such variety, such beauty, such magnificence?</b>
+> <p><i>James Thomson</i></p>
 
 <br>
