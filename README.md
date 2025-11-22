@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The history of art is the history of revivals.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>Man finds it hard to get what he wants, because he does not want the best God finds it hard to give, because He would give the best, and man will not take it.</b>
+> <p><i>George MacDonald</i></p>
 
 <br>
