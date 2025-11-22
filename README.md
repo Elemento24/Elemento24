@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that clearly it has an influence, to be coming of age during the punk rock era, to come from a difficult and sporadically violent background, to have been in and out of such chaos, I think it actually helps. But I don't know for sure.</b>
-> <p><i>Craig Ferguson</i></p>
+> <b>The racing driver's mind has to have the ability to have amazing anticipation, coordination, and reflex. Because of the speed the car goes.</b>
+> <p><i>Emerson Fittipaldi</i></p>
 
 <br>
