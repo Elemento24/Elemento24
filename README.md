@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good manners is the art of making those people easy with whom we converse. Whoever makes the fewest people uneasy is the best bred in the room.</b>
-> <p><i>Jonathan Swift</i></p>
+> <b>In the practical art of war, the best thing of all is to take the enemy's country whole and intact to shatter and destroy it is not so good.</b>
+> <p><i>Sun Tzu</i></p>
 
 <br>
