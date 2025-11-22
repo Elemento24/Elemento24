@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You owe it to yourself to be the best person possible. Because if you are, others will want to be with you, want to provide you with the things you want in exchange for what you're giving to them.</b>
-> <p><i>Harry Browne</i></p>
+> <b>When I started the business, I hardly went home. I became very driven about work and about my career.</b>
+> <p><i>Calvin Klein</i></p>
 
 <br>
