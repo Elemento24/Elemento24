@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is but the sensible image of the Infinite. Like truth and justice it lives within us like virtue and the moral law it is a companion of the soul.</b>
-> <p><i>George Bancroft</i></p>
+> <b>I've had an amazing professional life, personal life, but at 64 to have a son who gives us that much love and enjoyment is, wow!</b>
+> <p><i>Elton John</i></p>
 
 <br>
