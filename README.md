@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I started the business, I hardly went home. I became very driven about work and about my career.</b>
-> <p><i>Calvin Klein</i></p>
+> <b>Why do people talk of the horrors of old age? It's great. I feel like a fine old car with the parts gradually wearing out, but I'm not complaining,... Those who find growing old terrible are people who haven't done what they wanted with their lives.</b>
+> <p><i>Martha Gellhorn</i></p>
 
 <br>
