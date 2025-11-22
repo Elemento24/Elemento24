@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Generalised anger and frustration is something that gets you in the studio, and gets you to work - though it's not necessarily evident in anything that's finished.</b>
-> <p><i>Bruce Nauman</i></p>
+> <b>The best part of the art of living is to know how to grow old gracefully.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
