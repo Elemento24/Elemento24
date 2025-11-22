@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the biggest disease the world suffers from in this day and age is the disease of people feeling unloved. I know that I can give love for a minute, for half an hour, for a day, for a month, but I can give. I am very happy to do that, I want to do that.</b>
-> <p><i>Princess Diana</i></p>
+> <b>Every Body has so good an Opinion of their own Understanding as to think their own way the best.</b>
+> <p><i>Mary Astell</i></p>
 
 <br>
