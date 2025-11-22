@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know no subject more elevating, more amazing, more ready to the poetical enthusiasm, the philosophical reflection, and the moral sentiment than the works of nature. Where can we meet such variety, such beauty, such magnificence?</b>
-> <p><i>James Thomson</i></p>
+> <b>A couple of months ago, I was down in Florida for the Food and Wine Festival. And this journalist grabbed me and said, 'How does it feel to be a TV guy? You're no longer in the restaurant business.' And I laughed. I asked him, 'How long do you think it takes me to do a season?' He said, 'Well, 200 days.' And I was like, '200 days? Try 20!'</b>
+> <p><i>Tom Colicchio</i></p>
 
 <br>
