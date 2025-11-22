@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember reminding myself that beauty is an opinion, not a fact. And it has always made me feel better.</b>
-> <p><i>Hayden Panettiere</i></p>
+> <b>Every time I get into a Nationwide car after being in a Cup car, I feel so much more comfortable than I did previously.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
