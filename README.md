@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man finds it hard to get what he wants, because he does not want the best God finds it hard to give, because He would give the best, and man will not take it.</b>
-> <p><i>George MacDonald</i></p>
+> <b>Those who know the least obey the best.</b>
+> <p><i>George Farquhar</i></p>
 
 <br>
