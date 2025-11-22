@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My method of helping someone is saying, 'Wow, you look amazing. Let me help you look even better.' I think tearing someone down is an awful thing to do. It has a lasting impression on people.</b>
-> <p><i>Carson Kressley</i></p>
+> <b>That's the beauty of music. You can take a theme from a Bach sacred chorale and improvise. It doesn't make any difference where the theme comes from the treatment of it can be jazz.</b>
+> <p><i>Dave Brubeck</i></p>
 
 <br>
