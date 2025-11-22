@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the practical art of war, the best thing of all is to take the enemy's country whole and intact to shatter and destroy it is not so good.</b>
-> <p><i>Sun Tzu</i></p>
+> <b>The history of art is the history of revivals.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
