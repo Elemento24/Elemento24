@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a sensitive writer, actor and director. Talking business disgusts me. If you want to talk business, call my disgusting personal manager.</b>
-> <p><i>Sylvester Stallone</i></p>
+> <b>The knowledge of God is the cause of things. For the knowledge of God is to all creatures what the knowledge of the artificer is to things made by his art.</b>
+> <p><i>Thomas Aquinas</i></p>
 
 <br>
