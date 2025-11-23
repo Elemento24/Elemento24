@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the age of television, image becomes more important than substance.</b>
-> <p><i>S. I. Hayakawa</i></p>
+> <b>Information is the oxygen of the modern age. It seeps through the walls topped by barbed wire, it wafts across the electrified borders.</b>
+> <p><i>Ronald Reagan</i></p>
 
 <br>
