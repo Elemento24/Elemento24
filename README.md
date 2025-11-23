@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You must capture and keep the heart of the original and supremely able man before his brain can do its best.</b>
-> <p><i>Andrew Carnegie</i></p>
+> <b>Giving birth was the most amazing thing I've ever done. I'd been living in a Third World country, and I said, 'I'm going to just squat behind a tree.' I basically did that but in a chair in my living room. I didn't want a sterile hospital room. I didn't want doctors. I had a midwife.</b>
+> <p><i>Carolyn Murphy</i></p>
 
 <br>
