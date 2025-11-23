@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you examine this, I think that you will find that it's the mechanics of Japanese architecture that have been thought of as the direct influence upon our architecture.</b>
-> <p><i>Minoru Yamasaki</i></p>
+> <b>All through life I've harbored anger rather than expressed it at the moment.</b>
+> <p><i>Jessica Lange</i></p>
 
 <br>
