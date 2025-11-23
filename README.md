@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Giving birth was the most amazing thing I've ever done. I'd been living in a Third World country, and I said, 'I'm going to just squat behind a tree.' I basically did that but in a chair in my living room. I didn't want a sterile hospital room. I didn't want doctors. I had a midwife.</b>
-> <p><i>Carolyn Murphy</i></p>
+> <b>I cried on my 18th birthday. I thought 17 was such a nice age. You're young enough to get away with things, but you're old enough, too.</b>
+> <p><i>Liv Tyler</i></p>
 
 <br>
