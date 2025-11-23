@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cried on my 18th birthday. I thought 17 was such a nice age. You're young enough to get away with things, but you're old enough, too.</b>
-> <p><i>Liv Tyler</i></p>
+> <b>One of the amazing things about the Internet is that the content creators are the gatekeepers. We can think of an idea and execute it quickly, and we didn't have to pitch the idea to a major network or convince a studio head to sign-off on the concept.</b>
+> <p><i>Ray William Johnson</i></p>
 
 <br>
