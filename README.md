@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't have to worry about whether the car is set up right or not, you know it is, and it's down to you. Ultimately, that's what every driver wants.</b>
-> <p><i>Bobby Rahal</i></p>
+> <b>Inductive reason, which alone makes man master of his environment, is an achievement and when once born it must be reinforced by inhibiting the growth of other modes of knowledge.</b>
+> <p><i>Muhammad Iqbal</i></p>
 
 <br>
