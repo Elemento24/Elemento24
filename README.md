@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of life is to live in the present moment, and to make that moment as perfect as we can by the realization that we are the instruments and expression of God Himself.</b>
-> <p><i>Emmet Fox</i></p>
+> <b>Excellence is an art won by training and habituation. We do not act rightly because we have virtue or excellence, but we rather have those because we have acted rightly. We are what we repeatedly do. Excellence, then, is not an act but a habit.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
