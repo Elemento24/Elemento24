@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One thing, however, is sure, - that in all cases the effort should be to impose all the cost of repairing the wrong upon the doer of the wrong. This alone is real justice, and of course such justice is necessarily free.</b>
-> <p><i>Benjamin Tucker</i></p>
+> <b>To the press alone, chequered as it is with abuses, the world is indebted for all the triumphs which have been gained by reason and humanity over error and oppression.</b>
+> <p><i>James Madison</i></p>
 
 <br>
