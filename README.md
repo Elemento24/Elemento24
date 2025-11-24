@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Knowing that we can be loved exactly as we are gives us all the best opportunity for growing into the healthiest of people.</b>
-> <p><i>Fred Rogers</i></p>
+> <b>Poetry is the art of uniting pleasure with truth.</b>
+> <p><i>Samuel Johnson</i></p>
 
 <br>
