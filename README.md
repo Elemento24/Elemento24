@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry is the art of uniting pleasure with truth.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>I realize that protest paintings are not exactly in vogue, but I've done many.</b>
+> <p><i>Robert Indiana</i></p>
 
 <br>
