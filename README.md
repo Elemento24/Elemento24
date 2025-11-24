@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't find Hollywood interesting, so I'm thinking of studying architecture instead.</b>
-> <p><i>Hayden Christensen</i></p>
+> <b>I have to say, you know, I've seen so many people go through the cycle and become famous and not famous anymore and, you know, want - have their priorities change and want different things.</b>
+> <p><i>Rashida Jones</i></p>
 
 <br>
