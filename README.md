@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to serve chess through games, books that are works of art. I would like to bring the game closer to many people all over the world.</b>
-> <p><i>Garry Kasparov</i></p>
+> <b>A man of eighty has outlived probably three new schools of painting, two of architecture and poetry and a hundred in dress.</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
