@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Advertising is the greatest art form of the 20th century.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>I want to serve chess through games, books that are works of art. I would like to bring the game closer to many people all over the world.</b>
+> <p><i>Garry Kasparov</i></p>
 
 <br>
