@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My general attitude to life is to enjoy every minute of every day. I never do anything with a feeling of, 'Oh God, I've got to do this today.'</b>
-> <p><i>Richard Branson</i></p>
+> <b>I was equally in love with singing and acting from an early age.</b>
+> <p><i>Minnie Driver</i></p>
 
 <br>
