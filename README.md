@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is in moments of illness that we are compelled to recognize that we live not alone but chained to a creature of a different kingdom, whole worlds apart, who has no knowledge of us and by whom it is impossible to make ourselves understood: our body.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>The best beauty advice I ever received is to keep skin hydrated and limit harsh exposure to the sun. If you are set on the tanned look, there are plenty of great creams that will give you a healthy-looking glow.</b>
+> <p><i>Erica Durance</i></p>
 
 <br>
