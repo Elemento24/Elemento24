@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was equally in love with singing and acting from an early age.</b>
-> <p><i>Minnie Driver</i></p>
+> <b>The perfect life would be to have an amazing part every year and to spend all my free time to just write.</b>
+> <p><i>Melanie Laurent</i></p>
 
 <br>
