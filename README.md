@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's the beauty of being a comedian - it's the one job you're allowed to do that. We're lucky. We're really lucky.</b>
-> <p><i>Colin Quinn</i></p>
+> <b>The purely agitation attitude is not good enough for a detailed consideration of a subject.</b>
+> <p><i>Michael Korda</i></p>
 
 <br>
