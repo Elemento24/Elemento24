@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I quit college. I was studying architecture for about a year.</b>
-> <p><i>Barry Mann</i></p>
+> <b>Intelligence is the ability to adapt to change.</b>
+> <p><i>Stephen Hawking</i></p>
 
 <br>
