@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I realize that protest paintings are not exactly in vogue, but I've done many.</b>
-> <p><i>Robert Indiana</i></p>
+> <b>I don't find Hollywood interesting, so I'm thinking of studying architecture instead.</b>
+> <p><i>Hayden Christensen</i></p>
 
 <br>
