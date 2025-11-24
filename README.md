@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to say, you know, I've seen so many people go through the cycle and become famous and not famous anymore and, you know, want - have their priorities change and want different things.</b>
-> <p><i>Rashida Jones</i></p>
+> <b>My general attitude to life is to enjoy every minute of every day. I never do anything with a feeling of, 'Oh God, I've got to do this today.'</b>
+> <p><i>Richard Branson</i></p>
 
 <br>
