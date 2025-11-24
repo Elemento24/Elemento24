@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would have probably stolen cars - it would have given me the same adrenaline rush as racing.</b>
-> <p><i>Valentino Rossi</i></p>
+> <b>This is the patent age of new inventions for killing bodies, and for saving souls. All propagated with the best intentions.</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
