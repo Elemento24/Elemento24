@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whoever wants to know something about me - as an artist which alone is significant - they should look attentively at my pictures and there seek to recognise what I am and what I want.</b>
-> <p><i>Gustav Klimt</i></p>
+> <b>Knowing that we can be loved exactly as we are gives us all the best opportunity for growing into the healthiest of people.</b>
+> <p><i>Fred Rogers</i></p>
 
 <br>
