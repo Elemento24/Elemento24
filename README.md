@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the patent age of new inventions for killing bodies, and for saving souls. All propagated with the best intentions.</b>
-> <p><i>Lord Byron</i></p>
+> <b>Pink isn't just a color, it's an attitude!</b>
+> <p><i>Miley Cyrus</i></p>
 
 <br>
