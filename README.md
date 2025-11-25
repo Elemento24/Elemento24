@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a business you go into because your an egocentric. It's a very embarrassing profession.</b>
-> <p><i>Katharine Hepburn</i></p>
+> <b>If a person with a bullet in Dallas can change the world, imagine a person with an idea could do.</b>
+> <p><i>J. Michael Straczynski</i></p>
 
 <br>
