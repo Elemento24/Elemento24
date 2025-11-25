@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't walk alone. Many have given the illusion, but none have really walked alone. Man is not made that way. Each man is bedded in his people, their history, their culture, and their values.</b>
-> <p><i>Peter Abrahams</i></p>
+> <b>A positive attitude is something everyone can work on, and everyone can learn how to employ it.</b>
+> <p><i>Joan Lunden</i></p>
 
 <br>
