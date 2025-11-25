@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of being sick is not the same as the art of getting well.</b>
-> <p><i>Tony Snow</i></p>
+> <b>Middle age is when your broad mind and narrow waist begin to change places.</b>
+> <p><i>E. Joseph Cossman</i></p>
 
 <br>
