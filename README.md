@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people say I have attitude - maybe I do... but I think you have to. You have to believe in yourself when no one else does - that makes you a winner right there.</b>
-> <p><i>Venus Williams</i></p>
+> <b>It's a business you go into because your an egocentric. It's a very embarrassing profession.</b>
+> <p><i>Katharine Hepburn</i></p>
 
 <br>
