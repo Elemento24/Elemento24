@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is very important to generate a good attitude, a good heart, as much as possible. From this, happiness in both the short term and the long term for both yourself and others will come.</b>
-> <p><i>Dalai Lama</i></p>
+> <b>Alchemy is the art of far and near, and I think poetry is alchemy in that way. It's delightful to distort size, to see something that's tiny as though it were vast.</b>
+> <p><i>Robert Morgan</i></p>
 
 <br>
