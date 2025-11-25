@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The union movement has been the best middle class job creating program that America has ever had, and it doesn't cost the government a dime.</b>
-> <p><i>Andy Stern</i></p>
+> <b>Beauty seen is never lost, God's colors all are fast.</b>
+> <p><i>John Greenleaf Whittier</i></p>
 
 <br>
