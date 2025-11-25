@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is when your broad mind and narrow waist begin to change places.</b>
-> <p><i>E. Joseph Cossman</i></p>
+> <b>It is very important to generate a good attitude, a good heart, as much as possible. From this, happiness in both the short term and the long term for both yourself and others will come.</b>
+> <p><i>Dalai Lama</i></p>
 
 <br>
