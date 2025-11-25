@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being successful at a very young age gave me the confidence and the capability to try out other things.</b>
-> <p><i>Joshua Lederberg</i></p>
+> <b>Lorne finally said, Do the Blues Brothers thing. The response was amazing. People went nuts.</b>
+> <p><i>Steve Cropper</i></p>
 
 <br>
