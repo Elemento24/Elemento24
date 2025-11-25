@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a poor man and of little worth, who is laboring in that art that God has given me in order to extend my life as long as possible.</b>
-> <p><i>Michelangelo</i></p>
+> <b>Being successful at a very young age gave me the confidence and the capability to try out other things.</b>
+> <p><i>Joshua Lederberg</i></p>
 
 <br>
