@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty seen is never lost, God's colors all are fast.</b>
-> <p><i>John Greenleaf Whittier</i></p>
+> <b>After you're older, two things are possibly more important than any others: health and money.</b>
+> <p><i>Helen Gurley Brown</i></p>
 
 <br>
