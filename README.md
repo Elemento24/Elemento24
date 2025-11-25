@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing. My kids have grown me in ways I never knew possible. The patience I've received and the love I get from them is just amazing.</b>
-> <p><i>Candace Cameron Bure</i></p>
+> <b>Art is permitted to survive only if it renounces the right to be different, and integrates itself into the omnipotent realm of the profane.</b>
+> <p><i>Theodor Adorno</i></p>
 
 <br>
