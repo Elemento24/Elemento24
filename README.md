@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lorne finally said, Do the Blues Brothers thing. The response was amazing. People went nuts.</b>
-> <p><i>Steve Cropper</i></p>
+> <b>It's important to debunk the myths of Africa being this benighted continent civilized only when white people arrived. In fact, Africans had been creators of culture for thousands of years before. These were very intelligent, subtle and sophisticated people, with organized societies and great art.</b>
+> <p><i>Henry Louis Gates</i></p>
 
 <br>
