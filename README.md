@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's harder, but we're still finding oil in Oklahoma today. The bar has been raised on startup companies, but it can still be done. Every regulation and every rule limits you, but, yes, it can still be done. That's the beauty of living in a free country and having the freedom to have an idea and become an entrepreneur.</b>
-> <p><i>Harold Hamm</i></p>
+> <b>The union movement has been the best middle class job creating program that America has ever had, and it doesn't cost the government a dime.</b>
+> <p><i>Andy Stern</i></p>
 
 <br>
