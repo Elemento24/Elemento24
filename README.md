@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's important to debunk the myths of Africa being this benighted continent civilized only when white people arrived. In fact, Africans had been creators of culture for thousands of years before. These were very intelligent, subtle and sophisticated people, with organized societies and great art.</b>
-> <p><i>Henry Louis Gates</i></p>
+> <b>Some people say I have attitude - maybe I do... but I think you have to. You have to believe in yourself when no one else does - that makes you a winner right there.</b>
+> <p><i>Venus Williams</i></p>
 
 <br>
