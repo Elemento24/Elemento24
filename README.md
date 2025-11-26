@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The deferring of anger is the best antidote to anger.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>The herd instinct among forecasters makes sheep look like independent thinkers.</b>
+> <p><i>Edgar R. Fiedler</i></p>
 
 <br>
