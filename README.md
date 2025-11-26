@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a kid I had buck teeth and braces and acne. I hated what I saw. I'm still not comfortable, but that's why I change and adapt the way I look.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>Youth is an amazing thing: I think back on when we did The Lost Boys, and I didn't think I could do anything wrong.</b>
+> <p><i>Kiefer Sutherland</i></p>
 
 <br>
