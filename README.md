@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People tend not to use this word beauty because it's not intellectual - but there has to be an overlap between beauty and intellect.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>No architect troubled to design houses that suited people who were to live in them, because that would have meant building a whole range of different houses. It was far cheaper and, above all, timesaving to make them identical.</b>
+> <p><i>Michael Ende</i></p>
 
 <br>
