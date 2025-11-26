@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best morale exist when you never hear the word mentioned. When you hear a lot of talk about it, it's usually lousy.</b>
-> <p><i>Dwight D. Eisenhower</i></p>
+> <b>I'm like, 'Would you be the person in the room that would boo when Dylan went electric? I know I wouldn't. Or are you the person that left The Beatles after 'She Loves You,' or 'Drive My Car?' You weren't on board for 'Revolution 9' or 'Day In The Life,' were you?'</b>
+> <p><i>Regina Spektor</i></p>
 
 <br>
