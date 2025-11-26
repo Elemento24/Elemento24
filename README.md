@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The herd instinct among forecasters makes sheep look like independent thinkers.</b>
-> <p><i>Edgar R. Fiedler</i></p>
+> <b>I never - you know also one of the things that would save me for a man my age, it was not that easy to lose that much weight and fall down and look like something draped.</b>
+> <p><i>Karl Lagerfeld</i></p>
 
 <br>
