@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you are lonely when you're alone, you are in bad company.</b>
-> <p><i>Jean-Paul Sartre</i></p>
+> <b>We had the guys from X Men 2 do the cameras. They had a 360 camera that would go from one car, up in the air and over to another car in a continuous shot while the film was still rolling, going 90 mph.</b>
+> <p><i>Jimmy Fallon</i></p>
 
 <br>
