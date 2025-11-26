@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Inside every working anarchy, there's an Old Boy Network.</b>
-> <p><i>Mitchell Kapor</i></p>
+> <b>The herd instinct among forecasters makes sheep look like independent thinkers.</b>
+> <p><i>Edgar R. Fiedler</i></p>
 
 <br>
