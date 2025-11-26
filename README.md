@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing about giving of ourselves is that what we get is always better than what we give. The reaction is greater than the action.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>Twenty years ago, I was living in a lovely cottage on the edge of Dartmoor but I couldn't afford to run a car.</b>
+> <p><i>Mary Wesley</i></p>
 
 <br>
