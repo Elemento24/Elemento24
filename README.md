@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After you're older, two things are possibly more important than any others: health and money.</b>
-> <p><i>Helen Gurley Brown</i></p>
+> <b>If you are lonely when you're alone, you are in bad company.</b>
+> <p><i>Jean-Paul Sartre</i></p>
 
 <br>
