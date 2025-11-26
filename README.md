@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Twenty years ago, I was living in a lovely cottage on the edge of Dartmoor but I couldn't afford to run a car.</b>
-> <p><i>Mary Wesley</i></p>
+> <b>Anger is the enemy of non-violence and pride is a monster that swallows it up.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
