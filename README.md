@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The herd instinct among forecasters makes sheep look like independent thinkers.</b>
-> <p><i>Edgar R. Fiedler</i></p>
+> <b>The Word of fire burns today On the lips of our prophets in an evil age.</b>
+> <p><i>Margaret Walker</i></p>
 
 <br>
