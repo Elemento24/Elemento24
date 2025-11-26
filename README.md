@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm like, 'Would you be the person in the room that would boo when Dylan went electric? I know I wouldn't. Or are you the person that left The Beatles after 'She Loves You,' or 'Drive My Car?' You weren't on board for 'Revolution 9' or 'Day In The Life,' were you?'</b>
-> <p><i>Regina Spektor</i></p>
+> <b>I don't think the Palestinian people or Afghan children or some other things I'm concerned about are at the top of other people's agendas - not right now, when America is going through such a recession and people are suffering across the board financially. But I think all that will change.</b>
+> <p><i>Patti Smith</i></p>
 
 <br>
