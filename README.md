@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is the enemy of non-violence and pride is a monster that swallows it up.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>The best morale exist when you never hear the word mentioned. When you hear a lot of talk about it, it's usually lousy.</b>
+> <p><i>Dwight D. Eisenhower</i></p>
 
 <br>
