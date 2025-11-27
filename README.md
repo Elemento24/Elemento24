@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would love to work with Paolo Nutini because he is so soulful and an amazing songwriter.</b>
-> <p><i>Birdy</i></p>
+> <b>Infinite striving to be the best is man's duty it is its own reward. Everything else is in God's hands.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
