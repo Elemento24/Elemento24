@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No architect troubled to design houses that suited people who were to live in them, because that would have meant building a whole range of different houses. It was far cheaper and, above all, timesaving to make them identical.</b>
-> <p><i>Michael Ende</i></p>
+> <b>In life, you need a house and a car. After that, you have a choice.</b>
+> <p><i>Xavier Niel</i></p>
 
 <br>
