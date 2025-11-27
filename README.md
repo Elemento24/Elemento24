@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pessimism only describes an attitude, and not facts, and hence is entirely subjective.</b>
-> <p><i>Francis Parker Yockey</i></p>
+> <b>The tendency of old age to the body, say the physiologists, is to form bone. It is as rare as it is pleasant to meet with an old man whose opinions are not ossified.</b>
+> <p><i>Bob Wells</i></p>
 
 <br>
