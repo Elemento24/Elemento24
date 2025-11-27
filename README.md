@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not necessary to change. Survival is not mandatory.</b>
-> <p><i>W. Edwards Deming</i></p>
+> <b>I can't write without a reader. It's precisely like a kiss - you can't do it alone.</b>
+> <p><i>John Cheever</i></p>
 
 <br>
