@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People discuss my art and pretend to understand as if it were necessary to understand, when it's simply necessary to love.</b>
-> <p><i>Claude Monet</i></p>
+> <b>Gorgeous hair is the best revenge.</b>
+> <p><i>Ivana Trump</i></p>
 
 <br>
