@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since obscenity is the truth of our passion today, it is the only stuff of art - or almost the only stuff.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>It is not necessary to change. Survival is not mandatory.</b>
+> <p><i>W. Edwards Deming</i></p>
 
 <br>
