@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been in California for about 15 years now. You're always in your car and insulated. I miss New York so much.</b>
-> <p><i>Jimmy Smits</i></p>
+> <b>No sex, age, or condition is above or below the absolute necessity of modesty but without it one vastly beneath the rank of man.</b>
+> <p><i>Bruce Barton</i></p>
 
 <br>
