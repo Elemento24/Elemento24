@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a man's character is to be abused there's nobody like a relative to do the business.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>Pessimism only describes an attitude, and not facts, and hence is entirely subjective.</b>
+> <p><i>Francis Parker Yockey</i></p>
 
 <br>
