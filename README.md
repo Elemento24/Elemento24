@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We should so provide for old age that it may have no urgent wants of this world to absorb it from meditation on the next. It is awful to see the lean hands of dotage making a coffer of the grave.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>Artistic qualities that once seemed undeniable don't seem so now. Sometimes these fluctuations are only fickleness of taste, momentary glitches in an artist's work, or an artist getting ahead of his audience (it took me ten years to catch up to Albert Oehlen). Other times, however, these problems mean there's something wrong with the art.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
