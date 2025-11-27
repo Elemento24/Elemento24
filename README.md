@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Gorgeous hair is the best revenge.</b>
-> <p><i>Ivana Trump</i></p>
+> <b>Art requires philosophy, just as philosophy requires art. Otherwise, what would become of beauty?</b>
+> <p><i>Paul Gauguin</i></p>
 
 <br>
