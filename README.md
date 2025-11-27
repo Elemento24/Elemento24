@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art requires philosophy, just as philosophy requires art. Otherwise, what would become of beauty?</b>
-> <p><i>Paul Gauguin</i></p>
+> <b>I've been in California for about 15 years now. You're always in your car and insulated. I miss New York so much.</b>
+> <p><i>Jimmy Smits</i></p>
 
 <br>
