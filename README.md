@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Artistic qualities that once seemed undeniable don't seem so now. Sometimes these fluctuations are only fickleness of taste, momentary glitches in an artist's work, or an artist getting ahead of his audience (it took me ten years to catch up to Albert Oehlen). Other times, however, these problems mean there's something wrong with the art.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It just seemed too weird to me. I don't know, maybe they were smoking a joint in the car downstairs from their parents' apartment. I had to go that far to put together a scenario of how they could have possibly recognized me.</b>
+> <p><i>Marc Jacobs</i></p>
 
 <br>
