@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't write without a reader. It's precisely like a kiss - you can't do it alone.</b>
-> <p><i>John Cheever</i></p>
+> <b>Well, I always had a chauffer, because I have never driven a car in my life. I still can't drive.</b>
+> <p><i>Bud Abbott</i></p>
 
 <br>
