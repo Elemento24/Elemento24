@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course, everybody makes mistakes, and we've all been young and stupid. But people need to have a sense of respect, particularly in this business, because hundreds of people are ready to take your place at any time. Maybe some people should think about that.</b>
-> <p><i>Sophia Bush</i></p>
+> <b>Since obscenity is the truth of our passion today, it is the only stuff of art - or almost the only stuff.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
