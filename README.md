@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not necessary that you leave the house. Remain at your table and listen. Do not even listen, only wait. Do not even wait, be wholly still and alone. The world will present itself to you for its unmasking, it can do no other, in ecstasy it will writhe at your feet.</b>
-> <p><i>Franz Kafka</i></p>
+> <b>The best ideas come as jokes. Make your thinking as funny as possible.</b>
+> <p><i>David Ogilvy</i></p>
 
 <br>
