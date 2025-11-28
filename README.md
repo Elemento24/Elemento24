@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It just seemed too weird to me. I don't know, maybe they were smoking a joint in the car downstairs from their parents' apartment. I had to go that far to put together a scenario of how they could have possibly recognized me.</b>
-> <p><i>Marc Jacobs</i></p>
+> <b>There is no prejudice that the work of art does not finally overcome.</b>
+> <p><i>Andre Gide</i></p>
 
 <br>
