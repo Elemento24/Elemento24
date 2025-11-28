@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An important work of architecture will create polemics.</b>
-> <p><i>Richard Meier</i></p>
+> <b>TV is sort of the only way to go for an actress my age to make a decent salary with independent films, you just can't.</b>
+> <p><i>Jessica Lange</i></p>
 
 <br>
