@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a real passion for many aspects of home lifestyle and beauty.</b>
-> <p><i>Rachel Roy</i></p>
+> <b>Change occurs in direct proportion to dissatisfaction, but dissatisfaction never changes.</b>
+> <p><i>Douglas Horton</i></p>
 
 <br>
