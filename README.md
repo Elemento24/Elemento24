@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Artschwager's art always involves looking closely at surfaces, questions what an object is, wants to make you forget the name of the thing you're looking at so that it might mushroom in your mind into something that triggers unexpected infinities.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>The Lord had the wonderful advantage of being able to work alone.</b>
+> <p><i>Kofi Annan</i></p>
 
 <br>
