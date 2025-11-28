@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The law does not pretend to punish everything that is dishonest. That would seriously interfere with business.</b>
-> <p><i>Clarence Darrow</i></p>
+> <b>I have a real passion for many aspects of home lifestyle and beauty.</b>
+> <p><i>Rachel Roy</i></p>
 
 <br>
