@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best ideas come as jokes. Make your thinking as funny as possible.</b>
-> <p><i>David Ogilvy</i></p>
+> <b>I married a pretty famous girl, and when we drive through town there's usually a car following us, when I walk out of my front door in Chelsea there's six guys waiting for me.</b>
+> <p><i>Kevin Pietersen</i></p>
 
 <br>
