@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The very essence of the creative is its novelty, and hence we have no standard by which to judge it.</b>
-> <p><i>Carl Rogers</i></p>
+> <b>I compare it to being in a car accident. There's so much adrenaline rushing through you that you remember being in the accident but you don't remember any of the details.</b>
+> <p><i>Brooke Langton</i></p>
 
 <br>
