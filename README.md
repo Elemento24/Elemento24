@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't get the impression that you arouse my anger. You see, one can only be angry with those he respects.</b>
-> <p><i>Richard M. Nixon</i></p>
+> <b>I don't want to do business with those who don't make a profit, because they can't give the best service.</b>
+> <p><i>Richard Bach</i></p>
 
 <br>
