@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes the best lighting of all is a power failure.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>Art lies by its own artifice.</b>
+> <p><i>Ovid</i></p>
 
 <br>
