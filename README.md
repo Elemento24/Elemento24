@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Amazing that the human race has taken enough time out from thinking about food or sex to create the arts and sciences.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>There's always the motivation of wanting to win. Everybody has that. But a champion needs, in his attitude, a motivation above and beyond winning.</b>
+> <p><i>Pat Riley</i></p>
 
 <br>
