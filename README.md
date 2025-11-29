@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Thank you' is the best prayer that anyone could say. I say that one a lot. Thank you expresses extreme gratitude, humility, understanding.</b>
-> <p><i>Alice Walker</i></p>
+> <b>Be slow to fall into friendship but when thou art in, continue firm and constant.</b>
+> <p><i>Socrates</i></p>
 
 <br>
