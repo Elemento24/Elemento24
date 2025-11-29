@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the most beautiful deception of all. And although people try to incorporate the everyday events of life in it, we must hope that it will remain a deception lest it become a utilitarian thing, sad as a factory.</b>
-> <p><i>Claude Debussy</i></p>
+> <b>No face which we can give to a matter will stead us so well at last as the truth. This alone wears well.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
