@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm more like my father, personality-wise. But my mom and I get alone really well - obviously, because my mom and my dad get along so well.</b>
-> <p><i>Jenna Bush</i></p>
+> <b>Amazing that the human race has taken enough time out from thinking about food or sex to create the arts and sciences.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
