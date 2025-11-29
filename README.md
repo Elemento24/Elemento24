@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Twitter is the most amazing medium for a comedy writer. I can't get in every idea I want on the show no matter how hard I try to bully the other writers, so it's a way of me getting out other comic ideas and immediately getting feedback.</b>
-> <p><i>Mindy Kaling</i></p>
+> <b>When I look at the majority of my own songs they really came from my own sense of personal confusion or need to express some pain or beauty - they were coming from a universal and personal place.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
