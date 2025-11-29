@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've still got that little freedom part of me that wants to have a car that looks really sexy.</b>
-> <p><i>Patrice O'Neal</i></p>
+> <b>So much of life is luck. One day you make a right turn and get hit by a car. Turn left and you meet the love of your life. I think I made the correct turn.</b>
+> <p><i>Loretta Swit</i></p>
 
 <br>
