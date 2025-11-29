@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can work myself up into a fearful, paralyzing state of mind that can last for days, weeks even months where I feel mad, totally isolated and alone, overwhelmed and completely out of control.</b>
-> <p><i>Vinny Guadagnino</i></p>
+> <b>If you don't have the story and the unfolding of the trajectory of the saga, it's like getting in a car and not having any gas.</b>
+> <p><i>Gus Van Sant</i></p>
 
 <br>
