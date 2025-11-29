@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unless and until Barack Obama addresses the full depth of Americans' anger with his full arsenal of policy smarts and political gifts, his presidency and, worse, our economy will be paralyzed.</b>
-> <p><i>Frank Rich</i></p>
+> <b>Children, dear and loving children, can alone console a woman for the loss of her beauty.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
