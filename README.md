@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your living is determined not so much by what life brings to you as by the attitude you bring to life not so much by what happens to you as by the way your mind looks at what happens.</b>
-> <p><i>Khalil Gibran</i></p>
+> <b>'Thank you' is the best prayer that anyone could say. I say that one a lot. Thank you expresses extreme gratitude, humility, understanding.</b>
+> <p><i>Alice Walker</i></p>
 
 <br>
