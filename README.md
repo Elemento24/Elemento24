@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think I could live without hair, makeup and styling, let alone be the performer I am. I am a glamour girl through and through. I believe in the glamorous life and I live one.</b>
-> <p><i>Lady Gaga</i></p>
+> <b>Art is the most beautiful deception of all. And although people try to incorporate the everyday events of life in it, we must hope that it will remain a deception lest it become a utilitarian thing, sad as a factory.</b>
+> <p><i>Claude Debussy</i></p>
 
 <br>
