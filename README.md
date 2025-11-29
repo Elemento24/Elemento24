@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be slow to fall into friendship but when thou art in, continue firm and constant.</b>
-> <p><i>Socrates</i></p>
+> <b>The aging process has you firmly in its grasp if you never get the urge to throw a snowball.</b>
+> <p><i>Doug Larson</i></p>
 
 <br>
