@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't have the story and the unfolding of the trajectory of the saga, it's like getting in a car and not having any gas.</b>
-> <p><i>Gus Van Sant</i></p>
+> <b>Every piece of entertainment is made with the idea that 'This is going to be terrific' and 'This is the best thing I've ever done' and then it hits the public and then the public tells you whether it's good or bad.</b>
+> <p><i>William Shatner</i></p>
 
 <br>
