@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children, dear and loving children, can alone console a woman for the loss of her beauty.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>I'm more like my father, personality-wise. But my mom and I get alone really well - obviously, because my mom and my dad get along so well.</b>
+> <p><i>Jenna Bush</i></p>
 
 <br>
