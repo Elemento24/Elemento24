@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No face which we can give to a matter will stead us so well at last as the truth. This alone wears well.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Beauty itself is but the sensible image of the Infinite.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
