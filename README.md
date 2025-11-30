@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother and stepfather were married 43 years, so I have watched a long marriage. I feel like I had a very good role model for that. And, you know, it's just a number.</b>
-> <p><i>Jamie Lee Curtis</i></p>
+> <b>I think there are a lot of technocrats in the business who would much rather work with just wheels and gears and machinery. Those things interest them more than humanity and I wish them the best of luck.</b>
+> <p><i>Ron Perlman</i></p>
 
 <br>
