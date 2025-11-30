@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In life, as in art, the beautiful moves in curves.</b>
-> <p><i>Edward G. Bulwer-Lytton</i></p>
+> <b>I don't see that any buildings should be excluded from the term architecture, as long as they are done properly.</b>
+> <p><i>Arne Jacobsen</i></p>
 
 <br>
