@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have not lost faith in God. I have moments of anger and protest. Sometimes I've been closer to him for that reason.</b>
-> <p><i>Elie Wiesel</i></p>
+> <b>I'm not going to change the world overnight. It's one person at a time, and hopefully they're people in positions of power who can help people get in those roles and really, truly embrace colorblind casting.</b>
+> <p><i>Gabrielle Union</i></p>
 
 <br>
