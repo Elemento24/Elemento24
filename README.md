@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't see that any buildings should be excluded from the term architecture, as long as they are done properly.</b>
-> <p><i>Arne Jacobsen</i></p>
+> <b>I have not lost faith in God. I have moments of anger and protest. Sometimes I've been closer to him for that reason.</b>
+> <p><i>Elie Wiesel</i></p>
 
 <br>
