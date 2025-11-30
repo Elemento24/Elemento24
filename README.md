@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Elle MacPherson is absolutely amazing she is just so beautiful.</b>
-> <p><i>Carol Alt</i></p>
+> <b>I think it's my adventure, my trip, my journey, and I guess my attitude is, let the chips fall where they may.</b>
+> <p><i>Leonard Nimoy</i></p>
 
 <br>
