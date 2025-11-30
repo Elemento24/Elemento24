@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think there are a lot of technocrats in the business who would much rather work with just wheels and gears and machinery. Those things interest them more than humanity and I wish them the best of luck.</b>
-> <p><i>Ron Perlman</i></p>
+> <b>The hardest thing about being in this business is just being able to be yourself. People act like there's this one set of rules to follow to be a pop star and I think, 'Well, you say I'm a pop star, so maybe that's not true.'</b>
+> <p><i>Kelly Clarkson</i></p>
 
 <br>
