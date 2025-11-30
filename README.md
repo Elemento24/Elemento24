@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As for everything else, so for a mathematical theory: beauty can be perceived but not explained.</b>
-> <p><i>Arthur Cayley</i></p>
+> <b>In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves.</b>
+> <p><i>Buddha</i></p>
 
 <br>
