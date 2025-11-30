@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The aging process has you firmly in its grasp if you never get the urge to throw a snowball.</b>
-> <p><i>Doug Larson</i></p>
+> <b>In life, as in art, the beautiful moves in curves.</b>
+> <p><i>Edward G. Bulwer-Lytton</i></p>
 
 <br>
