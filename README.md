@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are so many different people that I've emulated vocally. In the rock world - Sebastian Bach, Vince Neil, Freddie Mercury, Robert Plant. They all had amazing vocal talent.</b>
-> <p><i>Fergie</i></p>
+> <b>As for everything else, so for a mathematical theory: beauty can be perceived but not explained.</b>
+> <p><i>Arthur Cayley</i></p>
 
 <br>
