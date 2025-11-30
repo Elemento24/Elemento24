@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not going to change the world overnight. It's one person at a time, and hopefully they're people in positions of power who can help people get in those roles and really, truly embrace colorblind casting.</b>
-> <p><i>Gabrielle Union</i></p>
+> <b>It's the most amazing cast, a dream cast. We laugh all the time.</b>
+> <p><i>Nicole Sullivan</i></p>
 
 <br>
