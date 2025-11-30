@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When grace is joined with wrinkles, it is adorable. There is an unspeakable dawn in happy old age.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>The personal things should be left out of platforms at conventions. You can argue yourself blue in the face, and you're not going to change each other's minds. It's a waste of your time and my time.</b>
+> <p><i>Barbara Bush</i></p>
 
 <br>
