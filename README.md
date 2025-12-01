@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the desire of a man to express himself, to record the reactions of his personality to the world he lives in.</b>
-> <p><i>Amy Lowell</i></p>
+> <b>I'm full of fears and I do my best to avoid difficulties and any kind of complications. I like everything around me to be clear as crystal and completely calm.</b>
+> <p><i>Alfred Hitchcock</i></p>
 
 <br>
