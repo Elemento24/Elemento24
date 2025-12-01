@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pleasure we derive from the representation of the present is due, not only to the beauty it can be clothed in, but also to its essential quality of being the present.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>We live in an age of instant knowledge. And there's almost a sense of entitlement to that.</b>
+> <p><i>J. J. Abrams</i></p>
 
 <br>
