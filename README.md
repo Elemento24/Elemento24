@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a lot of interest in the arts, music, theatre, filmmaking, engineering, architecture and software design. I think we have now transitioned the modern-day version of the entrepreneur into the creative economy.</b>
-> <p><i>John Baldacci</i></p>
+> <b>France, and the whole of Europe have a great culture and an amazing history. Most important thing though is that people there know how to live! In America they've forgotten all about it. I'm afraid that the American culture is a disaster.</b>
+> <p><i>Johnny Depp</i></p>
 
 <br>
