@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Solitude gives birth to the original in us, to beauty unfamiliar and perilous - to poetry. But also, it gives birth to the opposite: to the perverse, the illicit, the absurd.</b>
-> <p><i>Thomas Mann</i></p>
+> <b>I had a lot of anger because I wasn't happy with the way I had been raised.</b>
+> <p><i>Patrick Swayze</i></p>
 
 <br>
