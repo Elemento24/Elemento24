@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do you like my suit? I think this is an amazing suit, don't you think?</b>
-> <p><i>Tom Selleck</i></p>
+> <b>Art is why I get up in the morning but my definition ends there. You know I don't think its fair that I'm living for something I can't even define.</b>
+> <p><i>Ani DiFranco</i></p>
 
 <br>
