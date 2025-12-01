@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love nicknames. It makes me feel loved. It makes me feel less alone in this world.</b>
-> <p><i>Ellen Page</i></p>
+> <b>The work of art assumes the existence of the perfect spectator, and is indifferent to the fact that no such person exists.</b>
+> <p><i>E. M. Forster</i></p>
 
 <br>
