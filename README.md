@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is strange to be known so universally and yet to be so lonely.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>What's certain is that a totalitarian enclave like Cuba's can't continue to exist, so change will definitely come there, eventually.</b>
+> <p><i>Vaclav Havel</i></p>
 
 <br>
