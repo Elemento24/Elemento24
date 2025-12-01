@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The personal things should be left out of platforms at conventions. You can argue yourself blue in the face, and you're not going to change each other's minds. It's a waste of your time and my time.</b>
-> <p><i>Barbara Bush</i></p>
+> <b>I love nicknames. It makes me feel loved. It makes me feel less alone in this world.</b>
+> <p><i>Ellen Page</i></p>
 
 <br>
