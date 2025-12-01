@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had a lot of anger because I wasn't happy with the way I had been raised.</b>
-> <p><i>Patrick Swayze</i></p>
+> <b>The pleasure we derive from the representation of the present is due, not only to the beauty it can be clothed in, but also to its essential quality of being the present.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
