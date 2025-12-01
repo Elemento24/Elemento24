@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in an age of instant knowledge. And there's almost a sense of entitlement to that.</b>
-> <p><i>J. J. Abrams</i></p>
+> <b>It is strange to be known so universally and yet to be so lonely.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
