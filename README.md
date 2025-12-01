@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today it is not big business that we have to fear. It is big government.</b>
-> <p><i>Wendell Phillips</i></p>
+> <b>I think Islam has been hijacked by the idea that all Muslims are terrorists that Islam is about hate, about war, about jihad - I think that hijacks the spirituality and beauty that exists within Islam. I believe in allowing Islam to be seen in context and in its entirety and being judged on what it really is, not what you think it is.</b>
+> <p><i>Aasif Mandvi</i></p>
 
 <br>
