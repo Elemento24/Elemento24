@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is why I get up in the morning but my definition ends there. You know I don't think its fair that I'm living for something I can't even define.</b>
-> <p><i>Ani DiFranco</i></p>
+> <b>Art is the desire of a man to express himself, to record the reactions of his personality to the world he lives in.</b>
+> <p><i>Amy Lowell</i></p>
 
 <br>
