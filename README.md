@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The work of art assumes the existence of the perfect spectator, and is indifferent to the fact that no such person exists.</b>
-> <p><i>E. M. Forster</i></p>
+> <b>Do you like my suit? I think this is an amazing suit, don't you think?</b>
+> <p><i>Tom Selleck</i></p>
 
 <br>
