@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's certain is that a totalitarian enclave like Cuba's can't continue to exist, so change will definitely come there, eventually.</b>
-> <p><i>Vaclav Havel</i></p>
+> <b>The ideal and the beautiful are identical the ideal corresponds to the idea, and beauty to form hence idea and substance are cognate.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
