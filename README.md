@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>France, and the whole of Europe have a great culture and an amazing history. Most important thing though is that people there know how to live! In America they've forgotten all about it. I'm afraid that the American culture is a disaster.</b>
-> <p><i>Johnny Depp</i></p>
+> <b>Disbelief in magic can force a poor soul into believing in government and business.</b>
+> <p><i>Tom Robbins</i></p>
 
 <br>
