@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Islam has been hijacked by the idea that all Muslims are terrorists that Islam is about hate, about war, about jihad - I think that hijacks the spirituality and beauty that exists within Islam. I believe in allowing Islam to be seen in context and in its entirety and being judged on what it really is, not what you think it is.</b>
-> <p><i>Aasif Mandvi</i></p>
+> <b>There is a lot of interest in the arts, music, theatre, filmmaking, engineering, architecture and software design. I think we have now transitioned the modern-day version of the entrepreneur into the creative economy.</b>
+> <p><i>John Baldacci</i></p>
 
 <br>
