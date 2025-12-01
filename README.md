@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The culture is going into a psychological depression. We are concerned about our place in the world, about being competitive: Will my children have as much as I have? Will I ever own my own home? How can I pay for a new car? Are immigrants taking away my white world?</b>
-> <p><i>James Hillman</i></p>
+> <b>Solitude gives birth to the original in us, to beauty unfamiliar and perilous - to poetry. But also, it gives birth to the opposite: to the perverse, the illicit, the absurd.</b>
+> <p><i>Thomas Mann</i></p>
 
 <br>
