@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the most amazing things I got from the film, so much green screen, there are so many moments and it really taught me about how important it is to have an intention when flying, when going somewhere and having an intention.</b>
-> <p><i>Brandon Routh</i></p>
+> <b>To think that the new economy is over is like somebody in London in 1830 saying the entire industrial revolution is over because some textile manufacturers in Manchester went broke.</b>
+> <p><i>Alvin Toffler</i></p>
 
 <br>
