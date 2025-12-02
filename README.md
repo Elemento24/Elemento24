@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first feminine feature that goes, with advancing age, is the neck.</b>
-> <p><i>Gloria Swanson</i></p>
+> <b>The joy of life consists in the exercise of one's energies, continual growth, constant change, the enjoyment of every new experience. To stop means simply to die. The eternal mistake of mankind is to set up an attainable ideal.</b>
+> <p><i>Aleister Crowley</i></p>
 
 <br>
