@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In fact, it will be very easy to climb the building because of its shape and architecture.</b>
-> <p><i>Alain Robert</i></p>
+> <b>I think good art does come from a dark place.</b>
+> <p><i>Rick Springfield</i></p>
 
 <br>
