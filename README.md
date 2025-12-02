@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only when inspired to go beyond consciousness by some extraordinary insight does beauty manifest unexpectedly.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>Time changes everything except something within us which is always surprised by change.</b>
+> <p><i>Thomas Hardy</i></p>
 
 <br>
