@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you cannot work with love but only with distaste, it is better that you should leave your work.</b>
-> <p><i>Khalil Gibran</i></p>
+> <b>And what most people don't understand is the bulk of business in this country is small business.</b>
+> <p><i>Alphonso Jackson</i></p>
 
 <br>
