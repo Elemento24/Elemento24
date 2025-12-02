@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I try to push ideas away, and the ones that will not leave me alone are the ones that ultimately end up happening.</b>
-> <p><i>J. J. Abrams</i></p>
+> <b>If you cannot work with love but only with distaste, it is better that you should leave your work.</b>
+> <p><i>Khalil Gibran</i></p>
 
 <br>
