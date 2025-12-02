@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's my adventure, my trip, my journey, and I guess my attitude is, let the chips fall where they may.</b>
-> <p><i>Leonard Nimoy</i></p>
+> <b>Trying to describe something musical is like dancing to architecture, it's really difficult.</b>
+> <p><i>Robert Palmer</i></p>
 
 <br>
