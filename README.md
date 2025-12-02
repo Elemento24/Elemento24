@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Enthusiasm is the best protection in any situation. Wholeheartedness is contagious. Give yourself, if you wish to get others.</b>
-> <p><i>David Seabury</i></p>
+> <b>You must welcome change as the rule but not as your ruler.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
