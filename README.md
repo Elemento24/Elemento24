@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist is never ahead of his time but most people are far behind theirs.</b>
-> <p><i>Edgard Varese</i></p>
+> <b>Listen, if there's one sure-fire rule that I have learned in this business, it's that I don't know anything about human nature.</b>
+> <p><i>Francis Ford Coppola</i></p>
 
 <br>
