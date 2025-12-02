@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'll keep on acting 'til they wipe the drool. I like the business. I like to do different parts and diverse characters. I haven't lost my enthusiasm yet!</b>
-> <p><i>Robert Duvall</i></p>
+> <b>In fact, it will be very easy to climb the building because of its shape and architecture.</b>
+> <p><i>Alain Robert</i></p>
 
 <br>
