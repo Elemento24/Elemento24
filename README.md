@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Listen, if there's one sure-fire rule that I have learned in this business, it's that I don't know anything about human nature.</b>
-> <p><i>Francis Ford Coppola</i></p>
+> <b>Have you heard about the Irishman who reversed into a car boot sale and sold the engine?</b>
+> <p><i>Frank Carson</i></p>
 
 <br>
