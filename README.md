@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I think bands that rolled in with a big attitude, like they were some big deal, I just found that very strange.</b>
-> <p><i>Rob Zombie</i></p>
+> <b>I'll keep on acting 'til they wipe the drool. I like the business. I like to do different parts and diverse characters. I haven't lost my enthusiasm yet!</b>
+> <p><i>Robert Duvall</i></p>
 
 <br>
