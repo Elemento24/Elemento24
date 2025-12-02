@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Japanese architecture is traditionally based on wooden structures that need renovating on a regular basis.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>The art of government is to make two-thirds of a nation pay all it possibly can pay for the benefit of the other third.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
