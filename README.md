@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of government is to make two-thirds of a nation pay all it possibly can pay for the benefit of the other third.</b>
-> <p><i>Voltaire</i></p>
+> <b>I try to push ideas away, and the ones that will not leave me alone are the ones that ultimately end up happening.</b>
+> <p><i>J. J. Abrams</i></p>
 
 <br>
