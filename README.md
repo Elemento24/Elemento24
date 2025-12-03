@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Satire doesn't effect change.</b>
-> <p><i>P. J. O'Rourke</i></p>
+> <b>Progress is a nice word. But change is its motivator. And change has its enemies.</b>
+> <p><i>Robert Kennedy</i></p>
 
 <br>
