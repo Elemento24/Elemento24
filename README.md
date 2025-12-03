@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always been a guy who's pretty supportive, its just my nature, so I came in to the situation with the attitude that I wanted to support Johnny and make it work.</b>
-> <p><i>Rick Derringer</i></p>
+> <b>If you think nobody cares if you're alive, try missing a couple of car payments.</b>
+> <p><i>Earl Wilson</i></p>
 
 <br>
