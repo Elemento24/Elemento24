@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know how bad Albany is. I know it better than most. I understand why people are angry. I'm angry. The question is going to be, how do you change Albany, what is the plan for change, and then how do you actually get it done?</b>
-> <p><i>Andrew Cuomo</i></p>
+> <b>My husband and I are best of friends first and foremost. We fight like cats and dogs, but never stay mad for long. I was lucky to find him, he is in every way, my soulmate.</b>
+> <p><i>Carnie Wilson</i></p>
 
 <br>
