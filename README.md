@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My husband and I are best of friends first and foremost. We fight like cats and dogs, but never stay mad for long. I was lucky to find him, he is in every way, my soulmate.</b>
-> <p><i>Carnie Wilson</i></p>
+> <b>I have designed the most buildings of any living American architect.</b>
+> <p><i>Alexander Jackson Davis</i></p>
 
 <br>
