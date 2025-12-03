@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like video games, but they are very violent. I want to create a video game in which you have to help all the characters who have died in the other games. 'Hey, man, what are you playing?' 'Super Busy Hospital. Could you leave me alone? I'm performing surgery! This guy got shot in the head, like, 27 times!'</b>
-> <p><i>Demetri Martin</i></p>
+> <b>Nature scarcely ever gives us the very best for that we must have recourse to art.</b>
+> <p><i>Baltasar Gracian</i></p>
 
 <br>
