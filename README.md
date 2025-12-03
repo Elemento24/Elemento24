@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Girls shouldn't worry about being the equal of men in the business world.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>Times and conditions change so rapidly that we must keep our aim constantly focused on the future.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
