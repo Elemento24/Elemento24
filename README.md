@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have designed the most buildings of any living American architect.</b>
-> <p><i>Alexander Jackson Davis</i></p>
+> <b>It seems almost backwards to me that my music seems the more emotional outlet, and the art stuff seems more about ideas.</b>
+> <p><i>David Byrne</i></p>
 
 <br>
