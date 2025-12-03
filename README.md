@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you think nobody cares if you're alive, try missing a couple of car payments.</b>
-> <p><i>Earl Wilson</i></p>
+> <b>The law was made for one thing alone, for the exploitation of those who don't understand it, or are prevented by naked misery from obeying it.</b>
+> <p><i>Bertolt Brecht</i></p>
 
 <br>
