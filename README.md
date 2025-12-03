@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Times and conditions change so rapidly that we must keep our aim constantly focused on the future.</b>
-> <p><i>Walt Disney</i></p>
+> <b>I was fired at the pinnacle of my career, on my 39th birthday. And in the year that followed, I learned that there are many psychological phases of being 'let go.'</b>
+> <p><i>Mika Brzezinski</i></p>
 
 <br>
