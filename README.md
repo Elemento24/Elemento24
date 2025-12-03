@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Trying to describe something musical is like dancing to architecture, it's really difficult.</b>
-> <p><i>Robert Palmer</i></p>
+> <b>For a Jewish Puritan of the middle class, the novel is serious, the novel is work, the novel is conscientious application why, the novel is practically the retail business all over again.</b>
+> <p><i>Howard Nemerov</i></p>
 
 <br>
