@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe I could have had a career in the music industry without 'X Factor,' but it was an amazing platform that propelled me to where I am now.</b>
-> <p><i>Leona Lewis</i></p>
+> <b>The pursuit of truth and beauty is a sphere of activity in which we are permitted to remain children all our lives.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
