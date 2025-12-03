@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was fired at the pinnacle of my career, on my 39th birthday. And in the year that followed, I learned that there are many psychological phases of being 'let go.'</b>
-> <p><i>Mika Brzezinski</i></p>
+> <b>I know how bad Albany is. I know it better than most. I understand why people are angry. I'm angry. The question is going to be, how do you change Albany, what is the plan for change, and then how do you actually get it done?</b>
+> <p><i>Andrew Cuomo</i></p>
 
 <br>
