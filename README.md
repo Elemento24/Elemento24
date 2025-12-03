@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems almost backwards to me that my music seems the more emotional outlet, and the art stuff seems more about ideas.</b>
-> <p><i>David Byrne</i></p>
+> <b>If you cannot work with love but only with distaste, it is better that you should leave your work.</b>
+> <p><i>Khalil Gibran</i></p>
 
 <br>
