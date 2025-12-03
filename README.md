@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pursuit of truth and beauty is a sphere of activity in which we are permitted to remain children all our lives.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>Girls shouldn't worry about being the equal of men in the business world.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
