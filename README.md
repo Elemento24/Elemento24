@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Progress is a nice word. But change is its motivator. And change has its enemies.</b>
-> <p><i>Robert Kennedy</i></p>
+> <b>I'm jamming 'Black Sabbath Vol. 4' all the time. Zappa's 'Cruising With Ruben &amp The Jets.' A lot of Gong lately. Some Hawkwind. The Residents' 'Duck Stab' is amazing. Some Fugs. Lots of stuff, man. I'm pretty schizophrenic with records.</b>
+> <p><i>Ty Segall</i></p>
 
 <br>
