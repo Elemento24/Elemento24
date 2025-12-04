@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business of the poet is not to find new emotions, but to use the ordinary ones and, in working them up into poetry, to express feelings which are not in actual emotions at all.</b>
-> <p><i>T. S. Eliot</i></p>
+> <b>Death comes not to the living soul, nor age to the loving heart.</b>
+> <p><i>Phoebe Cary</i></p>
 
 <br>
