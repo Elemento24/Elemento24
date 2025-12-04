@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, I always had a chauffer, because I have never driven a car in my life. I still can't drive.</b>
-> <p><i>Bud Abbott</i></p>
+> <b>Ten to 20 years out, driving your car will be viewed as equivalently immoral as smoking cigarettes around other people is today.</b>
+> <p><i>Marc Andreessen</i></p>
 
 <br>
