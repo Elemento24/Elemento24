@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When the traveler goes alone he gets acquainted with himself.</b>
-> <p><i>Liberty Hyde Bailey</i></p>
+> <b>As a rock star, I have two instincts, I want to have fun, and I want to change the world. I have a chance to do both.</b>
+> <p><i>Bono</i></p>
 
 <br>
