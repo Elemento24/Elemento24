@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a full life: I have two amazing kids, I have great friends, great family. And right now, that's plenty for me to manage. A new relationship just seems like way too much work.</b>
-> <p><i>Sarah McLachlan</i></p>
+> <b>When the traveler goes alone he gets acquainted with himself.</b>
+> <p><i>Liberty Hyde Bailey</i></p>
 
 <br>
