@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you're eight years old nothing is your business.</b>
-> <p><i>Lenny Bruce</i></p>
+> <b>I'm a dad, and I no longer see a way for my kids to even inherit the money that I'm making, let alone go out there, have an idea, and create it in their own lifetime.</b>
+> <p><i>Glenn Beck</i></p>
 
 <br>
