@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of war is simple enough. Find out where your enemy is. Get at him as soon as you can. Strike him as hard as you can, and keep moving on.</b>
-> <p><i>Ulysses S. Grant</i></p>
+> <b>The business of the poet is not to find new emotions, but to use the ordinary ones and, in working them up into poetry, to express feelings which are not in actual emotions at all.</b>
+> <p><i>T. S. Eliot</i></p>
 
 <br>
