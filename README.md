@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first mistake of art is to assume that it's serious.</b>
-> <p><i>Lester Bangs</i></p>
+> <b>To be adult is to be alone.</b>
+> <p><i>Jean Rostand</i></p>
 
 <br>
