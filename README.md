@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never called my work an 'art'. It's part of show business, the business of building entertainment.</b>
-> <p><i>Walt Disney</i></p>
+> <b>For the youth, the indignation of most things will just surge as each birthday passes.</b>
+> <p><i>Chris Evans</i></p>
 
 <br>
