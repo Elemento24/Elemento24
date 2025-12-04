@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is little difference in people, but that little difference makes a big difference. The little difference is attitude. The big difference is whether it is positive or negative.</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>Anything in any way beautiful derives its beauty from itself and asks nothing beyond itself. Praise is no part of it, for nothing is made worse or better by praise.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
