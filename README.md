@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anything in any way beautiful derives its beauty from itself and asks nothing beyond itself. Praise is no part of it, for nothing is made worse or better by praise.</b>
-> <p><i>Marcus Aurelius</i></p>
+> <b>A man who has never made a woman angry is a failure in life.</b>
+> <p><i>Christopher Morley</i></p>
 
 <br>
