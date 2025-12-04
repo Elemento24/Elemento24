@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be adult is to be alone.</b>
-> <p><i>Jean Rostand</i></p>
+> <b>When you're eight years old nothing is your business.</b>
+> <p><i>Lenny Bruce</i></p>
 
 <br>
