@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We need to stop apologizing for celebrating life. We need to stop apologizing for wanting to protect an individual's right to build a business.</b>
-> <p><i>Rick Perry</i></p>
+> <b>I never called my work an 'art'. It's part of show business, the business of building entertainment.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
