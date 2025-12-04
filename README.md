@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the youth, the indignation of most things will just surge as each birthday passes.</b>
-> <p><i>Chris Evans</i></p>
+> <b>I have a full life: I have two amazing kids, I have great friends, great family. And right now, that's plenty for me to manage. A new relationship just seems like way too much work.</b>
+> <p><i>Sarah McLachlan</i></p>
 
 <br>
