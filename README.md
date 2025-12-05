@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is implanted in us as sort of sting, to make us gnash with our teeth against the devil, to make us vehement against him, not to set us in array against each other.</b>
-> <p><i>Richard Savage</i></p>
+> <b>I am especially grateful that I have been able to keep my own style over the decades, in spite of the many changes that have taken place in the world of fashion and in its business.</b>
+> <p><i>Valentino Garavani</i></p>
 
 <br>
