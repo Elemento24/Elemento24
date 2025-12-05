@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without freedom, no art art lives only on the restraints it imposes on itself, and dies of all others.</b>
-> <p><i>Albert Camus</i></p>
+> <b>One thing is certain in business. You and everyone around you will make mistakes.</b>
+> <p><i>Richard Branson</i></p>
 
 <br>
