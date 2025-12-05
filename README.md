@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life has got a habit of not standing hitched. You got to ride it like you find it. You got to change with it. If a day goes by that don't change some of your old notions for new ones, that is just about like trying to milk a dead cow.</b>
-> <p><i>Woody Guthrie</i></p>
+> <b>God, give us grace to accept with serenity the things that cannot be changed, courage to change the things which should be changed and the wisdom to distinguish the one from the other.</b>
+> <p><i>Reinhold Niebuhr</i></p>
 
 <br>
