@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most men are individuals no longer so far as their business, its activities, or its moralities are concerned. They are not units but fractions.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>I believe that the rights of women and girls is the unfinished business of the 21st century.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
