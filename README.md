@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that the rights of women and girls is the unfinished business of the 21st century.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>Without freedom, no art art lives only on the restraints it imposes on itself, and dies of all others.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
