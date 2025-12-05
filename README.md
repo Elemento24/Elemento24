@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So many gods, so many creeds, so many paths that wind and wind while just the art of being kind is all the sad world needs.</b>
-> <p><i>Ella Wheeler Wilcox</i></p>
+> <b>Health consists with temperance alone.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
