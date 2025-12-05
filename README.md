@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Taking joy in living is a woman's best cosmetic.</b>
-> <p><i>Rosalind Russell</i></p>
+> <b>Don't change on me. Don't extort me unless you intend to do it forever.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
