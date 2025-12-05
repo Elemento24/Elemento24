@@ -15,14 +15,14 @@
 
 ## Hola Guys & Gals <img src="https://github.com/Elemento24/Elemento24/assets/58396433/e8c8dba8-e708-42be-b3f1-98a3aca013f6" width="24px" alt="Hi">
 
-I'm Elemento, an **Artificial Intelligence Enthusiast**. I am also a mentor at **DeepLearning.AI**, and I am fond of **Exploring & Learning** new things. Want to connect with <b>Me</b>? Check out my **Profiles** listed above ⏫
+I'm Elemento, an **Artificial Intelligence Enthusiast**, and I am fond of **Exploring & Learning** new things. Want to connect with <b>Me</b>? Check out my **Profiles** listed above ⏫
 <br>
 <br>
 
 <div align="center">
   <p>&nbsp;
-  <img align="center" src="https://github-readme-stats.vercel.app/api?username=Elemento24&show_icons=true&locale=en&theme=gotham&hide_border=true" alt="Elemento's Github Stats" width="600"/> 
-  <img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=Elemento24&theme=gotham&hide_border=true" alt="Elemento's Github Streak" width="600"/>
+  <img align="center" src="https://github-readme-stats.vercel.app/api?username=Elemento24&show_icons=true&locale=en&theme=gotham&hide_border=true" alt="Elemento's Github Stats" width="600" onerror="this.style.display='none'"/> 
+  <img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=Elemento24&theme=gotham&hide_border=true" alt="Elemento's Github Streak" width="600" onerror="this.style.display='none'"/>
   </p>
 </div>
 <br />
