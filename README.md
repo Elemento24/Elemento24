@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the rarest things that a man ever does, is to do the best he can.</b>
-> <p><i>Josh Billings</i></p>
+> <b>By all but the pathologically romantic, it is now recognized that this is not the age of the small man.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
