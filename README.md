@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obama and his attack dogs have nothing but hate and anger in their hearts and spew it whenever possible.</b>
-> <p><i>Donald Trump</i></p>
+> <b>For the youth, the indignation of most things will just surge as each birthday passes.</b>
+> <p><i>Chris Evans</i></p>
 
 <br>
