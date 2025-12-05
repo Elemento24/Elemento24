@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't change on me. Don't extort me unless you intend to do it forever.</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>Where I come from, it was a heresy to say you wanted to be in movies, leave alone American movies.</b>
+> <p><i>Daniel Day-Lewis</i></p>
 
 <br>
