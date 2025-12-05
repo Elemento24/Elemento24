@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am especially grateful that I have been able to keep my own style over the decades, in spite of the many changes that have taken place in the world of fashion and in its business.</b>
-> <p><i>Valentino Garavani</i></p>
+> <b>The Postal Service's unmatched ability to reach every household and business in America six days a week is a vital part of the nation's infrastructure.</b>
+> <p><i>Joe Baca</i></p>
 
 <br>
