@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the youth, the indignation of most things will just surge as each birthday passes.</b>
-> <p><i>Chris Evans</i></p>
+> <b>One of the rarest things that a man ever does, is to do the best he can.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
