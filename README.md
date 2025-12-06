@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a massive motor in a tiny, lightweight car.</b>
-> <p><i>Carroll Shelby</i></p>
+> <b>I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
