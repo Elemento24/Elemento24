@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Patton was living in the Dark Ages. Soldiers were peasants to him. I didn't like that attitude.</b>
-> <p><i>Bill Mauldin</i></p>
+> <b>When it comes to meat, change is almost always cast as an absolute. You are a vegetarian or you are not.</b>
+> <p><i>Jonathan Safran Foer</i></p>
 
 <br>
