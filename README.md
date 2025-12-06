@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God, give us grace to accept with serenity the things that cannot be changed, courage to change the things which should be changed and the wisdom to distinguish the one from the other.</b>
-> <p><i>Reinhold Niebuhr</i></p>
+> <b>That they may have a little peace, even the best dogs are compelled to snarl occasionally.</b>
+> <p><i>William Feather</i></p>
 
 <br>
