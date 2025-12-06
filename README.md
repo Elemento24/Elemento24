@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't understand the Democrats' approach to Social Security in this country, and I'm not alone.</b>
-> <p><i>William Weld</i></p>
+> <b>Every time a student walks past a really urgent, expressive piece of architecture that belongs to his college, it can help reassure him that he does have that mind, does have that soul.</b>
+> <p><i>Louis Kahn</i></p>
 
 <br>
