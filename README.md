@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is the only art that we are required to practice without preparation, and without being allowed the preliminary trials, the failures and botches, that are essential for training.</b>
-> <p><i>Lewis Mumford</i></p>
+> <b>A celibate, like the fly in the heart of an apple, dwells in a perpetual sweetness, but sits alone, and is confined and dies in singularity.</b>
+> <p><i>Jeremy Taylor</i></p>
 
 <br>
