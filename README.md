@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>The Republican platform specifically says we don't believe in bailing out private business, and yet we did.</b>
+> <p><i>Rand Paul</i></p>
 
 <br>
