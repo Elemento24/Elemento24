@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are two things a person should never be angry at, what they can help, and what they cannot.</b>
-> <p><i>Plato</i></p>
+> <b>Sometimes I think my husband is so amazing that I don't know why he's with me. I don't know whether I'm good enough. But if I make him happy, then I'm everything I want to be.</b>
+> <p><i>Angelina Jolie</i></p>
 
 <br>
