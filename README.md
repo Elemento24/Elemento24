@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That they may have a little peace, even the best dogs are compelled to snarl occasionally.</b>
-> <p><i>William Feather</i></p>
+> <b>To send light into the darkness of men's hearts - such is the duty of the artist.</b>
+> <p><i>Robert Schumann</i></p>
 
 <br>
