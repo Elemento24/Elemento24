@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unless and until Barack Obama addresses the full depth of Americans' anger with his full arsenal of policy smarts and political gifts, his presidency and, worse, our economy will be paralyzed.</b>
-> <p><i>Frank Rich</i></p>
+> <b>One of the best things that ever happened to me is that I'm a woman. That is the way all females should feel.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
