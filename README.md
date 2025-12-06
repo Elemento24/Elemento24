@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Building art is a synthesis of life in materialised form. We should try to bring in under the same hat not a splintered way of thinking, but all in harmony together.</b>
-> <p><i>Alvar Aalto</i></p>
+> <b>Mediocre men work at their best men seeking excellence strive to do better.</b>
+> <p><i>Edwin Louis Cole</i></p>
 
 <br>
