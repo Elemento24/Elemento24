@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To send light into the darkness of men's hearts - such is the duty of the artist.</b>
-> <p><i>Robert Schumann</i></p>
+> <b>Life is the only art that we are required to practice without preparation, and without being allowed the preliminary trials, the failures and botches, that are essential for training.</b>
+> <p><i>Lewis Mumford</i></p>
 
 <br>
