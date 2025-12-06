@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When it comes to meat, change is almost always cast as an absolute. You are a vegetarian or you are not.</b>
-> <p><i>Jonathan Safran Foer</i></p>
+> <b>What is comedy? Comedy is the art of making people laugh without making them puke.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
