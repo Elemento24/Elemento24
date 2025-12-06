@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I think my husband is so amazing that I don't know why he's with me. I don't know whether I'm good enough. But if I make him happy, then I'm everything I want to be.</b>
-> <p><i>Angelina Jolie</i></p>
+> <b>Unless and until Barack Obama addresses the full depth of Americans' anger with his full arsenal of policy smarts and political gifts, his presidency and, worse, our economy will be paralyzed.</b>
+> <p><i>Frank Rich</i></p>
 
 <br>
