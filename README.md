@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A celibate, like the fly in the heart of an apple, dwells in a perpetual sweetness, but sits alone, and is confined and dies in singularity.</b>
-> <p><i>Jeremy Taylor</i></p>
+> <b>It's a massive motor in a tiny, lightweight car.</b>
+> <p><i>Carroll Shelby</i></p>
 
 <br>
