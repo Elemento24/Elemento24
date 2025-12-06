@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is comedy? Comedy is the art of making people laugh without making them puke.</b>
-> <p><i>Steve Martin</i></p>
+> <b>I have nothing to hide in art. The initial force alone can bring anyone to the end he must attain.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
