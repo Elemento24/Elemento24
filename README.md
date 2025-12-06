@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the best things that ever happened to me is that I'm a woman. That is the way all females should feel.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>I don't understand the Democrats' approach to Social Security in this country, and I'm not alone.</b>
+> <p><i>William Weld</i></p>
 
 <br>
