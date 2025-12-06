@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let me be the first to tell you, drinking alcohol is the worst thing to do in cold weather. Hot soup is the best because the process of digesting food helps to warm you up.</b>
-> <p><i>Morgan Freeman</i></p>
+> <b>Patton was living in the Dark Ages. Soldiers were peasants to him. I didn't like that attitude.</b>
+> <p><i>Bill Mauldin</i></p>
 
 <br>
