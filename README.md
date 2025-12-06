@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every time a student walks past a really urgent, expressive piece of architecture that belongs to his college, it can help reassure him that he does have that mind, does have that soul.</b>
-> <p><i>Louis Kahn</i></p>
+> <b>Building art is a synthesis of life in materialised form. We should try to bring in under the same hat not a splintered way of thinking, but all in harmony together.</b>
+> <p><i>Alvar Aalto</i></p>
 
 <br>
