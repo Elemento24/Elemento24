@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Republican platform specifically says we don't believe in bailing out private business, and yet we did.</b>
-> <p><i>Rand Paul</i></p>
+> <b>There are two things a person should never be angry at, what they can help, and what they cannot.</b>
+> <p><i>Plato</i></p>
 
 <br>
