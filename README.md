@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are all hungry and thirsty for concrete images. Abstract art will have been good for one thing: to restore its exact virginity to figurative art.</b>
-> <p><i>Salvador Dali</i></p>
+> <b>The best time I ever had with Joan Crawford was when I pushed her down the stairs in Whatever Happened to Baby Jane?</b>
+> <p><i>Bette Davis</i></p>
 
 <br>
