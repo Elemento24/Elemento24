@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bridges are perhaps the most invisible form of public architecture.</b>
-> <p><i>Bruce Jackson</i></p>
+> <b>I was turning 20 during my first record. Those decade birthdays always kind of cause me, it seems, to reflect, look back, and then look forward. I just was closing this period of my life where I was living in a car and scrambling my whole life to then signing a six-record deal with Atlantic.</b>
+> <p><i>Jewel</i></p>
 
 <br>
