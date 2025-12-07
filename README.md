@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman can be very beautiful and an ideal model and she will photograph incredibly well, but she'll appear in film and it won't work. What works is some fusion of physical beauty with some mental field or whatever you call it. I don't know.</b>
-> <p><i>Oliver Stone</i></p>
+> <b>I think that the best training a top manager can be engaged in is management by example.</b>
+> <p><i>Carlos Ghosn</i></p>
 
 <br>
