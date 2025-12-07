@@ -21,7 +21,7 @@ I'm Elemento, an **Artificial Intelligence Enthusiast**, and I am fond of **Expl
 
 <div align="center">
   <p>&nbsp;
-  <img align="center" src="https://github-readme-stats.vercel.app/api?username=Elemento24&show_icons=true&locale=en&theme=gotham&hide_border=true" alt="Elemento's Github Stats" width="600" onerror="this.style.display='none'"/> 
+  <!-- <img align="center" src="https://github-readme-stats.vercel.app/api?username=Elemento24&show_icons=true&locale=en&theme=gotham&hide_border=true" alt="Elemento's Github Stats" width="600" onerror="this.style.display='none'"/>  -->
   <img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=Elemento24&theme=gotham&hide_border=true" alt="Elemento's Github Streak" width="600" onerror="this.style.display='none'"/>
   </p>
 </div>
