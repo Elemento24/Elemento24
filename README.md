@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a typical middle child. I'm the mediator. The one that makes everything OK, puts their own needs aside to make sure everybody's happy. It's hard to change your nature, even with years and years of therapy.</b>
-> <p><i>Jennifer Jason Leigh</i></p>
+> <b>There must be a day or two in a man's life when he is the precise age for something important.</b>
+> <p><i>Franklin P. Adams</i></p>
 
 <br>
