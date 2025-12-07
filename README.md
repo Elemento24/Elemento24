@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obama and his attack dogs have nothing but hate and anger in their hearts and spew it whenever possible.</b>
-> <p><i>Donald Trump</i></p>
+> <b>The best time I ever had with Joan Crawford was when I pushed her down the stairs in Whatever Happened to Baby Jane?</b>
+> <p><i>Bette Davis</i></p>
 
 <br>
