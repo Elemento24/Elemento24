@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The meek shall inherit the Earth, but not its mineral rights.</b>
-> <p><i>J. Paul Getty</i></p>
+> <b>It's been an amazing year of individual performances.</b>
+> <p><i>Steve Kerr</i></p>
 
 <br>
