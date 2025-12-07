@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People lose people, we lose things in our life as we're constantly growing and changing. That's what life is is change, and a lot of that is loss. It's what you gain from that loss that makes life.</b>
-> <p><i>Thomas Jane</i></p>
+> <b>Art usually only makes the news in America when the subject is money.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
