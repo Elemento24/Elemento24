@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art usually only makes the news in America when the subject is money.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>There's always the motivation of wanting to win. Everybody has that. But a champion needs, in his attitude, a motivation above and beyond winning.</b>
+> <p><i>Pat Riley</i></p>
 
 <br>
