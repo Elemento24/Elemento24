@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There must be a day or two in a man's life when he is the precise age for something important.</b>
-> <p><i>Franklin P. Adams</i></p>
+> <b>Like dogs in a wheel, birds in a cage, or squirrels in a chain, ambitious men still climb and climb, with great labor, and incessant anxiety, but never reach the top.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
