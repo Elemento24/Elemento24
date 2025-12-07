@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been an amazing year of individual performances.</b>
-> <p><i>Steve Kerr</i></p>
+> <b>The sadness of the incomplete, the sadness that is often Life, but should never be Art.</b>
+> <p><i>E. M. Forster</i></p>
 
 <br>
