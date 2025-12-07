@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like dogs in a wheel, birds in a cage, or squirrels in a chain, ambitious men still climb and climb, with great labor, and incessant anxiety, but never reach the top.</b>
-> <p><i>Robert Browning</i></p>
+> <b>A woman can be very beautiful and an ideal model and she will photograph incredibly well, but she'll appear in film and it won't work. What works is some fusion of physical beauty with some mental field or whatever you call it. I don't know.</b>
+> <p><i>Oliver Stone</i></p>
 
 <br>
