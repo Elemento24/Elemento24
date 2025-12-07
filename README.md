@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's always the motivation of wanting to win. Everybody has that. But a champion needs, in his attitude, a motivation above and beyond winning.</b>
-> <p><i>Pat Riley</i></p>
+> <b>I've seen firsthand that being president doesn't change who you are. It reveals who you are.</b>
+> <p><i>Michelle Obama</i></p>
 
 <br>
