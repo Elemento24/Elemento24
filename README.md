@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never doubt that you can change history. You already have.</b>
-> <p><i>Marge Piercy</i></p>
+> <b>Laughter is the best medicine - unless you're diabetic, then insulin comes pretty high on the list.</b>
+> <p><i>Jasper Carrott</i></p>
 
 <br>
