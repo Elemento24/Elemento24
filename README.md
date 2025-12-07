@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best time I ever had with Joan Crawford was when I pushed her down the stairs in Whatever Happened to Baby Jane?</b>
-> <p><i>Bette Davis</i></p>
+> <b>Racing a thoroughbred grand prix car in front of a home crowd will be a surreal and mighty experience.</b>
+> <p><i>Nigel Mansell</i></p>
 
 <br>
