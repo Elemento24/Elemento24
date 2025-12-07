@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Racing a thoroughbred grand prix car in front of a home crowd will be a surreal and mighty experience.</b>
-> <p><i>Nigel Mansell</i></p>
+> <b>I'm a typical middle child. I'm the mediator. The one that makes everything OK, puts their own needs aside to make sure everybody's happy. It's hard to change your nature, even with years and years of therapy.</b>
+> <p><i>Jennifer Jason Leigh</i></p>
 
 <br>
