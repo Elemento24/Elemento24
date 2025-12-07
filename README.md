@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Laughter is the best medicine - unless you're diabetic, then insulin comes pretty high on the list.</b>
-> <p><i>Jasper Carrott</i></p>
+> <b>We are all hungry and thirsty for concrete images. Abstract art will have been good for one thing: to restore its exact virginity to figurative art.</b>
+> <p><i>Salvador Dali</i></p>
 
 <br>
