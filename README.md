@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sureness is something like a neck brace, which we clamp around our lives, hoping to somehow protect ourselves from the frightening, constant whiplash of change. Sadly, the brace doesn't always hold.</b>
-> <p><i>Elizabeth Gilbert</i></p>
+> <b>The year most of my high school friends and I got our driver's permits, the coolest thing one could do was stand outside after school and twirl one's car keys like a lifeguard whistle. That jingling sound meant freedom and power.</b>
+> <p><i>Sloane Crosley</i></p>
 
 <br>
