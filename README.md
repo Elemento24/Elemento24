@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't change on me. Don't extort me unless you intend to do it forever.</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>It's good that the first half of the speech emphasized freedom, because George W. Bush has been the global champion for freedom. As he said, if we don't fight tyranny it will not leave us alone in peace.</b>
+> <p><i>Ernest Istook</i></p>
 
 <br>
