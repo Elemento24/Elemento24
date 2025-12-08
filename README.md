@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our Age of Anxiety is, in great part, the result of trying to do today's job with yesterday's tools and yesterday's concepts.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>Don't change on me. Don't extort me unless you intend to do it forever.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
