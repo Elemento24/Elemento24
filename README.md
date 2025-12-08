@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This life is a hospital in which every patient is possessed with a desire to change his bed.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>Sureness is something like a neck brace, which we clamp around our lives, hoping to somehow protect ourselves from the frightening, constant whiplash of change. Sadly, the brace doesn't always hold.</b>
+> <p><i>Elizabeth Gilbert</i></p>
 
 <br>
