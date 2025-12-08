@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage is an act of will that signifies and involves a mutual gift, which unites the spouses and binds them to their eventual souls, with whom they make up a sole family - a domestic church.</b>
-> <p><i>Pope John Paul II</i></p>
+> <b>The word 'geek' today does not mean what it used to mean. A geek isn't the skinny kid with a pocket protector and acne. There can be computer geeks, video game geeks, car geeks, military geeks, and sports geeks. Being a geek just means that you're passionate about something.</b>
+> <p><i>Olivia Munn</i></p>
 
 <br>
