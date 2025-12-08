@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's good that the first half of the speech emphasized freedom, because George W. Bush has been the global champion for freedom. As he said, if we don't fight tyranny it will not leave us alone in peace.</b>
-> <p><i>Ernest Istook</i></p>
+> <b>Just as the left has to be more willing to question 'Government knows best,' the right has to rethink its laissez-faire attitude toward government.</b>
+> <p><i>Jack Kemp</i></p>
 
 <br>
