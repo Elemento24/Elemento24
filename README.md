@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My denial and irresponsible attitude about asthma put me at great risk and caused me so much needless suffering. My hope is that the kids I talk to learn to open up about their asthma, become educated about their condition, and seek help.</b>
-> <p><i>Jackie Joyner-Kersee</i></p>
+> <b>I was writing a scene where a guy was choking another guy to death. You can go online and type 'chokeholds' and watch scenes where martial artists choke each other out. You can hear what noises they make when they go unconscious, see how their bodies flop and everything. YouTube is amazing for the more detailed stuff.</b>
+> <p><i>Daniel H. Wilson</i></p>
 
 <br>
