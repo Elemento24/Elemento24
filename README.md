@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just as the left has to be more willing to question 'Government knows best,' the right has to rethink its laissez-faire attitude toward government.</b>
-> <p><i>Jack Kemp</i></p>
+> <b>Yes, the companionship is amazing. You know, you can get that physical attraction that happens is great, but then there's an awful lot of time and the rest of the day that you have to fill.</b>
+> <p><i>Vince Gill</i></p>
 
 <br>
