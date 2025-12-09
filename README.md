@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The truth, the absolute truth, is that the chief beauty for the theatre consists in fine bodily proportions.</b>
-> <p><i>Sarah Bernhardt</i></p>
+> <b>Largely this is a class thing - writers tend to be cosseted little middle-class kiddies who think that the world owes them a royalty cheque. But just doing it - being in your room for years on end, locked in your head, alone with invented ghosts - it weakens and softens the body. And I know I can't just live in my head.</b>
+> <p><i>Tony Parsons</i></p>
 
 <br>
