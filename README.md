@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Bombing Afghanistan back into the Stone Age' was quite a favourite headline for some wobbly liberals. The slogan does all the work. But an instant's thought shows that Afghanistan is being, if anything, bombed out of the Stone Age.</b>
-> <p><i>Christopher Hitchens</i></p>
+> <b>Remember, each one of us has the power to change the world. Just start thinking peace, and the message will spread quicker than you think.</b>
+> <p><i>Yoko Ono</i></p>
 
 <br>
