@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>I definitely I prefer to sing in the car. I don't sing in the shower, maybe its because that's the one time I don't need to talk to anyone so I should just shut up, otherwise I'm just, you know, jibber jabber.</b>
+> <p><i>Haley Reinhart</i></p>
 
 <br>
