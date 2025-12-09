@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My 'fear' is my substance, and probably the best part of me.</b>
-> <p><i>Franz Kafka</i></p>
+> <b>The worst thing that happens to you may be the best thing for you if you don't let it get the best of you.</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
