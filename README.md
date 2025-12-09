@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So much has been said and sung of beautiful young girls, why doesn't somebody wake up to the beauty of old women.</b>
-> <p><i>Harriet Beecher Stowe</i></p>
+> <b>I have always maintained that society has no business dictating morality.</b>
+> <p><i>Peter Fonda</i></p>
 
 <br>
