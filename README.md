@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't solicit feedback on your product, idea or your business just for validation purposes. You want to tell the people who can help move your idea forward, but if you're just looking to your friend, co-worker, husband or wife for validation, be careful. It can stop a lot of multimillion-dollar ideas in their tracks in the beginning.</b>
-> <p><i>Sara Blakely</i></p>
+> <b>I want do some kind of action movie, car chases and explosions.</b>
+> <p><i>Devon Sawa</i></p>
 
 <br>
