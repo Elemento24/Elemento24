@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best time I ever had with Joan Crawford was when I pushed her down the stairs in Whatever Happened to Baby Jane?</b>
-> <p><i>Bette Davis</i></p>
+> <b>I always knew that St. Jude was an amazing organization but meeting the kids and seeing how the hospital works first hand was truly beautiful. It doesn't feel like a regular hospital all dreary and sad. It's a colorful, beautiful, comfortable, fun place to live and the energy is wonderful.</b>
+> <p><i>Ariana Grande</i></p>
 
 <br>
