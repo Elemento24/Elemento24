@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Largely this is a class thing - writers tend to be cosseted little middle-class kiddies who think that the world owes them a royalty cheque. But just doing it - being in your room for years on end, locked in your head, alone with invented ghosts - it weakens and softens the body. And I know I can't just live in my head.</b>
-> <p><i>Tony Parsons</i></p>
+> <b>What is amazing for a woman of my age is that I change as the world is changing-and changing very, very fast. I don't think my mother had that opportunity to change.</b>
+> <p><i>Jeanne Moreau</i></p>
 
 <br>
