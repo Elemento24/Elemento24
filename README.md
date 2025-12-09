@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Though there might not be any easy answers to the problem of poverty, its most compelling scribes do not resign themselves to representation solely for the sake of those age-old verities of truth and beauty.</b>
-> <p><i>Leslie Jamison</i></p>
+> <b>Wishful thinking is not idealism. It is self-indulgence at best and self-exaltation at worst. In either case, it is usually at the expense of others. In other words, it is the opposite of idealism.</b>
+> <p><i>Thomas Sowell</i></p>
 
 <br>
