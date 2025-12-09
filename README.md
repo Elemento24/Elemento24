@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The worst thing that happens to you may be the best thing for you if you don't let it get the best of you.</b>
-> <p><i>Will Rogers</i></p>
+> <b>So much has been said and sung of beautiful young girls, why doesn't somebody wake up to the beauty of old women.</b>
+> <p><i>Harriet Beecher Stowe</i></p>
 
 <br>
