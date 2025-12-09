@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wishful thinking is not idealism. It is self-indulgence at best and self-exaltation at worst. In either case, it is usually at the expense of others. In other words, it is the opposite of idealism.</b>
-> <p><i>Thomas Sowell</i></p>
+> <b>Don't solicit feedback on your product, idea or your business just for validation purposes. You want to tell the people who can help move your idea forward, but if you're just looking to your friend, co-worker, husband or wife for validation, be careful. It can stop a lot of multimillion-dollar ideas in their tracks in the beginning.</b>
+> <p><i>Sara Blakely</i></p>
 
 <br>
