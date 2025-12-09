@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I definitely I prefer to sing in the car. I don't sing in the shower, maybe its because that's the one time I don't need to talk to anyone so I should just shut up, otherwise I'm just, you know, jibber jabber.</b>
-> <p><i>Haley Reinhart</i></p>
+> <b>The best part of beauty is that which no picture can express.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
