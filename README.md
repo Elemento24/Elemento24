@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only time I commit to conspiracy theories is when something way retarded happens. Like Lee Harvey Oswald acting alone.</b>
-> <p><i>Joe Rogan</i></p>
+> <b>'Bombing Afghanistan back into the Stone Age' was quite a favourite headline for some wobbly liberals. The slogan does all the work. But an instant's thought shows that Afghanistan is being, if anything, bombed out of the Stone Age.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
