@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want do some kind of action movie, car chases and explosions.</b>
-> <p><i>Devon Sawa</i></p>
+> <b>Besides the noble art of getting things done, there is the noble art of leaving things undone. The wisdom of life consists in the elimination of non-essentials.</b>
+> <p><i>Lin Yutang</i></p>
 
 <br>
