@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only business of the head in the world is to bow a ceaseless obeisance to the heart.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>The truth, the absolute truth, is that the chief beauty for the theatre consists in fine bodily proportions.</b>
+> <p><i>Sarah Bernhardt</i></p>
 
 <br>
