@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success in its highest and noblest form calls for peace of mind and enjoyment and happiness which come only to the man who has found the work that he likes best.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>I stood up as best I could to their disgusting stupidity and brutality, but I did not, of course, manage to beat them at their own game. It was a fight to the bitter end, one in which I was not defending ideals or beliefs but simply my own self.</b>
+> <p><i>George Grosz</i></p>
 
 <br>
