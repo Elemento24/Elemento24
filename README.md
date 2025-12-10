@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Accept business only at a price permitting thoroughness. Then do a thorough job, regardless of cost to us.</b>
-> <p><i>Arthur C. Nielsen</i></p>
+> <b>It's sad, actually, because my anxiety keeps me from enjoying things as much as I should at this age.</b>
+> <p><i>Amanda Seyfried</i></p>
 
 <br>
