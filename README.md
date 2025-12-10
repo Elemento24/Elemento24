@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's sad, actually, because my anxiety keeps me from enjoying things as much as I should at this age.</b>
-> <p><i>Amanda Seyfried</i></p>
+> <b>I just feel energized when I am around young, talented people. There is something about these kids that's amazing. I learn as much from them as they do from me.</b>
+> <p><i>Sally Struthers</i></p>
 
 <br>
