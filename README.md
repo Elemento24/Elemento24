@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would define, in brief, the poetry of words as the rhythmical creation of Beauty.</b>
-> <p><i>Edgar Allan Poe</i></p>
+> <b>Deliberation is the work of many men. Action, of one alone.</b>
+> <p><i>Charles de Gaulle</i></p>
 
 <br>
