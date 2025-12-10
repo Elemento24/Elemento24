@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being an artist is dragging your innermost feelings out, giving a piece of yourself, no matter in which art form, in which medium.</b>
-> <p><i>Henry Rollins</i></p>
+> <b>Success in its highest and noblest form calls for peace of mind and enjoyment and happiness which come only to the man who has found the work that he likes best.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
