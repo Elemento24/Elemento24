@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alexander Gonzalez Inarritu is a great director. He's the one I first worked with. He's amazing.</b>
-> <p><i>Gael Garcia Bernal</i></p>
+> <b>I would define, in brief, the poetry of words as the rhythmical creation of Beauty.</b>
+> <p><i>Edgar Allan Poe</i></p>
 
 <br>
