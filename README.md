@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each one of us requires the spur of insecurity to force us to do our best.</b>
-> <p><i>Harold W. Dodds</i></p>
+> <b>Alexander Gonzalez Inarritu is a great director. He's the one I first worked with. He's amazing.</b>
+> <p><i>Gael Garcia Bernal</i></p>
 
 <br>
