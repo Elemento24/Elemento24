@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Polanski's an amazing director.</b>
-> <p><i>David Duchovny</i></p>
+> <b>Each one of us requires the spur of insecurity to force us to do our best.</b>
+> <p><i>Harold W. Dodds</i></p>
 
 <br>
