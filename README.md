@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why do people talk of the horrors of old age? It's great. I feel like a fine old car with the parts gradually wearing out, but I'm not complaining,... Those who find growing old terrible are people who haven't done what they wanted with their lives.</b>
-> <p><i>Martha Gellhorn</i></p>
+> <b>Being an artist is dragging your innermost feelings out, giving a piece of yourself, no matter in which art form, in which medium.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
