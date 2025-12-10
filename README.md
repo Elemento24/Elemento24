@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You and I are stuck with the necessity of taking the worst of two evils or none at all. So-I'm taking the immature Democrat as the best of the two. Nixon is impossible.</b>
-> <p><i>Harry S. Truman</i></p>
+> <b>I'm a car fanatic and each morning I wake up with a smile on my face, whether I'm commentating on the Formula One or at Silver Hatch racetrack in Roary the Racing Car.</b>
+> <p><i>Murray Walker</i></p>
 
 <br>
