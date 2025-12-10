@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It helps to be able to be alone. 'Cuz writing is done alone, unless you collaborate, but I don't do that. Ask my ex-wife.</b>
-> <p><i>Dirk Benedict</i></p>
+> <b>Art can never exist without naked beauty displayed.</b>
+> <p><i>William Blake</i></p>
 
 <br>
