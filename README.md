@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To look almost pretty is an acquisition of higher delight to a girl who has been looking plain for the first fifteen years of her life than a beauty from her cradle can ever receive.</b>
-> <p><i>Jane Austen</i></p>
+> <b>Accept business only at a price permitting thoroughness. Then do a thorough job, regardless of cost to us.</b>
+> <p><i>Arthur C. Nielsen</i></p>
 
 <br>
