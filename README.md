@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just feel energized when I am around young, talented people. There is something about these kids that's amazing. I learn as much from them as they do from me.</b>
-> <p><i>Sally Struthers</i></p>
+> <b>Inner beauty should be the most important part of improving one's self.</b>
+> <p><i>Priscilla Presley</i></p>
 
 <br>
