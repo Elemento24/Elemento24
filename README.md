@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Although you may spend your life killing, You will not exhaust all your foes. But if you quell your own anger, your real enemy will be slain.</b>
-> <p><i>Nagarjuna</i></p>
+> <b>I love the game, it's the greatest game on earth, that's why I can't understand all of this talk about trying to make the game better. People talk about the high strike zone and changing this and that. Why? To speed up the game? That's the beauty of baseball. There is no time element.</b>
+> <p><i>Eric Davis</i></p>
 
 <br>
