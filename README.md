@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The future belongs to those who believe in the beauty of their dreams.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>Buildings should serve people, not the other way around.</b>
+> <p><i>John Portman</i></p>
 
 <br>
