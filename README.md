@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are forever alone.</b>
-> <p><i>John Buchanan Robinson</i></p>
+> <b>I am an artist. The track is my canvas, and the car is my brush.</b>
+> <p><i>Graham Hill</i></p>
 
 <br>
