@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Happiness doesn't depend on any external conditions, it is governed by our mental attitude.</b>
-> <p><i>Dale Carnegie</i></p>
+> <b>All we ask is to be let alone.</b>
+> <p><i>Jefferson Davis</i></p>
 
 <br>
