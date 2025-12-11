@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The forgotten man... He works, he votes, generally he prays, but his chief business in life is to pay.</b>
-> <p><i>William Graham Sumner</i></p>
+> <b>The car business is a lot like football. In football, you have to win once a week. In the car business, you have to win every day.</b>
+> <p><i>Tom Dempsey</i></p>
 
 <br>
