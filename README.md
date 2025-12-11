@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All we ask is to be let alone.</b>
-> <p><i>Jefferson Davis</i></p>
+> <b>I work with all these amazing voice actors that do a kajillion voices.</b>
+> <p><i>Katey Sagal</i></p>
 
 <br>
