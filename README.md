@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am an artist. The track is my canvas, and the car is my brush.</b>
-> <p><i>Graham Hill</i></p>
+> <b>A lot of people say I'd miss show business if I quit. I'd miss some of it. Now it's the only life I know.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
