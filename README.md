@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can construct the character of a man and his age not only from what he does and says, but from what he fails to say and do.</b>
-> <p><i>Norman Douglas</i></p>
+> <b>You are forever alone.</b>
+> <p><i>John Buchanan Robinson</i></p>
 
 <br>
