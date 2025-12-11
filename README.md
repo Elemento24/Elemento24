@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nearly all the powerful people of this age are unbelievers, the best of them in doubt and misery, the most in plodding hesitation, doing as well as they can, what practical work lies at hand.</b>
-> <p><i>John Ruskin</i></p>
+> <b>Art is nature speeded up and God slowed down.</b>
+> <p><i>Malcolm De Chazal</i></p>
 
 <br>
