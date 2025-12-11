@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was raised to believe that excellence is the best deterrent to racism or sexism. And that's how I operate my life.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>You can construct the character of a man and his age not only from what he does and says, but from what he fails to say and do.</b>
+> <p><i>Norman Douglas</i></p>
 
 <br>
