@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of people say I'd miss show business if I quit. I'd miss some of it. Now it's the only life I know.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>We are all geniuses up to the age of ten.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
