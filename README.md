@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Folks, the most insidious part of this whole health care scheme is that all of these vast medical expenditures will become nothing more than government budget items. We individuals will no longer exist. The relationship between a government and citizen will change forever.</b>
-> <p><i>Rush Limbaugh</i></p>
+> <b>I was raised to believe that excellence is the best deterrent to racism or sexism. And that's how I operate my life.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
