@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The car business is a lot like football. In football, you have to win once a week. In the car business, you have to win every day.</b>
-> <p><i>Tom Dempsey</i></p>
+> <b>I was living on the wrong side of the tracks in Evanston, Illinois, in a home for boys. We had these Jackson 5 records. I really related to their voices - they were about my age, but they were doing it.</b>
+> <p><i>Eddie Vedder</i></p>
 
 <br>
