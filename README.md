@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Buildings should serve people, not the other way around.</b>
-> <p><i>John Portman</i></p>
+> <b>Folks, the most insidious part of this whole health care scheme is that all of these vast medical expenditures will become nothing more than government budget items. We individuals will no longer exist. The relationship between a government and citizen will change forever.</b>
+> <p><i>Rush Limbaugh</i></p>
 
 <br>
