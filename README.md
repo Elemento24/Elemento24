@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love the game, it's the greatest game on earth, that's why I can't understand all of this talk about trying to make the game better. People talk about the high strike zone and changing this and that. Why? To speed up the game? That's the beauty of baseball. There is no time element.</b>
-> <p><i>Eric Davis</i></p>
+> <b>The man who will use his skill and constructive imagination to see how much he can give for a dollar, instead of how little he can give for a dollar, is bound to succeed.</b>
+> <p><i>Henry Ford</i></p>
 
 <br>
