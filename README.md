@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The man who will use his skill and constructive imagination to see how much he can give for a dollar, instead of how little he can give for a dollar, is bound to succeed.</b>
-> <p><i>Henry Ford</i></p>
+> <b>The future belongs to those who believe in the beauty of their dreams.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
