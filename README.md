@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whenever I drive under a yellow light, I always kiss my finger and tap it on the roof of the car.</b>
-> <p><i>Jared Padalecki</i></p>
+> <b>A house is a machine for living in.</b>
+> <p><i>Le Corbusier</i></p>
 
 <br>
