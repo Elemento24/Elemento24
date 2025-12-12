@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art, like morality, consists in drawing the line somewhere.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>Indy car racing is much more aggressive.</b>
+> <p><i>Emerson Fittipaldi</i></p>
 
 <br>
