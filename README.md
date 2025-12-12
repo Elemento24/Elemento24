@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Experience is the best teacher of all. And for that, there are no guarantees that one will become an artist. Only the journey matters.</b>
-> <p><i>Harry Callahan</i></p>
+> <b>When you're a stay-at-home mother you have to pretend it's really boring, but it's not. It's enriching and fulfilling, and an amazing experience. And then when you're a working mother you have to pretend that you feel guilty all day long.</b>
+> <p><i>Amy Poehler</i></p>
 
 <br>
