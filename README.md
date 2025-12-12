@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My deepest impulses are optimistic, an attitude that seems to me as spiritually necessary and proper as it is intellectually suspect.</b>
-> <p><i>Ellen Willis</i></p>
+> <b>I never ask a man what his business is, for it never interests me. What I ask him about are his thoughts and dreams.</b>
+> <p><i>H. P. Lovecraft</i></p>
 
 <br>
