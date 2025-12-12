@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I work with all these amazing voice actors that do a kajillion voices.</b>
-> <p><i>Katey Sagal</i></p>
+> <b>The anger in the Brigade against those who fought the Republic in the rear was sharpened by reports of weapons, even tanks, being kept from the front and hidden for treacherous purposes.</b>
+> <p><i>Bill Alexander</i></p>
 
 <br>
