@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Indy car racing is much more aggressive.</b>
-> <p><i>Emerson Fittipaldi</i></p>
+> <b>In 1977, at least, he wished to have people believe that he shared and was proud of an attitude toward women that is not acceptable in a politician. In 2003, all he has said is that he doesn't remember the interview.</b>
+> <p><i>Michael Kinsley</i></p>
 
 <br>
