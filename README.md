@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I go to the clinic next and sit with a tube in my arm and watch the poison go in, I'm in an attitude of abject passivity. It doesn't feel like fighting at all it just feels like submitting.</b>
-> <p><i>Christopher Hitchens</i></p>
+> <b>I was a good amateur but only an average professional. I soon realized that there was a limit to how far I could rise in the music business, so I left the band and enrolled at New York University.</b>
+> <p><i>Alan Greenspan</i></p>
 
 <br>
