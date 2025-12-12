@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you explode onto the scene at a very young age, there are so many people pulling you in different directions. It takes time to recalibrate and see what's important.</b>
-> <p><i>Clive Owen</i></p>
+> <b>If we don't change, we don't grow. If we don't grow, we aren't really living.</b>
+> <p><i>Gail Sheehy</i></p>
 
 <br>
