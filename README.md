@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A house is a machine for living in.</b>
-> <p><i>Le Corbusier</i></p>
+> <b>The game of history is usually played by the best and the worst over the heads of the majority in the middle.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
