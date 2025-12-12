@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I love best in life is new starts.</b>
-> <p><i>Karl Lagerfeld</i></p>
+> <b>Experience is the best teacher of all. And for that, there are no guarantees that one will become an artist. Only the journey matters.</b>
+> <p><i>Harry Callahan</i></p>
 
 <br>
