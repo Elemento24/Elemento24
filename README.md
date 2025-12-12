@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never ask a man what his business is, for it never interests me. What I ask him about are his thoughts and dreams.</b>
-> <p><i>H. P. Lovecraft</i></p>
+> <b>The architecture of our future is not only unfinished the scaffolding has hardly gone up.</b>
+> <p><i>George Lamming</i></p>
 
 <br>
