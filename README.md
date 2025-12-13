@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Flowers... are a proud assertion that a ray of beauty outvalues all the utilities of the world.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>I just think we're living in a time of massive, amazing change, like the Industrial Revolution on acid.</b>
+> <p><i>Kelly Lynch</i></p>
 
 <br>
