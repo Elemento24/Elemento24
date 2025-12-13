@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When virtue and modesty enlighten her charms, the lustre of a beautiful woman is brighter than the stars of heaven, and the influence of her power it is in vain to resist.</b>
-> <p><i>Akhenaton</i></p>
+> <b>Age is a terrible avenger. The lessons of life give you so much to work with, but by the time you've got all this great wisdom, you don't get to be young anymore.</b>
+> <p><i>Elizabeth Wurtzel</i></p>
 
 <br>
