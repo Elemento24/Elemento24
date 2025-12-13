@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'll tell you, there is nothing better in life than being a late bloomer. I believe that success can happen at any time and at any age.</b>
-> <p><i>Salma Hayek</i></p>
+> <b>Art is the most passionate orgy within man's grasp.</b>
+> <p><i>John Donne</i></p>
 
 <br>
