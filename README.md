@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That man is a creature who needs order yet yearns for change is the creative contradiction at the heart of the laws which structure his conformity and define his deviancy.</b>
-> <p><i>Freda Adler</i></p>
+> <b>I've spent more on my Dodger tickets that I did on my car.</b>
+> <p><i>Shia LaBeouf</i></p>
 
 <br>
