@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is a terrible avenger. The lessons of life give you so much to work with, but by the time you've got all this great wisdom, you don't get to be young anymore.</b>
-> <p><i>Elizabeth Wurtzel</i></p>
+> <b>I'll tell you, there is nothing better in life than being a late bloomer. I believe that success can happen at any time and at any age.</b>
+> <p><i>Salma Hayek</i></p>
 
 <br>
