@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>North Americans as a whole need to embrace having clothes altered to their body. I hear it all the time: why do the Europeans always look so good? They have a relationship with their tailor and spend the time and money to make their clothes look their best.</b>
-> <p><i>Michael Kors</i></p>
+> <b>That man is a creature who needs order yet yearns for change is the creative contradiction at the heart of the laws which structure his conformity and define his deviancy.</b>
+> <p><i>Freda Adler</i></p>
 
 <br>
