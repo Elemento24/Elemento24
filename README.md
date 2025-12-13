@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've spent more on my Dodger tickets that I did on my car.</b>
-> <p><i>Shia LaBeouf</i></p>
+> <b>The best effort of a fine person is felt after we have left their presence.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
