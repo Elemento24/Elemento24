@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way that people show me love on Twitter? I don't know man. It's amazing.</b>
-> <p><i>T-Pain</i></p>
+> <b>A face to lose youth for, to occupy age With the dream of, meet death with.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
