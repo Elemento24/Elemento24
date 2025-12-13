@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A face to lose youth for, to occupy age With the dream of, meet death with.</b>
-> <p><i>Robert Browning</i></p>
+> <b>Flowers... are a proud assertion that a ray of beauty outvalues all the utilities of the world.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
