@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For two thousand years, the Church has guided the development of music, carefully legislating to fuse artistic talent and aesthetic beauty with the demands of the Faith.</b>
-> <p><i>Richard Morris</i></p>
+> <b>The problem with beauty is that it's like being born rich and getting poorer.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
