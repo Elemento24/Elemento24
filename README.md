@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't knock the weather nine-tenths of the people couldn't start a conversation if it didn't change once in a while.</b>
-> <p><i>Kin Hubbard</i></p>
+> <b>People are like stained - glass windows. They sparkle and shine when the sun is out, but when the darkness sets in, their true beauty is revealed only if there is a light from within.</b>
+> <p><i>Elisabeth Kubler-Ross</i></p>
 
 <br>
