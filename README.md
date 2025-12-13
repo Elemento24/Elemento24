@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The problem with beauty is that it's like being born rich and getting poorer.</b>
-> <p><i>Joan Collins</i></p>
+> <b>An educated person is one who has learned that information almost always turns out to be at best incomplete and very often false, misleading, fictitious, mendacious - just dead wrong.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
