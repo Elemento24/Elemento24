@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An educated person is one who has learned that information almost always turns out to be at best incomplete and very often false, misleading, fictitious, mendacious - just dead wrong.</b>
-> <p><i>Russell Baker</i></p>
+> <b>I don't think your ability to fight has anything to do with how big you are. It's to do with how much anger is in you.</b>
+> <p><i>Amy Winehouse</i></p>
 
 <br>
