@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think your ability to fight has anything to do with how big you are. It's to do with how much anger is in you.</b>
-> <p><i>Amy Winehouse</i></p>
+> <b>Don't knock the weather nine-tenths of the people couldn't start a conversation if it didn't change once in a while.</b>
+> <p><i>Kin Hubbard</i></p>
 
 <br>
