@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It would be difficult for me not to conclude that the most perfect type of masculine beauty is Satan, as portrayed by Milton.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>I mean Buckingham Palace has never hired a professional public relations outfit let alone a Madison Avenue type and they would throw up their hands in horror at the very idea.</b>
+> <p><i>Anthony Holden</i></p>
 
 <br>
