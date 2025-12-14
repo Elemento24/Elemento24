@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are neither good nor bad subjects. From the point of view of pure Art, you could almost establish it as an axiom that the subject is irrelevant, style itself being an absolute manner of seeing things.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>For the moment I prefer to be a beautiful woman of my age than try desperately to look 30.</b>
+> <p><i>Demi Moore</i></p>
 
 <br>
