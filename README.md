@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is a shipwreck.</b>
-> <p><i>Charles de Gaulle</i></p>
+> <b>Sally Field looks amazing in general, never mind her age! She's a phenomenally talented actress and has had a career spanning so many decades.</b>
+> <p><i>Alison Sweeney</i></p>
 
 <br>
