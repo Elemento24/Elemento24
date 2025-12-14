@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The next thing I wrote was in a writing class at night school. It was about a poor woman who worked at a dime store and who was all alone for Christmas in Laurel, Mississippi.</b>
-> <p><i>Beth Henley</i></p>
+> <b>If you deprive yourself of outsourcing and your competitors do not, you're putting yourself out of business.</b>
+> <p><i>Lee Kuan Yew</i></p>
 
 <br>
