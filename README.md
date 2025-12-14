@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you deprive yourself of outsourcing and your competitors do not, you're putting yourself out of business.</b>
-> <p><i>Lee Kuan Yew</i></p>
+> <b>Becoming emancipated at 14, my life wasn't normal. I didn't have to go to school, so I didn't. I was rebellious by nature. I spent my 20s focusing on my company, Flower Films, and producing movies. Now that I'm almost 30, I would like to try other things in lie. I'm crazy about photography, and I want to take an art history class.</b>
+> <p><i>Drew Barrymore</i></p>
 
 <br>
