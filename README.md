@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Literature boils with the madcap careers of writers brought to the edge by the demands of living on their nerves, wringing out their memories and their nightmares to extract meaning, truth, beauty.</b>
-> <p><i>Herbert Gold</i></p>
+> <b>Old age is a shipwreck.</b>
+> <p><i>Charles de Gaulle</i></p>
 
 <br>
