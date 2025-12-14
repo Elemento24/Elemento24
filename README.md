@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A mode of conduct, a standard of courage, discipline, fortitude and integrity can do a great deal to make a woman beautiful.</b>
-> <p><i>Jacqueline Bisset</i></p>
+> <b>Literature boils with the madcap careers of writers brought to the edge by the demands of living on their nerves, wringing out their memories and their nightmares to extract meaning, truth, beauty.</b>
+> <p><i>Herbert Gold</i></p>
 
 <br>
