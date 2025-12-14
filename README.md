@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sally Field looks amazing in general, never mind her age! She's a phenomenally talented actress and has had a career spanning so many decades.</b>
-> <p><i>Alison Sweeney</i></p>
+> <b>I just completed a tour in Europe. I played every night. This requires traveling some days for six hours in a van or a train or a car. After six weeks of that, I checked into the hotel and just fell apart.</b>
+> <p><i>Lee Konitz</i></p>
 
 <br>
