@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our humor turns our anger into a fine art.</b>
-> <p><i>Mary Kay Blakely</i></p>
+> <b>I'm going to try to enjoy the All-Star break, hope my players reflect on what happened the first half of the season, come back with a different attitude, try to find our solution on how to win it.</b>
+> <p><i>Don Baylor</i></p>
 
 <br>
