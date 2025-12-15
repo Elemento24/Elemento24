@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The radiation left over from the Big Bang is the same as that in your microwave oven but very much less powerful. It would heat your pizza only to minus 271.3*C - not much good for defrosting the pizza, let alone cooking it.</b>
-> <p><i>Stephen Hawking</i></p>
+> <b>You owe it to yourself to be the best person possible. Because if you are, others will want to be with you, want to provide you with the things you want in exchange for what you're giving to them.</b>
+> <p><i>Harry Browne</i></p>
 
 <br>
