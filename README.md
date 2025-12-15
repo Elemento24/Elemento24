@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems that if one is working from the point of view of getting beauty in one's equations, and if one has really a sound insight, one is on a sure line of progress.</b>
-> <p><i>Paul Dirac</i></p>
+> <b>The best revenge is to be unlike him who performed the injury.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
