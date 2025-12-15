@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Americans have always had an ambivalent attitude toward intelligence. When they feel threatened, they want a lot of it, and when they don't, they regard the whole thing as somewhat immoral.</b>
-> <p><i>Vernon A. Walters</i></p>
+> <b>I have played on many teams throughout my career, and I know when a team has the tools, and the right positive attitude towards winning.</b>
+> <p><i>Boomer Esiason</i></p>
 
 <br>
