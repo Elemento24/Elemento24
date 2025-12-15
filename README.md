@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All those lessons that I've learned on the court, I have applied them to my life outside of the court in business, my company, called V Starr interiors, an interior design company, and EleVen, which I wear on court.</b>
-> <p><i>Venus Williams</i></p>
+> <b>I believe every chess player senses beauty, when he succeeds in creating situations, which contradict the expectations and the rules, and he succeeds in mastering this situation.</b>
+> <p><i>Vladimir Kramnik</i></p>
 
 <br>
