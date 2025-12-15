@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have played on many teams throughout my career, and I know when a team has the tools, and the right positive attitude towards winning.</b>
-> <p><i>Boomer Esiason</i></p>
+> <b>All those lessons that I've learned on the court, I have applied them to my life outside of the court in business, my company, called V Starr interiors, an interior design company, and EleVen, which I wear on court.</b>
+> <p><i>Venus Williams</i></p>
 
 <br>
