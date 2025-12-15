@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So much of 'Jaws' was amazing because the mind filled in what was missing.</b>
-> <p><i>Bill Sienkiewicz</i></p>
+> <b>I like to dedicate myself wholeheartedly to a cause so that I have more impact. My goal is to shed light on the beauty of the ocean and how important it is for our planet.</b>
+> <p><i>Hayden Panettiere</i></p>
 
 <br>
