@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You owe it to yourself to be the best person possible. Because if you are, others will want to be with you, want to provide you with the things you want in exchange for what you're giving to them.</b>
-> <p><i>Harry Browne</i></p>
+> <b>Americans have always had an ambivalent attitude toward intelligence. When they feel threatened, they want a lot of it, and when they don't, they regard the whole thing as somewhat immoral.</b>
+> <p><i>Vernon A. Walters</i></p>
 
 <br>
