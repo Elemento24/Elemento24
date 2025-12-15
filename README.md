@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to dedicate myself wholeheartedly to a cause so that I have more impact. My goal is to shed light on the beauty of the ocean and how important it is for our planet.</b>
-> <p><i>Hayden Panettiere</i></p>
+> <b>No man can think clearly when his fists are clenched.</b>
+> <p><i>George Jean Nathan</i></p>
 
 <br>
