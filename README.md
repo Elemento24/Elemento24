@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When the traveler goes alone he gets acquainted with himself.</b>
-> <p><i>Liberty Hyde Bailey</i></p>
+> <b>Perhaps one of the most important accomplishments of my administration has been minding my own business.</b>
+> <p><i>Calvin Coolidge</i></p>
 
 <br>
