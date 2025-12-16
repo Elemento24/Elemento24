@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I was writing songs just for me I'd only play them in my living room, alone.</b>
-> <p><i>Tori Amos</i></p>
+> <b>White shall not neutralize the black, nor good compensate bad in man, absolve him so: life's business being just the terrible choice.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
