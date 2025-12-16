@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We neither laugh alone, nor weep alone, why then should we pray alone?</b>
-> <p><i>Anna Letitia Barbauld</i></p>
+> <b>Education is the leading of human souls to what is best, and making what is best out of them.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
