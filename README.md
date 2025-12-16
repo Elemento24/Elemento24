@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our worldly successes cannot be guaranteed, but our ability to achieve spiritual success is entirely up to us, thanks to the grace of God. The best advice I know is to give is to give those worldly things your best but never your all - reserve the ultimate hope for the only one who can grant it.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>If you make friends with yourself you will never be alone.</b>
+> <p><i>Maxwell Maltz</i></p>
 
 <br>
