@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Faith in oneself is the best and safest course.</b>
-> <p><i>Michelangelo</i></p>
+> <b>Hitler and Mussolini were only the primary spokesmen for the attitude of domination and craving for power that are in the heart of almost everyone. Until the source is cleared, there will always be confusion and hate, wars and class antagonisms.</b>
+> <p><i>Jiddu Krishnamurti</i></p>
 
 <br>
