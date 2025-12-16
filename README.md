@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Thank you for leaving us alone but giving us enough attention to boost our egos.</b>
-> <p><i>Mick Jagger</i></p>
+> <b>Reading is not a duty, and has consequently no business to be made disagreeable.</b>
+> <p><i>Aneurin Bevan</i></p>
 
 <br>
