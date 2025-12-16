@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Polite and velvety leaders, who take care to avoid bruising others, are generally not as effective at forcing change.</b>
-> <p><i>Walter Isaacson</i></p>
+> <b>Our worldly successes cannot be guaranteed, but our ability to achieve spiritual success is entirely up to us, thanks to the grace of God. The best advice I know is to give is to give those worldly things your best but never your all - reserve the ultimate hope for the only one who can grant it.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
