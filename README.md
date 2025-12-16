@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Recently, I went to a disco with friends, and all the young people were saying, 'Dudamel, we want to go to your concert, but it's impossible because it's sold out.' It's really amazing.</b>
-> <p><i>Gustavo Dudamel</i></p>
+> <b>But the reason I became, why I wanted to be in the business was because there was Midnight Cowboy.</b>
+> <p><i>Jodie Foster</i></p>
 
 <br>
