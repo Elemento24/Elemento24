@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>White shall not neutralize the black, nor good compensate bad in man, absolve him so: life's business being just the terrible choice.</b>
-> <p><i>Robert Browning</i></p>
+> <b>The business is a very tricky obstacle course, and you should be very clear about work begetting work. If you're not working, you're not interesting.</b>
+> <p><i>Elisabeth Rohm</i></p>
 
 <br>
