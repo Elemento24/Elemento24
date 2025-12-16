@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in an age of instant knowledge. And there's almost a sense of entitlement to that.</b>
-> <p><i>J. J. Abrams</i></p>
+> <b>We neither laugh alone, nor weep alone, why then should we pray alone?</b>
+> <p><i>Anna Letitia Barbauld</i></p>
 
 <br>
