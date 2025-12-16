@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you make friends with yourself you will never be alone.</b>
-> <p><i>Maxwell Maltz</i></p>
+> <b>A zebra does not change its spots.</b>
+> <p><i>Al Gore</i></p>
 
 <br>
