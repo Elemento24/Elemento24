@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>These people are amazing. It's so emotional I was thinking about wearing waterproof mascara.</b>
-> <p><i>Victoria Beckham</i></p>
+> <b>Never lend your car to anyone to whom you have given birth.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
