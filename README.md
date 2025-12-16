@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the leading of human souls to what is best, and making what is best out of them.</b>
-> <p><i>John Ruskin</i></p>
+> <b>Faith in oneself is the best and safest course.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
