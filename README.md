@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps one of the most important accomplishments of my administration has been minding my own business.</b>
-> <p><i>Calvin Coolidge</i></p>
+> <b>We live in an age of instant knowledge. And there's almost a sense of entitlement to that.</b>
+> <p><i>J. J. Abrams</i></p>
 
 <br>
