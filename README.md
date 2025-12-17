@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've performed solo for 20 years now, but I don't do much of it, because if you only play alone, you go crazy and out of tune and play foolish music.</b>
-> <p><i>Steve Lacy</i></p>
+> <b>Carpe per diem - seize the check.</b>
+> <p><i>Robin Williams</i></p>
 
 <br>
