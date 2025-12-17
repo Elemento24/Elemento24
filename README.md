@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I worked hard all my life as far as this music business. I dreamed of the day when I could go to New York and feel comfortable and they could come out here and be comfortable.</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>As long as any adult thinks that he, like the parents and teachers of old, can become introspective, invoking his own youth to understand the youth before him, he is lost.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
