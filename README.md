@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is always some specific moment when we become aware that our youth is gone but, years after, we know it was much later.</b>
-> <p><i>Mignon McLaughlin</i></p>
+> <b>Maybe I was just lucky, but I had the best pregnancy, and I loved giving birth. It was just the most amazing thing, so surreal but so real.</b>
+> <p><i>Ashlee Simpson</i></p>
 
 <br>
