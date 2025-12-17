@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the things you're doing when you make art, apart from entertaining yourself and other people, is trying to see what ways of working feel good, what feels right.</b>
-> <p><i>Brian Eno</i></p>
+> <b>Imagine if the pension funds and endowments that own much of the equity in our financial services companies demanded that those companies revisit the way mortgages were marketed to those without adequate skills to understand the products they were being sold. Management would have to change the way things were done.</b>
+> <p><i>Eliot Spitzer</i></p>
 
 <br>
