@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maybe I was just lucky, but I had the best pregnancy, and I loved giving birth. It was just the most amazing thing, so surreal but so real.</b>
-> <p><i>Ashlee Simpson</i></p>
+> <b>I hate the idea that you shouldn't wear something just because you're a certain age.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
