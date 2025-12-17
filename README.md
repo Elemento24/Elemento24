@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who thinks there's safety in numbers hasn't looked at the stock market pages.</b>
-> <p><i>Irene Peter</i></p>
+> <b>Be the business never so painful, you may have it done for money.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
