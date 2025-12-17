@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each moment of a happy lover's hour is worth an age of dull and common life.</b>
-> <p><i>Aphra Behn</i></p>
+> <b>There is always some specific moment when we become aware that our youth is gone but, years after, we know it was much later.</b>
+> <p><i>Mignon McLaughlin</i></p>
 
 <br>
