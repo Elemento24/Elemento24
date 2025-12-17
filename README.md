@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Carpe per diem - seize the check.</b>
-> <p><i>Robin Williams</i></p>
+> <b>I think Damien Hirst is hilarious. And I think he's a true artist. He's not hilarious first I think he is a real artist, and I also think he's got an amazing sense of humor.</b>
+> <p><i>Jemima Kirke</i></p>
 
 <br>
