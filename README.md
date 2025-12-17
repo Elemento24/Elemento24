@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The job of buildings is to improve human relations: architecture must ease them, not make them worse.</b>
-> <p><i>Ralph Erskine</i></p>
+> <b>I worked hard all my life as far as this music business. I dreamed of the day when I could go to New York and feel comfortable and they could come out here and be comfortable.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
