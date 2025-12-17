@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Imagine if the pension funds and endowments that own much of the equity in our financial services companies demanded that those companies revisit the way mortgages were marketed to those without adequate skills to understand the products they were being sold. Management would have to change the way things were done.</b>
-> <p><i>Eliot Spitzer</i></p>
+> <b>You know what makes me feel old? When I see girls who are 20-something, or the new crop of actresses, and think, Aren't we kind of the same age?</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
