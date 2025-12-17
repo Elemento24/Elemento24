@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, art supplies are always okay to buy.</b>
-> <p><i>Louis C. K.</i></p>
+> <b>U2 is an original species... there are colours and feelings and emotional terrain that we occupy that is ours and ours alone.</b>
+> <p><i>Bono</i></p>
 
 <br>
