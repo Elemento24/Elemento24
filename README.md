@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Damien Hirst is hilarious. And I think he's a true artist. He's not hilarious first I think he is a real artist, and I also think he's got an amazing sense of humor.</b>
-> <p><i>Jemima Kirke</i></p>
+> <b>Each moment of a happy lover's hour is worth an age of dull and common life.</b>
+> <p><i>Aphra Behn</i></p>
 
 <br>
