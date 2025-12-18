@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our fathers valued change for the sake of its results we value it in the act.</b>
-> <p><i>Alice Meynell</i></p>
+> <b>When you walk the track and you see a corner and realise you were going round it at 160mph, you wonder who could be so stupid to take a corner at that speed. But in the car, you don't even think about that.</b>
+> <p><i>Sebastian Vettel</i></p>
 
 <br>
