@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate the idea that you shouldn't wear something just because you're a certain age.</b>
-> <p><i>Miuccia Prada</i></p>
+> <b>Violence is a problem we all want to solve. I want to make sure that kids learn to deal with anger by learning how to talk with people to solve problems. Here in the United States Senate I want to make sure we have safe schools, safe neighborhoods and good things for kids to do after school!</b>
+> <p><i>Patty Murray</i></p>
 
 <br>
