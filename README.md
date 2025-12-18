@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life deprived of beauty is not worthy of being called human.</b>
-> <p><i>Luis Barragan</i></p>
+> <b>Young men soon give, and soon forget, affronts old age is slow in both.</b>
+> <p><i>Joseph Addison</i></p>
 
 <br>
