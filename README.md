@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is far more than white hair, wrinkles, the feeling that it is too late and the game finished, that the stage belongs to the rising generations. The true evil is not the weakening of the body, but the indifference of the soul.</b>
-> <p><i>Andre Maurois</i></p>
+> <b>I had amazing stuff happen right off the top. I thought this was how it worked. Hollywood is awesome! Cut to three years later: What happened?</b>
+> <p><i>Dana Fox</i></p>
 
 <br>
