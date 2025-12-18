@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to find yourself is to lose yourself in the service of others.</b>
-> <p><i>Mahatma Gandhi</i></p>
+> <b>Seek art from every time and place, in any form, to connect with those who really move you.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
