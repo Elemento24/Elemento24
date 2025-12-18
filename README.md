@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you walk the track and you see a corner and realise you were going round it at 160mph, you wonder who could be so stupid to take a corner at that speed. But in the car, you don't even think about that.</b>
-> <p><i>Sebastian Vettel</i></p>
+> <b>I think you have to feel comfortable with your car. You have to go into turn one, every lap, with confidence. You have to be sure of yourself and your equipment.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
