@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because of my age and because there's more work on the small screen. What it's missing in quality it makes up for in quantity. From an actor's selfish point of view.</b>
-> <p><i>Cesar Romero</i></p>
+> <b>The herd instinct among forecasters makes sheep look like independent thinkers.</b>
+> <p><i>Edgar R. Fiedler</i></p>
 
 <br>
