@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been a fascinating thing because we didn't really know how to write when we started South Park at all. It's been like, we've just sort of grown up a bit and it's amazing to just see how, if you take Butters and Cartman and put them in any scene, it works.</b>
-> <p><i>Trey Parker</i></p>
+> <b>So I'm not worried about the emotions I carry with me, because I'm happy that I have them I think it's good for the work I do. The emotions that are not healthy are the ones you hold inside, like anger.</b>
+> <p><i>Diana Ross</i></p>
 
 <br>
