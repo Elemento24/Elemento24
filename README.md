@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bambi can't act. Bambi had major attitude.</b>
-> <p><i>Treat Williams</i></p>
+> <b>In the digital age of 'overnight' success stories such as Facebook, the hard slog is easily overlooked.</b>
+> <p><i>James Dyson</i></p>
 
 <br>
