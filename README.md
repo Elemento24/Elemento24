@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think you have to feel comfortable with your car. You have to go into turn one, every lap, with confidence. You have to be sure of yourself and your equipment.</b>
-> <p><i>Danica Patrick</i></p>
+> <b>I gambled and I lost. I failed in securing my options for this choice for myself, but I succeeded in verifying the Dark Age is still with us.</b>
+> <p><i>Jack Kevorkian</i></p>
 
 <br>
