@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Seek art from every time and place, in any form, to connect with those who really move you.</b>
-> <p><i>Martha Beck</i></p>
+> <b>The buck stops with the guy who signs the checks.</b>
+> <p><i>Rupert Murdoch</i></p>
 
 <br>
