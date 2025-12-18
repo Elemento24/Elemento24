@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had amazing stuff happen right off the top. I thought this was how it worked. Hollywood is awesome! Cut to three years later: What happened?</b>
-> <p><i>Dana Fox</i></p>
+> <b>The best way to find yourself is to lose yourself in the service of others.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
