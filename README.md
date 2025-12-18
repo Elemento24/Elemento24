@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Young men soon give, and soon forget, affronts old age is slow in both.</b>
-> <p><i>Joseph Addison</i></p>
+> <b>Our fathers valued change for the sake of its results we value it in the act.</b>
+> <p><i>Alice Meynell</i></p>
 
 <br>
