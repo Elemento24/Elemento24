@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best remedy for those who are afraid, lonely or unhappy is to go outside, somewhere where they can be quiet, alone with the heavens, nature and God. Because only then does one feel that all is as it should be.</b>
-> <p><i>Anne Frank</i></p>
+> <b>It's a good thing that beauty is only skin deep, or I'd be rotten to the core.</b>
+> <p><i>Phyllis Diller</i></p>
 
 <br>
