@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The books that help you most are those which make you think that most. The hardest way of learning is that of easy reading but a great book that comes from a great thinker is a ship of thought, deep freighted with truth and beauty.</b>
-> <p><i>Pablo Neruda</i></p>
+> <b>I'm taking a bit of a wait-and-see attitude towards 3D.</b>
+> <p><i>Christopher Nolan</i></p>
 
 <br>
