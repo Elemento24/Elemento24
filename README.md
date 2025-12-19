@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My stay-married secret would probably be exercising good communication, not when you have to but all the time. I think if you do that, you kinda just cleanse the situations, so there's not build up. I think that's probably the best way to do it.</b>
-> <p><i>Guy Fieri</i></p>
+> <b>After I left the White House, I kept a foothold in the business of American politics as a talk-show host, analyst, commentator, speechmaker, and occasional writer. I was no longer a practitioner, but I was still a partisan, a Democrat, a blue-stater through and through.</b>
+> <p><i>Dee Dee Myers</i></p>
 
 <br>
