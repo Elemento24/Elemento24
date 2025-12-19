@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After I left the White House, I kept a foothold in the business of American politics as a talk-show host, analyst, commentator, speechmaker, and occasional writer. I was no longer a practitioner, but I was still a partisan, a Democrat, a blue-stater through and through.</b>
-> <p><i>Dee Dee Myers</i></p>
+> <b>Our country will, I believe, sooner forgive an officer for attacking an enemy than for letting it alone.</b>
+> <p><i>Horatio Nelson</i></p>
 
 <br>
