@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have been alone since my husband died. I stay in my home. I don't date. It's hard to date when you're at home. Nobody knows you.</b>
-> <p><i>Anna Nicole Smith</i></p>
+> <b>Now I see the secret of making the best person: it is to grow in the open air and to eat and sleep with the earth.</b>
+> <p><i>Walt Whitman</i></p>
 
 <br>
