@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents armed me with an amazing sense of humor, and it's what you need when, well, it's what anyone needs in this world.</b>
-> <p><i>Warwick Davis</i></p>
+> <b>Nowadays it seems more and more like the 'business' in 'show business' is underlined, and there are campaigns, and it's all part of getting people in to see the movies.</b>
+> <p><i>Jeff Bridges</i></p>
 
 <br>
