@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your talent is your art. It is not to be taken for granted.</b>
-> <p><i>Paula Abdul</i></p>
+> <b>One of the advantages of moving quickly is if you do something wrong you can change it. What technologies tend to do is they tend to make a lot of mistakes... but then we go back and aggressively attack those mistakes - and fix them. And you usually recover pretty quickly.</b>
+> <p><i>Marc Andreessen</i></p>
 
 <br>
