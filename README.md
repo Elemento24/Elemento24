@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our country will, I believe, sooner forgive an officer for attacking an enemy than for letting it alone.</b>
-> <p><i>Horatio Nelson</i></p>
+> <b>Your talent is your art. It is not to be taken for granted.</b>
+> <p><i>Paula Abdul</i></p>
 
 <br>
