@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am artistic so I reserve the right to change my mind at any point. I just like to do different things. What is more important than the name is that people know that I really like acting, I enjoy it and I want people to know that I am serious.</b>
-> <p><i>LL Cool J</i></p>
+> <b>Old age is like everything else. To make a success of it, you've got to start young.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
