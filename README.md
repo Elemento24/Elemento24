@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To my mind the old masters are not art their value is in their scarcity.</b>
-> <p><i>Thomas A. Edison</i></p>
+> <b>My stay-married secret would probably be exercising good communication, not when you have to but all the time. I think if you do that, you kinda just cleanse the situations, so there's not build up. I think that's probably the best way to do it.</b>
+> <p><i>Guy Fieri</i></p>
 
 <br>
