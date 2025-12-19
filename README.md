@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I gambled and I lost. I failed in securing my options for this choice for myself, but I succeeded in verifying the Dark Age is still with us.</b>
-> <p><i>Jack Kevorkian</i></p>
+> <b>I have been alone since my husband died. I stay in my home. I don't date. It's hard to date when you're at home. Nobody knows you.</b>
+> <p><i>Anna Nicole Smith</i></p>
 
 <br>
