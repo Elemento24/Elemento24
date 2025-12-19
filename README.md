@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm taking a bit of a wait-and-see attitude towards 3D.</b>
-> <p><i>Christopher Nolan</i></p>
+> <b>The anger that Uncle Junior has comes from my background. My father was the son of an Italian immigrant, and I've seen the fire of the Italian temperament. It can be explosive sometimes in ways that are both funny and tragic.</b>
+> <p><i>Dominic Chianese</i></p>
 
 <br>
