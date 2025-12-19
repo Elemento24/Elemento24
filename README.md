@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The signs of outstanding leadership appear primarily among the followers. Are the followers reaching their potential? Are they learning? Serving? Do they achieve the required results? Do they change with grace? Manage conflict?</b>
-> <p><i>Max de Pree</i></p>
+> <b>Freedom is the sure possession of those alone who have the courage to defend it.</b>
+> <p><i>Pericles</i></p>
 
 <br>
