@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now I see the secret of making the best person: it is to grow in the open air and to eat and sleep with the earth.</b>
-> <p><i>Walt Whitman</i></p>
+> <b>The hope and change the Democrats had in mind was nothing more than a retread of the failed and discredited socialist policies that have been the enemy of freedom for centuries all over the world. I fear America is teetering towards tyranny.</b>
+> <p><i>Jim DeMint</i></p>
 
 <br>
