@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is like everything else. To make a success of it, you've got to start young.</b>
-> <p><i>Theodore Roosevelt</i></p>
+> <b>It is change, continuing change, inevitable change, that is the dominant factor in society today. No sensible decision can be made any longer without taking into account not only the world as it is, but the world as it will be.</b>
+> <p><i>Isaac Asimov</i></p>
 
 <br>
