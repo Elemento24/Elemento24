@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If thou art a master, be sometimes blind if a servant, sometimes deaf.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>The signs of outstanding leadership appear primarily among the followers. Are the followers reaching their potential? Are they learning? Serving? Do they achieve the required results? Do they change with grace? Manage conflict?</b>
+> <p><i>Max de Pree</i></p>
 
 <br>
