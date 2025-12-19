@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The hope and change the Democrats had in mind was nothing more than a retread of the failed and discredited socialist policies that have been the enemy of freedom for centuries all over the world. I fear America is teetering towards tyranny.</b>
-> <p><i>Jim DeMint</i></p>
+> <b>I am artistic so I reserve the right to change my mind at any point. I just like to do different things. What is more important than the name is that people know that I really like acting, I enjoy it and I want people to know that I am serious.</b>
+> <p><i>LL Cool J</i></p>
 
 <br>
