@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nowadays it seems more and more like the 'business' in 'show business' is underlined, and there are campaigns, and it's all part of getting people in to see the movies.</b>
-> <p><i>Jeff Bridges</i></p>
+> <b>I think music is the greatest art form that exists, and I think people listen to music for different reasons, and it serves different purposes. Some of it is background music, and some of it is things that might affect a person's day, if not their life, or change an attitude. The best songs are the ones that make you feel something.</b>
+> <p><i>Eddie Vedder</i></p>
 
 <br>
