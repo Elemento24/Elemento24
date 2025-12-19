@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the advantages of moving quickly is if you do something wrong you can change it. What technologies tend to do is they tend to make a lot of mistakes... but then we go back and aggressively attack those mistakes - and fix them. And you usually recover pretty quickly.</b>
-> <p><i>Marc Andreessen</i></p>
+> <b>More books, more racing and more foolishness with cars and motorcycles are in the works.</b>
+> <p><i>Brock Yates</i></p>
 
 <br>
