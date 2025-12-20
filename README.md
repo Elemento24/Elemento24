@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never played much golf as a kid. I caddied quite a bit but never got serious into golf until about age 15.</b>
-> <p><i>Lee Trevino</i></p>
+> <b>My grandma's the most careful, safe driver in the world. You put her in a rental car, and she's doing doughnuts in the K-Mart parking lot!</b>
+> <p><i>Jeff Foxworthy</i></p>
 
 <br>
