@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It took me twenty years to get Steven Parrino's work. From the time I first saw his art, in the mid-eighties, I almost always dismissed it as mannered, Romantic, formulaic, conceptualist-formalist heavy-metal boy-art abstraction.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>One of the many things nobody ever tells you about middle age is that it's such a nice change from being young.</b>
+> <p><i>William Feather</i></p>
 
 <br>
