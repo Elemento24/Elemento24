@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The anger that Uncle Junior has comes from my background. My father was the son of an Italian immigrant, and I've seen the fire of the Italian temperament. It can be explosive sometimes in ways that are both funny and tragic.</b>
-> <p><i>Dominic Chianese</i></p>
+> <b>I don't think about art when I'm working. I try to think about life.</b>
+> <p><i>Jean-Michel Basquiat</i></p>
 
 <br>
