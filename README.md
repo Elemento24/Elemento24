@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger, if not restrained, is frequently more hurtful to us than the injury that provokes it.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>I never played much golf as a kid. I caddied quite a bit but never got serious into golf until about age 15.</b>
+> <p><i>Lee Trevino</i></p>
 
 <br>
