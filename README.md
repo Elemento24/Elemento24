@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The year most of my high school friends and I got our driver's permits, the coolest thing one could do was stand outside after school and twirl one's car keys like a lifeguard whistle. That jingling sound meant freedom and power.</b>
-> <p><i>Sloane Crosley</i></p>
+> <b>If you dream of something worth doing and then simply go to work on it and don't think anything of personalities, or emotional conflicts, or of money, or of family distractions it is amazing how quickly you get through those 5,000 steps.</b>
+> <p><i>Edwin Land</i></p>
 
 <br>
