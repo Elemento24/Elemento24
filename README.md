@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always been a business person.</b>
-> <p><i>Bethenny Frankel</i></p>
+> <b>I hate modern car radios. In my car, I don't even have a push-button radio. It's just got a dial and two knobs. Just AM. One knob makes it louder, and one knob changes the station. When you're driving, that's all I want.</b>
+> <p><i>Chris Isaak</i></p>
 
 <br>
