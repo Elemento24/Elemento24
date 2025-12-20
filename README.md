@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe in incentivizing people. If you can incentivize people in anything, whether it's in politics in life in spirituality in business just take care of folks. Incentivize them and all of a sudden it's amazing the difference that you'll see.</b>
-> <p><i>Zachary Levi</i></p>
+> <b>I mean, there are some amazing storytelling being done on the small screen right now. That's what so cool about being in television right now. Studios, networks are starting to throw more resources, better writers, more production values... and to be part of that is awesome.</b>
+> <p><i>Ian Somerhalder</i></p>
 
 <br>
