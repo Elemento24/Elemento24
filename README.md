@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the many things nobody ever tells you about middle age is that it's such a nice change from being young.</b>
-> <p><i>William Feather</i></p>
+> <b>The year most of my high school friends and I got our driver's permits, the coolest thing one could do was stand outside after school and twirl one's car keys like a lifeguard whistle. That jingling sound meant freedom and power.</b>
+> <p><i>Sloane Crosley</i></p>
 
 <br>
