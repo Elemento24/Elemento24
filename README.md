@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My grandma's the most careful, safe driver in the world. You put her in a rental car, and she's doing doughnuts in the K-Mart parking lot!</b>
-> <p><i>Jeff Foxworthy</i></p>
+> <b>L.A. has a fantastic car scene and because the climate is so gentle, cars can last forever.</b>
+> <p><i>Lee Child</i></p>
 
 <br>
