@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you dream of something worth doing and then simply go to work on it and don't think anything of personalities, or emotional conflicts, or of money, or of family distractions it is amazing how quickly you get through those 5,000 steps.</b>
-> <p><i>Edwin Land</i></p>
+> <b>Activist government overreach and ongoing economic stagnation have shown us why Washington should not try to displace what is best left to civil society.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
