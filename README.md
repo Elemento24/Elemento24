@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All my favorite stars, my family and my friends are here. I'm having the happiest birthday that an 18-year-old girl could ever have.</b>
-> <p><i>Brandy Norwood</i></p>
+> <b>Cities are the greatest creations of humanity.</b>
+> <p><i>Daniel Libeskind</i></p>
 
 <br>
