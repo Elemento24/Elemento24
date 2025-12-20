@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So, we just kind of created our own thing and that's part of the beauty of Athens: is that it's so off the map and there's no way you could ever be the East Village or an L.A. scene or a San Francisco scene, that it just became its own thing.</b>
-> <p><i>Michael Stipe</i></p>
+> <b>I have always been a business person.</b>
+> <p><i>Bethenny Frankel</i></p>
 
 <br>
