@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For a man who has compared himself to Theodore Roosevelt and the nation's challenges to those of the Gilded Age, Obama put forward a tepid agenda.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>All my favorite stars, my family and my friends are here. I'm having the happiest birthday that an 18-year-old girl could ever have.</b>
+> <p><i>Brandy Norwood</i></p>
 
 <br>
