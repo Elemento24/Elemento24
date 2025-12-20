@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate modern car radios. In my car, I don't even have a push-button radio. It's just got a dial and two knobs. Just AM. One knob makes it louder, and one knob changes the station. When you're driving, that's all I want.</b>
-> <p><i>Chris Isaak</i></p>
+> <b>If you don't change, then what's the point of anything happening to you?</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
