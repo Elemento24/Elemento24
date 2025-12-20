@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think about art when I'm working. I try to think about life.</b>
-> <p><i>Jean-Michel Basquiat</i></p>
+> <b>We should meet abuse by forbearance. Human nature is so constituted that if we take absolutely no notice of anger or abuse, the person indulging in it will soon weary of it and stop.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
