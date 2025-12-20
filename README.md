@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, there are some amazing storytelling being done on the small screen right now. That's what so cool about being in television right now. Studios, networks are starting to throw more resources, better writers, more production values... and to be part of that is awesome.</b>
-> <p><i>Ian Somerhalder</i></p>
+> <b>While I'm not a celebrity, it's such a weird concept that society has cooked up for us. Astronauts and teachers are much more amazing than actors.</b>
+> <p><i>Joseph Gordon-Levitt</i></p>
 
 <br>
