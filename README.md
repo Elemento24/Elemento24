@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time is generally the best doctor.</b>
-> <p><i>Ovid</i></p>
+> <b>Another thing to do with the blues is how they were recorded. They were done on the quick, and some of that stuff was made on wire, not even tape, let alone digital.</b>
+> <p><i>Keith Richards</i></p>
 
 <br>
