@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Isn't it amazing the way the future succeeds in creating an appropriate past?</b>
-> <p><i>John Leonard</i></p>
+> <b>A woman is gentle, soft, delicate, and a man's position is to protect her, help her up stairs, make sure she's in the car safely first. Take good care of your woman, and the sky's the limit!</b>
+> <p><i>Taraji P. Henson</i></p>
 
 <br>
