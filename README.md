@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never felt like I was in the cookie business. I've always been in a feel good feeling business. My job is to sell joy. My job is to sell happiness. My job is to sell an experience.</b>
-> <p><i>Debbi Fields</i></p>
+> <b>We had a relationship that lasted 44 years. Herbert and I lived together 10 years before we were married. He always gave me a little heart for whatever anniversary.</b>
+> <p><i>Uta Hagen</i></p>
 
 <br>
