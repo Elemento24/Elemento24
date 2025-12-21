@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just had my 30th birthday and we went turkey shooting. It's what I wanted to do, so we went.</b>
-> <p><i>Kelly Clarkson</i></p>
+> <b>If I look at the message I'm portraying, I think it definitely is be who you are, but be your best you.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
