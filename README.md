@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not out here to win a beauty contest.</b>
-> <p><i>Kirk Gibson</i></p>
+> <b>After you're older, two things are possibly more important than any others: health and money.</b>
+> <p><i>Helen Gurley Brown</i></p>
 
 <br>
