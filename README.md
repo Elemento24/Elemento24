@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another thing to do with the blues is how they were recorded. They were done on the quick, and some of that stuff was made on wire, not even tape, let alone digital.</b>
-> <p><i>Keith Richards</i></p>
+> <b>I have to be alone very often. I'd be quite happy if I spent from Saturday night until Monday morning alone in my apartment. That's how I refuel.</b>
+> <p><i>Audrey Hepburn</i></p>
 
 <br>
