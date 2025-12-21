@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A sculptor wields The chisel, and the stricken marble grows To beauty.</b>
-> <p><i>William C. Bryant</i></p>
+> <b>There are no better cosmetics than a severe temperance and purity, modesty and humility, a gracious temper and calmness of spirit and there is no true beauty without the signatures of these graces in the very countenance.</b>
+> <p><i>Arthur Helps</i></p>
 
 <br>
