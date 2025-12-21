@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We had a relationship that lasted 44 years. Herbert and I lived together 10 years before we were married. He always gave me a little heart for whatever anniversary.</b>
-> <p><i>Uta Hagen</i></p>
+> <b>There is an anti-aging possibility, but it has to come from within.</b>
+> <p><i>Susan Anton</i></p>
 
 <br>
