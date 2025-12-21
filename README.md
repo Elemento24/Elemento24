@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have to be alone very often. I'd be quite happy if I spent from Saturday night until Monday morning alone in my apartment. That's how I refuel.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>Change is the law of life. And those who look only to the past or present are certain to miss the future.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
