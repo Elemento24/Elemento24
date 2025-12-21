@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And the attitude of faith is the very opposite of clinging to belief, of holding on.</b>
-> <p><i>Alan Watts</i></p>
+> <b>That's what I love. Not being interrupted, sitting in a car by myself and listening to music in the rain. There are so many great songs yet to sing.</b>
+> <p><i>Alison Krauss</i></p>
 
 <br>
