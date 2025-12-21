@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change is the law of life. And those who look only to the past or present are certain to miss the future.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>And the attitude of faith is the very opposite of clinging to belief, of holding on.</b>
+> <p><i>Alan Watts</i></p>
 
 <br>
