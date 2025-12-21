@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After you're older, two things are possibly more important than any others: health and money.</b>
-> <p><i>Helen Gurley Brown</i></p>
+> <b>I just had my 30th birthday and we went turkey shooting. It's what I wanted to do, so we went.</b>
+> <p><i>Kelly Clarkson</i></p>
 
 <br>
