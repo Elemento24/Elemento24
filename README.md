@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just because you put higher-octane gasoline in your car doesn't mean you can break the speed limit. The speed limit's still 65.</b>
-> <p><i>Neil Sheehan</i></p>
+> <b>I felt a tremendous sadness for men who can't deal with a woman of their own age.</b>
+> <p><i>Michael Caine</i></p>
 
 <br>
