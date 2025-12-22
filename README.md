@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A leader does not deserve the name unless he is willing occasionally to stand alone.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>I like to pretend that my art has nothing to do with me.</b>
+> <p><i>Roy Lichtenstein</i></p>
 
 <br>
