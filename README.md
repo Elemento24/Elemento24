@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's pretty cool to be able to hang out with the President and have the race-winning car on the South Lawn.</b>
-> <p><i>Buddy Rice</i></p>
+> <b>For beautiful eyes, look for the good in others for beautiful lips, speak only words of kindness and for poise, walk with the knowledge that you are never alone.</b>
+> <p><i>Audrey Hepburn</i></p>
 
 <br>
