@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our marriage is between us. If we decide to continue being together or not, it's our business.</b>
-> <p><i>Gwyneth Paltrow</i></p>
+> <b>Architecture is involved with the world, but at the same time it has a certain autonomy. This autonomy cannot be explained in terms of traditional logic because the most interesting parts of the work are non-verbal. They operate within the terms of the work, like any art.</b>
+> <p><i>Thom Mayne</i></p>
 
 <br>
