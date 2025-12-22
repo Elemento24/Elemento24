@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I felt a tremendous sadness for men who can't deal with a woman of their own age.</b>
-> <p><i>Michael Caine</i></p>
+> <b>It is conventional to call 'monster' any blending of dissonant elements. I call 'monster' every original inexhaustible beauty.</b>
+> <p><i>Alfred Jarry</i></p>
 
 <br>
