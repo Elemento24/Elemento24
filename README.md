@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will never be an old man. To me, old age is always 15 years older than I am.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>I was always an observer, even as a child. I could be satisfied to sit in a car for 3 hours and just look at the street go by while my mother went shopping.</b>
+> <p><i>Jonathan Winters</i></p>
 
 <br>
