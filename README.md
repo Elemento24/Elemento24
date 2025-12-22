@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Brands must empower their community to be change agents in their own right. To that end, they need to take on a mentoring role. This means the brand provides the tools, techniques and strategies for their customers to become more effective marketers in achieving their own goals.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>The philosophies of one age have become the absurdities of the next, and the foolishness of yesterday has become the wisdom of tomorrow.</b>
+> <p><i>William Osler</i></p>
 
 <br>
