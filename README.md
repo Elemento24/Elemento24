@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The philosophies of one age have become the absurdities of the next, and the foolishness of yesterday has become the wisdom of tomorrow.</b>
-> <p><i>William Osler</i></p>
+> <b>This, and this alone, is Christianity, a universal holiness in every part of life, a heavenly wisdom in all our actions, not conforming to the spirit and temper of the world but turning all worldly enjoyments into means of piety and devotion to God.</b>
+> <p><i>William Law</i></p>
 
 <br>
