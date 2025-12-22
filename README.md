@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is involved with the world, but at the same time it has a certain autonomy. This autonomy cannot be explained in terms of traditional logic because the most interesting parts of the work are non-verbal. They operate within the terms of the work, like any art.</b>
-> <p><i>Thom Mayne</i></p>
+> <b>Words are not as satisfactory as we should like them to be, but, like our neighbours, we have got to live with them and must make the best and not the worst of them.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
