@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Very few, if any, first-generation black or white or Asian kids will pursue a Ph.D. They'll pursue the professions for economic security. Many will go to law school and/or business school.</b>
-> <p><i>Henry Louis Gates</i></p>
+> <b>A leader does not deserve the name unless he is willing occasionally to stand alone.</b>
+> <p><i>Henry A. Kissinger</i></p>
 
 <br>
