@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Words are not as satisfactory as we should like them to be, but, like our neighbours, we have got to live with them and must make the best and not the worst of them.</b>
-> <p><i>Samuel Butler</i></p>
+> <b>It's pretty cool to be able to hang out with the President and have the race-winning car on the South Lawn.</b>
+> <p><i>Buddy Rice</i></p>
 
 <br>
