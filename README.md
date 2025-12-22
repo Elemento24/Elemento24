@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always an observer, even as a child. I could be satisfied to sit in a car for 3 hours and just look at the street go by while my mother went shopping.</b>
-> <p><i>Jonathan Winters</i></p>
+> <b>Our marriage is between us. If we decide to continue being together or not, it's our business.</b>
+> <p><i>Gwyneth Paltrow</i></p>
 
 <br>
