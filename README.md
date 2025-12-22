@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I have a style, I am not aware of it.</b>
-> <p><i>Michael Graves</i></p>
+> <b>I could be on 52nd and Third in Manhattan up and ask a strange for directions and they will help you, that's a rural heart. Your car breaks down in the middle of Iowa or somewhere, or Tennessee where I'm from, people want to help each other. Given each opportunity, you see how people come together.</b>
+> <p><i>Rodney Atkins</i></p>
 
 <br>
