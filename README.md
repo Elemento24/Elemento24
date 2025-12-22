@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is conventional to call 'monster' any blending of dissonant elements. I call 'monster' every original inexhaustible beauty.</b>
-> <p><i>Alfred Jarry</i></p>
+> <b>Brands must empower their community to be change agents in their own right. To that end, they need to take on a mentoring role. This means the brand provides the tools, techniques and strategies for their customers to become more effective marketers in achieving their own goals.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
