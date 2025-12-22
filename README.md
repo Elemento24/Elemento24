@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman is gentle, soft, delicate, and a man's position is to protect her, help her up stairs, make sure she's in the car safely first. Take good care of your woman, and the sky's the limit!</b>
-> <p><i>Taraji P. Henson</i></p>
+> <b>I will never be an old man. To me, old age is always 15 years older than I am.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
