@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Creativity is allowing yourself to make mistakes. Art is knowing which ones to keep.</b>
-> <p><i>Scott Adams</i></p>
+> <b>At my age you don't go into fatherhood lightly.</b>
+> <p><i>Rod Stewart</i></p>
 
 <br>
