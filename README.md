@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would rather be a beggar and single than a queen and married.</b>
-> <p><i>Elizabeth I</i></p>
+> <b>Absolute truth belongs to Thee alone.</b>
+> <p><i>Gotthold Ephraim Lessing</i></p>
 
 <br>
