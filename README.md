@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cannot live under pressures from patrons, let alone paint.</b>
-> <p><i>Michelangelo</i></p>
+> <b>I accrued anger from people's low opinion of me and my work, and for the work I might be capable of.</b>
+> <p><i>Harrison Ford</i></p>
 
 <br>
