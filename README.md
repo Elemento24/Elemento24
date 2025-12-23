@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A leader does not deserve the name unless he is willing occasionally to stand alone.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>Observe, record, tabulate, communicate. Use your five senses. Learn to see, learn to hear, learn to feel, learn to smell, and know that by practice alone you can become expert.</b>
+> <p><i>William Osler</i></p>
 
 <br>
