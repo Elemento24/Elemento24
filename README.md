@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.</b>
-> <p><i>Raymond Chandler</i></p>
+> <b>A leader does not deserve the name unless he is willing occasionally to stand alone.</b>
+> <p><i>Henry A. Kissinger</i></p>
 
 <br>
