@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Georgian architecture respected the scale of both the individual and the community.</b>
-> <p><i>Stephen Gardiner</i></p>
+> <b>I've crashed my car three times.</b>
+> <p><i>Billy Joel</i></p>
 
 <br>
