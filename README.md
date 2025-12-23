@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I owe my success to having listened respectfully to the very best advice, and then going away and doing the exact opposite.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>Creativity is allowing yourself to make mistakes. Art is knowing which ones to keep.</b>
+> <p><i>Scott Adams</i></p>
 
 <br>
