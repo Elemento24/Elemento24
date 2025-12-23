@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Listen once in a while. It's amazing what you can hear.</b>
-> <p><i>Russell Baker</i></p>
+> <b>He never is alone that is accompanied with noble thoughts.</b>
+> <p><i>John Fletcher</i></p>
 
 <br>
