@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Absolute truth belongs to Thee alone.</b>
-> <p><i>Gotthold Ephraim Lessing</i></p>
+> <b>I think that New York is not the cultural centre of America, but the business and administrative centre of American culture.</b>
+> <p><i>Saul Bellow</i></p>
 
 <br>
