@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Observe, record, tabulate, communicate. Use your five senses. Learn to see, learn to hear, learn to feel, learn to smell, and know that by practice alone you can become expert.</b>
-> <p><i>William Osler</i></p>
+> <b>Many art-worlders have an if-you-say-so approach to art: Everyone is so scared of missing out on the next hot artist that it's never clear whether people are liking work because they like it or because other people do. Everyone is keeping up with the Joneses, and there are more Joneses than ever.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
