@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you stand alone and sell yourself, you can't please everyone. But when you're different, you can last.</b>
-> <p><i>Don Rickles</i></p>
+> <b>I would rather be a beggar and single than a queen and married.</b>
+> <p><i>Elizabeth I</i></p>
 
 <br>
