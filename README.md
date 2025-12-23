@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He never is alone that is accompanied with noble thoughts.</b>
-> <p><i>John Fletcher</i></p>
+> <b>I cannot live under pressures from patrons, let alone paint.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
