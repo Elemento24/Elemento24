@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've crashed my car three times.</b>
-> <p><i>Billy Joel</i></p>
+> <b>Yet what you need is not marches, demonstrations, rallies or wide associations, all of them are important. What you need is direct action. The sooner people understand that, the sooner we'll begin to change things.</b>
+> <p><i>Arthur Scargill</i></p>
 
 <br>
