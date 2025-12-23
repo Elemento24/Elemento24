@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At my age you don't go into fatherhood lightly.</b>
-> <p><i>Rod Stewart</i></p>
+> <b>Georgian architecture respected the scale of both the individual and the community.</b>
+> <p><i>Stephen Gardiner</i></p>
 
 <br>
