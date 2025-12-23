@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that New York is not the cultural centre of America, but the business and administrative centre of American culture.</b>
-> <p><i>Saul Bellow</i></p>
+> <b>Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.</b>
+> <p><i>Raymond Chandler</i></p>
 
 <br>
