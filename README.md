@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I live in a kind of gay bubble. I live in a gay house, I drive a gay car. I eat gay food.</b>
-> <p><i>Julian Clary</i></p>
+> <b>The war changed everybody's attitude. We became international almost overnight.</b>
+> <p><i>W. Averell Harriman</i></p>
 
 <br>
