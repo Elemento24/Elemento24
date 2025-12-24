@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger becomes limiting, restricting. You can't see through it. While anger is there, look at that, too. But after a while, you have to look at something else.</b>
-> <p><i>Thylias Moss</i></p>
+> <b>The humblest painter is a true scholar and the best of scholars the scholar of nature.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
