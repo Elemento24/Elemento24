@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The humblest painter is a true scholar and the best of scholars the scholar of nature.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>In days of doubt, in days of dreary musings on my country's fate, you alone are my comfort and support, oh great, powerful, righteous, and free Russian language!</b>
+> <p><i>Ivan Turgenev</i></p>
 
 <br>
