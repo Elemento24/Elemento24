@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who does not fill his world with phantoms remains alone.</b>
-> <p><i>Antonio Porchia</i></p>
+> <b>I think we ought to raise the age at which juveniles can have a gun.</b>
+> <p><i>George W. Bush</i></p>
 
 <br>
