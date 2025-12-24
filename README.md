@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best director is the one you don't see.</b>
-> <p><i>Billy Wilder</i></p>
+> <b>It seems that if one is working from the point of view of getting beauty in one's equations, and if one has really a sound insight, one is on a sure line of progress.</b>
+> <p><i>Paul Dirac</i></p>
 
 <br>
