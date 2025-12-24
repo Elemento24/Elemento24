@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we ought to raise the age at which juveniles can have a gun.</b>
-> <p><i>George W. Bush</i></p>
+> <b>If we don't like what the Republicans do, we need to get in there and change it.</b>
+> <p><i>Medgar Evers</i></p>
 
 <br>
