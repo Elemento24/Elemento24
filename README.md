@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In days of doubt, in days of dreary musings on my country's fate, you alone are my comfort and support, oh great, powerful, righteous, and free Russian language!</b>
-> <p><i>Ivan Turgenev</i></p>
+> <b>I feel so good after a workout. Any time you can be alone with yourself is really important.</b>
+> <p><i>Shay Mitchell</i></p>
 
 <br>
