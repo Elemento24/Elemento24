@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A fanatic is one who can't change his mind and won't change the subject.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>Fair peace becomes men ferocious anger belongs to beasts.</b>
+> <p><i>Ovid</i></p>
 
 <br>
