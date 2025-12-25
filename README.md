@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most terrifying thing I can think of is being alone - and I mean utterly alone, like no one else in the world alone - at night. That's the nucleus of the first story in my collection and it's also where the title came from for the book.</b>
-> <p><i>Paul Kane</i></p>
+> <b>It's important for moms to have alone time. However, that's the first thing that goes on a busy day. Fortunately for me, because of my job, I have to find the time to do it. At least that's the way my mind sees it.</b>
+> <p><i>Cindy Crawford</i></p>
 
 <br>
