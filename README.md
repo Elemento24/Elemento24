@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And it is still true, no matter how old you are, when you go out into the world it is best to hold hands and stick together.</b>
-> <p><i>Robert Fulghum</i></p>
+> <b>Older fatherhood isn't all bad: testosterone rates drop about 1% per year as men age, making them less reactive and more patient, and a professionally established middle-aged man is likely to have more time and money to devote to his kids than a twenty-something who's just getting started.</b>
+> <p><i>Jeffrey Kluger</i></p>
 
 <br>
