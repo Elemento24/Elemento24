@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I delight in my family obligations, but they leave little time for breaks let alone quick trips across the country.</b>
-> <p><i>Carre Otis</i></p>
+> <b>And it is still true, no matter how old you are, when you go out into the world it is best to hold hands and stick together.</b>
+> <p><i>Robert Fulghum</i></p>
 
 <br>
