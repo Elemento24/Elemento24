@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I feel like I'm not only the engine but the caboose. I have to be in the front car and pull forward, and at the same time run around behind and push everybody along with me.</b>
-> <p><i>Sandra Lee</i></p>
+> <b>The best way to deal with that is to live in a fully conscious, compassionate, loving way. Don't wait until you're on your deathbed to recognize that this is the only way to live.</b>
+> <p><i>Morrie Schwartz</i></p>
 
 <br>
