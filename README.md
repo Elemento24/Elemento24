@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There will never be great architects or great architecture without great patrons.</b>
-> <p><i>Edwin Lutyens</i></p>
+> <b>I gave up lots of things I love doing: writing, and business, and playing the piano and so on.</b>
+> <p><i>William Hague</i></p>
 
 <br>
