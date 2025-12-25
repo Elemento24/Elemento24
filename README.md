@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I keep sailing on in this middle passage. I am sailing into the wind and the dark. But I am doing my best to keep my boat steady and my sails full.</b>
-> <p><i>Arthur Ashe</i></p>
+> <b>I really think we should pass a law in every state, I don't care whether it takes the independence away from an old person or not. You shouldn't be driving a car if you're over the age of 80. Maybe even less than that.</b>
+> <p><i>Evel Knievel</i></p>
 
 <br>
