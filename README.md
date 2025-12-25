@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's important for moms to have alone time. However, that's the first thing that goes on a busy day. Fortunately for me, because of my job, I have to find the time to do it. At least that's the way my mind sees it.</b>
-> <p><i>Cindy Crawford</i></p>
+> <b>Good satire comes from anger. It comes from a sense of injustice, that there are wrongs in the world that need to be fixed. And what better place to get that well of venom and outrage boiling than a newsroom, because you're on the front lines.</b>
+> <p><i>Carl Hiaasen</i></p>
 
 <br>
