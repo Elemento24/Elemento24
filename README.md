@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not some great work of beauty and love to be a rock-and-roll singer.</b>
-> <p><i>Robert Plant</i></p>
+> <b>Sometimes I feel like I'm not only the engine but the caboose. I have to be in the front car and pull forward, and at the same time run around behind and push everybody along with me.</b>
+> <p><i>Sandra Lee</i></p>
 
 <br>
