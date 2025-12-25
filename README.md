@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I gave up lots of things I love doing: writing, and business, and playing the piano and so on.</b>
-> <p><i>William Hague</i></p>
+> <b>It's been an amazing year of individual performances.</b>
+> <p><i>Steve Kerr</i></p>
 
 <br>
