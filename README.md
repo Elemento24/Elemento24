@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Older fatherhood isn't all bad: testosterone rates drop about 1% per year as men age, making them less reactive and more patient, and a professionally established middle-aged man is likely to have more time and money to devote to his kids than a twenty-something who's just getting started.</b>
-> <p><i>Jeffrey Kluger</i></p>
+> <b>A fanatic is one who can't change his mind and won't change the subject.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
