@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really think we should pass a law in every state, I don't care whether it takes the independence away from an old person or not. You shouldn't be driving a car if you're over the age of 80. Maybe even less than that.</b>
-> <p><i>Evel Knievel</i></p>
+> <b>I think, like everybody else in New Hampshire, when I pull up to fill up my car and I pay $50, I get upset. And I'm wondering if these prices are legitimate.</b>
+> <p><i>Judd Gregg</i></p>
 
 <br>
