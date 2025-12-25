@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe I could have had a career in the music industry without 'X Factor,' but it was an amazing platform that propelled me to where I am now.</b>
-> <p><i>Leona Lewis</i></p>
+> <b>I have amazing people around me. I couldn't be in a better place. I'm grateful for my life and where I'm at. I never thought I could be in the position that I'm in.</b>
+> <p><i>Ashlee Simpson</i></p>
 
 <br>
