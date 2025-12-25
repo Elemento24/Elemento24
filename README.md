@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes I feel like I'm not only the engine but the caboose. I have to be in the front car and pull forward, and at the same time run around behind and push everybody along with me.</b>
-> <p><i>Sandra Lee</i></p>
+> <b>I believe I could have had a career in the music industry without 'X Factor,' but it was an amazing platform that propelled me to where I am now.</b>
+> <p><i>Leona Lewis</i></p>
 
 <br>
