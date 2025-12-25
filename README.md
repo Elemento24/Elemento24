@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think, like everybody else in New Hampshire, when I pull up to fill up my car and I pay $50, I get upset. And I'm wondering if these prices are legitimate.</b>
-> <p><i>Judd Gregg</i></p>
+> <b>It's not some great work of beauty and love to be a rock-and-roll singer.</b>
+> <p><i>Robert Plant</i></p>
 
 <br>
