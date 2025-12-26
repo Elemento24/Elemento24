@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lying just for the fun of it is either art or pathology.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>I guess if you take yourself seriously as an artist there starts either the problem or the beauty of doing good artwork.</b>
+> <p><i>Bill Griffith</i></p>
 
 <br>
