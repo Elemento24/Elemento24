@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music is the best way for me to say I love you.</b>
-> <p><i>Mireille Mathieu</i></p>
+> <b>Lying just for the fun of it is either art or pathology.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
