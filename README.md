@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After all, the chief business of the American people is business. They are profoundly concerned with producing, buying, selling, investing and prospering in the world.</b>
-> <p><i>Calvin Coolidge</i></p>
+> <b>A technical solution may be defined as one that requires a change only in the techniques of the natural sciences, demanding little or nothing in the way of change in human values or ideas of morality.</b>
+> <p><i>Garrett Hardin</i></p>
 
 <br>
