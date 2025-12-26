@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I see architecture not as Gropius did, as a moral venture, as truth, but as invention, in the same way that poetry or music or painting is invention.</b>
-> <p><i>Michael Graves</i></p>
+> <b>My heart has been heavy and I have deliberated within my own conscience, knowing that my decision should not come out of my initial emotion of anger toward the President for such reckless behavior, but should be based on the facts.</b>
+> <p><i>Blanche Lincoln</i></p>
 
 <br>
