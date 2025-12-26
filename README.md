@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I suddenly realized how much I loved her when we attended Alfred Hitchcock's 75th birthday party last August. There was something magical about that night, and it made me see how much she really meant to me.</b>
-> <p><i>Rod Taylor</i></p>
+> <b>Her beauty didn't do her any good and she couldn't use it in any positive way or manipulative way. I just hope that people will look and see and believe in that hope of love, that hope of freedom, even if it was just for a limited time.</b>
+> <p><i>Diane Kruger</i></p>
 
 <br>
