@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The body can do amazing things in a situation when it is really called for.</b>
-> <p><i>Suzanne Farrell</i></p>
+> <b>Liberal that I am, I support health-care reform on its merits alone. My liberal blood boils, for example, when I read that half of the personal bankruptcies in this country are brought on, in part, by medical expenses.</b>
+> <p><i>Thomas Frank</i></p>
 
 <br>
