@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nature scarcely ever gives us the very best for that we must have recourse to art.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>I see architecture not as Gropius did, as a moral venture, as truth, but as invention, in the same way that poetry or music or painting is invention.</b>
+> <p><i>Michael Graves</i></p>
 
 <br>
