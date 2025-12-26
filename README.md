@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is whatever you think it is. You are as old as you think you are.</b>
-> <p><i>Muhammad Ali</i></p>
+> <b>Nature scarcely ever gives us the very best for that we must have recourse to art.</b>
+> <p><i>Baltasar Gracian</i></p>
 
 <br>
