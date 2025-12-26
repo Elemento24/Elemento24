@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves.</b>
-> <p><i>Buddha</i></p>
+> <b>Poetry is the rhythmical creation of beauty in words.</b>
+> <p><i>Edgar Allan Poe</i></p>
 
 <br>
