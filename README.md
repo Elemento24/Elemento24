@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Liberal that I am, I support health-care reform on its merits alone. My liberal blood boils, for example, when I read that half of the personal bankruptcies in this country are brought on, in part, by medical expenses.</b>
-> <p><i>Thomas Frank</i></p>
+> <b>If art is to nourish the roots of our culture, society must set the artist free to follow his vision wherever it takes him.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
