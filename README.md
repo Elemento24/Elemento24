@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Best of all is it to preserve everything in a pure, still heart, and let there be for every pulse a thanksgiving, and for every breath a song.</b>
-> <p><i>Konrad von Gesner</i></p>
+> <b>In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves.</b>
+> <p><i>Buddha</i></p>
 
 <br>
