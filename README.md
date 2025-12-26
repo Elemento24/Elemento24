@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've purged myself of bitterness and anger and remained open to love.</b>
-> <p><i>Tatum O'Neal</i></p>
+> <b>People are always saying that Hollywood messes up kids. I'm like, 'No, families mess up kids!' I grew up in Hollywood, and I'm perfectly fine. If my children want to go into the entertainment business, I won't stop them, as long as they're passionate about it.</b>
+> <p><i>Tori Spelling</i></p>
 
 <br>
