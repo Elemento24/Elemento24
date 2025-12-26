@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good satire comes from anger. It comes from a sense of injustice, that there are wrongs in the world that need to be fixed. And what better place to get that well of venom and outrage boiling than a newsroom, because you're on the front lines.</b>
-> <p><i>Carl Hiaasen</i></p>
+> <b>The body can do amazing things in a situation when it is really called for.</b>
+> <p><i>Suzanne Farrell</i></p>
 
 <br>
