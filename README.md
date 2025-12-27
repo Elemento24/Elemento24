@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is art that makes life, makes interest, makes importance and I know of no substitute whatever for the force and beauty of its process.</b>
-> <p><i>Max Eastman</i></p>
+> <b>I just broke up with my boyfriend, and I've been spending more time alone than I'd like.</b>
+> <p><i>Lucinda Williams</i></p>
 
 <br>
