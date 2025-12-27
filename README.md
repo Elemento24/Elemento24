@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rationalism is the enemy of art, though necessary as a basis for architecture.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>I need to do things on my own, need to be left alone.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
