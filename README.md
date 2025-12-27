@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All species capable of grasping this fact manage better in the struggle for existence than those which rely upon their own strength alone: the wolf, which hunts in a pack, has a greater chance of survival than the lion, which hunts alone.</b>
-> <p><i>Christian Lous Lange</i></p>
+> <b>I like physics. I think it is the best science out of all three of them, because generally it's more useful. You learn about speed and velocity and time, and that's all clever stuff.</b>
+> <p><i>Tom Felton</i></p>
 
 <br>
