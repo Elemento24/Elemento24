@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To write the lives of the great in separating them from their works necessarily ends by above all stressing their pettiness, because it is in their work that they have put the best of themselves.</b>
-> <p><i>Simone Weil</i></p>
+> <b>Those who remember Washington's cold war culture in the 1980s will recall the shocked reactions to Reagan's intervention. People interested in foreign policy were astonished when in 1985 he met alone at Geneva - alone, not a single strategic thinker at his elbow! - with the Soviet Communist master Gorbachev.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
