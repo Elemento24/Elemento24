@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just broke up with my boyfriend, and I've been spending more time alone than I'd like.</b>
-> <p><i>Lucinda Williams</i></p>
+> <b>To write the lives of the great in separating them from their works necessarily ends by above all stressing their pettiness, because it is in their work that they have put the best of themselves.</b>
+> <p><i>Simone Weil</i></p>
 
 <br>
