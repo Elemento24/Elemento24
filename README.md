@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I need to do things on my own, need to be left alone.</b>
-> <p><i>Henry Rollins</i></p>
+> <b>No single man can be taken as a model for a perfect figure, for no man lives on earth who is endowed with the whole of beauty.</b>
+> <p><i>Albrecht Durer</i></p>
 
 <br>
