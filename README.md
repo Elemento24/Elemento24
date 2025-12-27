@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who remember Washington's cold war culture in the 1980s will recall the shocked reactions to Reagan's intervention. People interested in foreign policy were astonished when in 1985 he met alone at Geneva - alone, not a single strategic thinker at his elbow! - with the Soviet Communist master Gorbachev.</b>
-> <p><i>Russell Baker</i></p>
+> <b>I have been overcome by the beauty and richness of our life together, those early mornings setting out, those evenings gleaming with rivers and lakes below us, still holding the last light.</b>
+> <p><i>Anne Morrow Lindbergh</i></p>
 
 <br>
