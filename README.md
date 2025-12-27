@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My kids always perceived the bathroom as a place where you wait it out until all the groceries are unloaded from the car.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>All species capable of grasping this fact manage better in the struggle for existence than those which rely upon their own strength alone: the wolf, which hunts in a pack, has a greater chance of survival than the lion, which hunts alone.</b>
+> <p><i>Christian Lous Lange</i></p>
 
 <br>
