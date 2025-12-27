@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The screen is a magic medium. It has such power that it can retain interest as it conveys emotions and moods that no other art form can hope to tackle.</b>
-> <p><i>Stanley Kubrick</i></p>
+> <b>Is it not by love alone that we succeed in penetrating to the very essence of being?</b>
+> <p><i>Igor Stravinsky</i></p>
 
 <br>
