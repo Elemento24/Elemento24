@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Usually when people are sad, they don't do anything. They just cry over their condition. But when they get angry, they bring about a change.</b>
-> <p><i>James Russell Lowell</i></p>
+> <b>Everyone discusses my art and pretends to understand, as if it were necessary to understand, when it is simply necessary to love.</b>
+> <p><i>Claude Monet</i></p>
 
 <br>
