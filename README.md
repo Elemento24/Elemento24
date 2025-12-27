@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone discusses my art and pretends to understand, as if it were necessary to understand, when it is simply necessary to love.</b>
-> <p><i>Claude Monet</i></p>
+> <b>The screen is a magic medium. It has such power that it can retain interest as it conveys emotions and moods that no other art form can hope to tackle.</b>
+> <p><i>Stanley Kubrick</i></p>
 
 <br>
