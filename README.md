@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No single man can be taken as a model for a perfect figure, for no man lives on earth who is endowed with the whole of beauty.</b>
-> <p><i>Albrecht Durer</i></p>
+> <b>The kids are old enough now - I just want to let them be kids. I don't want to comment on them too much. They're at an age where I just want to let them be kids.</b>
+> <p><i>Eminem</i></p>
 
 <br>
