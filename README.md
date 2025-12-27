@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The kids are old enough now - I just want to let them be kids. I don't want to comment on them too much. They're at an age where I just want to let them be kids.</b>
-> <p><i>Eminem</i></p>
+> <b>Where children are, there is the golden age.</b>
+> <p><i>Novalis</i></p>
 
 <br>
