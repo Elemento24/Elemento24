@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's an amazing luxury to say I'm 31 years old and I'm gonna take a year off. That's pretty amazing.</b>
-> <p><i>Sarah McLachlan</i></p>
+> <b>Usually when people are sad, they don't do anything. They just cry over their condition. But when they get angry, they bring about a change.</b>
+> <p><i>James Russell Lowell</i></p>
 
 <br>
