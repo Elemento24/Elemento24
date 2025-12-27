@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is it not by love alone that we succeed in penetrating to the very essence of being?</b>
-> <p><i>Igor Stravinsky</i></p>
+> <b>Every day I'm thinking about change.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
