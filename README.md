@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Where children are, there is the golden age.</b>
-> <p><i>Novalis</i></p>
+> <b>Everyone can identify with a fragrant garden, with beauty of sunset, with the quiet of nature, with a warm and cozy cottage.</b>
+> <p><i>Thomas Kincade</i></p>
 
 <br>
