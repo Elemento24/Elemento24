@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have been overcome by the beauty and richness of our life together, those early mornings setting out, those evenings gleaming with rivers and lakes below us, still holding the last light.</b>
-> <p><i>Anne Morrow Lindbergh</i></p>
+> <b>Since my induction into the Sports Hall of Fame, I have wanted to have my No. 3 Chevy on exhibit for sports fans to see. I hope others will enjoy the car as much as I have.</b>
+> <p><i>Junior Johnson</i></p>
 
 <br>
