@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today, I think the attitude is that governing is not necessarily good politics, and the result is that it's much more partisan and much more divided.</b>
-> <p><i>Leon Panetta</i></p>
+> <b>I really think it is amazing that people actually buy software.</b>
+> <p><i>Bill Budge</i></p>
 
 <br>
