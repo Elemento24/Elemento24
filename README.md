@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We tend to think of age only in time, but I don't think it has much to do with time at all there's a whole load of other things. I've met 16-year-olds who are old and 90-year-olds who are young.</b>
-> <p><i>Roger Daltrey</i></p>
+> <b>Today, I think the attitude is that governing is not necessarily good politics, and the result is that it's much more partisan and much more divided.</b>
+> <p><i>Leon Panetta</i></p>
 
 <br>
