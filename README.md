@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Why is it you feel like a dope if you laugh alone, but that's usually how you end up crying?</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>This great, though disastrous, culture can only change as we begin to stand off and see... the inveterate materialism which has become the model for cultures around the world.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
