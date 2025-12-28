@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best books... are those that tell you what you know already.</b>
-> <p><i>George Orwell</i></p>
+> <b>It is amazing how nice people are to you when they know you're going away.</b>
+> <p><i>Michael Arlen</i></p>
 
 <br>
