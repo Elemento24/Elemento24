@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is great folly to wish to be wise all alone.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>Research has shown that the best way to be happy is to make each day happy.</b>
+> <p><i>Deepak Chopra</i></p>
 
 <br>
