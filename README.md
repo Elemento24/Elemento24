@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love is the best thing in the world, and the thing that lives the longest.</b>
-> <p><i>Henry Van Dyke</i></p>
+> <b>Now suddenly there was nothing but a world of cloud, and we three were there alone in the middle of a great white plain with snowy hills and mountains staring at us and it was very still but there were whispers.</b>
+> <p><i>Black Elk</i></p>
 
 <br>
