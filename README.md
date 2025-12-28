@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe we need to attract a new generation of the best and brightest to public service and I believe that government can be a source of inspiration, not degradation.</b>
-> <p><i>Andrew Cuomo</i></p>
+> <b>Letting your mind play is the best way to solve problems.</b>
+> <p><i>Bill Watterson</i></p>
 
 <br>
