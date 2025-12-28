@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The person who tries to live alone will not succeed as a human being. His heart withers if it does not answer another heart. His mind shrinks away if he hears only the echoes of his own thoughts and finds no other inspiration.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>Expect the best, plan for the worst, and prepare to be surprised.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
