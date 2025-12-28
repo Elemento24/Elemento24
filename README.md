@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Research has shown that the best way to be happy is to make each day happy.</b>
-> <p><i>Deepak Chopra</i></p>
+> <b>I think a simple rule of business is, if you do the things that are easier first, then you can actually make a lot of progress.</b>
+> <p><i>Mark Zuckerberg</i></p>
 
 <br>
