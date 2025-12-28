@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This great, though disastrous, culture can only change as we begin to stand off and see... the inveterate materialism which has become the model for cultures around the world.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>It was the drawing that led me to architecture, the search for light and astonishing forms.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
