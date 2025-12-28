@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Having a clear faith, based on the creed of the church is often labeled today as fundamentalism. Whereas relativism, which is letting oneself be tossed and swept along by every wind of teaching, look like the only attitude acceptable to today's standards.</b>
-> <p><i>Joseph Ratzinger</i></p>
+> <b>You're only as young as the last time you changed your mind.</b>
+> <p><i>Timothy Leary</i></p>
 
 <br>
