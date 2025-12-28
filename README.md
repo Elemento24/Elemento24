@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Expect the best, plan for the worst, and prepare to be surprised.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>We tend to think of age only in time, but I don't think it has much to do with time at all there's a whole load of other things. I've met 16-year-olds who are old and 90-year-olds who are young.</b>
+> <p><i>Roger Daltrey</i></p>
 
 <br>
