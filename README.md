@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think a simple rule of business is, if you do the things that are easier first, then you can actually make a lot of progress.</b>
-> <p><i>Mark Zuckerberg</i></p>
+> <b>The person who tries to live alone will not succeed as a human being. His heart withers if it does not answer another heart. His mind shrinks away if he hears only the echoes of his own thoughts and finds no other inspiration.</b>
+> <p><i>Pearl S. Buck</i></p>
 
 <br>
