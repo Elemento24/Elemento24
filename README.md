@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In art, all who have done something other than their predecessors have merited the epithet of revolutionary and it is they alone who are masters.</b>
-> <p><i>Paul Gauguin</i></p>
+> <b>I would love a family. I'm at the age where the wish for a child gets stronger. But who knows.</b>
+> <p><i>Cameron Diaz</i></p>
 
 <br>
