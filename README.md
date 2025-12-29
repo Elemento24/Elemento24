@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music makes your soul feel amazing while you're performing it.</b>
-> <p><i>Bijou Phillips</i></p>
+> <b>The best time for you to hold your tongue is the time you feel you must say something or bust.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
