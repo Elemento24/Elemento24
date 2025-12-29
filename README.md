@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of my favorite activities as a teen-ager was to watch television over the phone with my best friend.</b>
-> <p><i>Susan Orlean</i></p>
+> <b>Which government is the best? The one that teaches us to govern ourselves.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
