@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Low levels of vitamin D in the population as a whole suggest that most people need to take a vitamin D supplement. This may be especially true for seniors, as the ability to synthesize vitamin D in the skin declines with age.</b>
-> <p><i>Andrew Weil</i></p>
+> <b>In art, all who have done something other than their predecessors have merited the epithet of revolutionary and it is they alone who are masters.</b>
+> <p><i>Paul Gauguin</i></p>
 
 <br>
