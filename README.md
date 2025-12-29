@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger cannot be dishonest.</b>
-> <p><i>Marcus Aurelius</i></p>
+> <b>I can't really define it in sexual terms alone although our sexuality is so energizing why not enjoy it too?</b>
+> <p><i>Audre Lorde</i></p>
 
 <br>
