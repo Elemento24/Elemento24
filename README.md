@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An art whose medium is language will always show a high degree of critical creativeness, for speech is itself a critique of life: it names, it characterizes, it passes judgment, in that it creates.</b>
-> <p><i>Thomas Mann</i></p>
+> <b>Anger cannot be dishonest.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
