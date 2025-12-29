@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would love a family. I'm at the age where the wish for a child gets stronger. But who knows.</b>
-> <p><i>Cameron Diaz</i></p>
+> <b>Being seventy is not a sin.</b>
+> <p><i>Golda Meir</i></p>
 
 <br>
