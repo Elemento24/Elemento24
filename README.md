@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best time for you to hold your tongue is the time you feel you must say something or bust.</b>
-> <p><i>Josh Billings</i></p>
+> <b>One of my favorite activities as a teen-ager was to watch television over the phone with my best friend.</b>
+> <p><i>Susan Orlean</i></p>
 
 <br>
