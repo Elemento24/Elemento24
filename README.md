@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't really define it in sexual terms alone although our sexuality is so energizing why not enjoy it too?</b>
-> <p><i>Audre Lorde</i></p>
+> <b>The age of a woman doesn't mean a thing. The best tunes are played on the oldest fiddles.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
