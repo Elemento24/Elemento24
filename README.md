@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Solidarity is an attitude of resistance, I suppose, or it should be.</b>
-> <p><i>Christopher Hitchens</i></p>
+> <b>We will see that our new attitude toward liquor has been given to us without any thought or effort on our part. It just comes! That is the miracle of it.</b>
+> <p><i>William Griffith Wilson</i></p>
 
 <br>
