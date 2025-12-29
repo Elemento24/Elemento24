@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember being in Hollywood at the age of 16 and marveling at the stars. The idea of being part of it never entered my mind. It was too far-fetched.</b>
-> <p><i>Bryan Adams</i></p>
+> <b>I was a mixture of being incredibly old for my age and incredibly backwards. I was born quite old, but then I stopped growing. I lived with my mum and dad till I was 30.</b>
+> <p><i>Helena Bonham Carter</i></p>
 
 <br>
