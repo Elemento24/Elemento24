@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At my age you don't go into fatherhood lightly.</b>
-> <p><i>Rod Stewart</i></p>
+> <b>My goal was never to just create a company. A lot of people misinterpret that, as if I don't care about revenue or profit or any of those things. But what not being just a company means to me is not being just that - building something that actually makes a really big change in the world.</b>
+> <p><i>Mark Zuckerberg</i></p>
 
 <br>
