@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Under this window in stormy weather I marry this man and woman together Let none but Him who rules the thunder Put this man and woman asunder.</b>
-> <p><i>Jonathan Swift</i></p>
+> <b>Don't think of yourself as a woman in business.</b>
+> <p><i>Carly Fiorina</i></p>
 
 <br>
