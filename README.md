@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Does art have a future? Performance genres like opera, theater, music and dance are thriving all over the world, but the visual arts have been in slow decline for nearly 40 years. No major figure of profound influence has emerged in painting or sculpture since the waning of Pop Art and the birth of Minimalism in the early 1970s.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>I am artistic so I reserve the right to change my mind at any point. I just like to do different things. What is more important than the name is that people know that I really like acting, I enjoy it and I want people to know that I am serious.</b>
+> <p><i>LL Cool J</i></p>
 
 <br>
