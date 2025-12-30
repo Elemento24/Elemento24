@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To resist the frigidity of old age, one must combine the body, the mind, and the heart. And to keep these in parallel vigor one must exercise, study, and love.</b>
-> <p><i>Alan Bleasdale</i></p>
+> <b>Because of that I don't care when I read in the newspaper that I am colourblind. I went through a red light in my car and I stopped when I before a green light. So I must be really colourblind, eh?</b>
+> <p><i>Ruud van Nistelrooy</i></p>
 
 <br>
