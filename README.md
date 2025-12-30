@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.</b>
-> <p><i>Walter Benjamin</i></p>
+> <b>If you say, 'I'm going to cut this song because I know the teenagers are going to love it,' well, then you're going to alienate everybody else. When I cut my record, I'm just going to cut the things that I like, and whoever likes it, likes it. That's too much work to try to figure out the demographic. That's too much like a business.</b>
+> <p><i>Jason Aldean</i></p>
 
 <br>
