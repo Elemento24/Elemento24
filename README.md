@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being seventy is not a sin.</b>
-> <p><i>Golda Meir</i></p>
+> <b>In science, as in art, and, as I believe, in every other sphere of human activity, there may be wisdom in a multitude of counsellors, but it is only in one or two of them.</b>
+> <p><i>Thomas Huxley</i></p>
 
 <br>
