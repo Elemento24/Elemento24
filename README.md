@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because of that I don't care when I read in the newspaper that I am colourblind. I went through a red light in my car and I stopped when I before a green light. So I must be really colourblind, eh?</b>
-> <p><i>Ruud van Nistelrooy</i></p>
+> <b>By all these lovely tokens September days are here, With summer's best of weather And autumn's best of cheer.</b>
+> <p><i>Helen Hunt Jackson</i></p>
 
 <br>
