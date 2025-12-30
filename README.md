@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No woman has to be a victim of physical abuse. Women have to feel like they are not alone.</b>
-> <p><i>Salma Hayek</i></p>
+> <b>I mean, the whole idea of movies was it was special to go to see - you went to a movie theater to see something that was magical and amazing, in a very special location.</b>
+> <p><i>Bob Balaban</i></p>
 
 <br>
