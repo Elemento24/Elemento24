@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Interest is the spur of the people, but glory that of great souls. Invention is the talent of youth, and judgment of age.</b>
-> <p><i>Jonathan Swift</i></p>
+> <b>The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.</b>
+> <p><i>Walter Benjamin</i></p>
 
 <br>
