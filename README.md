@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't think of yourself as a woman in business.</b>
-> <p><i>Carly Fiorina</i></p>
+> <b>Talk is by far the most accessible of pleasures. It costs nothing in money, it is all profit, it completes our education, founds and fosters our friendships, and can be enjoyed at any age and in almost any state of health.</b>
+> <p><i>Robert Louis Stevenson</i></p>
 
 <br>
