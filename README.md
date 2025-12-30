@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is time for parents to teach young people early on that in diversity there is beauty and there is strength.</b>
-> <p><i>Maya Angelou</i></p>
+> <b>No woman has to be a victim of physical abuse. Women have to feel like they are not alone.</b>
+> <p><i>Salma Hayek</i></p>
 
 <br>
