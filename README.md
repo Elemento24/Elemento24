@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's what I love. Not being interrupted, sitting in a car by myself and listening to music in the rain. There are so many great songs yet to sing.</b>
-> <p><i>Alison Krauss</i></p>
+> <b>Mum loves me being famous! She is so excited and proud, as she had me so young and couldn't support me, so I am living her dream, it's sweeter for both of us. It's her 40th birthday soon and I'm going to buy her 40 presents.</b>
+> <p><i>Adele</i></p>
 
 <br>
