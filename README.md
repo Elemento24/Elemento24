@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man, I don't want to have nothing to do with computers. I don't want the government in my business.</b>
-> <p><i>Erykah Badu</i></p>
+> <b>Under this window in stormy weather I marry this man and woman together Let none but Him who rules the thunder Put this man and woman asunder.</b>
+> <p><i>Jonathan Swift</i></p>
 
 <br>
