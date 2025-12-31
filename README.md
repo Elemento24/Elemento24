@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Things turn out best for the people who make the best of the way things turn out.</b>
-> <p><i>John Wooden</i></p>
+> <b>I learned from Mr. Wrigley, early in my career, that loyalty wins and it creates friendships. I saw it work for him in his business.</b>
+> <p><i>Ernie Banks</i></p>
 
 <br>
