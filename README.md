@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to visualize a second or two ahead of your car what line you are taking, what you are going to do, before you get there because it comes too fast.</b>
-> <p><i>Emerson Fittipaldi</i></p>
+> <b>Without strength and courage it's really hard to perform at the highest levels of international figure skating, because you're alone on the ice and you only have seven minutes over two nights to prove yourself.</b>
+> <p><i>Scott Hamilton</i></p>
 
 <br>
