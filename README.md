@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dogs feel very strongly that they should always go with you in the car, in case the need should arise for them to bark violently at nothing right in your ear.</b>
-> <p><i>Dave Barry</i></p>
+> <b>I mean, why am I considered an 'it girl?' Because I'm in a lot of movies right now or am on the covers of magazines? I just hope there is something solid behind that. Because here's the thing with 'it girl' status. It's great and amazing that anybody is saying that at all. But how long does that last?</b>
+> <p><i>Amanda Seyfried</i></p>
 
 <br>
