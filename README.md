@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I went through life like an idiot for a great deal of the time, saying there's nothing I would change. That was a very arrogant thing to say. There's a lot I would change. There are people I would have steered clear of.</b>
-> <p><i>Hugh Leonard</i></p>
+> <b>I'd date someone younger or older age doesn't matter to me. Or looks, really - it's all about maturity.</b>
+> <p><i>Leona Lewis</i></p>
 
 <br>
