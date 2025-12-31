@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to run around and look at a shot through a monitor. That doesn't improve what I'm trying to do. I figure, once I've done my job, it's none of my business.</b>
-> <p><i>Johnny Depp</i></p>
+> <b>When the soul looks out of its body, it should see only beauty in its path. These are the sights we must hold in mind, in order to move to a higher place.</b>
+> <p><i>Yusef Lateef</i></p>
 
 <br>
