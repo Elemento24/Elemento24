@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My sister Jennifer is an Emmy winning journalist and mother of three amazing girls. She brings an exceptional dedication to her job, her family, and her community, and has been a role model of mine for many, many years. I'm extremely proud of her.</b>
-> <p><i>Ron Livingston</i></p>
+> <b>People may hear your words, but they feel your attitude.</b>
+> <p><i>John C. Maxwell</i></p>
 
 <br>
