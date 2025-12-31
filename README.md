@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, why am I considered an 'it girl?' Because I'm in a lot of movies right now or am on the covers of magazines? I just hope there is something solid behind that. Because here's the thing with 'it girl' status. It's great and amazing that anybody is saying that at all. But how long does that last?</b>
-> <p><i>Amanda Seyfried</i></p>
+> <b>If you're in a bad situation, don't worry it'll change. If you're in a good situation, don't worry it'll change.</b>
+> <p><i>John A. Simone, Sr.</i></p>
 
 <br>
