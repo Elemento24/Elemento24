@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're in a bad situation, don't worry it'll change. If you're in a good situation, don't worry it'll change.</b>
-> <p><i>John A. Simone, Sr.</i></p>
+> <b>My sister Jennifer is an Emmy winning journalist and mother of three amazing girls. She brings an exceptional dedication to her job, her family, and her community, and has been a role model of mine for many, many years. I'm extremely proud of her.</b>
+> <p><i>Ron Livingston</i></p>
 
 <br>
