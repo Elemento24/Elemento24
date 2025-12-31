@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We cannot change our past. We can not change the fact that people act in a certain way. We can not change the inevitable. The only thing we can do is play on the one string we have, and that is our attitude.</b>
-> <p><i>Charles R. Swindoll</i></p>
+> <b>When I started my last business, I didn't receive a paycheck for 13 months. The average person can't handle that pressure.</b>
+> <p><i>Robert Kiyosaki</i></p>
 
 <br>
