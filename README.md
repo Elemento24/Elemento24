@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without strength and courage it's really hard to perform at the highest levels of international figure skating, because you're alone on the ice and you only have seven minutes over two nights to prove yourself.</b>
-> <p><i>Scott Hamilton</i></p>
+> <b>I have lost my seven best friends, which is to say God has had mercy on me seven times without realizing it. He lent a friendship, took it from me, sent me another.</b>
+> <p><i>Jean Cocteau</i></p>
 
 <br>
