@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that all the anger and cynicism comes from suppressing things that we always wanted.</b>
-> <p><i>John Lee Hancock</i></p>
+> <b>Dogs feel very strongly that they should always go with you in the car, in case the need should arise for them to bark violently at nothing right in your ear.</b>
+> <p><i>Dave Barry</i></p>
 
 <br>
