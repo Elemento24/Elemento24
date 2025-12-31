@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have lost my seven best friends, which is to say God has had mercy on me seven times without realizing it. He lent a friendship, took it from me, sent me another.</b>
-> <p><i>Jean Cocteau</i></p>
+> <b>I don't want to run around and look at a shot through a monitor. That doesn't improve what I'm trying to do. I figure, once I've done my job, it's none of my business.</b>
+> <p><i>Johnny Depp</i></p>
 
 <br>
