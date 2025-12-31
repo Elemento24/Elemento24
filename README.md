@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is eternity gazing at itself in a mirror.</b>
-> <p><i>Khalil Gibran</i></p>
+> <b>I will admit to hoarding beauty products. I'm a beauty lady.</b>
+> <p><i>Naya Rivera</i></p>
 
 <br>
