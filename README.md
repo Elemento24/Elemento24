@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very free-spirited and crazy. I love to have fun, and I like doing stupid things. At the same time, I'm like a 35-year-old. I have a house. I have a car. I have a steady job. I have a business, and I have to make serious decisions.</b>
-> <p><i>Avril Lavigne</i></p>
+> <b>You have to visualize a second or two ahead of your car what line you are taking, what you are going to do, before you get there because it comes too fast.</b>
+> <p><i>Emerson Fittipaldi</i></p>
 
 <br>
