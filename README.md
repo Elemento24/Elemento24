@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will admit to hoarding beauty products. I'm a beauty lady.</b>
-> <p><i>Naya Rivera</i></p>
+> <b>I liken myself to Henry Ford and the auto industry, I give you 90 percent of what most people need.</b>
+> <p><i>Adam Osborne</i></p>
 
 <br>
