@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You should always be well and bright, for so you do your best work and you have so much beautiful work to do. The world needs it, and you must give it!</b>
-> <p><i>Marie Corelli</i></p>
+> <b>There's no sense in going to a tournament if you don't believe that you can win it. And that is the belief I have always had. And that is not going to change.</b>
+> <p><i>Tiger Woods</i></p>
 
 <br>
