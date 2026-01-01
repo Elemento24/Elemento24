@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no substitute for accurate knowledge. Know yourself, know your business, know your men.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>I call architecture frozen music.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
