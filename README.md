@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm just attracted to playing people who are ostensible unlikable. That's not to say that there's something in there that makes you care. It might be that you just find them so awful that you just can't stop watching, like a car crash.</b>
-> <p><i>Steve Coogan</i></p>
+> <b>I knew at an early age I wanted to act. Acting was always easy for me. I don't believe in predestination, but I do believe that once you get where ever it is you are going, that is where you were going to be.</b>
+> <p><i>Morgan Freeman</i></p>
 
 <br>
