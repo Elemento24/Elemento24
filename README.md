@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We grew up in a very creative environment and were exposed to the arts at a very young age, so it's not a surprise that all of us are in some form of the arts.</b>
-> <p><i>Spike Lee</i></p>
+> <b>As a kid, I kind of spent my life being amazed by being tricked. I love being tricked. I still love it today.</b>
+> <p><i>Daniel Craig</i></p>
 
 <br>
