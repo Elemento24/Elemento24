@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I talked about the barriers created by monopolies. I said that it was the role of government to break up these monopolies and that we couldn't do it alone.</b>
-> <p><i>Joichi Ito</i></p>
+> <b>There is nothing so stable as change.</b>
+> <p><i>Bob Dylan</i></p>
 
 <br>
