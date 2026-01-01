@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first trip I remember taking was on the train from Virginia up to New York City, watching the summertime countryside rolling past the window. They used white linen tablecloths in the dining car in those days, and real silver. I love trains to this day. Maybe that was the beginning of my fixation with leisurely modes of travel.</b>
-> <p><i>Billy Campbell</i></p>
+> <b>The American Dream has run out of gas. The car has stopped. It no longer supplies the world with its images, its dreams, its fantasies. No more. It's over. It supplies the world with its nightmares now: the Kennedy assassination, Watergate, Vietnam.</b>
+> <p><i>J. G. Ballard</i></p>
 
 <br>
