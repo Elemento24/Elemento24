@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a kid, I kind of spent my life being amazed by being tricked. I love being tricked. I still love it today.</b>
-> <p><i>Daniel Craig</i></p>
+> <b>You should always be well and bright, for so you do your best work and you have so much beautiful work to do. The world needs it, and you must give it!</b>
+> <p><i>Marie Corelli</i></p>
 
 <br>
