@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The American Dream has run out of gas. The car has stopped. It no longer supplies the world with its images, its dreams, its fantasies. No more. It's over. It supplies the world with its nightmares now: the Kennedy assassination, Watergate, Vietnam.</b>
-> <p><i>J. G. Ballard</i></p>
+> <b>The components of anxiety, stress, fear, and anger do not exist independently of you in the world. They simply do not exist in the physical world, even though we talk about them as if they do.</b>
+> <p><i>Wayne Dyer</i></p>
 
 <br>
