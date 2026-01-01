@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In addition to this, they already have a fuel cell car on the road in Japan. It is subsidized from within the corporation because they are still at a high cost.</b>
-> <p><i>Maurice Strong</i></p>
+> <b>The first mistake in public business is the going into it.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
