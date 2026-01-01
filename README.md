@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing so stable as change.</b>
-> <p><i>Bob Dylan</i></p>
+> <b>Most of the change we think we see in life is due to truths being in and out of favor.</b>
+> <p><i>Robert Frost</i></p>
 
 <br>
