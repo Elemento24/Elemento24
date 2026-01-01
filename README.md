@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I call architecture frozen music.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>I absolutely refuse to reveal my age. What am I - a car?</b>
+> <p><i>Cyndi Lauper</i></p>
 
 <br>
