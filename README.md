@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the desire of a man to express himself, to record the reactions of his personality to the world he lives in.</b>
-> <p><i>Amy Lowell</i></p>
+> <b>There is no substitute for accurate knowledge. Know yourself, know your business, know your men.</b>
+> <p><i>Lee Iacocca</i></p>
 
 <br>
