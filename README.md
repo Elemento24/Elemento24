@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no sense in going to a tournament if you don't believe that you can win it. And that is the belief I have always had. And that is not going to change.</b>
-> <p><i>Tiger Woods</i></p>
+> <b>I'm just attracted to playing people who are ostensible unlikable. That's not to say that there's something in there that makes you care. It might be that you just find them so awful that you just can't stop watching, like a car crash.</b>
+> <p><i>Steve Coogan</i></p>
 
 <br>
