@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>ER was one of my favourites. I played a car accident victim who has leukemia. I got to wear a neck brace and nose tubes for the two days I worked.</b>
-> <p><i>Dakota Fanning</i></p>
+> <b>We grew up in a very creative environment and were exposed to the arts at a very young age, so it's not a surprise that all of us are in some form of the arts.</b>
+> <p><i>Spike Lee</i></p>
 
 <br>
