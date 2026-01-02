@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Inside myself is a place where I live all alone and that is where I renew my springs that never dry up.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>Even crushed against his brother in the Tube the average Englishman pretends desperately that he is alone.</b>
+> <p><i>Germaine Greer</i></p>
 
 <br>
