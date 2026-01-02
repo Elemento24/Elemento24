@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The great leaders are like the best conductors - they reach beyond the notes to reach the magic in the players.</b>
-> <p><i>Blaine Lee</i></p>
+> <b>In truth, I am a single mother. But I don't feel alone at all in parenting my daughter. Krishna has a whole other side of her family who loves her, too. And so Krishna is parented by me, but also by her grandmother and aunts and cousins and uncles and friends.</b>
+> <p><i>Padma Lakshmi</i></p>
 
 <br>
