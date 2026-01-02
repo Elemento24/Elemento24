@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I knew at an early age I wanted to act. Acting was always easy for me. I don't believe in predestination, but I do believe that once you get where ever it is you are going, that is where you were going to be.</b>
-> <p><i>Morgan Freeman</i></p>
+> <b>It begins and ends with money. It's absurd in this day and age when we need so much money for education, health, for people, that a $100 million dollars can be spent on a film. It's obscene.</b>
+> <p><i>Kathleen Turner</i></p>
 
 <br>
