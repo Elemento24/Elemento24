@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Celibacy is not just a matter of not having sex. It is a way of admiring a person for their humanity, maybe even for their beauty.</b>
-> <p><i>Timothy Radcliffe</i></p>
+> <b>I enjoy racing historic motorcars from the '50s and '60s. The seed of my interest was planted when I was about 12 years old and took over my mother's Morris Minor. I drove it around my father's farm. But my favorite car is still a McLaren F1, which I have had for 10 years.</b>
+> <p><i>Rowan Atkinson</i></p>
 
 <br>
