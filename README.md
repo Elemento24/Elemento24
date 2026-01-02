@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My best kiss was on stage. Kelly Rowland from Destiny's Child gave me a really nice soft kiss on my lips during a performance on my birthday. It was amazing.</b>
-> <p><i>Chris Brown</i></p>
+> <b>Willem de Kooning is generally credited for coming out of the painterly gates strong in the forties, revolutionizing art and abstraction and reaching incredible heights by the early fifties, and then tailing off.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
