@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.</b>
-> <p><i>Theodore Isaac Rubin</i></p>
+> <b>Love and business and family and religion and art and patriotism are nothing but shadows of words when a man's starving!</b>
+> <p><i>O. Henry</i></p>
 
 <br>
