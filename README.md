@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even crushed against his brother in the Tube the average Englishman pretends desperately that he is alone.</b>
-> <p><i>Germaine Greer</i></p>
+> <b>I don't want to be interesting. I want to be good.</b>
+> <p><i>Ludwig Mies van der Rohe</i></p>
 
 <br>
