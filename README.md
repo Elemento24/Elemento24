@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Willem de Kooning is generally credited for coming out of the painterly gates strong in the forties, revolutionizing art and abstraction and reaching incredible heights by the early fifties, and then tailing off.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I just think that people take me a little more seriously as a brunette. I don't know if that's just because of a societal preconceived notion that all blondes are stupid, but it's a different kind of attitude.</b>
+> <p><i>Kate Bosworth</i></p>
 
 <br>
