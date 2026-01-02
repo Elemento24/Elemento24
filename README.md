@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to be interesting. I want to be good.</b>
-> <p><i>Ludwig Mies van der Rohe</i></p>
+> <b>It is utterly false and cruelly arbitrary to put all the play and learning into childhood, all the work into middle age, and all the regrets into old age.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
