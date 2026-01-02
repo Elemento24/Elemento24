@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is utterly false and cruelly arbitrary to put all the play and learning into childhood, all the work into middle age, and all the regrets into old age.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>Major labels didn't start showing up really until they smelled money, and that's all they're ever going to be attracted to is money-that's the business they're in- making money.</b>
+> <p><i>Ian MacKaye</i></p>
 
 <br>
