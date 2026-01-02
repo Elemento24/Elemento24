@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Deliberation is the work of many men. Action, of one alone.</b>
-> <p><i>Charles de Gaulle</i></p>
+> <b>Celibacy is not just a matter of not having sex. It is a way of admiring a person for their humanity, maybe even for their beauty.</b>
+> <p><i>Timothy Radcliffe</i></p>
 
 <br>
