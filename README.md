@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love and business and family and religion and art and patriotism are nothing but shadows of words when a man's starving!</b>
-> <p><i>O. Henry</i></p>
+> <b>But my most favourite pursuit, after my daily exertions at the Foundry, was Astronomy. There were frequently clear nights when the glorious objects in the Heavens were seen in most attractive beauty and brilliancy.</b>
+> <p><i>James Nasmyth</i></p>
 
 <br>
