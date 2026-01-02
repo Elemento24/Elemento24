@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I could have been an architect, but I don't think I'd have been very happy. Nearly all modern architecture is a silly game as far as I can see.</b>
-> <p><i>Roger Waters</i></p>
+> <b>My best kiss was on stage. Kelly Rowland from Destiny's Child gave me a really nice soft kiss on my lips during a performance on my birthday. It was amazing.</b>
+> <p><i>Chris Brown</i></p>
 
 <br>
