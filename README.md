@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Major labels didn't start showing up really until they smelled money, and that's all they're ever going to be attracted to is money-that's the business they're in- making money.</b>
-> <p><i>Ian MacKaye</i></p>
+> <b>Take those chances and you can achieve greatness, whereas if you go conservative, you'll never know. I truly believe what doesn't kill you makes you stronger. Even if you fail, learning and moving on is sometimes the best thing.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
