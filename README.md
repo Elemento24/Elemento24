@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My attitude is that if you push me towards something that you think is a weakness, then I will turn that perceived weakness into a strength.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>I knew I was alone in a way that no earthling has ever been before.</b>
+> <p><i>Michael Collins</i></p>
 
 <br>
