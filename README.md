@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's important is promising something to the people, not actually keeping those promises. The people have always lived on hope alone.</b>
-> <p><i>Hermann Broch</i></p>
+> <b>The mind that is wise mourns less for what age takes away than what it leaves behind.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
