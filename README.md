@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The GTO is such an important car because it's a racing car and a touring car and that's pretty unusual.</b>
-> <p><i>Nick Mason</i></p>
+> <b>I feel however, that we architects have a special duty and mission... (to contribute) to the socio-cultural development of architecture and urban planning.</b>
+> <p><i>Kenzo Tange</i></p>
 
 <br>
