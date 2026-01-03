@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not skinny for the wrong reasons. It's not because I'm bulimic or anorexic or doing drugs. Compared to a lot of actresses my age, I'm actually overweight.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>The intention to live as long as possible isn't one of the mind's best intentions, because quantity isn't the same as quality.</b>
+> <p><i>Deepak Chopra</i></p>
 
 <br>
