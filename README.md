@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If all the cars in the United States were placed end to end, it would probably be Labor Day Weekend.</b>
-> <p><i>Doug Larson</i></p>
+> <b>The GTO is such an important car because it's a racing car and a touring car and that's pretty unusual.</b>
+> <p><i>Nick Mason</i></p>
 
 <br>
