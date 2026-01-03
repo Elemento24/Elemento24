@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An attitude of philosophic doubt, of suspended judgment, is repugnant to the natural man. Belief is an independent joy to him.</b>
-> <p><i>William Minto</i></p>
+> <b>What's important is promising something to the people, not actually keeping those promises. The people have always lived on hope alone.</b>
+> <p><i>Hermann Broch</i></p>
 
 <br>
