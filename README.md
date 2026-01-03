@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As you grow older, you change.</b>
-> <p><i>Martin Scorsese</i></p>
+> <b>Deep down, my mom had long suspected I was gay... Much of her anger and hurt came from her sense of betrayal that she was the last to be told.</b>
+> <p><i>Chaz Bono</i></p>
 
 <br>
