@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not since the digital revolution in the early '90s has technology placed such a comprehensive burden on business, employees and individuals to reinvent their business plans, services and products, and themselves to keep pace with the changing marketplace.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>It's to paint directly on the canvas without any funny business, as it were, and I use almost pure turpentine to start with, adding oil as I go along until the medium becomes pure oil. I use as little oil as I can possibly help, and that's my method.</b>
+> <p><i>Edward Hopper</i></p>
 
 <br>
