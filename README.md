@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The mind that is wise mourns less for what age takes away than what it leaves behind.</b>
-> <p><i>William Wordsworth</i></p>
+> <b>I hope 'The Voice' has a fifteen-year run, don't get me wrong. But I come from nothing, and maybe it's the Irish in me, but my attitude is always like, 'They'll figure me out soon.'</b>
+> <p><i>Carson Daly</i></p>
 
 <br>
