@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The intention to live as long as possible isn't one of the mind's best intentions, because quantity isn't the same as quality.</b>
-> <p><i>Deepak Chopra</i></p>
+> <b>What is it that love does to a woman? Without she only sleeps with it alone, she lives.</b>
+> <p><i>Ovid</i></p>
 
 <br>
