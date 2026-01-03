@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's an art to live with pain... mix the light into gray.</b>
-> <p><i>Eddie Vedder</i></p>
+> <b>My attitude is that if you push me towards something that you think is a weakness, then I will turn that perceived weakness into a strength.</b>
+> <p><i>Michael Jordan</i></p>
 
 <br>
