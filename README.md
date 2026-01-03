@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Deep down, my mom had long suspected I was gay... Much of her anger and hurt came from her sense of betrayal that she was the last to be told.</b>
-> <p><i>Chaz Bono</i></p>
+> <b>I'm very accepting with my age. It's like notches on your belt: experience, wisdom, and a different kind of beauty. There comes a day when you've become comfortable in your skin.</b>
+> <p><i>Zoe Saldana</i></p>
 
 <br>
