@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very accepting with my age. It's like notches on your belt: experience, wisdom, and a different kind of beauty. There comes a day when you've become comfortable in your skin.</b>
-> <p><i>Zoe Saldana</i></p>
+> <b>Not since the digital revolution in the early '90s has technology placed such a comprehensive burden on business, employees and individuals to reinvent their business plans, services and products, and themselves to keep pace with the changing marketplace.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
