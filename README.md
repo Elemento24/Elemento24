@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a really amazing fan club, it's contemporary but it's a little bit old school. There's a lot of connection. I have a fan club president who really responds to people.</b>
-> <p><i>Martina McBride</i></p>
+> <b>Making money is not gonna change anything about what I am, except I won't answer the door.</b>
+> <p><i>Abel Ferrara</i></p>
 
 <br>
