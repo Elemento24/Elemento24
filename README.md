@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing that no matter how much money you have, you can make some bad decisions, and in five months you're on the street, begging.</b>
-> <p><i>Paz de la Huerta</i></p>
+> <b>I see the Beijing National Stadium as an architectural project. I accepted Herzog and De Meuron's invitation to collaborate on the design, and our proposal won the competition. From beginning to end, I stayed with the project. I am committed to fostering relationships between a city and its architecture.</b>
+> <p><i>Ai Weiwei</i></p>
 
 <br>
