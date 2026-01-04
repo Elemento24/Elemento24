@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My grandfather was one of the most amazing Baptist ministers in history, he was unbelievable. He was one of the most amazing men - the most amazing man that I ever met... He lived an amazing life.</b>
-> <p><i>Josh Henderson</i></p>
+> <b>I am thrilled to be able to bring my vision of beauty to others who may be inspired by it.</b>
+> <p><i>Carol Alt</i></p>
 
 <br>
