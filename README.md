@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Handsome' means many things to many people. If people consider me handsome, I feel flattered - and have my parents to thank for it. Realistically, it doesn't hurt to be good-looking, especially in this business.</b>
-> <p><i>Richard Chamberlain</i></p>
+> <b>I have a really amazing fan club, it's contemporary but it's a little bit old school. There's a lot of connection. I have a fan club president who really responds to people.</b>
+> <p><i>Martina McBride</i></p>
 
 <br>
