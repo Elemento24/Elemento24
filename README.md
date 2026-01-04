@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your life is yours and yours alone. Rise up and live it.</b>
-> <p><i>Terry Goodkind</i></p>
+> <b>I've got CDs in my car, listening all the time for that next song, because everybody's looking.</b>
+> <p><i>Reba McEntire</i></p>
 
 <br>
