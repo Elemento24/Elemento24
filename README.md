@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am thrilled to be able to bring my vision of beauty to others who may be inspired by it.</b>
-> <p><i>Carol Alt</i></p>
+> <b>A diplomat is a man who always remembers a woman's birthday but never remembers her age.</b>
+> <p><i>Robert Frost</i></p>
 
 <br>
