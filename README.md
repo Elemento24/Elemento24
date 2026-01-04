@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, I've always said I have an amazing team and network of friends and people that I work with that, you know, inspire me and enable me to do what I do.</b>
-> <p><i>Alexander Wang</i></p>
+> <b>I worked at an ice cream parlor called Chadwicks. We wore old-timey outfits and had to bang a drum, play a kazoo, and sing 'Happy Birthday' to people while giving them free birthday sundaes. Lots of ice cream scooping and $1 tips.</b>
+> <p><i>Amy Poehler</i></p>
 
 <br>
