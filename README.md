@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would love to work with Paolo Nutini because he is so soulful and an amazing songwriter.</b>
-> <p><i>Birdy</i></p>
+> <b>Zest is the secret of all beauty. There is no beauty that is attractive without zest.</b>
+> <p><i>Christian Dior</i></p>
 
 <br>
