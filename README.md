@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone at home is so supportive. People recognise me, say how proud they are of me. It's awesome to hear, it's amazing to know I can touch so many people in a positive way.</b>
-> <p><i>Kirsty Coventry</i></p>
+> <b>I would love to work with Paolo Nutini because he is so soulful and an amazing songwriter.</b>
+> <p><i>Birdy</i></p>
 
 <br>
