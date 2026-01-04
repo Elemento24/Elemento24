@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What's certain is that a totalitarian enclave like Cuba's can't continue to exist, so change will definitely come there, eventually.</b>
-> <p><i>Vaclav Havel</i></p>
+> <b>I mean, I've always said I have an amazing team and network of friends and people that I work with that, you know, inspire me and enable me to do what I do.</b>
+> <p><i>Alexander Wang</i></p>
 
 <br>
