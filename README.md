@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dad encouraged us to fail. Growing up, he would ask us what we failed at that week. If we didn't have something, he would be disappointed. It changed my mindset at an early age that failure is not the outcome, failure is not trying. Don't be afraid to fail.</b>
-> <p><i>Sara Blakely</i></p>
+> <b>I never thought a basketball shoe would be named after a woman, let alone me.</b>
+> <p><i>Sheryl Swoopes</i></p>
 
 <br>
