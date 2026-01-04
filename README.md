@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A diplomat is a man who always remembers a woman's birthday but never remembers her age.</b>
-> <p><i>Robert Frost</i></p>
+> <b>'Handsome' means many things to many people. If people consider me handsome, I feel flattered - and have my parents to thank for it. Realistically, it doesn't hurt to be good-looking, especially in this business.</b>
+> <p><i>Richard Chamberlain</i></p>
 
 <br>
