@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I see the Beijing National Stadium as an architectural project. I accepted Herzog and De Meuron's invitation to collaborate on the design, and our proposal won the competition. From beginning to end, I stayed with the project. I am committed to fostering relationships between a city and its architecture.</b>
-> <p><i>Ai Weiwei</i></p>
+> <b>But I think it's a little different in Europe, because 40 is really the best age for a woman. That's when we hit our peak and become this ripe fruit.</b>
+> <p><i>Juliette Binoche</i></p>
 
 <br>
