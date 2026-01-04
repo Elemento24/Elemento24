@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a car fanatic and each morning I wake up with a smile on my face, whether I'm commentating on the Formula One or at Silver Hatch racetrack in Roary the Racing Car.</b>
-> <p><i>Murray Walker</i></p>
+> <b>What's certain is that a totalitarian enclave like Cuba's can't continue to exist, so change will definitely come there, eventually.</b>
+> <p><i>Vaclav Havel</i></p>
 
 <br>
