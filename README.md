@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since I wrote to you last we have got our chapel beautifully lighted with gas and have had our anniversary.</b>
-> <p><i>John Hawley</i></p>
+> <b>My grandfather was one of the most amazing Baptist ministers in history, he was unbelievable. He was one of the most amazing men - the most amazing man that I ever met... He lived an amazing life.</b>
+> <p><i>Josh Henderson</i></p>
 
 <br>
