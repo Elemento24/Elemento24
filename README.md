@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's very hard to write a song alone. It's only by jamming that you can get a song together.</b>
-> <p><i>Maurice Gibb</i></p>
+> <b>Exploiting people's emotions of fear, envy and anxiety is not hope, it's not change, it's partisanship. We don't need partisanship. We don't need demagoguery, we need solutions.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
