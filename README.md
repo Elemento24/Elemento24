@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't need you to remind me of my age. I have a bladder to do that for me.</b>
-> <p><i>Stephen Fry</i></p>
+> <b>Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
