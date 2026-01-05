@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been all over the world. I love New York, I love Paris, San Francisco, so many places. But there's no place like New Orleans. It's got the best food. It's got the best music. It's got the best people. It's got the most fun stuff to do.</b>
-> <p><i>Harry Connick, Jr.</i></p>
+> <b>I thought of Paris as a beauty spot on the face of the earth, and of London as a big freckle.</b>
+> <p><i>James Weldon Johnson</i></p>
 
 <br>
