@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just knowing that through my music I actually inspire people is amazing for me and I find it very heartwarming.</b>
-> <p><i>Thia Megia</i></p>
+> <b>If only life could be a little more tender and art a little more robust.</b>
+> <p><i>Alan Rickman</i></p>
 
 <br>
