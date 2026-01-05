@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children are amazing, and while I go to places like Princeton and Harvard and Yale, and of course I teach at Columbia, NYU, and that's nice and I love students, but the most fun of all are the real little ones, the young ones.</b>
-> <p><i>David Dinkins</i></p>
+> <b>I conceived in art college at the age of 20, near the end of term.</b>
+> <p><i>Joni Mitchell</i></p>
 
 <br>
