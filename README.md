@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've got CDs in my car, listening all the time for that next song, because everybody's looking.</b>
-> <p><i>Reba McEntire</i></p>
+> <b>I don't need you to remind me of my age. I have a bladder to do that for me.</b>
+> <p><i>Stephen Fry</i></p>
 
 <br>
