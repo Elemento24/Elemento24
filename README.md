@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And we turned off and 30 miles south they're standing in the middle of our road blocking our way, stopped the car, got out, took us through the path in the woods, where the craft was on the ground.</b>
-> <p><i>Betty Hill</i></p>
+> <b>Just knowing that through my music I actually inspire people is amazing for me and I find it very heartwarming.</b>
+> <p><i>Thia Megia</i></p>
 
 <br>
