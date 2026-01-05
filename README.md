@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a desire to create more film, more beauty, more art, more love, but I don't feel desperate. It's not about creating or building a career.</b>
-> <p><i>Lisa Bonet</i></p>
+> <b>The career stuff is for business people.</b>
+> <p><i>Joseph Gordon-Levitt</i></p>
 
 <br>
