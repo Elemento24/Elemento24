@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>I don't actually own a car.</b>
+> <p><i>Chris Martin</i></p>
 
 <br>
