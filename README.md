@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mathematics are the result of mysterious powers which no one understands, and which the unconscious recognition of beauty must play an important part. Out of an infinity of designs a mathematician chooses one pattern for beauty's sake and pulls it down to earth.</b>
-> <p><i>Marston Morse</i></p>
+> <b>It's very hard to write a song alone. It's only by jamming that you can get a song together.</b>
+> <p><i>Maurice Gibb</i></p>
 
 <br>
