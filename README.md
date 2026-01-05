@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Trying to describe something musical is like dancing to architecture, it's really difficult.</b>
-> <p><i>Robert Palmer</i></p>
+> <b>Children are amazing, and while I go to places like Princeton and Harvard and Yale, and of course I teach at Columbia, NYU, and that's nice and I love students, but the most fun of all are the real little ones, the young ones.</b>
+> <p><i>David Dinkins</i></p>
 
 <br>
