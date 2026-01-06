@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Friends are very important to me, and I have always had many of them. There are probably many reasons why this is so, but two seem to me more valid than any of the others I am a naturally friendly person, and I hate to be alone.</b>
-> <p><i>Georg Solti</i></p>
+> <b>It's like, it's kind of like if you ever had a car and it was a bit of a clunker but you love it, that's my show. It's a bit of a clunker but I know where everything is and I like it.</b>
+> <p><i>Craig Ferguson</i></p>
 
 <br>
