@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm calling from my car, I'm sorry, I'm like running around like crazy.</b>
-> <p><i>Melissa Joan Hart</i></p>
+> <b>What makes America amazing is that there have always been men and women of courage who were willing to think more about the future of their children and grandchildren than they did about their own political careers.</b>
+> <p><i>Scott Walker</i></p>
 
 <br>
