@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to change things for the better, just like everybody else.</b>
-> <p><i>Henry Rollins</i></p>
+> <b>I'm calling from my car, I'm sorry, I'm like running around like crazy.</b>
+> <p><i>Melissa Joan Hart</i></p>
 
 <br>
