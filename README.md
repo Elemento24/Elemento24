@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hope to have one more boxing match at the age of 55. Given that demographic at the age of 55 to 65, you've got to make a statement with your life. Otherwise, you are just existing.</b>
-> <p><i>George Foreman</i></p>
+> <b>I tend to stay up late, not because I'm partying but because it's the only time of the day when I'm alone and don't have to be performing.</b>
+> <p><i>Jim Carrey</i></p>
 
 <br>
