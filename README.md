@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And queenly is the state she keeps, In beauty's lofty trust secure.</b>
-> <p><i>William Allen Butler</i></p>
+> <b>Friends are very important to me, and I have always had many of them. There are probably many reasons why this is so, but two seem to me more valid than any of the others I am a naturally friendly person, and I hate to be alone.</b>
+> <p><i>Georg Solti</i></p>
 
 <br>
