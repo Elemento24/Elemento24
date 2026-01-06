@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wrote and produced millions and millions of selling records, so my publishing company alone was worth millions of dollars. I didn't have to work anymore in life because when the rappers started sampling... I'm the most sampled artist in history.</b>
-> <p><i>Rick James</i></p>
+> <b>Old age and treachery will always beat youth and exuberance.</b>
+> <p><i>David Mamet</i></p>
 
 <br>
