@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Which government is the best? The one that teaches us to govern ourselves.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>If I was writing songs just for me I'd only play them in my living room, alone.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
