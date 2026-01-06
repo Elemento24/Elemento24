@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each experience through which we pass operates ultimately for our good. This is a correct attitude to adopt and we must be able to see it in that light.</b>
-> <p><i>Henry S. Haskins</i></p>
+> <b>Creative ideas flourish best in a shop which preserves some spirit of fun. Nobody is in business for fun, but that does not mean there cannot be fun in business.</b>
+> <p><i>Leo Burnett</i></p>
 
 <br>
