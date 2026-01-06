@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What makes America amazing is that there have always been men and women of courage who were willing to think more about the future of their children and grandchildren than they did about their own political careers.</b>
-> <p><i>Scott Walker</i></p>
+> <b>Old age is always wakeful as if, the longer linked with life, the less man has to do with aught that looks like death.</b>
+> <p><i>Herman Melville</i></p>
 
 <br>
