@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is always wakeful as if, the longer linked with life, the less man has to do with aught that looks like death.</b>
-> <p><i>Herman Melville</i></p>
+> <b>I guess winning an Oscar is the ultimate dream. A lot of amazing actors go their whole career without even being nominated. So that would definitely be a goal to reach. It's a difficult one, but I'm aiming for it!</b>
+> <p><i>Taylor Lautner</i></p>
 
 <br>
