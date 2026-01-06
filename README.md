@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without art, the crudeness of reality would make the world unbearable.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>I hope to have one more boxing match at the age of 55. Given that demographic at the age of 55 to 65, you've got to make a statement with your life. Otherwise, you are just existing.</b>
+> <p><i>George Foreman</i></p>
 
 <br>
