@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of 'The Walking Dead' and the beauty of being on a television show for a while, is that, it's your backstory, it's part of what you are, it's what you carry with you every day.</b>
-> <p><i>Laurie Holden</i></p>
+> <b>Without art, the crudeness of reality would make the world unbearable.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
