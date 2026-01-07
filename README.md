@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only people who like to live alone more than comics are priests.</b>
-> <p><i>Colin Quinn</i></p>
+> <b>A person who is too nice an observer of the business of the crowd, like one who is too curious in observing the labor of bees, will often be stung for his curiosity.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
