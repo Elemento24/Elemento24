@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wit as an instrument of revenge is as infamous as art is as a means of sensual titillation.</b>
-> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
+> <b>As a kid, I kind of spent my life being amazed by being tricked. I love being tricked. I still love it today.</b>
+> <p><i>Daniel Craig</i></p>
 
 <br>
