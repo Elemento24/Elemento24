@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm just glad I was able to return to some of that innocence and beauty I had as a child when I started my own family, and my children brought me back some of that spirit.</b>
-> <p><i>Angelina Jolie</i></p>
+> <b>I wrapped my Christmas presents early this year, but I used the wrong paper. See, the paper I used said 'Happy Birthday' on it. I didn't want to waste it so I just wrote 'Jesus' on it.</b>
+> <p><i>Demetri Martin</i></p>
 
 <br>
