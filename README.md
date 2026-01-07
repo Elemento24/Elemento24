@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A steady patriot of the world alone, The friend of every country but his own.</b>
-> <p><i>George Canning</i></p>
+> <b>It sounds like something from a Woody Guthrie song, but it's true I was raised in a freight car.</b>
+> <p><i>Merle Haggard</i></p>
 
 <br>
