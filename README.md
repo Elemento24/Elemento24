@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Music, as many people have said, is the universal language. Of course points are made which make you think about things, but ultimately it makes you feel. And that's why people remember more songs that have meant something during their life than films. They start to define periods in your life, and that's kind of the beauty of it.</b>
-> <p><i>Scott Weiland</i></p>
+> <b>Anyone who has lost track of time when using a computer knows the propensity to dream, the urge to make dreams come true and the tendency to miss lunch.</b>
+> <p><i>Tim Berners-Lee</i></p>
 
 <br>
