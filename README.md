@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you pray for anyone you tend to modify your personal attitude toward him.</b>
-> <p><i>Norman Vincent Peale</i></p>
+> <b>Exploiting people's emotions of fear, envy and anxiety is not hope, it's not change, it's partisanship. We don't need partisanship. We don't need demagoguery, we need solutions.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
