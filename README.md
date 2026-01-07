@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A person who is too nice an observer of the business of the crowd, like one who is too curious in observing the labor of bees, will often be stung for his curiosity.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>Wealth, beauty, and fame are transient. When those are gone, little is left except the need to be useful.</b>
+> <p><i>Gene Tierney</i></p>
 
 <br>
