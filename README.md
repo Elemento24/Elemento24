@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have two younger sisters and I'm such an advocate of owning who you are as a person. Don't be ashamed or intimidated. Never feel like you are not amazing.</b>
-> <p><i>Khloe Kardashian</i></p>
+> <b>The same sort of thing happened in my dispute with the National Trust book: Follies: A National Trust Guide, which implied that the only pleasure you can get from Folly architecture is by calling the architect mad, and by laughing at the architecture.</b>
+> <p><i>Ian Hamilton Finlay</i></p>
 
 <br>
