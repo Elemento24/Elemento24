@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who has lost track of time when using a computer knows the propensity to dream, the urge to make dreams come true and the tendency to miss lunch.</b>
-> <p><i>Tim Berners-Lee</i></p>
+> <b>I do some of my best thinking while pulling weeds.</b>
+> <p><i>Martha Smith</i></p>
 
 <br>
