@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As long as any adult thinks that he, like the parents and teachers of old, can become introspective, invoking his own youth to understand the youth before him, he is lost.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>I get heartfelt thanks from all kinds of people. Today I heard from a waitress in Georgia who has lost her job and is trying to figure out how her local bank can change the terms on her credit card, and I heard from a physicist at a major research university who wants to explain a better theory of financial stress tests.</b>
+> <p><i>Elizabeth Warren</i></p>
 
 <br>
