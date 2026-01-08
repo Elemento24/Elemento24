@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All diseases run into one, old age.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>Wisdom comes alone through suffering.</b>
+> <p><i>Aeschylus</i></p>
 
 <br>
