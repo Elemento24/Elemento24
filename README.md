@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wisdom comes alone through suffering.</b>
-> <p><i>Aeschylus</i></p>
+> <b>Web users ultimately want to get at data quickly and easily. They don't care as much about attractive sites and pretty design.</b>
+> <p><i>Tim Berners-Lee</i></p>
 
 <br>
