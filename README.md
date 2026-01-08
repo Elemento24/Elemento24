@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A good marriage is one which allows for change and growth in the individuals and in the way they express their love.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>The desire to get married, which - I regret to say, I believe is basic and primal in women - is followed almost immediately by an equally basic and primal urge - which is to be single again.</b>
+> <p><i>Nora Ephron</i></p>
 
 <br>
