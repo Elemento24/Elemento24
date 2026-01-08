@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The information encoded in your DNA determines your unique biological characteristics, such as sex, eye color, age and Social Security number.</b>
-> <p><i>Dave Barry</i></p>
+> <b>The worst part about celebrating another birthday is the shock that you're only as well as you are.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
