@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who is incapable of feeling strong passions, of being shaken by anger, of living in every sense of the word, will never be a good actor.</b>
-> <p><i>Sarah Bernhardt</i></p>
+> <b>I think having children is the most amazing thing.</b>
+> <p><i>Rachel Stevens</i></p>
 
 <br>
