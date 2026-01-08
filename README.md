@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Web users ultimately want to get at data quickly and easily. They don't care as much about attractive sites and pretty design.</b>
-> <p><i>Tim Berners-Lee</i></p>
+> <b>To know yet to think that one does not know is best Not to know yet to think that one knows will lead to difficulty.</b>
+> <p><i>Lao Tzu</i></p>
 
 <br>
