@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing I've learned is, if you're going out, never go out alone - you leave yourself vulnerable. If you've got someone else there you trust, they can say, be wary of that person. I probably used to be too trusting of people.</b>
-> <p><i>Daniel Radcliffe</i></p>
+> <b>Young man, the secret of my success is that an early age I discovered that I was not God.</b>
+> <p><i>Oliver Wendell Holmes, Jr.</i></p>
 
 <br>
