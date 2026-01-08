@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My buildings don't speak in words but by means of their own spaciousness.</b>
-> <p><i>Thom Mayne</i></p>
+> <b>Business is constantly changing, constantly evolving.</b>
+> <p><i>James Dyson</i></p>
 
 <br>
