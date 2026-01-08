@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Saving faith is an immediate relation to Christ, accepting, receiving, resting upon Him alone, for justification, sanctification, and eternal life by virtue of God's grace.</b>
-> <p><i>Charles Spurgeon</i></p>
+> <b>A good marriage is one which allows for change and growth in the individuals and in the way they express their love.</b>
+> <p><i>Pearl S. Buck</i></p>
 
 <br>
