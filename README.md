@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Young man, the secret of my success is that an early age I discovered that I was not God.</b>
-> <p><i>Oliver Wendell Holmes, Jr.</i></p>
+> <b>I am really looking forward to driving another of my father?s car at the show in Rotterdam.</b>
+> <p><i>Nelson Piquet</i></p>
 
 <br>
