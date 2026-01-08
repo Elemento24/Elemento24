@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The worst part about celebrating another birthday is the shock that you're only as well as you are.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>I like physics. I think it is the best science out of all three of them, because generally it's more useful. You learn about speed and velocity and time, and that's all clever stuff.</b>
+> <p><i>Tom Felton</i></p>
 
 <br>
