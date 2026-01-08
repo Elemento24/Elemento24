@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The turning point was when I hit my 30th birthday. I thought, if really want to write, it's time to start. I picked up the book How to Write a Novel in 90 Days. The author said to just write three pages a day, and I figured, I can do this. I never got past Page 3 of that book.</b>
-> <p><i>James Rollins</i></p>
+> <b>Saving faith is an immediate relation to Christ, accepting, receiving, resting upon Him alone, for justification, sanctification, and eternal life by virtue of God's grace.</b>
+> <p><i>Charles Spurgeon</i></p>
 
 <br>
