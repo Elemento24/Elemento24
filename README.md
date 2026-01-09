@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the television age, the key distinction is between the candidate who can speak poetry and the one who can only speak prose.</b>
-> <p><i>Richard M. Nixon</i></p>
+> <b>I wanted to change the world. But I have found that the only thing one can be sure of changing is oneself.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
