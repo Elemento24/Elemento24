@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world we see that seems so insane is the result of a belief system that is not working. To perceive the world differently, we must be willing to change our belief system, let the past slip away, expand our sense of now, and dissolve the fear in our minds.</b>
-> <p><i>William James</i></p>
+> <b>I think that making love is the best form of exercise.</b>
+> <p><i>Cary Grant</i></p>
 
 <br>
