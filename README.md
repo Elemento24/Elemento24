@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most urgently, women's identity must be premised upon our 'beauty' so that we will remain vulnerable to outside approval, carrying the vital sensitive organ of self-esteem exposed to the air.</b>
-> <p><i>Naomi Wolf</i></p>
+> <b>Iran has long sponsored terrorists who carry out homicide bombings in Israeli cities. However, it is a mistake to believe the danger Iran poses is directed at Israel alone.</b>
+> <p><i>John Doolittle</i></p>
 
 <br>
