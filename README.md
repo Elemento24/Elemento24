@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Iran has long sponsored terrorists who carry out homicide bombings in Israeli cities. However, it is a mistake to believe the danger Iran poses is directed at Israel alone.</b>
-> <p><i>John Doolittle</i></p>
+> <b>In the television age, the key distinction is between the candidate who can speak poetry and the one who can only speak prose.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
