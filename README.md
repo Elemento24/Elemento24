@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love, with very young people, is a heartless business. We drink at that age from thirst, or to get drunk it is only later in life that we occupy ourselves with the individuality of our wine.</b>
-> <p><i>Isak Dinesen</i></p>
+> <b>Proportions are what makes the old Greek temples classic in their beauty. They are like huge blocks, from which the air has been literally hewn out between the columns.</b>
+> <p><i>Arne Jacobsen</i></p>
 
 <br>
