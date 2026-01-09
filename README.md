@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never Have Your Dog Stuffed is really advice to myself, a reminder to myself not to avoid change or uncertainty, but to go with it, to surf into change.</b>
-> <p><i>Alan Alda</i></p>
+> <b>You have to master not only the art of listening to your head, you must also master listening to your heart and listening to your gut.</b>
+> <p><i>Carly Fiorina</i></p>
 
 <br>
