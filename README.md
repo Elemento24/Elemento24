@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unhappy, let alone angry, religious people provide more persuasive arguments for atheism and secularism than do all the arguments of atheists.</b>
-> <p><i>Dennis Prager</i></p>
+> <b>One of the most predictable things in life is there will be change. You are better off if you can have a say in the change. But you are ignorant or naive if you don't think there will be change, whether you want it to or not.</b>
+> <p><i>Julius Erving</i></p>
 
 <br>
