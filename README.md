@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't have perfect teeth, I'm not stick thin. I want to be the person who feels great in her body and can say that she loves it and doesn't want to change anything.</b>
-> <p><i>Emma Watson</i></p>
+> <b>In America the schools have become too permissive, the kids now are controlling the schools, the tail is wagging the dog. We've got to make a change there and get it back to where the teachers have control of the classrooms.</b>
+> <p><i>Chuck Norris</i></p>
 
 <br>
