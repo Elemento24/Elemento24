@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Oh, my God, this amazing cool breeze is coming through my window and the sun is shining. I'm happy.</b>
-> <p><i>Liv Tyler</i></p>
+> <b>I'm so accustomed to being alone.</b>
+> <p><i>Leighton Meester</i></p>
 
 <br>
