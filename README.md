@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In America the schools have become too permissive, the kids now are controlling the schools, the tail is wagging the dog. We've got to make a change there and get it back to where the teachers have control of the classrooms.</b>
-> <p><i>Chuck Norris</i></p>
+> <b>The world we see that seems so insane is the result of a belief system that is not working. To perceive the world differently, we must be willing to change our belief system, let the past slip away, expand our sense of now, and dissolve the fear in our minds.</b>
+> <p><i>William James</i></p>
 
 <br>
