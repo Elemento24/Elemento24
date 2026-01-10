@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the amazing thing about gospel music is that not only does it lift up the death and resurrection of our Lord, which is consistent with the Gospel, but it is uniquely communicated depending upon the generation.</b>
-> <p><i>T. D. Jakes</i></p>
+> <b>I marvel at the resilience of the Jewish people. Their best characteristic is their desire to remember. No other people has such an obsession with memory.</b>
+> <p><i>Elie Wiesel</i></p>
 
 <br>
