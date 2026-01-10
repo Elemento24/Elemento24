@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I don't make the team out of spring training, I'll keep a good attitude. I'll just go polish up the parts of my game that made me not stay in the big leagues.</b>
-> <p><i>Cory Lidle</i></p>
+> <b>Age is how we determine how valuable you are.</b>
+> <p><i>Jane Elliot</i></p>
 
 <br>
