@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I marvel at the resilience of the Jewish people. Their best characteristic is their desire to remember. No other people has such an obsession with memory.</b>
-> <p><i>Elie Wiesel</i></p>
+> <b>Politics would be a helluva good business if it weren't for the goddamned people.</b>
+> <p><i>Richard M. Nixon</i></p>
 
 <br>
