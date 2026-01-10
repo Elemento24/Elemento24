@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have not lost faith in God. I have moments of anger and protest. Sometimes I've been closer to him for that reason.</b>
-> <p><i>Elie Wiesel</i></p>
+> <b>Each moment of a happy lover's hour is worth an age of dull and common life.</b>
+> <p><i>Aphra Behn</i></p>
 
 <br>
