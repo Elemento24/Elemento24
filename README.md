@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is how we determine how valuable you are.</b>
-> <p><i>Jane Elliot</i></p>
+> <b>The aging process has you firmly in its grasp if you never get the urge to throw a snowball.</b>
+> <p><i>Doug Larson</i></p>
 
 <br>
