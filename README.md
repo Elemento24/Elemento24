@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To help yourself, you must be yourself. Be the best that you can be. When you make a mistake, learn from it, pick yourself up and move on.</b>
-> <p><i>Dave Pelzer</i></p>
+> <b>I know some people say it's not the best to work with your family, but I have never understood that because it's always worked so well for me.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
