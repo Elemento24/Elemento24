@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We may need to change the way we think. As in Israel, I think there should be a mandatory draft, where you go away for the service of your country for three years.</b>
-> <p><i>Steven Tyler</i></p>
+> <b>When I work, and in my art, I hold hands with God.</b>
+> <p><i>Robert Mapplethorpe</i></p>
 
 <br>
