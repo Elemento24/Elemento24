@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Human memory is a marvelous but fallacious instrument. The memories which lie within us are not carved in stone not only do they tend to become erased as the years go by, but often they change, or even increase by incorporating extraneous features.</b>
-> <p><i>Primo Levi</i></p>
+> <b>First let me report that the art in the Barnes Collection has never looked better. My trips to the old Barnes were always amazing, but except on the sunniest days, you could barely see the art. The building always felt pushed beyond its capacity.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
