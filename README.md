@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that making love is the best form of exercise.</b>
-> <p><i>Cary Grant</i></p>
+> <b>Now, on nights that I can't sleep, I play video games alone until the morning.</b>
+> <p><i>Namie Amuro</i></p>
 
 <br>
