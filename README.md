@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't lower your expectations to meet your performance. Raise your level of performance to meet your expectations. Expect the best of yourself, and then do what is necessary to make it a reality.</b>
-> <p><i>Ralph Marston</i></p>
+> <b>I have not lost faith in God. I have moments of anger and protest. Sometimes I've been closer to him for that reason.</b>
+> <p><i>Elie Wiesel</i></p>
 
 <br>
