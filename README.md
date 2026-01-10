@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What saddens me is the corruption of youth and beauty, and the loss of soul, which is only replaced by money.</b>
-> <p><i>Lisa Bonet</i></p>
+> <b>If I don't make the team out of spring training, I'll keep a good attitude. I'll just go polish up the parts of my game that made me not stay in the big leagues.</b>
+> <p><i>Cory Lidle</i></p>
 
 <br>
