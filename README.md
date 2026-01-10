@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business is the salt of life.</b>
-> <p><i>Voltaire</i></p>
+> <b>We may need to change the way we think. As in Israel, I think there should be a mandatory draft, where you go away for the service of your country for three years.</b>
+> <p><i>Steven Tyler</i></p>
 
 <br>
