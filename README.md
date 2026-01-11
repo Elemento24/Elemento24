@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My father is an amazing man.</b>
-> <p><i>Sherman Alexie</i></p>
+> <b>You are capable of more than you know. Choose a goal that seems right for you and strive to be the best, however hard the path. Aim high. Behave honorably. Prepare to be alone at times, and to endure failure. Persist! The world needs all you can give.</b>
+> <p><i>E. O. Wilson</i></p>
 
 <br>
