@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>None are so old as those who have outlived enthusiasm.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>I think every person has their own identity and beauty. Everyone being different is what is really beautiful. If we were all the same, it would be boring.</b>
+> <p><i>Tila Tequila</i></p>
 
 <br>
