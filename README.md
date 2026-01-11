@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love a beautiful gown on stage, and luckily I've been fortunate to wear some amazing dresses.</b>
-> <p><i>Leona Lewis</i></p>
+> <b>I don't need the money, dear. I work for art.</b>
+> <p><i>Maria Callas</i></p>
 
 <br>
