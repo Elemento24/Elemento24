@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Removing the faults in a stage-coach may produce a perfect stage-coach, but it is unlikely to produce the first motor car.</b>
-> <p><i>Edward de Bono</i></p>
+> <b>Every age has its own poetry in every age the circumstances of history choose a nation, a race, a class to take up the torch by creating situations that can be expressed or transcended only through poetry.</b>
+> <p><i>Jean-Paul Sartre</i></p>
 
 <br>
