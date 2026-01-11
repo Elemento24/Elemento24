@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember driving to North Carolina when I was a little girl in a snowstorm to get down to my mom's family in the Carolinas. There were chains on the car - it was the late sixties - and we were just singing in the car. Christmas carols.</b>
-> <p><i>Tori Amos</i></p>
+> <b>I was blessed with certain gifts and talents and God gave them to me to be the best person I can be and to have a positive impact on other people.</b>
+> <p><i>Bryan Clay</i></p>
 
 <br>
