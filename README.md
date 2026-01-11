@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every age has its own poetry in every age the circumstances of history choose a nation, a race, a class to take up the torch by creating situations that can be expressed or transcended only through poetry.</b>
-> <p><i>Jean-Paul Sartre</i></p>
+> <b>My father is an amazing man.</b>
+> <p><i>Sherman Alexie</i></p>
 
 <br>
