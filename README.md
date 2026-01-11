@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mental illness is the last frontier. The gay thing is part of everyday life now on a show like 'Modern Family,' but mental illness is still full of stigma. Maybe it is time for that to change.</b>
-> <p><i>Eric McCormack</i></p>
+> <b>When thou art at Rome, do as they do at Rome.</b>
+> <p><i>Miguel de Cervantes</i></p>
 
 <br>
