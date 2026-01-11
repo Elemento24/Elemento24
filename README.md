@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is a mistake for a sculptor or a painter to speak or write very often about his job. It releases tension needed for his work.</b>
-> <p><i>Henry Moore</i></p>
+> <b>Your children need your presence more than your presents.</b>
+> <p><i>Jesse Jackson</i></p>
 
 <br>
