@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think every person has their own identity and beauty. Everyone being different is what is really beautiful. If we were all the same, it would be boring.</b>
-> <p><i>Tila Tequila</i></p>
+> <b>Removing the faults in a stage-coach may produce a perfect stage-coach, but it is unlikely to produce the first motor car.</b>
+> <p><i>Edward de Bono</i></p>
 
 <br>
