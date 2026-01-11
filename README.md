@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No great artist ever sees things as they really are. If he did, he would cease to be an artist.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>Mental illness is the last frontier. The gay thing is part of everyday life now on a show like 'Modern Family,' but mental illness is still full of stigma. Maybe it is time for that to change.</b>
+> <p><i>Eric McCormack</i></p>
 
 <br>
