@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just want to be a part of great stories, whether I'm part of an amazing ensemble cast or I'm leading it or the antagonist or whatever.</b>
-> <p><i>Zoe Saldana</i></p>
+> <b>So now, cut to ten years later, and I'm making this amazing contract with Pantene. It's incredible.</b>
+> <p><i>Maria Menounos</i></p>
 
 <br>
