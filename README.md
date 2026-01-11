@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So now, cut to ten years later, and I'm making this amazing contract with Pantene. It's incredible.</b>
-> <p><i>Maria Menounos</i></p>
+> <b>Childhood obesity is best tackled at home through improved parental involvement, increased physical exercise, better diet and restraint from eating.</b>
+> <p><i>Bob Filner</i></p>
 
 <br>
