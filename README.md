@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I see myself in the videogame it's amazing how realistic I look. This is the most authentic and realistic soccer game I have ever seen. It is like I'm looking in a mirror. The attention to detail is incredible.</b>
-> <p><i>Claudio Reyna</i></p>
+> <b>Youth has no age.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
