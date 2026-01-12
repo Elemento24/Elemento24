@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Lord had the wonderful advantage of being able to work alone.</b>
-> <p><i>Kofi Annan</i></p>
+> <b>Best way to get rid of kitchen odors: Eat out.</b>
+> <p><i>Phyllis Diller</i></p>
 
 <br>
