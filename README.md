@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your 40s are a major trough. About the age of 50, feelings of satisfaction begin to rebound and keep rising into your 50s, 60s and 70s, with health being a major factor.</b>
-> <p><i>Jane Pauley</i></p>
+> <b>Art is parasitic on life, just as criticism is parasitic on art.</b>
+> <p><i>Harry S. Truman</i></p>
 
 <br>
