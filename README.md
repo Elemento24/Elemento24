@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But there comes a moment in everybody's life when he must decide whether he'll live among the human beings or not - a fool among fools or a fool alone.</b>
-> <p><i>Thornton Wilder</i></p>
+> <b>I stood up as best I could to their disgusting stupidity and brutality, but I did not, of course, manage to beat them at their own game. It was a fight to the bitter end, one in which I was not defending ideals or beliefs but simply my own self.</b>
+> <p><i>George Grosz</i></p>
 
 <br>
