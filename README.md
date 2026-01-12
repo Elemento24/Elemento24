@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pattern of a newspaperman's life is like the plot of 'Black Beauty.' Sometimes he finds a kind master who gives him a dry stall and an occasional bran mash in the form of a Christmas bonus, sometimes he falls into the hands of a mean owner who drives him in spite of spavins and expects him to live on potato peelings.</b>
-> <p><i>A. J. Liebling</i></p>
+> <b>But there comes a moment in everybody's life when he must decide whether he'll live among the human beings or not - a fool among fools or a fool alone.</b>
+> <p><i>Thornton Wilder</i></p>
 
 <br>
