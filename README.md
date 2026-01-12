@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The meek shall inherit the Earth, but not its mineral rights.</b>
-> <p><i>J. Paul Getty</i></p>
+> <b>Your experiences will be yours alone. But truth and best friendship will rarely if ever disappoint you.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
