@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I receive letters from girls that say, 'You give me confidence,' I think, 'Wow, this is amazing.' That's my goal: to let people know it's truly what's on the inside that counts.</b>
-> <p><i>Amber Riley</i></p>
+> <b>The Lord had the wonderful advantage of being able to work alone.</b>
+> <p><i>Kofi Annan</i></p>
 
 <br>
