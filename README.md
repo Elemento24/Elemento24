@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The development of beauty in chess never depends on you alone. No matter how much imagination and creativity you invest, you still do not create beauty. Your opponent must react at the same highest level.</b>
-> <p><i>Vladimir Kramnik</i></p>
+> <b>Instead of focusing on that circumstances that you cannot change - focus strongly and powerfully on the circumstances that you can.</b>
+> <p><i>Joy Page</i></p>
 
 <br>
