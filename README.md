@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Instead of focusing on that circumstances that you cannot change - focus strongly and powerfully on the circumstances that you can.</b>
-> <p><i>Joy Page</i></p>
+> <b>The pattern of a newspaperman's life is like the plot of 'Black Beauty.' Sometimes he finds a kind master who gives him a dry stall and an occasional bran mash in the form of a Christmas bonus, sometimes he falls into the hands of a mean owner who drives him in spite of spavins and expects him to live on potato peelings.</b>
+> <p><i>A. J. Liebling</i></p>
 
 <br>
