@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As an elder of the Americas and of the rest of the planet, it is my responsibility to care for and protect, to the best of my ability, the young.</b>
-> <p><i>Alice Walker</i></p>
+> <b>The meek shall inherit the Earth, but not its mineral rights.</b>
+> <p><i>J. Paul Getty</i></p>
 
 <br>
