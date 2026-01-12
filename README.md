@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The intention to live as long as possible isn't one of the mind's best intentions, because quantity isn't the same as quality.</b>
-> <p><i>Deepak Chopra</i></p>
+> <b>I had used eclectic therapy and behavior therapy on myself at the age of 19 to get over my fear of public speaking and of approaching young women in public.</b>
+> <p><i>Albert Ellis</i></p>
 
 <br>
