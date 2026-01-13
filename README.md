@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a car but it's not important.</b>
-> <p><i>Eric Cantona</i></p>
+> <b>Nobody has wrestled everybody in the business like I have, especially not Bret Hart.</b>
+> <p><i>Ric Flair</i></p>
 
 <br>
