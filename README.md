@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not want art for a few any more than education for a few, or freedom for a few.</b>
-> <p><i>William Morris</i></p>
+> <b>There are only three things that can kill a farmer: lightning, rolling over in a tractor, and old age.</b>
+> <p><i>Bill Bryson</i></p>
 
 <br>
