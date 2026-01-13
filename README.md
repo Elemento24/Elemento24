@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The chances of a bank going out of business are extremely slim, but it's always a good idea to spread around major sums so every penny is backed by insurance.</b>
-> <p><i>Suze Orman</i></p>
+> <b>But once you have satisfied your material needs, which I think every wealth creator should - the house, the car, the plane, the boat - what comes next?</b>
+> <p><i>Tom Hunter</i></p>
 
 <br>
