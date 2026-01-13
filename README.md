@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alas! how little does the memory of these human inhabitants enhance the beauty of the landscape!</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>The chances of a bank going out of business are extremely slim, but it's always a good idea to spread around major sums so every penny is backed by insurance.</b>
+> <p><i>Suze Orman</i></p>
 
 <br>
