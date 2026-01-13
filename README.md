@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being on 'Glee' was amazing. I remember my first day on set, my first day I arrived to the set I was in my trailer and all of the actors came and banged on my door - Lea Michele, Chris Colfer, Amber Riley, Naya Rivera. They all welcomed me with open arms, so it was a great experience. It felt like family, and I miss them a lot over there.</b>
-> <p><i>NeNe Leakes</i></p>
+> <b>Alas! how little does the memory of these human inhabitants enhance the beauty of the landscape!</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
