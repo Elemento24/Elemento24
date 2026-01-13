@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is a harmony parallel with nature.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Abhorrence of apartheid is a moral attitude, not a policy.</b>
+> <p><i>Edward Heath</i></p>
 
 <br>
