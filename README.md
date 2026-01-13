@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody has wrestled everybody in the business like I have, especially not Bret Hart.</b>
-> <p><i>Ric Flair</i></p>
+> <b>My 'Movember' moustache was never going to be as big as Nigel Mansell's, but I tried my best. The amazing thing is that when you try to grow a moustache, you notice everyone else's. There are some amazing moustaches on the grid.</b>
+> <p><i>Jenson Button</i></p>
 
 <br>
