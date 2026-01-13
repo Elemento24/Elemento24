@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are only three things that can kill a farmer: lightning, rolling over in a tractor, and old age.</b>
-> <p><i>Bill Bryson</i></p>
+> <b>Science fiction is any idea that occurs in the head and doesn't exist yet, but soon will, and will change everything for everybody, and nothing will ever be the same again. As soon as you have an idea that changes some small part of the world you are writing science fiction. It is always the art of the possible, never the impossible.</b>
+> <p><i>Ray Bradbury</i></p>
 
 <br>
