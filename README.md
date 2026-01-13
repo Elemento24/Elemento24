@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The more you praise and celebrate your life, the more there is in life to celebrate.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>In the end, the humanities can only be defended by stressing how indispensable they are and this means insisting on their vital role in the whole business of academic learning, rather than protesting that, like some poor relation, they don't cost much to be housed.</b>
+> <p><i>Terry Eagleton</i></p>
 
 <br>
