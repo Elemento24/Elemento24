@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My 'Movember' moustache was never going to be as big as Nigel Mansell's, but I tried my best. The amazing thing is that when you try to grow a moustache, you notice everyone else's. There are some amazing moustaches on the grid.</b>
-> <p><i>Jenson Button</i></p>
+> <b>I once bought an old car back after I sold it because I missed it so much and I had forgotten that it never ran. It was a British racing car. You know, because I just wanted it back. I could only remember what was good about it.</b>
+> <p><i>Connie Chung</i></p>
 
 <br>
