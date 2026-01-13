@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But once you have satisfied your material needs, which I think every wealth creator should - the house, the car, the plane, the boat - what comes next?</b>
-> <p><i>Tom Hunter</i></p>
+> <b>I grew up on the golden age of children's TV.</b>
+> <p><i>Edward Norton</i></p>
 
 <br>
