@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up on the golden age of children's TV.</b>
-> <p><i>Edward Norton</i></p>
+> <b>I'm never less at leisure than when at leisure, or less alone than when alone.</b>
+> <p><i>Scipio Africanus</i></p>
 
 <br>
