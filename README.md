@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Science fiction is any idea that occurs in the head and doesn't exist yet, but soon will, and will change everything for everybody, and nothing will ever be the same again. As soon as you have an idea that changes some small part of the world you are writing science fiction. It is always the art of the possible, never the impossible.</b>
-> <p><i>Ray Bradbury</i></p>
+> <b>Being on 'Glee' was amazing. I remember my first day on set, my first day I arrived to the set I was in my trailer and all of the actors came and banged on my door - Lea Michele, Chris Colfer, Amber Riley, Naya Rivera. They all welcomed me with open arms, so it was a great experience. It felt like family, and I miss them a lot over there.</b>
+> <p><i>NeNe Leakes</i></p>
 
 <br>
