@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is about not knowing, having to change, taking the moment and making the best of it, without knowing what's going to happen next.</b>
-> <p><i>Gilda Radner</i></p>
+> <b>I do not want art for a few any more than education for a few, or freedom for a few.</b>
+> <p><i>William Morris</i></p>
 
 <br>
