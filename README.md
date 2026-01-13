@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wanted to raise the voice of a lot of the people that I knew growing up, and this was, for the most part, poor people who had extraordinary dreams but also very amazing obstacles.</b>
-> <p><i>Edwidge Danticat</i></p>
+> <b>Photography takes an instant out of time, altering life by holding it still.</b>
+> <p><i>Dorothea Lange</i></p>
 
 <br>
