@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I once bought an old car back after I sold it because I missed it so much and I had forgotten that it never ran. It was a British racing car. You know, because I just wanted it back. I could only remember what was good about it.</b>
-> <p><i>Connie Chung</i></p>
+> <b>For the first time in my adult lifetime, I am really proud of my country. And not just because Barack has done well, but because I think people are hungry for change. And I have been desperate to see our country moving in that direction.</b>
+> <p><i>Michelle Obama</i></p>
 
 <br>
