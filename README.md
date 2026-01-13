@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Abhorrence of apartheid is a moral attitude, not a policy.</b>
-> <p><i>Edward Heath</i></p>
+> <b>The more you praise and celebrate your life, the more there is in life to celebrate.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
