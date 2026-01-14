@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Organic architecture seeks superior sense of use and a finer sense of comfort, expressed in organic simplicity.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>If you can build a business up big enough, it's respectable.</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
