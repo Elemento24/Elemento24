@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't need the money, dear. I work for art.</b>
-> <p><i>Maria Callas</i></p>
+> <b>When I decided to be a singer, my mother warned me I'd be alone a lot. Basically we all are.</b>
+> <p><i>Whitney Houston</i></p>
 
 <br>
