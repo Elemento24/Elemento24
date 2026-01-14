@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I have to change my lifestyle, I don't want to live.</b>
-> <p><i>Robert Mapplethorpe</i></p>
+> <b>Alexander Gonzalez Inarritu is a great director. He's the one I first worked with. He's amazing.</b>
+> <p><i>Gael Garcia Bernal</i></p>
 
 <br>
