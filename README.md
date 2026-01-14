@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When that shutter clicks, anything else that can be done afterward is not worth consideration.</b>
-> <p><i>Edward Steichen</i></p>
+> <b>Love isn't an emotion or an instinct - it's an art.</b>
+> <p><i>Mae West</i></p>
 
 <br>
