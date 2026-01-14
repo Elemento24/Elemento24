@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Alexander Gonzalez Inarritu is a great director. He's the one I first worked with. He's amazing.</b>
-> <p><i>Gael Garcia Bernal</i></p>
+> <b>The attitude of insolent haughtiness is characteristic of the relationships Americans form with what is alien to them, with others.</b>
+> <p><i>Jose Saramago</i></p>
 
 <br>
