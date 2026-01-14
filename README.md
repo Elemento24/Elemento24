@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You hit a certain age and - especially because of TV - the young cooks coming up say, 'You're a sellout, because you're doing something other than what you should be doing.' 'Top Chef' is a double-edged sword for me: There's a whole group of people who will not come to the restaurants because they assume I'm not in them anymore, all I do is TV.</b>
-> <p><i>Tom Colicchio</i></p>
+> <b>I don't even know what words to use to talk about the music industry anymore. But the business has changed a lot - the methods of releasing music.</b>
+> <p><i>Anthony Kiedis</i></p>
 
 <br>
