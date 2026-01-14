@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business is tough you need tough guys.</b>
-> <p><i>Carlos Ghosn</i></p>
+> <b>When that shutter clicks, anything else that can be done afterward is not worth consideration.</b>
+> <p><i>Edward Steichen</i></p>
 
 <br>
