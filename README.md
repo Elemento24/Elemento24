@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Here is the amazing thing about Easter the Resurrection Sunday for Christians is this, that Christ in the dying moments on the cross gives us the greatest illustration of forgiveness possible.</b>
-> <p><i>T. D. Jakes</i></p>
+> <b>Business is tough you need tough guys.</b>
+> <p><i>Carlos Ghosn</i></p>
 
 <br>
