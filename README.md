@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Action and reaction, ebb and flow, trial and error, change - this is the rhythm of living. Out of our over-confidence, fear out of our fear, clearer vision, fresh hope. And out of hope, progress.</b>
-> <p><i>Bruce Barton</i></p>
+> <b>I don't need the money, dear. I work for art.</b>
+> <p><i>Maria Callas</i></p>
 
 <br>
