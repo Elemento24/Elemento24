@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I couldn't even go to the bathroom alone. My mother or a social worker always went with me.</b>
-> <p><i>Natalie Wood</i></p>
+> <b>I feel we live in the kind of culture now where you have to be very smart to navigate the right way, and I just don't have those smarts. I think with age and time it will change, but I can't obsess about it.</b>
+> <p><i>Sienna Miller</i></p>
 
 <br>
