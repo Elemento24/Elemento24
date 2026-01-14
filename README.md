@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Listen once in a while. It's amazing what you can hear.</b>
-> <p><i>Russell Baker</i></p>
+> <b>Organic architecture seeks superior sense of use and a finer sense of comfort, expressed in organic simplicity.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
