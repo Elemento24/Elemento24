@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without a family, man, alone in the world, trembles with the cold.</b>
-> <p><i>Andre Maurois</i></p>
+> <b>I think that narrative, fiction filmmaking is the culmination of several art forms: theater, art history, architecture. Whereas doc filmmaking is more pure cinema, like cinema verite is film in its purest form.</b>
+> <p><i>George Hickenlooper</i></p>
 
 <br>
