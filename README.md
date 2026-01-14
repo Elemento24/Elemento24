@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't even know what words to use to talk about the music industry anymore. But the business has changed a lot - the methods of releasing music.</b>
-> <p><i>Anthony Kiedis</i></p>
+> <b>I couldn't even go to the bathroom alone. My mother or a social worker always went with me.</b>
+> <p><i>Natalie Wood</i></p>
 
 <br>
