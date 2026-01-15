@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Great nations write their autobiographies in three manuscripts - the book of their deeds, the book of their words and the book of their art.</b>
-> <p><i>John Ruskin</i></p>
+> <b>You shouldn't be in the music business if you're posing.</b>
+> <p><i>Rod Stewart</i></p>
 
 <br>
