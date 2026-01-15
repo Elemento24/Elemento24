@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A few years ago I was at a party and this guy threw me over his shoulder, ran across the street, put me in his car, and stuck his tongue in my mouth.</b>
-> <p><i>Rachel Bilson</i></p>
+> <b>I have a ridiculous fear of sharks but I'd jump in the water in a second for an amazing role.</b>
+> <p><i>Kate Mara</i></p>
 
 <br>
