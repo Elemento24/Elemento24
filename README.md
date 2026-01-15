@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You shouldn't be in the music business if you're posing.</b>
-> <p><i>Rod Stewart</i></p>
+> <b>After all my various relationships I find myself now home alone.</b>
+> <p><i>Francesca Annis</i></p>
 
 <br>
