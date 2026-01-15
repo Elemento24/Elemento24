@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to change the culture, you will have to start by changing the organization.</b>
-> <p><i>Mary Douglas</i></p>
+> <b>Great nations write their autobiographies in three manuscripts - the book of their deeds, the book of their words and the book of their art.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
