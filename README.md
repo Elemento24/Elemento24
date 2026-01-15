@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm still figuring out why people would want to look at me. Maybe it's generic beauty, but it's weird to be valued for something I was born with.</b>
-> <p><i>Josie Maran</i></p>
+> <b>If you want to change the culture, you will have to start by changing the organization.</b>
+> <p><i>Mary Douglas</i></p>
 
 <br>
