@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Game of Thrones' is an amazing show, and I have no problem speaking of the virtues of HBO.</b>
-> <p><i>Peter Dinklage</i></p>
+> <b>Finishing food is about the tiny touches. In the last seconds you can change everything.</b>
+> <p><i>Mario Batali</i></p>
 
 <br>
