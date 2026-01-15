@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'll tell you, Quentin Tarantino really writes the most amazing dialogue.</b>
-> <p><i>Christopher Walken</i></p>
+> <b>I'm still figuring out why people would want to look at me. Maybe it's generic beauty, but it's weird to be valued for something I was born with.</b>
+> <p><i>Josie Maran</i></p>
 
 <br>
