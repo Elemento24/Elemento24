@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I made some friends at Listerine and they taught me a little bit about oral care. That half of adults suffer from oral disease, that the number one chronic disease among children is oral disease, that we're only taking care of 25% of our mouths when brushing alone and there are more germs in your mouth than there are people on the planet.</b>
-> <p><i>Ginnifer Goodwin</i></p>
+> <b>My good friends are Mormon, some of the best people I know.</b>
+> <p><i>Katherine Heigl</i></p>
 
 <br>
