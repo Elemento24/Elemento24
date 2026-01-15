@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That is what we are supposed to do when we are at our best - make it all up - but make it up so truly that later it will happen that way.</b>
-> <p><i>Ernest Hemingway</i></p>
+> <b>A few years ago I was at a party and this guy threw me over his shoulder, ran across the street, put me in his car, and stuck his tongue in my mouth.</b>
+> <p><i>Rachel Bilson</i></p>
 
 <br>
