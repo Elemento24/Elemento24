@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a ridiculous fear of sharks but I'd jump in the water in a second for an amazing role.</b>
-> <p><i>Kate Mara</i></p>
+> <b>Life's an awfully lonesome affair. You come into the world alone and you go out of the world alone yet it seems to me you are more alone while living than even going and coming.</b>
+> <p><i>Emily Carr</i></p>
 
 <br>
