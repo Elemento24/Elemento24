@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life has got a habit of not standing hitched. You got to ride it like you find it. You got to change with it. If a day goes by that don't change some of your old notions for new ones, that is just about like trying to milk a dead cow.</b>
-> <p><i>Woody Guthrie</i></p>
+> <b>That is what we are supposed to do when we are at our best - make it all up - but make it up so truly that later it will happen that way.</b>
+> <p><i>Ernest Hemingway</i></p>
 
 <br>
