@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life's an awfully lonesome affair. You come into the world alone and you go out of the world alone yet it seems to me you are more alone while living than even going and coming.</b>
-> <p><i>Emily Carr</i></p>
+> <b>I don't want to rap about my car. How generic is that? Be creative.</b>
+> <p><i>Andy Milonakis</i></p>
 
 <br>
