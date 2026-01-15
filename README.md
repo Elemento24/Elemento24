@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My good friends are Mormon, some of the best people I know.</b>
-> <p><i>Katherine Heigl</i></p>
+> <b>If you're an entrepreneur and you think that the president makes a difference to your business, you should stay at your current job.</b>
+> <p><i>Guy Kawasaki</i></p>
 
 <br>
