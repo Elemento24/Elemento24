@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My favorite designer is Christian Lacroix, not just because his clothes are amazing and I love them, but because he's so nice. When I did his fashion show, he was the first one to arrive there and he helped everyone.</b>
-> <p><i>Adriana Lima</i></p>
+> <b>Any new financial order for the world must tackle the three chief challenges of our age.</b>
+> <p><i>James Buchan</i></p>
 
 <br>
