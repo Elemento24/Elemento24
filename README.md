@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wouldn't say I was the best manager in the business. But I was in the top one.</b>
-> <p><i>Brian Clough</i></p>
+> <b>And I think of that again as I've written in several of my beauty books, a lot of health comes from the proper eating habits, which are something that - you know, I come from a generation that wasn't - didn't have a lot of food.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
