@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is a short-lived tyranny.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>I wouldn't say I was the best manager in the business. But I was in the top one.</b>
+> <p><i>Brian Clough</i></p>
 
 <br>
