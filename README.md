@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yoga's an amazing release.</b>
-> <p><i>Monica Keena</i></p>
+> <b>What is art? Nature concentrated.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
