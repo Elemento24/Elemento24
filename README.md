@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He has a profound respect for old age. Especially when it's bottled.</b>
-> <p><i>Gene Fowler</i></p>
+> <b>There are people and nations, Mother, that I would like to say to you by name. I entrust them to you in silence, I entrust them to you in the way that you know best.</b>
+> <p><i>Pope John Paul II</i></p>
 
 <br>
