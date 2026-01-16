@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to rap about my car. How generic is that? Be creative.</b>
-> <p><i>Andy Milonakis</i></p>
+> <b>From the age of fifteen, dogma has been the fundamental principle of my religion: I know no other religion I cannot enter into the idea of any other sort of religion religion, as a mere sentiment, is to me a dream and a mockery.</b>
+> <p><i>John Henry Newman</i></p>
 
 <br>
