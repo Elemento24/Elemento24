@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My second play, The Birthday Party, I wrote in 1958 - or 1957. It was totally destroyed by the critics of the day, who called it an absolute load of rubbish.</b>
-> <p><i>Harold Pinter</i></p>
+> <b>My favorite designer is Christian Lacroix, not just because his clothes are amazing and I love them, but because he's so nice. When I did his fashion show, he was the first one to arrive there and he helped everyone.</b>
+> <p><i>Adriana Lima</i></p>
 
 <br>
