@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When a book leaves your hands, it belongs to God. He may use it to save a few souls or to try a few others, but I think that for the writer to worry is to take over God's business.</b>
-> <p><i>Flannery O'Connor</i></p>
+> <b>Working on the 'Ice Age' movies, I'm really proud to be in them.</b>
+> <p><i>Seann William Scott</i></p>
 
 <br>
