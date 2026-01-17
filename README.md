@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty about the D-list is that people who are on it probably don't know they are.</b>
-> <p><i>Kathy Griffin</i></p>
+> <b>New Orleans in an amazing town.</b>
+> <p><i>Benjamin Walker</i></p>
 
 <br>
