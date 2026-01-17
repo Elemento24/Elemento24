@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being an actor is the loneliest thing in the world. You are all alone with your concentration and imagination, and that's all you have.</b>
-> <p><i>James Dean</i></p>
+> <b>I have believed the best of every man. And find that to believe is enough to make a bad man show him at his best, or even a good man swings his lantern higher.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
