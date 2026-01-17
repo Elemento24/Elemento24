@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The kind of beauty I want most is the hard-to-get kind that comes from within - strength, courage, dignity.</b>
-> <p><i>Ruby Dee</i></p>
+> <b>The beauty about the D-list is that people who are on it probably don't know they are.</b>
+> <p><i>Kathy Griffin</i></p>
 
 <br>
