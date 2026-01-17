@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the lie that enables us to realize the truth.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>She had lost the art of conversation but not, unfortunately, the power of speech.</b>
+> <p><i>George Bernard Shaw</i></p>
 
 <br>
