@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have believed the best of every man. And find that to believe is enough to make a bad man show him at his best, or even a good man swings his lantern higher.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>I have to say that anger is the blanket that comes around me, and that blunts and blurs my sense of proportion.</b>
+> <p><i>Pete Townshend</i></p>
 
 <br>
