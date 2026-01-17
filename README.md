@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The surest sign of age is loneliness.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>Beauty magazines make my girlfriend feel ugly.</b>
+> <p><i>James De La Vega</i></p>
 
 <br>
