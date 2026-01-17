@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'll always be this crazy, fun person, but when it's time to get married, I'm going to be an amazing wife.</b>
-> <p><i>Nicole Polizzi</i></p>
+> <b>Fame can be just so annoying because people are so critical of you. You can't just say, 'hi'. You say hi and people whisper' man did you see the way she said hi? What an attitude.</b>
+> <p><i>Juliette Lewis</i></p>
 
 <br>
