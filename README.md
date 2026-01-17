@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty magazines make my girlfriend feel ugly.</b>
-> <p><i>James De La Vega</i></p>
+> <b>On a royal birthday every house must fly a flag, or the owner would be dragged to a police station and be fined twenty-five rubles.</b>
+> <p><i>Mary Antin</i></p>
 
 <br>
