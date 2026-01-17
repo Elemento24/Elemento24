@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we all have a lot of darkness in our bellies. As an actor, the challenge of tapping into that, reaching down into that sadness or anger, is very therapeutic.</b>
-> <p><i>Kevin Bacon</i></p>
+> <b>I'll always be this crazy, fun person, but when it's time to get married, I'm going to be an amazing wife.</b>
+> <p><i>Nicole Polizzi</i></p>
 
 <br>
