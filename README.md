@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Working on the 'Ice Age' movies, I'm really proud to be in them.</b>
-> <p><i>Seann William Scott</i></p>
+> <b>I get to travel around the world and meet all of these amazing people, and they're singing my songs! And to me, that's crazy.</b>
+> <p><i>Kina Grannis</i></p>
 
 <br>
