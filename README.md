@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fame can be just so annoying because people are so critical of you. You can't just say, 'hi'. You say hi and people whisper' man did you see the way she said hi? What an attitude.</b>
-> <p><i>Juliette Lewis</i></p>
+> <b>The kind of beauty I want most is the hard-to-get kind that comes from within - strength, courage, dignity.</b>
+> <p><i>Ruby Dee</i></p>
 
 <br>
