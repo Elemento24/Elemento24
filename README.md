@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The strongest man in the world is he who stands most alone.</b>
-> <p><i>Henrik Ibsen</i></p>
+> <b>It's amazing... to enjoy the results of your labor.</b>
+> <p><i>Michael Rady</i></p>
 
 <br>
