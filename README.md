@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was fired by 'America's Next Top Model' on my birthday.</b>
-> <p><i>Paulina Porizkova</i></p>
+> <b>The strongest man in the world is he who stands most alone.</b>
+> <p><i>Henrik Ibsen</i></p>
 
 <br>
