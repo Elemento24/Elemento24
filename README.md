@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If either player abandon the game by quitting the table in anger, or in an otherwise offensive manner or by momentarily resigning the game or refuses to abide by the decision of the Umpire, the game must be scored against him.</b>
-> <p><i>Howard Staunton</i></p>
+> <b>The surest sign of age is loneliness.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
