@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>She had lost the art of conversation but not, unfortunately, the power of speech.</b>
-> <p><i>George Bernard Shaw</i></p>
+> <b>When I'm alone, I can sleep crossways in bed without an argument.</b>
+> <p><i>Zsa Zsa Gabor</i></p>
 
 <br>
