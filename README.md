@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People with high blood pressure, diabetes - those are conditions brought about by life style. If you change the life style, those conditions will leave.</b>
-> <p><i>Dick Gregory</i></p>
+> <b>A cardinal principle of Total Quality escapes too many managers: you cannot continuously improve interdependent systems and processes until you progressively perfect interdependent, interpersonal relationships.</b>
+> <p><i>Stephen Covey</i></p>
 
 <br>
