@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rules and models destroy genius and art.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>I have always maintained that society has no business dictating morality.</b>
+> <p><i>Peter Fonda</i></p>
 
 <br>
