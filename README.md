@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't clap too hard - it's a very old building.</b>
-> <p><i>John Osborne</i></p>
+> <b>Rules and models destroy genius and art.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
