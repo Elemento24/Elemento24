@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men are like wine - some turn to vinegar, but the best improve with age.</b>
-> <p><i>Pope John XXIII</i></p>
+> <b>I think of art as the highest level of creativity. To me, it is one of the greatest sources of enjoyment.</b>
+> <p><i>David Rockefeller</i></p>
 
 <br>
