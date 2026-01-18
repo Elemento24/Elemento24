@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, Freddie Mercury is a really huge rock star in my head. I've always thought he was just so tough and such an amazing entertainer, really a contradiction in many ways as well. So he was incredible.</b>
-> <p><i>Karen O</i></p>
+> <b>Because sorry to say, women run the house. They run the family. They hold things up. I mean, it's like you don't ever see your mom get sick because she handles everything. And it's kind of amazing I think to show people just how strong women are.</b>
+> <p><i>Sophia Bush</i></p>
 
 <br>
