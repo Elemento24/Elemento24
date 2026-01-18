@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No spring nor summer beauty hath such grace as I have seen in one autumnal face.</b>
-> <p><i>John Donne</i></p>
+> <b>For, when with beauty we can virtue join, We paint the semblance of a form divine.</b>
+> <p><i>Matthew Prior</i></p>
 
 <br>
