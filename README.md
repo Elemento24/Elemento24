@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are few things that we so unwillingly give up, even in advanced age, as the supposition that we still have the power of ingratiating ourselves with the fair sex.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>I think the best thing I can do is to be a distraction. A husband lives and breathes his work all day long. If he comes home to more table thumping, how can the poor man ever relax?</b>
+> <p><i>Jackie Kennedy</i></p>
 
 <br>
