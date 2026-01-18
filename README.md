@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because sorry to say, women run the house. They run the family. They hold things up. I mean, it's like you don't ever see your mom get sick because she handles everything. And it's kind of amazing I think to show people just how strong women are.</b>
-> <p><i>Sophia Bush</i></p>
+> <b>I think naturally, if you're an actor, there's a high level of assertiveness that you need to have to survive this business. There's boldness in being assertive, and there's strength and confidence.</b>
+> <p><i>Bryan Cranston</i></p>
 
 <br>
