@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hawaii was beautiful of course, we played at Turtle Bay an amazing resort right on the ocean.</b>
-> <p><i>Natalie Gulbis</i></p>
+> <b>The more people explore the world, the more they realize in every country there's a different aesthetic. Beauty really is in the eye of the beholder.</b>
+> <p><i>Helena Christensen</i></p>
 
 <br>
