@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The more people explore the world, the more they realize in every country there's a different aesthetic. Beauty really is in the eye of the beholder.</b>
-> <p><i>Helena Christensen</i></p>
+> <b>Nothing is as dangerous in architecture as dealing with separated problems. If we split life into separated problems we split the possibilities to make good building art.</b>
+> <p><i>Alvar Aalto</i></p>
 
 <br>
