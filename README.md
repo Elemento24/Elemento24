@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing is as dangerous in architecture as dealing with separated problems. If we split life into separated problems we split the possibilities to make good building art.</b>
-> <p><i>Alvar Aalto</i></p>
+> <b>Marriage is not about age it's about finding the right person.</b>
+> <p><i>Sophia Bush</i></p>
 
 <br>
