@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think failure is nothing more than life's way of nudging you that you are off course. My attitude to failure is not attached to outcome, but in not trying. It is liberating. Most people attach failure to something not working out or how people perceive you. This way, it is about answering to yourself.</b>
-> <p><i>Sara Blakely</i></p>
+> <b>I've got some incredible fans actually - so loyal and they make me birthday cards and Christmas cards. I got this package of poems and artwork based around the songs. They've got this thing called 'Floetry' where they all have to put in artwork. They've set up their own competitions and stuff which is kind of amazing.</b>
+> <p><i>Florence Welch</i></p>
 
 <br>
