@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was just doing my job in the ring and doing my best to make people happy.</b>
-> <p><i>Manny Pacquiao</i></p>
+> <b>Anger is the most impotent of passions. It effects nothing it goes about, and hurts the one who is possessed by it more than the one against whom it is directed.</b>
+> <p><i>Carl Sandburg</i></p>
 
 <br>
