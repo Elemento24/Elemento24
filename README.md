@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really feel like life will dictate itself. You should allow it to unfold as naturally as possible. Just go with the flow. When you're really desperate, you say a few prayers and hope for the best. That's the way I've always lived my life.</b>
-> <p><i>Shania Twain</i></p>
+> <b>We all know that Art is not truth. Art is a lie that makes us realize the truth, at least the truth that is given to us to understand.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
