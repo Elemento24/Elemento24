@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Gwen Stefani has amazing style. I used to really love Courtney Love, and anything she wore I loved. Or Chloe Sevigny, because I really love that sort of classic look, and I like being girly and flowery, and wearing little D&ampG dresses. I wear hats a lot, too. I think it goes back to when I was a bit grungy and was a skater girl for a bit.</b>
-> <p><i>Ellie Goulding</i></p>
+> <b>Those who love him love that he sells the most art they take it as a point of faith that this proves Kinkade is the best. But his fans don't only rely on this supply-and-demand justification. They go back to values.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
