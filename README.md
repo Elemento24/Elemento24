@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To look and feel my best, I watch my calories and exercise.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>'Beauty' is a currency system like the gold standard. Like any economy, it is determined by politics, and in the modern age in the West is is the last, best belief system that keeps male dominance intact.</b>
+> <p><i>Naomi Wolf</i></p>
 
 <br>
