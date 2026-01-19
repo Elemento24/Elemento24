@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the best temporary cures for pride and affectation is seasickness a man who wants to vomit never puts on airs.</b>
-> <p><i>Josh Billings</i></p>
+> <b>Hawaii was beautiful of course, we played at Turtle Bay an amazing resort right on the ocean.</b>
+> <p><i>Natalie Gulbis</i></p>
 
 <br>
