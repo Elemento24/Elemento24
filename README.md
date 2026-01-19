@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing... to enjoy the results of your labor.</b>
-> <p><i>Michael Rady</i></p>
+> <b>One of the best temporary cures for pride and affectation is seasickness a man who wants to vomit never puts on airs.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
