@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is the most impotent of passions. It effects nothing it goes about, and hurts the one who is possessed by it more than the one against whom it is directed.</b>
-> <p><i>Carl Sandburg</i></p>
+> <b>Gwen Stefani has amazing style. I used to really love Courtney Love, and anything she wore I loved. Or Chloe Sevigny, because I really love that sort of classic look, and I like being girly and flowery, and wearing little D&ampG dresses. I wear hats a lot, too. I think it goes back to when I was a bit grungy and was a skater girl for a bit.</b>
+> <p><i>Ellie Goulding</i></p>
 
 <br>
