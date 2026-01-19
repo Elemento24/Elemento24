@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>First of all, plain and simple, you have no real idea of what it means to be famous until you become famous. It's a double-edged sword. Obviously there are a lot of amazing things about fame, but there are also a lot of challenging things about it.</b>
-> <p><i>Michelle Pfeiffer</i></p>
+> <b>My philosophy is that not only are you responsible for your life, but doing the best at this moment puts you I the best place for the next moment.</b>
+> <p><i>Oprah Winfrey</i></p>
 
 <br>
