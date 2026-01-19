@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My philosophy is that not only are you responsible for your life, but doing the best at this moment puts you I the best place for the next moment.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>I think failure is nothing more than life's way of nudging you that you are off course. My attitude to failure is not attached to outcome, but in not trying. It is liberating. Most people attach failure to something not working out or how people perceive you. This way, it is about answering to yourself.</b>
+> <p><i>Sara Blakely</i></p>
 
 <br>
