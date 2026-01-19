@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The sad truth is that without complex business partnerships between African elites and European traders and commercial agents, the slave trade to the New World would have been impossible, at least on the scale it occurred.</b>
-> <p><i>Henry Louis Gates</i></p>
+> <b>I was just doing my job in the ring and doing my best to make people happy.</b>
+> <p><i>Manny Pacquiao</i></p>
 
 <br>
