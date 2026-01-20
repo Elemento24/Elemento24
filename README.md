@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Humanism was not wrong in thinking that truth, beauty, liberty, and equality are of infinite value, but in thinking that man can get them for himself without grace.</b>
-> <p><i>Simone Weil</i></p>
+> <b>I'm not really in the excuse business.</b>
+> <p><i>Bill Parcells</i></p>
 
 <br>
