@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude is attitude, whether you're a West Coast gangster or East Coast gangster, you know?</b>
-> <p><i>Paul Walker</i></p>
+> <b>Janet Jackson is an icon, I've been honored to meet her a few times, working with her would be amazing.</b>
+> <p><i>Eric West</i></p>
 
 <br>
