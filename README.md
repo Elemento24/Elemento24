@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm amazed. When I was 40, I thought I'd never make 50. And at 50 I thought the frosting on the cake would be 60. At 60, I was still going strong and enjoying everything.</b>
-> <p><i>Gloria Stuart</i></p>
+> <b>Endurance is nobler than strength, and patience than beauty.</b>
+> <p><i>John Ruskin</i></p>
 
 <br>
