@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not really in the excuse business.</b>
-> <p><i>Bill Parcells</i></p>
+> <b>Attitude is attitude, whether you're a West Coast gangster or East Coast gangster, you know?</b>
+> <p><i>Paul Walker</i></p>
 
 <br>
