@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Janet Jackson is an icon, I've been honored to meet her a few times, working with her would be amazing.</b>
-> <p><i>Eric West</i></p>
+> <b>It is with trifles, and when he is off guard, that a man best reveals his character.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
