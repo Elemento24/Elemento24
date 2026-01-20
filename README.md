@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And we know there has been horrendous loss of life and suffering and we know that there is anger. Anyone who came anywhere near the general election in constituencies with a substantial Muslim population knows that.</b>
-> <p><i>Clare Short</i></p>
+> <b>A lot of the fun lies in trying to penetrate the mystery and this is best done by saying over the lines to yourself again and again, till they pass through the stage of sounding like nonsense, and finally return to a full sense that had at first escaped notice.</b>
+> <p><i>Anthony Hecht</i></p>
 
 <br>
