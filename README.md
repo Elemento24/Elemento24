@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is with trifles, and when he is off guard, that a man best reveals his character.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>The object of oratory alone in not truth, but persuasion.</b>
+> <p><i>Thomas B. Macaulay</i></p>
 
 <br>
