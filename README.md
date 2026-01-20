@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One science only will one genius fit so vast is art, so narrow human wit.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>Beauty is not just physical.</b>
+> <p><i>Halle Berry</i></p>
 
 <br>
