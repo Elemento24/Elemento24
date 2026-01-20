@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is an unfoldment, and the further we travel the more truth we can comprehend. To understand the things that are at our door is the best preparation for understanding those that lie beyond.</b>
-> <p><i>Hypatia</i></p>
+> <b>Except for politics, no business is scrutinized more exhaustively than journalism.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
