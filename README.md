@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dream of politics all my life has been that it is the common business, that it is something we owe to each other to understand and discuss with absolute frankness.</b>
-> <p><i>Woodrow Wilson</i></p>
+> <b>One science only will one genius fit so vast is art, so narrow human wit.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
