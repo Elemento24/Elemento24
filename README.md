@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of the fun lies in trying to penetrate the mystery and this is best done by saying over the lines to yourself again and again, till they pass through the stage of sounding like nonsense, and finally return to a full sense that had at first escaped notice.</b>
-> <p><i>Anthony Hecht</i></p>
+> <b>Oh, I don't think Tom Sowell would tell anybody to join the administration. That's not his style. But I think his attitude has always been if it had to be done he'd prefer me to do it than somebody else.</b>
+> <p><i>Clarence Thomas</i></p>
 
 <br>
