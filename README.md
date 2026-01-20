@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dream car would be a Maserati. That would be amazing.</b>
-> <p><i>Jordana Brewster</i></p>
+> <b>Keep a good attitude and do the right thing even when it's hard. When you do that you are passing the test. And God promises you your marked moments are on their way.</b>
+> <p><i>Joel Osteen</i></p>
 
 <br>
