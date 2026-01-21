@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't change the direction of the wind, but I can adjust my sails to always reach my destination.</b>
-> <p><i>Jimmy Dean</i></p>
+> <b>I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
