@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The history of philosophy is not, like the history of the sciences, to be studied with the intellect alone. That which is receptive in us and that which impinges upon us from history is the reality of man's being, unfolding itself in thought.</b>
-> <p><i>Karl Jaspers</i></p>
+> <b>Animals have a much better attitude to life and death than we do. They know when their time has come. We are the ones that suffer when they pass, but it's a healing kind of grief that enables us to deal with other griefs that are not so easy to grab hold of.</b>
+> <p><i>Emmylou Harris</i></p>
 
 <br>
