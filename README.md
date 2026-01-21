@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is the reaching out for the truth.</b>
-> <p><i>Louis Kahn</i></p>
+> <b>Most actors want to sink their teeth into amazing material.</b>
+> <p><i>Emmanuelle Chriqui</i></p>
 
 <br>
