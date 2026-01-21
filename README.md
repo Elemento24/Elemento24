@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always feel like the art's there and I just see it, so it's not really a lot of work.</b>
-> <p><i>Damien Hirst</i></p>
+> <b>Great tragedy has come to us, and we are meeting it with the best that is in our country, with courage and concern for others because this is America. This is who we are.</b>
+> <p><i>George W. Bush</i></p>
 
 <br>
