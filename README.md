@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most actors want to sink their teeth into amazing material.</b>
-> <p><i>Emmanuelle Chriqui</i></p>
+> <b>A writer should write with his eyes and a painter paint with his ears.</b>
+> <p><i>Gertrude Stein</i></p>
 
 <br>
