@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother inspired me to treat others as I would want to be treated regardless of age, race or financial status.</b>
-> <p><i>Tommy Hilfiger</i></p>
+> <b>Jeffrey Deitch is the Jeff Koons of art dealers. Not because he's the biggest, best, or the richest of his kind. But because in some ways he's the weirdest (which is saying a lot when you're talking about the wonderful, wicked, lovable, and annoying creatures known as art dealers).</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
