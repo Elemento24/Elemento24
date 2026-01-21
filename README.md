@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A writer should write with his eyes and a painter paint with his ears.</b>
-> <p><i>Gertrude Stein</i></p>
+> <b>The history of philosophy is not, like the history of the sciences, to be studied with the intellect alone. That which is receptive in us and that which impinges upon us from history is the reality of man's being, unfolding itself in thought.</b>
+> <p><i>Karl Jaspers</i></p>
 
 <br>
