@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I choose films for their artistic value. I don't need a mansion or a Jaguar. When I leave this Earth, I won't take any money with me. All I will leave behind will be my art.</b>
-> <p><i>Brad Renfro</i></p>
+> <b>Filth and old age, I'm sure you will agree, are powerful wardens upon chastity.</b>
+> <p><i>Geoffrey Chaucer</i></p>
 
 <br>
