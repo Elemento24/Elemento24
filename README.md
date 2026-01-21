@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Filth and old age, I'm sure you will agree, are powerful wardens upon chastity.</b>
-> <p><i>Geoffrey Chaucer</i></p>
+> <b>As soon as I began to earn what might be called fairly large sums, I bought a car and began to explore the country around New York.</b>
+> <p><i>Kate Smith</i></p>
 
 <br>
