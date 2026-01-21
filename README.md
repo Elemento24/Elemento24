@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I definitely don't look my age. So I actively look for roles that will help people change their perception of me.</b>
-> <p><i>Elijah Wood</i></p>
+> <b>I always feel like the art's there and I just see it, so it's not really a lot of work.</b>
+> <p><i>Damien Hirst</i></p>
 
 <br>
