@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love producing. I am loving doing that. I think that is my most natural space in the business. I just love producing or editing and that's where I thrive.</b>
-> <p><i>Will Smith</i></p>
+> <b>Architecture is the reaching out for the truth.</b>
+> <p><i>Louis Kahn</i></p>
 
 <br>
