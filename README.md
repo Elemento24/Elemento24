@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you spend enough time in or around Washington, you'll meet amazing people who work for the government.</b>
-> <p><i>Judy Woodruff</i></p>
+> <b>The crucial task of old age is balance: keeping just well enough, just brave enough, just gay and interested and starkly honest enough to remain a sentient human being.</b>
+> <p><i>Florida Scott-Maxwell</i></p>
 
 <br>
