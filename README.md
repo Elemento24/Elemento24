@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As soon as I began to earn what might be called fairly large sums, I bought a car and began to explore the country around New York.</b>
-> <p><i>Kate Smith</i></p>
+> <b>If you spend enough time in or around Washington, you'll meet amazing people who work for the government.</b>
+> <p><i>Judy Woodruff</i></p>
 
 <br>
