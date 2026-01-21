@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Inner beauty should be the most important part of improving one's self.</b>
-> <p><i>Priscilla Presley</i></p>
+> <b>I can't change the direction of the wind, but I can adjust my sails to always reach my destination.</b>
+> <p><i>Jimmy Dean</i></p>
 
 <br>
