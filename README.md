@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whenever an individual or a business decides that success has been attained, progress stops.</b>
-> <p><i>Thomas J. Watson</i></p>
+> <b>The best of seers is he who guesses well.</b>
+> <p><i>Euripides</i></p>
 
 <br>
