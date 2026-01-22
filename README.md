@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm free. I just do what I want, say what I want, say how I feel, and I don't try to hurt nobody. I just try to make sure that I don't compromise my art in any kind of way, and I think people respect that.</b>
-> <p><i>Erykah Badu</i></p>
+> <b>All conservatism is based upon the idea that if you leave things alone you leave them as they are. But you do not. If you leave a thing alone you leave it to a torrent of change.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
