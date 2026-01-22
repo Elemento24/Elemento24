@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is for anyone. It just isn't for everyone. Still, over the past decade, its audience has hugely grown, and that's irked those outside the art world, who get irritated at things like incomprehensibility or money.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Use those talents you have. You will make it. You will give joy to the world. Take this tip from nature: The woods would be a very silent place if no birds sang except those who sang best.</b>
+> <p><i>Bernard Meltzer</i></p>
 
 <br>
