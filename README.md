@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What turns me on is to walk into a sold-out venue. The audiences are so much the same as they were in the '60s. It's just an amazing thing. I can't explain it, but I hope it never stops.</b>
-> <p><i>Chubby Checker</i></p>
+> <b>Highly educated young people are tutored, taught and monitored in all aspects of their lives, except the most important, which is character building. When it comes to this, most universities leave them alone.</b>
+> <p><i>David Brooks</i></p>
 
 <br>
