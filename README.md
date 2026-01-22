@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can find out anything you want about a car now, and especially every bit of information about the price, without relying on the dealers.</b>
-> <p><i>Susan Orlean</i></p>
+> <b>The age of a woman doesn't mean a thing. The best tunes are played on the oldest fiddles.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
