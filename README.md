@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All conservatism is based upon the idea that if you leave things alone you leave them as they are. But you do not. If you leave a thing alone you leave it to a torrent of change.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>You can find out anything you want about a car now, and especially every bit of information about the price, without relying on the dealers.</b>
+> <p><i>Susan Orlean</i></p>
 
 <br>
