@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our situation today shows that beauty demands for itself at least as much courage and decision as do truth and goodness, and she will not allow herself to be separated and banned from her two sisters without taking them along with herself in an act of mysterious vengeance.</b>
-> <p><i>Hans Urs von Balthasar</i></p>
+> <b>Whenever an individual or a business decides that success has been attained, progress stops.</b>
+> <p><i>Thomas J. Watson</i></p>
 
 <br>
