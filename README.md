@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The age of a woman doesn't mean a thing. The best tunes are played on the oldest fiddles.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>What turns me on is to walk into a sold-out venue. The audiences are so much the same as they were in the '60s. It's just an amazing thing. I can't explain it, but I hope it never stops.</b>
+> <p><i>Chubby Checker</i></p>
 
 <br>
