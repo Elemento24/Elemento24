@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't drive your business, you will be driven out of business.</b>
-> <p><i>B. C. Forbes</i></p>
+> <b>The best way to lose weight is to close your mouth - something very difficult for a politician. Or watch your food - just watch it, don't eat it.</b>
+> <p><i>Edward Koch</i></p>
 
 <br>
