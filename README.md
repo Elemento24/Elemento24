@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't look my age, I don't feel my age and I don't act my age. To me age is just a number.</b>
-> <p><i>Joan Collins</i></p>
+> <b>Art is for anyone. It just isn't for everyone. Still, over the past decade, its audience has hugely grown, and that's irked those outside the art world, who get irritated at things like incomprehensibility or money.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
