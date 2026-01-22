@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing to me that they're cutting physical education programs in the school systems.</b>
-> <p><i>Shannon Miller</i></p>
+> <b>I don't look my age, I don't feel my age and I don't act my age. To me age is just a number.</b>
+> <p><i>Joan Collins</i></p>
 
 <br>
