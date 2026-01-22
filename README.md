@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The crucial task of old age is balance: keeping just well enough, just brave enough, just gay and interested and starkly honest enough to remain a sentient human being.</b>
-> <p><i>Florida Scott-Maxwell</i></p>
+> <b>It's amazing to me that they're cutting physical education programs in the school systems.</b>
+> <p><i>Shannon Miller</i></p>
 
 <br>
