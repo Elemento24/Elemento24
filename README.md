@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only thing I fear more than change is no change. The business of being static makes me nuts.</b>
-> <p><i>Twyla Tharp</i></p>
+> <b>I liken myself to Henry Ford and the auto industry, I give you 90 percent of what most people need.</b>
+> <p><i>Adam Osborne</i></p>
 
 <br>
