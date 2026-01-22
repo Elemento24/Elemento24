@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to lose weight is to close your mouth - something very difficult for a politician. Or watch your food - just watch it, don't eat it.</b>
-> <p><i>Edward Koch</i></p>
+> <b>I'm very competitive by nature. And I like to be the underdog - It's the best way to win. To come from behind and win is a great feeling!</b>
+> <p><i>Zac Efron</i></p>
 
 <br>
