@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a building becomes architecture, then it is art.</b>
-> <p><i>Arne Jacobsen</i></p>
+> <b>None are so old as those who have outlived enthusiasm.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
