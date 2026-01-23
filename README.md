@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Editor: a person employed by a newspaper, whose business it is to separate the wheat from the chaff, and to see that the chaff is printed.</b>
-> <p><i>Elbert Hubbard</i></p>
+> <b>A national political campaign is better than the best circus ever heard of, with a mass baptism and a couple of hangings thrown in.</b>
+> <p><i>H. L. Mencken</i></p>
 
 <br>
