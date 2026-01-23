@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was a kid I got busted for throwing a rock through a car window and egging a house on halloween.</b>
-> <p><i>Gavin DeGraw</i></p>
+> <b>To change ones life: Start immediately. Do it flamboyantly.</b>
+> <p><i>William James</i></p>
 
 <br>
