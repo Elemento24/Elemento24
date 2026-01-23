@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Film will only became an art when its materials are as inexpensive as pencil and paper.</b>
-> <p><i>Jean Cocteau</i></p>
+> <b>Dear God! how beauty varies in nature and art. In a woman the flesh must be like marble in a statue the marble must be like flesh.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
