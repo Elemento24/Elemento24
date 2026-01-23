@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've learned that football sometimes was an outlet. It was a way for me to release anger, release frustration.</b>
-> <p><i>Emmitt Smith</i></p>
+> <b>Pilates is amazing, my posture is so much better and I'm even starting to get muscles on my tummy - it's incredible.</b>
+> <p><i>Kelly Osbourne</i></p>
 
 <br>
