@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is something that doesn't matter, unless you are a cheese.</b>
-> <p><i>Luis Bunuel</i></p>
+> <b>If a building becomes architecture, then it is art.</b>
+> <p><i>Arne Jacobsen</i></p>
 
 <br>
