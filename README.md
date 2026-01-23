@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is my 20th year in the sport. I've known swimming and that's it. I don't want to swim past age 30 if I continue after this Olympics, and come back in 2016, I'll be 31. I'm looking forward to being able to see the other side of the fence.</b>
-> <p><i>Michael Phelps</i></p>
+> <b>I feel fine, I don't care who the director is. All you have to do is know what your doing - all of us - everybody in the business - that's all you ask anyone - you know your job, I know mine, let's go do it.</b>
+> <p><i>Morgan Freeman</i></p>
 
 <br>
