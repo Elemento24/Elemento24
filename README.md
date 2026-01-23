@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dear God! how beauty varies in nature and art. In a woman the flesh must be like marble in a statue the marble must be like flesh.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>When you're eight years old nothing is your business.</b>
+> <p><i>Lenny Bruce</i></p>
 
 <br>
