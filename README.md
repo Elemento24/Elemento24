@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Science and vision are not opposites or even at odds. They need each other. I sometimes hear other startup folks say something along the lines of: 'If entrepreneurship was a science, then anyone could do it.' I'd like to point out that even science is a science, and still very few people can do it, let alone do it well.</b>
-> <p><i>Eric Ries</i></p>
+> <b>I've learned that football sometimes was an outlet. It was a way for me to release anger, release frustration.</b>
+> <p><i>Emmitt Smith</i></p>
 
 <br>
