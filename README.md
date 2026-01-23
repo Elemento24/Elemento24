@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>None are so old as those who have outlived enthusiasm.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>To write a story about New York that only deals with people in your age and socioeconomic bracket, that feels dishonest to me. So much of New York comes from everyone bumping into each other.</b>
+> <p><i>Josh Radnor</i></p>
 
 <br>
