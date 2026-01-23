@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This film business, perhaps more so in America than in Europe, has always been about young sexuality. It's not true of theatre, but in America, film audiences are young. It's not an intellectual cinema in America.</b>
-> <p><i>Jacqueline Bisset</i></p>
+> <b>I'm definitely the most tech-savvy in my family. My wife wouldn't have a clue, as far as getting the computer working. All of my kids, it's amazing. Like everybody's kids, they're more savvy than I am, probably.</b>
+> <p><i>Chris O'Donnell</i></p>
 
 <br>
