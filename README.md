@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To write a story about New York that only deals with people in your age and socioeconomic bracket, that feels dishonest to me. So much of New York comes from everyone bumping into each other.</b>
-> <p><i>Josh Radnor</i></p>
+> <b>Science and vision are not opposites or even at odds. They need each other. I sometimes hear other startup folks say something along the lines of: 'If entrepreneurship was a science, then anyone could do it.' I'd like to point out that even science is a science, and still very few people can do it, let alone do it well.</b>
+> <p><i>Eric Ries</i></p>
 
 <br>
