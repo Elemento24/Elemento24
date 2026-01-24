@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel fine, I don't care who the director is. All you have to do is know what your doing - all of us - everybody in the business - that's all you ask anyone - you know your job, I know mine, let's go do it.</b>
-> <p><i>Morgan Freeman</i></p>
+> <b>I may be alone in this, but I do sense the power of film, in that movies have the ability to literally change people's minds. That's pretty powerful stuff when you consider that.</b>
+> <p><i>Nicolas Cage</i></p>
 
 <br>
