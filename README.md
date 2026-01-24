@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Smiling is definitely one of the best beauty remedies. If you have a good sense of humor and a good approach to life, that's beautiful.</b>
-> <p><i>Rashida Jones</i></p>
+> <b>One of the tough things about being an actor, probably the hardest thing, is getting your foot in the door, and my father handled that for me at a very early age.</b>
+> <p><i>Jeff Bridges</i></p>
 
 <br>
