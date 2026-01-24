@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're going to test with the same car, but we have a new car ready.</b>
-> <p><i>Larry Dixon</i></p>
+> <b>People must insist on the right to say no, to be alone, to stand out from the herd. Creative artists can say all this in their own way and in their own field, by hard, rigorous work.</b>
+> <p><i>Tahar Ben Jelloun</i></p>
 
 <br>
