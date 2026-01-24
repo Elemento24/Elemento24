@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be in a situation where you have no rights whatsoever is something I wish everybody could experience. People's attitudes would change. It would be a better place.</b>
-> <p><i>Tommy Chong</i></p>
+> <b>When you're young, you look at television and think, there's a conspiracy. The networks have conspired to dumb us down. But when you get a little older, you realize that's not true. The networks are in business to give people exactly what they want.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
