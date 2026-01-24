@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I married two weeks after my 18th birthday, far too young, and by the time I was 23 I was a single mother of three small children, Sean, Daniel and Victoria, living in a prefab house.</b>
-> <p><i>Sue Townsend</i></p>
+> <b>Freedom is the sure possession of those alone who have the courage to defend it.</b>
+> <p><i>Pericles</i></p>
 
 <br>
