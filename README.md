@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think art is inherently nonviolent and it actually occupies your mind with creation rather than destruction.</b>
-> <p><i>Anthony Kiedis</i></p>
+> <b>Once you grow past Mommy and Daddy coming running when you're hurt, you're really on your own. You're alone, and there's no one to help you.</b>
+> <p><i>Octavia Butler</i></p>
 
 <br>
