@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The creative destruction that social media is currently unleashing will change more than technology or the leader board of the Fortune 100. It is driving a qualitative shift in the nature of relationships between brands and their customers.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>We're going to test with the same car, but we have a new car ready.</b>
+> <p><i>Larry Dixon</i></p>
 
 <br>
