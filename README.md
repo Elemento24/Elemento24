@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I may be alone in this, but I do sense the power of film, in that movies have the ability to literally change people's minds. That's pretty powerful stuff when you consider that.</b>
-> <p><i>Nicolas Cage</i></p>
+> <b>They were so good that you just had to sing the song to them once and they got it. It's amazing. Sometimes it didn't come out the way you wanted, but it was good.</b>
+> <p><i>Chris LeDoux</i></p>
 
 <br>
