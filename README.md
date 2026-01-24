@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Freedom is the sure possession of those alone who have the courage to defend it.</b>
-> <p><i>Pericles</i></p>
+> <b>Now I know that Wal-Mart's policies do not reflect the best way of doing business and the values that I think are important in America.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
