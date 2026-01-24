@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've also seen that great men are often lonely. This is understandable, because they have built such high standards for themselves that they often feel alone. But that same loneliness is part of their ability to create.</b>
-> <p><i>Yousuf Karsh</i></p>
+> <b>I married two weeks after my 18th birthday, far too young, and by the time I was 23 I was a single mother of three small children, Sean, Daniel and Victoria, living in a prefab house.</b>
+> <p><i>Sue Townsend</i></p>
 
 <br>
