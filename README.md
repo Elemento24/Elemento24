@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now I know that Wal-Mart's policies do not reflect the best way of doing business and the values that I think are important in America.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>I did a twenty foot print and John Cage is involved in that because he was the only person I knew in New York who had a car and who would be willing to do this.</b>
+> <p><i>Robert Rauschenberg</i></p>
 
 <br>
