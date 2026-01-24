@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In giving freedom to the slave, we assure freedom to the free - honorable alike in what we give and what we preserve. We shall nobly save, or meanly lose, the last best hope of earth.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>Some people change when they think they're a star or something.</b>
+> <p><i>Paris Hilton</i></p>
 
 <br>
