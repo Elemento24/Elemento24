@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't play pyrotechnic scales. I play about frustration, patience, anger. Music is an extension of my soul.</b>
-> <p><i>Dick Dale</i></p>
+> <b>Smiling is definitely one of the best beauty remedies. If you have a good sense of humor and a good approach to life, that's beautiful.</b>
+> <p><i>Rashida Jones</i></p>
 
 <br>
