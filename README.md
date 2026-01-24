@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people change when they think they're a star or something.</b>
-> <p><i>Paris Hilton</i></p>
+> <b>Like charity, I believe glamour should begin at home.</b>
+> <p><i>Loretta Young</i></p>
 
 <br>
