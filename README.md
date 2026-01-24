@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They were so good that you just had to sing the song to them once and they got it. It's amazing. Sometimes it didn't come out the way you wanted, but it was good.</b>
-> <p><i>Chris LeDoux</i></p>
+> <b>In politics, strangely enough, the best way to play your cards is to lay them face upwards on the table.</b>
+> <p><i>H. G. Wells</i></p>
 
 <br>
