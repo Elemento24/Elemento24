@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People must insist on the right to say no, to be alone, to stand out from the herd. Creative artists can say all this in their own way and in their own field, by hard, rigorous work.</b>
-> <p><i>Tahar Ben Jelloun</i></p>
+> <b>I think art is inherently nonviolent and it actually occupies your mind with creation rather than destruction.</b>
+> <p><i>Anthony Kiedis</i></p>
 
 <br>
