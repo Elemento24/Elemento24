@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do not try to push your way through to the front ranks of your profession do not run after distinctions and rewards but do your utmost to find an entry into the world of beauty.</b>
-> <p><i>Sydney Smith</i></p>
+> <b>The most amazing thing to me about the sea is the tide. A harbour like St. Ives is totally transformed in a very short space of time by the arrival or departure of the sea.</b>
+> <p><i>John Dyer</i></p>
 
 <br>
