@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It depends on the situation. I mean, on one hand there's the argument that people should be left alone on the other hand, there's the argument to wade in a stop slaughters in places like Bosnia and Kosovo and what we probably should have done in Rwanda.</b>
-> <p><i>Jello Biafra</i></p>
+> <b>Do not try to push your way through to the front ranks of your profession do not run after distinctions and rewards but do your utmost to find an entry into the world of beauty.</b>
+> <p><i>Sydney Smith</i></p>
 
 <br>
