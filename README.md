@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was in elementary school, I used to write letters to myself. I'd write letters and go 'Dear Kristen-at-16-years-old, happy birthday. I hope you're doing something.'</b>
-> <p><i>Kristin Kreuk</i></p>
+> <b>The art of living well and the art of dying well are one.</b>
+> <p><i>Epicurus</i></p>
 
 <br>
