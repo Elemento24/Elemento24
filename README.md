@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is clear that not in one thing alone, but in many ways equality and freedom of speech are a good thing.</b>
-> <p><i>Herodotus</i></p>
+> <b>All good criticism should be judged the way art is. You shouldn't read it the way you read history or science.</b>
+> <p><i>Leslie Fiedler</i></p>
 
 <br>
