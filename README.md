@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember things that happened sixty years ago, but if you ask me where I left my car keys five minutes ago, that's sometimes a problem.</b>
-> <p><i>Lou Thesz</i></p>
+> <b>I've been very fortunate to be able to jump around. I just did this really wonderful film called Map of the World. That was a real, amazing, dramatic story. Then I did a movie called Company Men, a little comedy about the Bay of Pigs.</b>
+> <p><i>Sigourney Weaver</i></p>
 
 <br>
