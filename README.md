@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reba McEntire came through town when I lived in Texas. She had this amazing theatrical show with, like, 13 different wardrobe changes. I was eight and I was like, Wow, I wanna do that!</b>
-> <p><i>LeAnn Rimes</i></p>
+> <b>Death is the mother of Beauty hence from her, alone, shall come fulfillment to our dreams and our desires.</b>
+> <p><i>Wallace Stevens</i></p>
 
 <br>
