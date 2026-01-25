@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>I'm not as far along as Jack Nicklaus was at this age, but I'm trying.</b>
+> <p><i>Tiger Woods</i></p>
 
 <br>
