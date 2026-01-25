@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm asked all the time in interviews about who I am, and I know a few people my age who have a strong sense of self, but I couldn't say I know myself and sum it up and give it to you in a little package. I don't know myself at all yet.</b>
-> <p><i>Kristen Stewart</i></p>
+> <b>I remember things that happened sixty years ago, but if you ask me where I left my car keys five minutes ago, that's sometimes a problem.</b>
+> <p><i>Lou Thesz</i></p>
 
 <br>
