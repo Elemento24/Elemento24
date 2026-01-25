@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, you can't trust most people in this game, period it can be a very shady business.</b>
-> <p><i>Marvin Hagler</i></p>
+> <b>Procrastination is the art of keeping up with yesterday.</b>
+> <p><i>Don Marquis</i></p>
 
 <br>
