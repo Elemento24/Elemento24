@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most amazing thing to me about the sea is the tide. A harbour like St. Ives is totally transformed in a very short space of time by the arrival or departure of the sea.</b>
-> <p><i>John Dyer</i></p>
+> <b>The minute you try to talk business with him he takes the attitude that he is a gentleman and a scholar, and the moment you try to approach him on the level of his moral integrity he starts to talk business.</b>
+> <p><i>Raymond Chandler</i></p>
 
 <br>
