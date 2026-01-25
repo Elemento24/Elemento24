@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Procrastination is the art of keeping up with yesterday.</b>
-> <p><i>Don Marquis</i></p>
+> <b>It's an interesting combination: Having a great fear of being alone, and having a desperate need for solitude and the solitary experience. That's always been a tug of war for me.</b>
+> <p><i>Jodie Foster</i></p>
 
 <br>
