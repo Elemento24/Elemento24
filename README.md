@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You are educated. Your certification is in your degree. You may think of it as the ticket to the good life. Let me ask you to think of an alternative. Think of it as your ticket to change the world.</b>
-> <p><i>Tom Brokaw</i></p>
+> <b>It is clear that not in one thing alone, but in many ways equality and freedom of speech are a good thing.</b>
+> <p><i>Herodotus</i></p>
 
 <br>
