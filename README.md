@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not as far along as Jack Nicklaus was at this age, but I'm trying.</b>
-> <p><i>Tiger Woods</i></p>
+> <b>If you want to change the culture, you will have to start by changing the organization.</b>
+> <p><i>Mary Douglas</i></p>
 
 <br>
