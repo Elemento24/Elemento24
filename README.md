@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The earth was made so various, that the mind Of desultory man, studious of change, And pleased with novelty, might be indulged.</b>
-> <p><i>William Cowper</i></p>
+> <b>The best part about being with a group is that you don't have to do everything alone. You're with your friends.</b>
+> <p><i>Justin Timberlake</i></p>
 
 <br>
