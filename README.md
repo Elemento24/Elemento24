@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Outside of a dog, a book is a man's best friend. Inside of a dog it's too dark to read.</b>
-> <p><i>Groucho Marx</i></p>
+> <b>I filmed 'Albatross' before I got 'Downton.' It's a coming-of-age movie about this girl who leaps into this family's life, like a whirlwind. She's ballsy and brash and wonderful, it was such an amazing character to play.</b>
+> <p><i>Jessica Brown Findlay</i></p>
 
 <br>
