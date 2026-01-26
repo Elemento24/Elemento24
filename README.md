@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well I do find the beauty in animals. I find beauty everywhere. I find beauty in my garden.</b>
-> <p><i>Doris Day</i></p>
+> <b>I have two ideas for novels at the moment, neither of them all that conventional, but I'm not ready to choose between them yet, let alone settle down to the process of writing.</b>
+> <p><i>Jonathan Coe</i></p>
 
 <br>
