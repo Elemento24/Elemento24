@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.</b>
-> <p><i>Dale Carnegie</i></p>
+> <b>If you live to be one hundred, you've got it made. Very few people die past that age.</b>
+> <p><i>George Burns</i></p>
 
 <br>
