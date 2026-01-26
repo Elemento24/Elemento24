@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every age yearns for a more beautiful world. The deeper the desperation and the depression about the confusing present, the more intense that yearning.</b>
-> <p><i>Johan Huizinga</i></p>
+> <b>The earth was made so various, that the mind Of desultory man, studious of change, And pleased with novelty, might be indulged.</b>
+> <p><i>William Cowper</i></p>
 
 <br>
