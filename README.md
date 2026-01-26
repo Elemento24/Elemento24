@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have two ideas for novels at the moment, neither of them all that conventional, but I'm not ready to choose between them yet, let alone settle down to the process of writing.</b>
-> <p><i>Jonathan Coe</i></p>
+> <b>I know from my own experience and from other people in the business that when you come from a place where nobody knew who you were and then there is this sudden shift to where everybody now knows who you are, there's an adjustment that you have to make.</b>
+> <p><i>Kristen Wiig</i></p>
 
 <br>
