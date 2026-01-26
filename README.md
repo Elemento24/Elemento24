@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel like I have as good a shot as anybody out there and I have gotten close in the past, so why not have the attitude that I can come out and play great tennis and maybe even win this tournament.</b>
-> <p><i>Michael Chang</i></p>
+> <b>Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.</b>
+> <p><i>Dale Carnegie</i></p>
 
 <br>
