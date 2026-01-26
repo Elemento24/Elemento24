@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is curious how, from time immemorial, man seems to have associated the idea of evil with beauty, shrunk from it with a sort of ghostly fear, while, at the same time drawn to it by force of its hypnotic attraction.</b>
-> <p><i>Richard Le Gallienne</i></p>
+> <b>To go to the Oscars for 'Moneyball' - that was pretty amazing.</b>
+> <p><i>Chris Pratt</i></p>
 
 <br>
