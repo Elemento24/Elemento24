@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The U.S. Armed Forces are the best trained, best equipped fighting forces in the world.</b>
-> <p><i>Jim Walsh</i></p>
+> <b>Outside of a dog, a book is a man's best friend. Inside of a dog it's too dark to read.</b>
+> <p><i>Groucho Marx</i></p>
 
 <br>
