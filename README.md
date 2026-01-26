@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know from my own experience and from other people in the business that when you come from a place where nobody knew who you were and then there is this sudden shift to where everybody now knows who you are, there's an adjustment that you have to make.</b>
-> <p><i>Kristen Wiig</i></p>
+> <b>It is curious how, from time immemorial, man seems to have associated the idea of evil with beauty, shrunk from it with a sort of ghostly fear, while, at the same time drawn to it by force of its hypnotic attraction.</b>
+> <p><i>Richard Le Gallienne</i></p>
 
 <br>
