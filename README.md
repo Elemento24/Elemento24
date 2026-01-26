@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to change the culture, you will have to start by changing the organization.</b>
-> <p><i>Mary Douglas</i></p>
+> <b>The U.S. Armed Forces are the best trained, best equipped fighting forces in the world.</b>
+> <p><i>Jim Walsh</i></p>
 
 <br>
