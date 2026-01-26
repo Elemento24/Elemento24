@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Global political conditions make a direct American intervention difficult, but President Reagan's messianic and visceral attitude toward the Nicaraguan revolution could mean it will happen as an act of desperation.</b>
-> <p><i>Tomas Borge</i></p>
+> <b>I want, of course, peace, grace, and beauty. How do you do that? You work for it.</b>
+> <p><i>Studs Terkel</i></p>
 
 <br>
