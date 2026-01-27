@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The most beautiful thing we can experience is the mysterious. It is the source of all true art and science.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>With so many amazing artists on one bill, we expect this concert to be incredibly powerful in its ability to raise both money and awareness for the long-term rebuilding effort we must all support.</b>
+> <p><i>Brad Delson</i></p>
 
 <br>
