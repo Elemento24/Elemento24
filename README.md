@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love has always been the most important business in my life, I should say the only one.</b>
-> <p><i>Stendhal</i></p>
+> <b>Doubt, of whatever kind, can be ended by action alone.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
