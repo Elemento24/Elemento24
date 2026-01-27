@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is the beautiful way of doing things. Science is the effective way of doing things. Business is the economic way of doing things.</b>
-> <p><i>Elbert Hubbard</i></p>
+> <b>Youth is an amazing thing: I think back on when we did The Lost Boys, and I didn't think I could do anything wrong.</b>
+> <p><i>Kiefer Sutherland</i></p>
 
 <br>
