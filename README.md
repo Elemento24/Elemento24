@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've managed to keep a clear head and remain sane in this business because I remain a kid off-camera.</b>
-> <p><i>Leonardo DiCaprio</i></p>
+> <b>We expect all our businesses to have a positive impact on our top and bottom lines. Profitability is very important to us or we wouldn't be in this business.</b>
+> <p><i>Jeff Bezos</i></p>
 
 <br>
