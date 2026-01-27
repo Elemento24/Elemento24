@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a driven businessman, but a driven artist. I never think about money. Beautiful things make money.</b>
-> <p><i>Lord Acton</i></p>
+> <b>The only failure one should fear, is not hugging to the purpose they see as best.</b>
+> <p><i>George Eliot</i></p>
 
 <br>
