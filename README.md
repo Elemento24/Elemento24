@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only failure one should fear, is not hugging to the purpose they see as best.</b>
-> <p><i>George Eliot</i></p>
+> <b>They always say time changes things, but you actually have to change them yourself.</b>
+> <p><i>Andy Warhol</i></p>
 
 <br>
