@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They always say time changes things, but you actually have to change them yourself.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>I love building spaces: architecture, furniture, all of it, probably more than fashion. The development procedure is more tactile. It's about space and form and it's something you can share with other people.</b>
+> <p><i>Donna Karan</i></p>
 
 <br>
