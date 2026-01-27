@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We expect all our businesses to have a positive impact on our top and bottom lines. Profitability is very important to us or we wouldn't be in this business.</b>
-> <p><i>Jeff Bezos</i></p>
+> <b>Kinkade estimated that one of his paintings hung in every twenty homes in America. Yet the art world unanimously ignores or reviles him. Me included.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
