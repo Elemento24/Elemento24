@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Doubt, of whatever kind, can be ended by action alone.</b>
-> <p><i>Thomas Carlyle</i></p>
+> <b>The art world is an all-volunteer force. No one has to be here if he or she doesn't want to be, and we should be associating with anyone we want to.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
