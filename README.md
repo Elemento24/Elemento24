@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love building spaces: architecture, furniture, all of it, probably more than fashion. The development procedure is more tactile. It's about space and form and it's something you can share with other people.</b>
-> <p><i>Donna Karan</i></p>
+> <b>The idea of the sacred is quite simply one of the most conservative notions in any culture, because it seeks to turn other ideas - uncertainty, progress, change - into crimes.</b>
+> <p><i>Salman Rushdie</i></p>
 
 <br>
