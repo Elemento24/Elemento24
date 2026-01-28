@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After you're older, two things are possibly more important than any others: health and money.</b>
-> <p><i>Helen Gurley Brown</i></p>
+> <b>The average session takes about one to two hours. It's totally amazing because when a person breathes, they go through one stage of relaxation after another, and every stage releases tension.</b>
+> <p><i>Leonard Orr</i></p>
 
 <br>
