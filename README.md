@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents were kind of like me in that they had tons and tons of weird, amazing stuff.</b>
-> <p><i>Jaron Lanier</i></p>
+> <b>It is far better to be alone, than to be in bad company.</b>
+> <p><i>George Washington</i></p>
 
 <br>
