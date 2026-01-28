@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We need quiet time to examine our lives openly and honestly - spending quiet time alone gives your mind an opportunity to renew itself and create order.</b>
-> <p><i>Susan Taylor</i></p>
+> <b>I'm 36 and if I met a woman of my own age and married her, I'd also be marrying her former life, her past. It might be OK for some people - I don't want to judge it or anything - but it's not for me. It would destroy my creativity.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
