@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm an angry person, angrier than most people would imagine, I get flashes of anger. What works for me is working out when it's useful to use that anger.</b>
-> <p><i>Alan Alda</i></p>
+> <b>My parents were kind of like me in that they had tons and tons of weird, amazing stuff.</b>
+> <p><i>Jaron Lanier</i></p>
 
 <br>
