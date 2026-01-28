@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nature scarcely ever gives us the very best for that we must have recourse to art.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>I am a big popcorn fanatic. I love popcorn. In fact one year for my birthday, my husband bought me one of those big popcorn machines like they have in movie theaters.</b>
+> <p><i>Debbie Macomber</i></p>
 
 <br>
