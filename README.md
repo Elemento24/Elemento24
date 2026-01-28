@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people call it global warming some people call it climate change. What is the difference?</b>
-> <p><i>Frank Luntz</i></p>
+> <b>There are people who take rumors and embellish them in a way that can be devastating. And this pollution has to be eradicated by people in our business as best we can.</b>
+> <p><i>Bob Woodward</i></p>
 
 <br>
