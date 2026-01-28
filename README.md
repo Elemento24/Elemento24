@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is a sobering thought that when Mozart was my age, he had been dead for two years.</b>
-> <p><i>Tom Lehrer</i></p>
+> <b>I was never an ambitious girl, or even a self-confident one. I never went in for beauty pageants or wore a stitch of make-up until I went to Los Angeles.</b>
+> <p><i>Pamela Anderson</i></p>
 
 <br>
