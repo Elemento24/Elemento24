@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no secret, once we go to qualifying, we all seem to enjoy it. Qualifying is all about putting everything that you have and that the car has in one lap. It's like a rush, I really enjoy that.</b>
-> <p><i>Sebastian Vettel</i></p>
+> <b>The intention to live as long as possible isn't one of the mind's best intentions, because quantity isn't the same as quality.</b>
+> <p><i>Deepak Chopra</i></p>
 
 <br>
