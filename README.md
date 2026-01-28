@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The average session takes about one to two hours. It's totally amazing because when a person breathes, they go through one stage of relaxation after another, and every stage releases tension.</b>
-> <p><i>Leonard Orr</i></p>
+> <b>Some people call it global warming some people call it climate change. What is the difference?</b>
+> <p><i>Frank Luntz</i></p>
 
 <br>
