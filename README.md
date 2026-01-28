@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art for art's sake is a philosophy of the well-fed.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>My father instilled in me the attitude of prevailing. If there's a challenge, go for it. If there's a wall to break down, break it down.</b>
+> <p><i>Donny Osmond</i></p>
 
 <br>
