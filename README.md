@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think there is a big difference between expressing the pain and anger that many African Americans and other people of color may feel versus language that I think now crosses the line and goes into hate.</b>
-> <p><i>Michael Nutter</i></p>
+> <b>There is no secret, once we go to qualifying, we all seem to enjoy it. Qualifying is all about putting everything that you have and that the car has in one lap. It's like a rush, I really enjoy that.</b>
+> <p><i>Sebastian Vettel</i></p>
 
 <br>
