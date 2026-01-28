@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My father instilled in me the attitude of prevailing. If there's a challenge, go for it. If there's a wall to break down, break it down.</b>
-> <p><i>Donny Osmond</i></p>
+> <b>A truly great book should be read in youth, again in maturity and once more in old age, as a fine building should be seen by morning light, at noon and by moonlight.</b>
+> <p><i>Robertson Davies</i></p>
 
 <br>
