@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A truly great book should be read in youth, again in maturity and once more in old age, as a fine building should be seen by morning light, at noon and by moonlight.</b>
-> <p><i>Robertson Davies</i></p>
+> <b>It is a sobering thought that when Mozart was my age, he had been dead for two years.</b>
+> <p><i>Tom Lehrer</i></p>
 
 <br>
