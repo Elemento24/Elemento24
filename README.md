@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was never an ambitious girl, or even a self-confident one. I never went in for beauty pageants or wore a stitch of make-up until I went to Los Angeles.</b>
-> <p><i>Pamela Anderson</i></p>
+> <b>I'm an angry person, angrier than most people would imagine, I get flashes of anger. What works for me is working out when it's useful to use that anger.</b>
+> <p><i>Alan Alda</i></p>
 
 <br>
