@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being told about the effects of climate change is an appeal to our reason and to our desire to bring about change. But to see that Africans are the hardest hit by climate change, even though they generate almost no greenhouse gas, is a glaring injustice, which also triggers anger and outrage over those who seek to ignore it.</b>
-> <p><i>Sigmar Gabriel</i></p>
+> <b>I change my mind so much I need two boyfriends and a girlfriend.</b>
+> <p><i>Pink</i></p>
 
 <br>
