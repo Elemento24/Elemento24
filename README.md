@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in a wonderful world that is full of beauty, charm and adventure. There is no end to the adventures that we can have if only we seek them with our eyes open.</b>
-> <p><i>Jawaharlal Nehru</i></p>
+> <b>You can judge your age by the amount of pain you feel when you come in contact with a new idea.</b>
+> <p><i>Pearl S. Buck</i></p>
 
 <br>
