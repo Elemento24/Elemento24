@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course art world ethics are important. But museums are no purer than any other institution or business. Academics aren't necessarily more high-minded than gallerists.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I think, at a child's birth, if a mother could ask a fairy godmother to endow it with the most useful gift, that gift should be curiosity.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
