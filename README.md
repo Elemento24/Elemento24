@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In modern business it is not the crook who is to be feared most, it is the honest man who doesn't know what he is doing.</b>
-> <p><i>William Wordsworth</i></p>
+> <b>Old age comes on suddenly, and not gradually as is thought.</b>
+> <p><i>Emily Dickinson</i></p>
 
 <br>
