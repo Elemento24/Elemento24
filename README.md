@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you love dance and you have the gift of teaching, teaching is super amazing and important because my teachers planted that seed in me. As a teacher you understand the difference or the definition of a Baryshnikov or a Gregory Hines, so teaching is really important and very necessary.</b>
-> <p><i>Laurieann Gibson</i></p>
+> <b>Being told about the effects of climate change is an appeal to our reason and to our desire to bring about change. But to see that Africans are the hardest hit by climate change, even though they generate almost no greenhouse gas, is a glaring injustice, which also triggers anger and outrage over those who seek to ignore it.</b>
+> <p><i>Sigmar Gabriel</i></p>
 
 <br>
