@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing in the world of art like the songs mother used to sing.</b>
-> <p><i>Billy Sunday</i></p>
+> <b>People are generally amazed that I would take an interest in any form that would require me to stop talking for three hours.</b>
+> <p><i>Henry A. Kissinger</i></p>
 
 <br>
