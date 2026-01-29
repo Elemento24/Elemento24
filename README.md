@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age comes on suddenly, and not gradually as is thought.</b>
-> <p><i>Emily Dickinson</i></p>
+> <b>I can't tell anybody else how to run their life or their business, but I really believe I've got a good bead on myself.</b>
+> <p><i>Dolly Parton</i></p>
 
 <br>
