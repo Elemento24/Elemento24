@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nowadays it seems more and more like the 'business' in 'show business' is underlined, and there are campaigns, and it's all part of getting people in to see the movies.</b>
-> <p><i>Jeff Bridges</i></p>
+> <b>I keep sailing on in this middle passage. I am sailing into the wind and the dark. But I am doing my best to keep my boat steady and my sails full.</b>
+> <p><i>Arthur Ashe</i></p>
 
 <br>
