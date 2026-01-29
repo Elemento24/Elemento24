@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whether it's the best of times or the worst of times, it's the only time we've got.</b>
-> <p><i>Art Buchwald</i></p>
+> <b>In modern business it is not the crook who is to be feared most, it is the honest man who doesn't know what he is doing.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
