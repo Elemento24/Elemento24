@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A canon is antithetical to everything the New York art world has been about for the past 40 years, during which we went from being the center of the art world to being one of many centers.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Whether it's the best of times or the worst of times, it's the only time we've got.</b>
+> <p><i>Art Buchwald</i></p>
 
 <br>
