@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't tell anybody else how to run their life or their business, but I really believe I've got a good bead on myself.</b>
-> <p><i>Dolly Parton</i></p>
+> <b>The new architecture of transparency and lightness comes from Japan and Europe.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
