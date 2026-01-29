@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Right up until the time I retired at age 37, I felt like there were still things that I could do better.</b>
-> <p><i>Julius Erving</i></p>
+> <b>At her birthday, my seven-year-old daughter will say that she wants these big cakes and certain expensive toys as presents, and I can't say no to her. It would just break my heart. But when I was little, for birthdays we just played outside and we were happy if we got any cake.</b>
+> <p><i>Goran Ivanisevic</i></p>
 
 <br>
