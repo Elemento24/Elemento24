@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think, at a child's birth, if a mother could ask a fairy godmother to endow it with the most useful gift, that gift should be curiosity.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>We live in a wonderful world that is full of beauty, charm and adventure. There is no end to the adventures that we can have if only we seek them with our eyes open.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
