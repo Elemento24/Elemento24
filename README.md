@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Personality is everything in art and poetry.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>Architecture will always express the technical and social progress of the country in which it is carried out. If we wish to give it the human content that it lacks, we must participate in the political struggle.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
