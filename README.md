@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Real beauty is to be true to oneself. That's what makes me feel good.</b>
-> <p><i>Laetitia Casta</i></p>
+> <b>Photography suits the temper of this age - of active bodies and minds. It is a perfect medium for one whose mind is teeming with ideas, imagery, for a prolific worker who would be slowed down by painting or sculpting, for one who sees quickly and acts decisively, accurately.</b>
+> <p><i>Edward Weston</i></p>
 
 <br>
