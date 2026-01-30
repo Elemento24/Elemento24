@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Photography suits the temper of this age - of active bodies and minds. It is a perfect medium for one whose mind is teeming with ideas, imagery, for a prolific worker who would be slowed down by painting or sculpting, for one who sees quickly and acts decisively, accurately.</b>
-> <p><i>Edward Weston</i></p>
+> <b>I race to win. If I am on the bike or in a car it will always be the same.</b>
+> <p><i>Valentino Rossi</i></p>
 
 <br>
