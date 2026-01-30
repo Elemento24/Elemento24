@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I race to win. If I am on the bike or in a car it will always be the same.</b>
-> <p><i>Valentino Rossi</i></p>
+> <b>When I was a little kid I used to play with guys twice my age, so, I was the last one picked, so if I picked I knew that I had to get the ball to the scorer if I wanted to stay on the court, so that was pretty much my job.</b>
+> <p><i>Jason Kidd</i></p>
 
 <br>
