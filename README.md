@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All humanity is passion without passion, religion, history, novels, art would be ineffectual.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>I'm always improving and I want to get better and never hit a plateau. I find it an amazing adventure.</b>
+> <p><i>Nigel Kennedy</i></p>
 
 <br>
