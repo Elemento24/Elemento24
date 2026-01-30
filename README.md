@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how much trouble you can get in when you don't have anything else to do.</b>
-> <p><i>Quincy Jones</i></p>
+> <b>The earth was made so various, that the mind Of desultory man, studious of change, And pleased with novelty, might be indulged.</b>
+> <p><i>William Cowper</i></p>
 
 <br>
