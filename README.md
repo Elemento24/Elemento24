@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have in this country a federal government that increasingly is engaged in trying to determine which business, which regions, which industries will succeed, which will not through a whole range of economic development, regional development corporate subsidization programs.</b>
-> <p><i>Stephen Harper</i></p>
+> <b>Personality is everything in art and poetry.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
