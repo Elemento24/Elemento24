@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Both my husband and I give a lot of ourselves in what we do because that is our public lives but in my private life, I have an intrinsic right to be left alone.</b>
-> <p><i>Ashley Judd</i></p>
+> <b>Business, more than any other occupation, is a continual dealing with the future it is a continual calculation, an instinctive exercise in foresight.</b>
+> <p><i>Henry R. Luce</i></p>
 
 <br>
