@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every time I get into a Nationwide car after being in a Cup car, I feel so much more comfortable than I did previously.</b>
-> <p><i>Danica Patrick</i></p>
+> <b>There is nothing in socialism that a little age or a little money will not cure.</b>
+> <p><i>Will Durant</i></p>
 
 <br>
