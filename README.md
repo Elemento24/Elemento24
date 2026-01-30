@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Eagles commonly fly alone. They are crows, daws, and starlings that flock together.</b>
-> <p><i>John Webster</i></p>
+> <b>Both my husband and I give a lot of ourselves in what we do because that is our public lives but in my private life, I have an intrinsic right to be left alone.</b>
+> <p><i>Ashley Judd</i></p>
 
 <br>
