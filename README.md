@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to age with some dignity.</b>
-> <p><i>Pete Townshend</i></p>
+> <b>The best way in the world to deceive believers is to cloak a message in religious language and declare that it conveys some new insight from God.</b>
+> <p><i>Charles Stanley</i></p>
 
 <br>
