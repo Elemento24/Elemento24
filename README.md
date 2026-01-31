@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not regard advertising as entertainment or an art form, but as a medium of information.</b>
-> <p><i>David Ogilvy</i></p>
+> <b>The cottage garden most for use designed, Yet not of beauty destitute.</b>
+> <p><i>Charlotte Smith</i></p>
 
 <br>
