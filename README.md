@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Us investigators who went out into the field were faced on occasion with a lot of anger, by people saying why has it taken you five or six year to come and see me?</b>
-> <p><i>Tony Greig</i></p>
+> <b>I'm throwing myself back in because I like being married. I don't want to end this whole fabulous journey alone. I want someone by my side who I love and who loves me. I've finally found somebody who's up to the task of being my wife, because I'm very high maintenance.</b>
+> <p><i>Neil Diamond</i></p>
 
 <br>
