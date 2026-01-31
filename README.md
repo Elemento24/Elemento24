@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>More marriages might survive if the partners realized that sometimes the better comes after the worse.</b>
-> <p><i>Doug Larson</i></p>
+> <b>Reconciliation requires changes of heart and spirit, as well as social and economic change. It requires symbolic as well as practical action.</b>
+> <p><i>Malcolm Fraser</i></p>
 
 <br>
