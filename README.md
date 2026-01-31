@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have a powerful potential in out youth, and we must have the courage to change old ideas and practices so that we may direct their power toward good ends.</b>
-> <p><i>Mary McLeod Bethune</i></p>
+> <b>Live daringly, boldly, fearlessly. Taste the relish to be found in competition - in having put forth the best within you.</b>
+> <p><i>Henry J. Kaiser</i></p>
 
 <br>
