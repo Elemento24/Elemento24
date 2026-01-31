@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the best provision for old age.</b>
-> <p><i>Aristotle</i></p>
+> <b>Beauty itself is but the sensible image of the Infinite.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
