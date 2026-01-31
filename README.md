@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reconciliation requires changes of heart and spirit, as well as social and economic change. It requires symbolic as well as practical action.</b>
-> <p><i>Malcolm Fraser</i></p>
+> <b>Ask yourself: Have you been kind today? Make kindness your daily modus operandi and change your world.</b>
+> <p><i>Annie Lennox</i></p>
 
 <br>
