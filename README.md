@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm throwing myself back in because I like being married. I don't want to end this whole fabulous journey alone. I want someone by my side who I love and who loves me. I've finally found somebody who's up to the task of being my wife, because I'm very high maintenance.</b>
-> <p><i>Neil Diamond</i></p>
+> <b>For the first time we're allowing developers who don't work at Facebook to develop applications just as if they were. That's a big deal because it means that all developers have a new way of doing business if they choose to take advantage of it. There are whole companies that are forming whose only product is a Facebook Platform application.</b>
+> <p><i>Mark Zuckerberg</i></p>
 
 <br>
