@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I imagine my children are going to save me from my vanity and be my passion and fill whatever fears I have of the amazing time I'm having right now being gone.</b>
-> <p><i>Gwen Stefani</i></p>
+> <b>Always Do Your Best. Your best is going to change from moment to moment it will be different when you are healthy as opposed to sick. Under any circumstance, simply do your best, and you will avoid self-judgment, self-abuse and regret.</b>
+> <p><i>Miguel Angel Ruiz</i></p>
 
 <br>
