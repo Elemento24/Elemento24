@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ask yourself: Have you been kind today? Make kindness your daily modus operandi and change your world.</b>
-> <p><i>Annie Lennox</i></p>
+> <b>I wore my first pair of Louboutins during this press tour. It was absolutely amazing, they weren't heels, they were little shoes, but they were velvet and they were blue.</b>
+> <p><i>Chloe Moretz</i></p>
 
 <br>
