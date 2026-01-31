@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Live daringly, boldly, fearlessly. Taste the relish to be found in competition - in having put forth the best within you.</b>
-> <p><i>Henry J. Kaiser</i></p>
+> <b>Before 'Schindler's List,' I wouldn't have believed movies had a lot of power for social change.</b>
+> <p><i>Liam Neeson</i></p>
 
 <br>
