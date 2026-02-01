@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When characters change on screen, it makes you feel better about yourself. You think, 'Oh I change too, I'm constantly becoming a better person.'</b>
-> <p><i>Jason Reitman</i></p>
+> <b>Freedom is the sure possession of those alone who have the courage to defend it.</b>
+> <p><i>Pericles</i></p>
 
 <br>
