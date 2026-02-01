@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The man with the best job in the country is the vice-president. All he has to do is get up every morning and say, 'How is the president?'</b>
-> <p><i>Will Rogers</i></p>
+> <b>Prayer is talking with God. God knows your heart and is not so concerned with your words as He is with the attitude of your heart.</b>
+> <p><i>Josh McDowell</i></p>
 
 <br>
