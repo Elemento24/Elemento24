@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is good taste, and good taste alone, that possesses the power to sterilize and is always the first handicap to any creative functioning.</b>
-> <p><i>Salvador Dali</i></p>
+> <b>The leverage and influence social media gives citizens are rapidly spreading into the business world.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
