@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty opened all the doors it got me things I didn't even know I wanted, and things I certainly didn't deserve.</b>
-> <p><i>Janice Dickinson</i></p>
+> <b>When characters change on screen, it makes you feel better about yourself. You think, 'Oh I change too, I'm constantly becoming a better person.'</b>
+> <p><i>Jason Reitman</i></p>
 
 <br>
