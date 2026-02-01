@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The opportunity, number one, to work with Ang Lee is an amazing thing for me.</b>
-> <p><i>Sam Elliott</i></p>
+> <b>My parents got married late and they had kids late, so I never felt a social or cultural thing to be married or pregnant or a homeowner by a certain age.</b>
+> <p><i>Anna Kendrick</i></p>
 
 <br>
