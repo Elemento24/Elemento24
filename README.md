@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I needed to be in the bush. There I find solitude and beauty and purity and focus. That's where my heart lies.</b>
-> <p><i>Mark Burnett</i></p>
+> <b>The man with the best job in the country is the vice-president. All he has to do is get up every morning and say, 'How is the president?'</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
