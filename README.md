@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>'Bombing Afghanistan back into the Stone Age' was quite a favourite headline for some wobbly liberals. The slogan does all the work. But an instant's thought shows that Afghanistan is being, if anything, bombed out of the Stone Age.</b>
-> <p><i>Christopher Hitchens</i></p>
+> <b>A mode of conduct, a standard of courage, discipline, fortitude and integrity can do a great deal to make a woman beautiful.</b>
+> <p><i>Jacqueline Bisset</i></p>
 
 <br>
