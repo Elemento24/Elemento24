@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only that thing is free which exists by the necessities of its own nature, and is determined in its actions by itself alone.</b>
-> <p><i>Baruch Spinoza</i></p>
+> <b>The opportunity, number one, to work with Ang Lee is an amazing thing for me.</b>
+> <p><i>Sam Elliott</i></p>
 
 <br>
