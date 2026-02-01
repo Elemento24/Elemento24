@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The leverage and influence social media gives citizens are rapidly spreading into the business world.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>I'd still like to see 'Survivor' minus the planned show-biz parts. That would be the purest form of show business - I want to see someone so hungry that they eat somebody else's foot.</b>
+> <p><i>Albert Brooks</i></p>
 
 <br>
