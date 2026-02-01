@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A dog that has rabies probably will do things it wouldn't do if it didn't have rabies. But that doesn't change the fact that it has rabies.</b>
-> <p><i>John Malkovich</i></p>
+> <b>The devil had as good have let Paul alone, for he no sooner comes into prison but he falls a preaching, at which the gates of Satan's prison fly open, and poor sinners come forth.</b>
+> <p><i>William Gurnall</i></p>
 
 <br>
