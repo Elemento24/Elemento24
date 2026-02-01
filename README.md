@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The devil had as good have let Paul alone, for he no sooner comes into prison but he falls a preaching, at which the gates of Satan's prison fly open, and poor sinners come forth.</b>
-> <p><i>William Gurnall</i></p>
+> <b>The best morale exist when you never hear the word mentioned. When you hear a lot of talk about it, it's usually lousy.</b>
+> <p><i>Dwight D. Eisenhower</i></p>
 
 <br>
