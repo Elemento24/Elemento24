@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd still like to see 'Survivor' minus the planned show-biz parts. That would be the purest form of show business - I want to see someone so hungry that they eat somebody else's foot.</b>
-> <p><i>Albert Brooks</i></p>
+> <b>I needed to be in the bush. There I find solitude and beauty and purity and focus. That's where my heart lies.</b>
+> <p><i>Mark Burnett</i></p>
 
 <br>
