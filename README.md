@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Freedom is the sure possession of those alone who have the courage to defend it.</b>
-> <p><i>Pericles</i></p>
+> <b>It is good taste, and good taste alone, that possesses the power to sterilize and is always the first handicap to any creative functioning.</b>
+> <p><i>Salvador Dali</i></p>
 
 <br>
