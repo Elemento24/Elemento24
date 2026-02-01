@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This avidity alone, of acquiring goods and possessions for ourselves and our nearest friends, is insatiable, perpetual, universal, and directly destructive of society.</b>
-> <p><i>David Hume</i></p>
+> <b>Sure I played, did you think I was born at the age of 70 sitting in a dugout trying to manage guys like you?</b>
+> <p><i>Casey Stengel</i></p>
 
 <br>
