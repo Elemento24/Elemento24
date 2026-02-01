@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A mode of conduct, a standard of courage, discipline, fortitude and integrity can do a great deal to make a woman beautiful.</b>
-> <p><i>Jacqueline Bisset</i></p>
+> <b>Beauty opened all the doors it got me things I didn't even know I wanted, and things I certainly didn't deserve.</b>
+> <p><i>Janice Dickinson</i></p>
 
 <br>
