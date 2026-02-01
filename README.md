@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prayer is talking with God. God knows your heart and is not so concerned with your words as He is with the attitude of your heart.</b>
-> <p><i>Josh McDowell</i></p>
+> <b>The music business is motivated by money. Music is motivated by energy and feelings.</b>
+> <p><i>Erykah Badu</i></p>
 
 <br>
