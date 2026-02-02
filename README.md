@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The American attitude towards efficiency and execution should always underlie architecture.</b>
-> <p><i>Helmut Jahn</i></p>
+> <b>Poetry is emotion put into measure. The emotion must come by nature, but the measure can be acquired by art.</b>
+> <p><i>Thomas Hardy</i></p>
 
 <br>
