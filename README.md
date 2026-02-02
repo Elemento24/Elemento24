@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Things don't have to change the world to be important.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>We live in an age, in an era where there is so much negativity, there is so much violence in the world, there is so much unrest and people are at war, that I wanted to promote the word love and red signifies love.</b>
+> <p><i>Elton John</i></p>
 
 <br>
