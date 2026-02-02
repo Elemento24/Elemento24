@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have the best government that money can buy.</b>
-> <p><i>Mark Twain</i></p>
+> <b>I like people and get along, and I'm afraid to express my anger and my rage.</b>
+> <p><i>Fisher Stevens</i></p>
 
 <br>
