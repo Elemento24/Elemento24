@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty, of course, is the most important requirement and the paramount asset of the applicant.</b>
-> <p><i>Florenz Ziegfeld</i></p>
+> <b>The art challenges the technology, and the technology inspires the art.</b>
+> <p><i>John Lasseter</i></p>
 
 <br>
