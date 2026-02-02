@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art challenges the technology, and the technology inspires the art.</b>
-> <p><i>John Lasseter</i></p>
+> <b>We have the best government that money can buy.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
