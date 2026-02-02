@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like people and get along, and I'm afraid to express my anger and my rage.</b>
-> <p><i>Fisher Stevens</i></p>
+> <b>There's a beauty to wisdom and experience that cannot be faked. It's impossible to be mature without having lived.</b>
+> <p><i>Amy Grant</i></p>
 
 <br>
