@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am happy being able to play roles with people my age because once you do something really mature there is no turning back.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>Reason is a crutch for age, but youth is strong enough to walk alone.</b>
+> <p><i>John Dryden</i></p>
 
 <br>
