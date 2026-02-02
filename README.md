@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in an age, in an era where there is so much negativity, there is so much violence in the world, there is so much unrest and people are at war, that I wanted to promote the word love and red signifies love.</b>
-> <p><i>Elton John</i></p>
+> <b>I have the same attitude with work - I like to go to work, I like to work really hard I, like to give everything my all, I like to try things that are new, you know.</b>
+> <p><i>Rosie Huntington-Whiteley</i></p>
 
 <br>
