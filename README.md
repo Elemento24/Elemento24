@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Reason is a crutch for age, but youth is strong enough to walk alone.</b>
-> <p><i>John Dryden</i></p>
+> <b>The 9-9-9 plan would resuscitate this economy because it replaces the outdated tax code that allows politicians to pick winners and losers, and to provide favors in the form of tax breaks, special exemptions and loopholes. It simplifies the code dramatically: 9% business flat tax, 9% personal flat tax, 9% sales tax.</b>
+> <p><i>Herman Cain</i></p>
 
 <br>
