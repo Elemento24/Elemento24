@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a beauty to wisdom and experience that cannot be faked. It's impossible to be mature without having lived.</b>
-> <p><i>Amy Grant</i></p>
+> <b>I'm married to my best friend!</b>
+> <p><i>Miranda Lambert</i></p>
 
 <br>
