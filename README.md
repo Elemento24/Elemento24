@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Losing both parents at a young age gave me a sense that you can't really control life - so you'd better live it while it's here. I stopped believing in a storybook existence a long time ago. All you can do is push in a direction and see what comes of it.</b>
-> <p><i>Jon Hamm</i></p>
+> <b>Things don't have to change the world to be important.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
