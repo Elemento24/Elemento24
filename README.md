@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All we can do when we think of kids today is think of more hours of school, earlier age at the computer, and curfews. Who would want to grow up in that world?</b>
-> <p><i>James Hillman</i></p>
+> <b>I find, in being black, a thing of beauty: a joy a strength a secret cup of gladness.</b>
+> <p><i>Ossie Davis</i></p>
 
 <br>
