@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just enjoy working with really wonderful actors and amazing creative people and I hope to keep doing that, no matter where.</b>
-> <p><i>Stana Katic</i></p>
+> <b>Somehow a bachelor never quite gets over the idea that he is a thing of beauty and a boy forever.</b>
+> <p><i>Helen Rowland</i></p>
 
 <br>
