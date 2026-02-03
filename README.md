@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No spring nor summer beauty hath such grace as I have seen in one autumnal face.</b>
-> <p><i>John Donne</i></p>
+> <b>One of the greatest things drama can do, at it's best, is to redefine the words we use every day such as love, home, family, loyalty and envy. Tragedy need not be a downer.</b>
+> <p><i>Ben Kingsley</i></p>
 
 <br>
