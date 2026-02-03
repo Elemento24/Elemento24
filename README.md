@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business is constantly changing, constantly evolving.</b>
-> <p><i>James Dyson</i></p>
+> <b>The art of war is simple enough. Find out where your enemy is. Get at him as soon as you can. Strike him as hard as you can, and keep moving on.</b>
+> <p><i>Ulysses S. Grant</i></p>
 
 <br>
