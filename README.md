@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like actors that are good with pantomime and that can transmit a lot by their presence and attitude more than through their dialogue.</b>
-> <p><i>Guillermo del Toro</i></p>
+> <b>Creative thinking inspires ideas. Ideas inspire change.</b>
+> <p><i>Barbara Januszkiewicz</i></p>
 
 <br>
