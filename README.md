@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I find, in being black, a thing of beauty: a joy a strength a secret cup of gladness.</b>
-> <p><i>Ossie Davis</i></p>
+> <b>I like actors that are good with pantomime and that can transmit a lot by their presence and attitude more than through their dialogue.</b>
+> <p><i>Guillermo del Toro</i></p>
 
 <br>
