@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You must never be satisfied with losing. You must get angry, terribly angry, about losing. But the mark of the good loser is that he takes his anger out on himself and not his victorious opponents or on his teammates.</b>
-> <p><i>Richard M. Nixon</i></p>
+> <b>To me, old age is always fifteen years older than I am.</b>
+> <p><i>Bernard Baruch</i></p>
 
 <br>
