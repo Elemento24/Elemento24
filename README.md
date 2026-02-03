@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The 9-9-9 plan would resuscitate this economy because it replaces the outdated tax code that allows politicians to pick winners and losers, and to provide favors in the form of tax breaks, special exemptions and loopholes. It simplifies the code dramatically: 9% business flat tax, 9% personal flat tax, 9% sales tax.</b>
-> <p><i>Herman Cain</i></p>
+> <b>I just enjoy working with really wonderful actors and amazing creative people and I hope to keep doing that, no matter where.</b>
+> <p><i>Stana Katic</i></p>
 
 <br>
