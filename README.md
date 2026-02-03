@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not angry, I'm not an angry person, but I do sometimes like playing with the perception of anger, as in pretending that I'm more angry than I actually am, and sometimes it works quite well.</b>
-> <p><i>Calvin Harris</i></p>
+> <b>No spring nor summer beauty hath such grace as I have seen in one autumnal face.</b>
+> <p><i>John Donne</i></p>
 
 <br>
