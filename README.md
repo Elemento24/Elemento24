@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The driver of a racing car is a component. When I first began, I used to grip the steering wheel firmly, and I changed gear so hard that I damaged my hand.</b>
-> <p><i>Juan Manuel Fangio</i></p>
+> <b>And we turned off and 30 miles south they're standing in the middle of our road blocking our way, stopped the car, got out, took us through the path in the woods, where the craft was on the ground.</b>
+> <p><i>Betty Hill</i></p>
 
 <br>
