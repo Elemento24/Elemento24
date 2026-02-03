@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Treat a work of art like a prince. Let it speak to you first.</b>
-> <p><i>Arthur Schopenhauer</i></p>
+> <b>The best doctor is the one you run to and can't find.</b>
+> <p><i>Denis Diderot</i></p>
 
 <br>
