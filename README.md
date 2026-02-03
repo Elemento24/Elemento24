@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of war is simple enough. Find out where your enemy is. Get at him as soon as you can. Strike him as hard as you can, and keep moving on.</b>
-> <p><i>Ulysses S. Grant</i></p>
+> <b>The driver of a racing car is a component. When I first began, I used to grip the steering wheel firmly, and I changed gear so hard that I damaged my hand.</b>
+> <p><i>Juan Manuel Fangio</i></p>
 
 <br>
