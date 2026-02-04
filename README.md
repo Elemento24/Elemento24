@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Over the years Woodstock got glorified and romanticised and became the event that symbolised Utopia. It's the last page of our collective memory of the age of innocence. Then things turned ugly and would never be the same again.</b>
-> <p><i>Ang Lee</i></p>
+> <b>Let us not look back in anger, nor forward in fear, but around in awareness.</b>
+> <p><i>James Thurber</i></p>
 
 <br>
