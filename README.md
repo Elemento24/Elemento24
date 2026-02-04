@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ads featuring real women and real beauty are such a necessary component to offset the potentially dangerous programming out there for little girls.</b>
-> <p><i>Rashida Jones</i></p>
+> <b>Be slow to fall into friendship but when thou art in, continue firm and constant.</b>
+> <p><i>Socrates</i></p>
 
 <br>
