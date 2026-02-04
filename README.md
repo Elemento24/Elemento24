@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Scouting rises within you and inspires you to put forth your best.</b>
-> <p><i>Juliette Gordon Low</i></p>
+> <b>The truth sets you free. It's a very liberating thing, when you say this is who I am warts and all and then you can just get on with life. It's amazing.</b>
+> <p><i>Geri Halliwell</i></p>
 
 <br>
