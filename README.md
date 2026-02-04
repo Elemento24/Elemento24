@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and femininity are ageless and can't be contrived, and glamour, although the manufacturers won't like this, cannot be manufactured. Not real glamour it's based on femininity.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>The only thing I fear more than change is no change. The business of being static makes me nuts.</b>
+> <p><i>Twyla Tharp</i></p>
 
 <br>
