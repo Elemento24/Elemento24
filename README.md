@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wanna change the game in way where I'm not knocking nobody out of the way, not claiming to be the best at this or that, but just doing wonders with the gift I've been given.</b>
-> <p><i>Anthony Hamilton</i></p>
+> <b>Education is the best friend. An educated person is respected everywhere. Education beats the beauty and the youth.</b>
+> <p><i>Chanakya</i></p>
 
 <br>
