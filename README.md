@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let us not look back in anger, nor forward in fear, but around in awareness.</b>
-> <p><i>James Thurber</i></p>
+> <b>Scouting rises within you and inspires you to put forth your best.</b>
+> <p><i>Juliette Gordon Low</i></p>
 
 <br>
