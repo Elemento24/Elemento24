@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are at the bottom, you find beauty in such little things, and goodness in such little gestures. When I compare any struggle today to ones that I may have had in my childhood, there is nothing that can bring me down.</b>
-> <p><i>Natalia Vodianova</i></p>
+> <b>Beauty and femininity are ageless and can't be contrived, and glamour, although the manufacturers won't like this, cannot be manufactured. Not real glamour it's based on femininity.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
