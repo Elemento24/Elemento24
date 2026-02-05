@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The preparation, commitment and desire to win will be no less than the last time I drove a grand prix car in anger.</b>
-> <p><i>Nigel Mansell</i></p>
+> <b>Damien Hirst is the Elvis of the English art world, its ayatollah, deliverer, and big-thinking entrepreneurial potty-mouthed prophet and front man. Hirst synthesizes punk, Pop Art, Jeff Koons, Marcel Duchamp, Francis Bacon, and Catholicism.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
