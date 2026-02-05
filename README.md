@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone discusses my art and pretends to understand, as if it were necessary to understand, when it is simply necessary to love.</b>
-> <p><i>Claude Monet</i></p>
+> <b>My best friend is the man who in wishing me well wishes it for my sake.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
