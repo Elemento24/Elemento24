@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The city needs a car like a fish needs a bicycle.</b>
-> <p><i>Dean Kamen</i></p>
+> <b>It is evident that skepticism, while it makes no actual change in man, always makes him feel better.</b>
+> <p><i>Ambrose Bierce</i></p>
 
 <br>
