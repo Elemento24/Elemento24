@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My best friend is the man who in wishing me well wishes it for my sake.</b>
-> <p><i>Aristotle</i></p>
+> <b>I was fired at the pinnacle of my career, on my 39th birthday. And in the year that followed, I learned that there are many psychological phases of being 'let go.'</b>
+> <p><i>Mika Brzezinski</i></p>
 
 <br>
