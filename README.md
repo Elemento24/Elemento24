@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People say I'm extravagant because I want to be surrounded by beauty. But tell me, who wants to be surrounded by garbage?</b>
-> <p><i>Imelda Marcos</i></p>
+> <b>Every young man would do well to remember that all successful business stands on the foundation of morality.</b>
+> <p><i>Henry Ward Beecher</i></p>
 
 <br>
