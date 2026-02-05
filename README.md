@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was fired at the pinnacle of my career, on my 39th birthday. And in the year that followed, I learned that there are many psychological phases of being 'let go.'</b>
-> <p><i>Mika Brzezinski</i></p>
+> <b>Modernity is the transitory, the fugitive, the contingent, which make up one half of art, the other being the eternal and the immutable. This transitory fugitive element, which is constantly changing, must not be despised or neglected.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
