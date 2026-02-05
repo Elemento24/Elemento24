@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that the majority of times the scale tilts toward the good. It's this amazing thing that rolls on and if we get in the flow of it, that's God. And if we fight it, if we swim the other way, we're swimming away from the purest expression of this life.</b>
-> <p><i>Michael J. Fox</i></p>
+> <b>Everyone discusses my art and pretends to understand, as if it were necessary to understand, when it is simply necessary to love.</b>
+> <p><i>Claude Monet</i></p>
 
 <br>
