@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the shoe doesn't fit, must we change the foot?</b>
-> <p><i>Gloria Steinem</i></p>
+> <b>The city needs a car like a fish needs a bicycle.</b>
+> <p><i>Dean Kamen</i></p>
 
 <br>
