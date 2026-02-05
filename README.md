@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even one voice can be heard loudly all over the world in this day and age.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>The preparation, commitment and desire to win will be no less than the last time I drove a grand prix car in anger.</b>
+> <p><i>Nigel Mansell</i></p>
 
 <br>
