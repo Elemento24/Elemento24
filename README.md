@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I did 10 years of comedies and 10 years of Westerns. I really like to stay away from car chases. I prefer the more intimate film. You have a much more direct association with the emotions.</b>
-> <p><i>Elmer Bernstein</i></p>
+> <b>'Bombing Afghanistan back into the Stone Age' was quite a favourite headline for some wobbly liberals. The slogan does all the work. But an instant's thought shows that Afghanistan is being, if anything, bombed out of the Stone Age.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
