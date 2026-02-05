@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is evident that skepticism, while it makes no actual change in man, always makes him feel better.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>Even one voice can be heard loudly all over the world in this day and age.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
