@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In prison, inmates sometimes use Cheetos and grape juice as makeup. I wouldn't use that beauty regimen around Britney Spears - she might lick your face off!</b>
-> <p><i>Joel McHale</i></p>
+> <b>I never took guitar lessons. I took classical piano lessons from the age of six when we lived in Holland. And when we moved to America, it was just the typical thing except I was really good at it so was my brother.</b>
+> <p><i>Eddie Van Halen</i></p>
 
 <br>
