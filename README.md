@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>L.A. Woman is amazing, but when I was growing up I was into the Who.</b>
-> <p><i>Bruce McCulloch</i></p>
+> <b>I do not regard advertising as entertainment or an art form, but as a medium of information.</b>
+> <p><i>David Ogilvy</i></p>
 
 <br>
