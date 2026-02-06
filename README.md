@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I define nothing. Not beauty, not patriotism. I take each thing as it is, without prior rules about what it should be.</b>
-> <p><i>Bob Dylan</i></p>
+> <b>L.A. Woman is amazing, but when I was growing up I was into the Who.</b>
+> <p><i>Bruce McCulloch</i></p>
 
 <br>
