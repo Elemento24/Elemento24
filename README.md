@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is about not knowing, having to change, taking the moment and making the best of it, without knowing what's going to happen next.</b>
-> <p><i>Gilda Radner</i></p>
+> <b>The fox has many tricks. The hedgehog has but one. But that is the best of all.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
