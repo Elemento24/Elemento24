@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not regard advertising as entertainment or an art form, but as a medium of information.</b>
-> <p><i>David Ogilvy</i></p>
+> <b>Book-jacket design may become a lost art, like album-cover design, without which late-20th-century iconography would have been pauperized.</b>
+> <p><i>James Wolcott</i></p>
 
 <br>
