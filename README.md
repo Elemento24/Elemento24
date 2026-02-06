@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A suburban mother's role is to deliver children obstetrically once, and by car forever after.</b>
-> <p><i>Peter De Vries</i></p>
+> <b>Whenever you're in conflict with someone, there is one factor that can make the difference between damaging your relationship and deepening it. That factor is attitude.</b>
+> <p><i>William James</i></p>
 
 <br>
