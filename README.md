@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd like to make really important movies, like American Beauty. I was really proud to be a part of that movie.</b>
-> <p><i>Allison Janney</i></p>
+> <b>Life is about not knowing, having to change, taking the moment and making the best of it, without knowing what's going to happen next.</b>
+> <p><i>Gilda Radner</i></p>
 
 <br>
