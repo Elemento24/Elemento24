@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Modern art is what happens when painters stop looking at girls and persuade themselves that they have a better idea.</b>
-> <p><i>John Ciardi</i></p>
+> <b>Women lie about their age men lie about their income.</b>
+> <p><i>William Feather</i></p>
 
 <br>
