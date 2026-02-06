@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only real progress lies in learning to be wrong all alone.</b>
-> <p><i>Albert Camus</i></p>
+> <b>I have a wonderful husband. I have three amazing kids.</b>
+> <p><i>Celine Dion</i></p>
 
 <br>
