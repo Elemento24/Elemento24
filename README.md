@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If we celebrate Martin Luther King Jr.'s birthday at a time of presidential inaugurals, this is thanks to Ronald Reagan who created the holiday, and not to the Democratic Congress of the Carter years, which rejected it.</b>
-> <p><i>David Horowitz</i></p>
+> <b>Staid middle age loves the hurricane passions of opera.</b>
+> <p><i>Mason Cooley</i></p>
 
 <br>
