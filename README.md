@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The fox has many tricks. The hedgehog has but one. But that is the best of all.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>I have always thought the actions of men the best interpreters of their thoughts.</b>
+> <p><i>John Locke</i></p>
 
 <br>
