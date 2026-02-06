@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Staid middle age loves the hurricane passions of opera.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>Interest in business ethics courses has surged, and student activities at leading business schools are more focused than ever before on making business serve long-term social values.</b>
+> <p><i>Peter Singer</i></p>
 
 <br>
