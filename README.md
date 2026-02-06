@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whenever you're in conflict with someone, there is one factor that can make the difference between damaging your relationship and deepening it. That factor is attitude.</b>
-> <p><i>William James</i></p>
+> <b>I'd like to make really important movies, like American Beauty. I was really proud to be a part of that movie.</b>
+> <p><i>Allison Janney</i></p>
 
 <br>
