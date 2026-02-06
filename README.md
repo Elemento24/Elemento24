@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best evaluation I can make of a player is to look in his eyes and see how scared they are.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>I define nothing. Not beauty, not patriotism. I take each thing as it is, without prior rules about what it should be.</b>
+> <p><i>Bob Dylan</i></p>
 
 <br>
