@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Women lie about their age men lie about their income.</b>
-> <p><i>William Feather</i></p>
+> <b>Contrary to popular opinion, things don't go stale particularly fast in the art world.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
