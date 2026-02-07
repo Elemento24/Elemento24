@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ted Danson is amazing. He's incredible.</b>
-> <p><i>Alison Brie</i></p>
+> <b>I started out modeling at a young age and surrounded myself with different brilliant minds. I have so many people to get educated from, and I've been a sponge.</b>
+> <p><i>Kellan Lutz</i></p>
 
 <br>
