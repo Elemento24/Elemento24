@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being good in business is the most fascinating kind of art. Making money is art and working is art and good business is the best art.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>I think being able to age gracefully is a very important talent. It is too late for me.</b>
+> <p><i>Clint Eastwood</i></p>
 
 <br>
