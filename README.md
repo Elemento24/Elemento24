@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only in growth, reform, and change, paradoxically enough, is true security to be found.</b>
-> <p><i>Anne Morrow Lindbergh</i></p>
+> <b>The language of excitement is at best picturesque merely. You must be calm before you can utter oracles.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
