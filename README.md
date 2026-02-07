@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love turns, with a little indulgence, to indifference or disgust hatred alone is immortal.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>Being good in business is the most fascinating kind of art. Making money is art and working is art and good business is the best art.</b>
+> <p><i>Andy Warhol</i></p>
 
 <br>
