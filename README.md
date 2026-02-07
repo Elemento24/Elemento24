@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I jetset around and play these songs and get to hang with some pretty amazing people, then I go home to a really great farm, though actually it's a disaster area of a farm at the moment. But it's certainly a blast. I wouldn't trade lives with anyone right now.</b>
-> <p><i>Brad Paisley</i></p>
+> <b>I do not want to admit to the world that I can be a bad person. It is just that I don't want anyone to have false expectations. Moviemaking is a harsh, volatile business, and unless you can be ruthless, too, there's a good chance that you are going to disappear off the scene pretty quickly.</b>
+> <p><i>Tom Hanks</i></p>
 
 <br>
