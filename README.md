@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The language of excitement is at best picturesque merely. You must be calm before you can utter oracles.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>To love our neighbor as ourselves is such a truth for regulating human society, that by that alone one might determine all the cases in social morality.</b>
+> <p><i>John Locke</i></p>
 
 <br>
