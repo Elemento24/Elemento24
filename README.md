@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really believe that all of us have a lot of darkness in our souls. Anger, rage, fear, sadness. I don't think that's only reserved for people who have horrible upbringings. I think it really exists and is part of the human condition. I think in the course of your life you figure out ways to deal with that.</b>
-> <p><i>Kevin Bacon</i></p>
+> <b>I jetset around and play these songs and get to hang with some pretty amazing people, then I go home to a really great farm, though actually it's a disaster area of a farm at the moment. But it's certainly a blast. I wouldn't trade lives with anyone right now.</b>
+> <p><i>Brad Paisley</i></p>
 
 <br>
