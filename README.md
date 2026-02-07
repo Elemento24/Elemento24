@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Willingness to change is a strength, even if it means plunging part of the company into total confusion for a while.</b>
-> <p><i>Jack Welch</i></p>
+> <b>The surest sign of age is loneliness.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
