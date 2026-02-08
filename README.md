@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I left my job in the fall, and now I can set my life up around writing instead of squeezing writing into my day it's amazing to have that time, and I feel very lucky.</b>
-> <p><i>Karen Thompson Walker</i></p>
+> <b>The only difference between me and others is that they think they can change something with cute little poems, nice cards or embracing trees and being nice to little lapdogs.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
