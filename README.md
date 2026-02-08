@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't have any success in show business until I was 30 to 31 years of age.</b>
-> <p><i>Adam Carolla</i></p>
+> <b>I drive a car that has pleather seats.</b>
+> <p><i>Kathy Freston</i></p>
 
 <br>
