@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I drive a car that has pleather seats.</b>
-> <p><i>Kathy Freston</i></p>
+> <b>I think the beauty looks I most regret are those I was persuaded into.</b>
+> <p><i>Dita Von Teese</i></p>
 
 <br>
