@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Football is my profession now. I'm getting married in August... It's a new experience for me as someone just getting out of college. I still have the same attitude about football I always had. I play hard. I enjoy practice. I'd rather be throwing in passing drills than sitting around and watching TV.</b>
-> <p><i>Doug Flutie</i></p>
+> <b>In a completely rational society, the best of us would be teachers and the rest of us would have to settle for something else.</b>
+> <p><i>Lee Iacocca</i></p>
 
 <br>
