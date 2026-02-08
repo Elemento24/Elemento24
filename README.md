@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would say, 'I'm alone, but I'm not lonely.' But I was just kidding myself.</b>
-> <p><i>Bruce Willis</i></p>
+> <b>The best player I've ever played with was Paul Gascoigne. He had everything. He was amazing.</b>
+> <p><i>Paul Ince</i></p>
 
 <br>
