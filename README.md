@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When so many are lonely as seem to be lonely, it would be inexcusably selfish to be lonely alone.</b>
-> <p><i>Tennessee Williams</i></p>
+> <b>The hardest thing to understand in the world is the income tax.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
