@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change happens by listening and then starting a dialogue with the people who are doing something you don't believe is right.</b>
-> <p><i>Jane Goodall</i></p>
+> <b>I didn't have any success in show business until I was 30 to 31 years of age.</b>
+> <p><i>Adam Carolla</i></p>
 
 <br>
