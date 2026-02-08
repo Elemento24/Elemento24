@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The hardest thing to understand in the world is the income tax.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>Don't get me wrong, I admire elegance and have an appreciation of the finer things in life. But to me, beauty lies in simplicity.</b>
+> <p><i>Mark Hyman</i></p>
 
 <br>
