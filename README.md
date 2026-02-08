@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned from Mr. Wrigley, early in my career, that loyalty wins and it creates friendships. I saw it work for him in his business.</b>
-> <p><i>Ernie Banks</i></p>
+> <b>What is wrong with the Iranians in addition to the nuclear bomb? This is the only country on Earth in the 21st century that has renewed imperialistic ambitions. They really want to become the hegemon of the Middle East in an age that gave up imperialism.</b>
+> <p><i>Shimon Peres</i></p>
 
 <br>
