@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do some of my best thinking while pulling weeds.</b>
-> <p><i>Martha Smith</i></p>
+> <b>I want to be perceived as a guy who played his best in all facets, not just scoring. A guy who loved challenges.</b>
+> <p><i>Michael Jordan</i></p>
 
 <br>
