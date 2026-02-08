@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a completely rational society, the best of us would be teachers and the rest of us would have to settle for something else.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>Change happens by listening and then starting a dialogue with the people who are doing something you don't believe is right.</b>
+> <p><i>Jane Goodall</i></p>
 
 <br>
