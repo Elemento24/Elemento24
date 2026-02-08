@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I take a lot from everywhere. I take from music, architecture, novels, and plays. Anywhere that hits you.</b>
-> <p><i>Alex Winter</i></p>
+> <b>I have a big fear of change, or negative change, anyway. I'm basically the same person I was when I won 'Idol,' or when I was 10.</b>
+> <p><i>Kelly Clarkson</i></p>
 
 <br>
