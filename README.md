@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Don't get me wrong, I admire elegance and have an appreciation of the finer things in life. But to me, beauty lies in simplicity.</b>
-> <p><i>Mark Hyman</i></p>
+> <b>I do some of my best thinking while pulling weeds.</b>
+> <p><i>Martha Smith</i></p>
 
 <br>
