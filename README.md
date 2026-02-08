@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not want to admit to the world that I can be a bad person. It is just that I don't want anyone to have false expectations. Moviemaking is a harsh, volatile business, and unless you can be ruthless, too, there's a good chance that you are going to disappear off the scene pretty quickly.</b>
-> <p><i>Tom Hanks</i></p>
+> <b>I would say, 'I'm alone, but I'm not lonely.' But I was just kidding myself.</b>
+> <p><i>Bruce Willis</i></p>
 
 <br>
