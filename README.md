@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be perceived as a guy who played his best in all facets, not just scoring. A guy who loved challenges.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>I learned from Mr. Wrigley, early in my career, that loyalty wins and it creates friendships. I saw it work for him in his business.</b>
+> <p><i>Ernie Banks</i></p>
 
 <br>
