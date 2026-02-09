@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to inspire people to superior performance is to convince them by everything you do and by your everyday attitude that you are wholeheartedly supporting them.</b>
-> <p><i>Harold S. Geneen</i></p>
+> <b>The world can forgive practically anything except people who mind their own business.</b>
+> <p><i>Margaret Mitchell</i></p>
 
 <br>
