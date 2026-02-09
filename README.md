@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was born to be alone, and I always shall be but now I want to be.</b>
-> <p><i>Mary MacLane</i></p>
+> <b>I mean, certainly writing, painting, photography, dance, architecture, there is an aspect of almost every art form that is useful and that merges into film in some way.</b>
+> <p><i>Sydney Pollack</i></p>
 
 <br>
