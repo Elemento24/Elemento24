@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think having a child can really change you if you're open to it.</b>
-> <p><i>Tori Amos</i></p>
+> <b>San Francisco is a mad city - inhabited for the most part by perfectly insane people whose women are of a remarkable beauty.</b>
+> <p><i>Rudyard Kipling</i></p>
 
 <br>
