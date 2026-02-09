@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love to go shopping at Target. They have so much stuff there, you can buy almost anything, it's really amazing.</b>
-> <p><i>Liv Tyler</i></p>
+> <b>I think a lot of writers, male and female, write as if their parents were killed in a car accident when they were 2, and they have no one to hold accountable. And unfortunately, I don't have that. I have parents who I care about what they think.</b>
+> <p><i>Mindy Kaling</i></p>
 
 <br>
