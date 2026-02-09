@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the best performers bring to their role something more, something different than what the author put on paper. That's what makes theatre live. That's why it persists.</b>
-> <p><i>Stephen Sondheim</i></p>
+> <b>I think having a child can really change you if you're open to it.</b>
+> <p><i>Tori Amos</i></p>
 
 <br>
