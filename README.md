@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world can forgive practically anything except people who mind their own business.</b>
-> <p><i>Margaret Mitchell</i></p>
+> <b>Indy car racing is much more aggressive.</b>
+> <p><i>Emerson Fittipaldi</i></p>
 
 <br>
