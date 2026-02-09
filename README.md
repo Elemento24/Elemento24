@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Indy car racing is much more aggressive.</b>
-> <p><i>Emerson Fittipaldi</i></p>
+> <b>Art is creative for the sake of realization, not for amusement... for transfiguration, not for the sake of play.</b>
+> <p><i>Max Beckmann</i></p>
 
 <br>
