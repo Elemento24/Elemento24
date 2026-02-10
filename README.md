@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pursuit, even of the best things, ought to be calm and tranquil.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>I smoke ten to fifteen cigars a day. At my age I have to hold on to something.</b>
+> <p><i>George Burns</i></p>
 
 <br>
