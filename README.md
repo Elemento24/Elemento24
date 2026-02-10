@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a fantastic wife, and not only in terms of external beauty. Her priority and mine is our children. That is our choice.</b>
-> <p><i>Luis Figo</i></p>
+> <b>The greatest ability in business is to get along with others and to influence their actions.</b>
+> <p><i>John Hancock</i></p>
 
 <br>
