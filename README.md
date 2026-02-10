@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is an excellent time for outrage. My goal is to say or do at least one outrageous thing every week.</b>
-> <p><i>Louis Kronenberger</i></p>
+> <b>The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone.</b>
+> <p><i>Laura Bush</i></p>
 
 <br>
