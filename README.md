@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Smart businesses do not look at labor costs alone anymore. They do look at market access, transportation, telecommunications infrastructure and the education and skill level of the workforce, the development of capital and the regulatory market.</b>
-> <p><i>Janet Napolitano</i></p>
+> <b>Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
