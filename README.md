@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being gay and being a woman has one big thing in common, which is that we both become invisible after the age of 42. Who wants a gay 50-year-old? No one, let me tell you.</b>
-> <p><i>Rupert Everett</i></p>
+> <b>Most people already know what they're doing wrong. When I get them to church I want to tell them that you can change.</b>
+> <p><i>Joel Osteen</i></p>
 
 <br>
