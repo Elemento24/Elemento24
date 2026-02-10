@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, certainly writing, painting, photography, dance, architecture, there is an aspect of almost every art form that is useful and that merges into film in some way.</b>
-> <p><i>Sydney Pollack</i></p>
+> <b>I can't hit on women in public any more. I didn't decide this it just doesn't feel right at my age.</b>
+> <p><i>Jack Nicholson</i></p>
 
 <br>
