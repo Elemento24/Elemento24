@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone.</b>
-> <p><i>Laura Bush</i></p>
+> <b>The pursuit, even of the best things, ought to be calm and tranquil.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
