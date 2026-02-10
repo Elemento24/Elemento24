@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most people already know what they're doing wrong. When I get them to church I want to tell them that you can change.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>What is art? Nature concentrated.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
