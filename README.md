@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>Old age is an excellent time for outrage. My goal is to say or do at least one outrageous thing every week.</b>
+> <p><i>Louis Kronenberger</i></p>
 
 <br>
