@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You want to be a bit compulsive in your art or craft or whatever you do.</b>
-> <p><i>Steve Martin</i></p>
+> <b>It's amazing... to enjoy the results of your labor.</b>
+> <p><i>Michael Rady</i></p>
 
 <br>
