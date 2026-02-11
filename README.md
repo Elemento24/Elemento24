@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm overjoyed and beyond honored to be a part of the L'Oreal Paris family. I'm such a fan of L'Oreal Paris not just for all of their amazing products, but for what they stand for.</b>
-> <p><i>Lea Michele</i></p>
+> <b>A career is all very well, but no one lives by work alone.</b>
+> <p><i>Lorna Luft</i></p>
 
 <br>
