@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the shoe doesn't fit, must we change the foot?</b>
-> <p><i>Gloria Steinem</i></p>
+> <b>Some people change when they think they're a star or something.</b>
+> <p><i>Paris Hilton</i></p>
 
 <br>
