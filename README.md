@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They must often change, who would be constant in happiness or wisdom.</b>
-> <p><i>Confucius</i></p>
+> <b>What has happened to architecture since the second world war that the only passers-by who can contemplate it without pain are those equipped with a white stick and a dog?</b>
+> <p><i>Bernard Levin</i></p>
 
 <br>
