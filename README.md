@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Young women from a very young age are taught that life will be easier if you can just turn on the charming smile and say very little and be complacent and docile and sweet.</b>
-> <p><i>Amber Heard</i></p>
+> <b>It's coming home to roost over the next 50 years or so. It's not just climate change it's sheer space, places to grow food for this enormous horde. Either we limit our population growth or the natural world will do it for us, and the natural world is doing it for us right now.</b>
+> <p><i>David Attenborough</i></p>
 
 <br>
