@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All good criticism should be judged the way art is. You shouldn't read it the way you read history or science.</b>
-> <p><i>Leslie Fiedler</i></p>
+> <b>I started to make a study of the art of war and revolution and, whilst abroad, underwent a course in military training. If there was to be guerrilla warfare, I wanted to be able to stand and fight with my people and to share the hazards of war with them.</b>
+> <p><i>Nelson Mandela</i></p>
 
 <br>
