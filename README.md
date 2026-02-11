@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I happened to come along in the music business when there was no trend.</b>
-> <p><i>Elvis Presley</i></p>
+> <b>I must be more sensible and realize that at my age, illusions are hardly permitted and they will always destroy me.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
