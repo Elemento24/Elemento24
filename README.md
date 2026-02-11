@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How often it is that the angry man rages denial of what his inner self is telling him.</b>
-> <p><i>Frank Herbert</i></p>
+> <b>You want to be a bit compulsive in your art or craft or whatever you do.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
