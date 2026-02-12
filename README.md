@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are not the same persons this year as last nor are those we love. It is a happy chance if we, changing, continue to love a changed person.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>So I'm not worried about the emotions I carry with me, because I'm happy that I have them I think it's good for the work I do. The emotions that are not healthy are the ones you hold inside, like anger.</b>
+> <p><i>Diana Ross</i></p>
 
 <br>
