@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe we are on an irreversible trend toward more freedom and democracy - but that could change.</b>
-> <p><i>Dan Quayle</i></p>
+> <b>I'm an actor, so sometimes there are moments where I think about everything that's happening and I want to cry. I'm doing what I love and I will be doing it for a very, very long time - and it's amazing. A lot of people don't get to do that.</b>
+> <p><i>Ashley Greene</i></p>
 
 <br>
