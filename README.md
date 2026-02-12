@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm an actor, so sometimes there are moments where I think about everything that's happening and I want to cry. I'm doing what I love and I will be doing it for a very, very long time - and it's amazing. A lot of people don't get to do that.</b>
-> <p><i>Ashley Greene</i></p>
+> <b>We are not the same persons this year as last nor are those we love. It is a happy chance if we, changing, continue to love a changed person.</b>
+> <p><i>W. Somerset Maugham</i></p>
 
 <br>
