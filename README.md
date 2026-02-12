@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today I can announce a raft of reforms that we estimate could save over 2.5 million police hours every year. That's the equivalent of more than 1,200 police officer posts. These reforms are a watershed moment in policing. They show that we really mean business in busting bureaucracy.</b>
-> <p><i>Theresa May</i></p>
+> <b>I really liked the helicopter pilot in 'Dawn of the Dead', when he gets bitten and comes out of the elevator. That guy was amazing. He did this incredible walk that we didn't even know about until we started shooting.</b>
+> <p><i>George A. Romero</i></p>
 
 <br>
