@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Acquire the habit of speaking to God as if you were alone with Him, familiarly and with confidence and love, as to the dearest and most loving of friends.</b>
-> <p><i>Alphonsus Liguori</i></p>
+> <b>I'm tired of being around men all the time. I'm going to start a band called Skirt with three girls and I'll play the guitar and sing backing vocals in drag. I went window shopping when I was in New York, saw a lot of amazing dresses.</b>
+> <p><i>Brian Molko</i></p>
 
 <br>
