@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Associate yourself with people of good quality, for it is better to be alone than in bad company.</b>
-> <p><i>Booker T. Washington</i></p>
+> <b>Everyone talks about age, but it's not about age. It's about work ethic. Winning never gets old.</b>
+> <p><i>Lisa Leslie</i></p>
 
 <br>
