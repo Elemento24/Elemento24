@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The great secret that all old people share is that you really haven't changed in seventy or eighty years. Your body changes, but you don't change at all. And that, of course, causes great confusion.</b>
-> <p><i>Doris Lessing</i></p>
+> <b>Associate yourself with people of good quality, for it is better to be alone than in bad company.</b>
+> <p><i>Booker T. Washington</i></p>
 
 <br>
