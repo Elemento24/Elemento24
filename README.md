@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone talks about age, but it's not about age. It's about work ethic. Winning never gets old.</b>
-> <p><i>Lisa Leslie</i></p>
+> <b>We approach people the same way we approach our cars. We take the poor kid to a doctor and ask, What's wrong with him, how much will it cost, and when can I pick him up?</b>
+> <p><i>James Hillman</i></p>
 
 <br>
