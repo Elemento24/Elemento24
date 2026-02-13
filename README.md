@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The strangest thing that human speech and human writing can do is create a metaphor. That is an amazing leap, is it not?</b>
-> <p><i>Dennis Potter</i></p>
+> <b>Our company is built on people - those who work for us, and those we do business with.</b>
+> <p><i>Harvey S. Firestone</i></p>
 
 <br>
