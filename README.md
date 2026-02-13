@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man can think clearly when his fists are clenched.</b>
-> <p><i>George Jean Nathan</i></p>
+> <b>When you get to my age life seems little more than one long march to and from the lavatory.</b>
+> <p><i>A. C. Benson</i></p>
 
 <br>
