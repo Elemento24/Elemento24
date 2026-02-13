@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The one thing that unites all human beings, regardless of age, gender, religion or ethnic background, is that we all believe we are above-average drivers.</b>
-> <p><i>Dave Barry</i></p>
+> <b>No, there is literally nothing on the business side that I wouldn't sacrifice in a heartbeat to have an extra couple of hours' writing. Nothing.</b>
+> <p><i>J. K. Rowling</i></p>
 
 <br>
