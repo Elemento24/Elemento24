@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want a Mini-Cooper because it's fuel efficient, emissions efficient and all that stuff. It's small and better for the environment. I think that will be my next car.</b>
-> <p><i>Christina Ricci</i></p>
+> <b>But I have a driver, so I can return calls while I'm in the car.</b>
+> <p><i>Donna Shalala</i></p>
 
 <br>
