@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our company is built on people - those who work for us, and those we do business with.</b>
-> <p><i>Harvey S. Firestone</i></p>
+> <b>I want a Mini-Cooper because it's fuel efficient, emissions efficient and all that stuff. It's small and better for the environment. I think that will be my next car.</b>
+> <p><i>Christina Ricci</i></p>
 
 <br>
