@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you get to my age life seems little more than one long march to and from the lavatory.</b>
-> <p><i>A. C. Benson</i></p>
+> <b>The one thing that unites all human beings, regardless of age, gender, religion or ethnic background, is that we all believe we are above-average drivers.</b>
+> <p><i>Dave Barry</i></p>
 
 <br>
