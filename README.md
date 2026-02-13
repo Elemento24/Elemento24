@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Blood alone moves the wheels of history.</b>
-> <p><i>Martin Luther</i></p>
+> <b>To know how to grow old is the master work of wisdom, and one of the most difficult chapters in the great art of living.</b>
+> <p><i>Herman Melville</i></p>
 
 <br>
