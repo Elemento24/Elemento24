@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Inflation is when you pay fifteen dollars for the ten-dollar haircut you used to get for five dollars when you had hair.</b>
-> <p><i>Sam Ewing</i></p>
+> <b>No man can think clearly when his fists are clenched.</b>
+> <p><i>George Jean Nathan</i></p>
 
 <br>
