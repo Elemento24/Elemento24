@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Right up until the time I retired at age 37, I felt like there were still things that I could do better.</b>
-> <p><i>Julius Erving</i></p>
+> <b>Strength of character may be learned at work, but beauty of character is learned at home.</b>
+> <p><i>Henry Drummond</i></p>
 
 <br>
