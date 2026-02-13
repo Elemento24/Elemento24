@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know no subject more elevating, more amazing, more ready to the poetical enthusiasm, the philosophical reflection, and the moral sentiment than the works of nature. Where can we meet such variety, such beauty, such magnificence?</b>
-> <p><i>James Thomson</i></p>
+> <b>Blood alone moves the wheels of history.</b>
+> <p><i>Martin Luther</i></p>
 
 <br>
