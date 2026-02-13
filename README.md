@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I have a driver, so I can return calls while I'm in the car.</b>
-> <p><i>Donna Shalala</i></p>
+> <b>You can't be as old as I am without waking up with a surprised look on your face every morning: 'Holy Christ, whaddya know - I'm still around!' It's absolutely amazing that I survived all the booze and smoking and the cars and the career.</b>
+> <p><i>Paul Newman</i></p>
 
 <br>
