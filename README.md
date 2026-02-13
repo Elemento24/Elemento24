@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's like, once you've seen Tom Hanks win the Golden Globes, the Oscars, you've seen his wife, what kind of car he drives, when you watch his movies, you can't fully get really lost in them.</b>
-> <p><i>Justin Theroux</i></p>
+> <b>Throughout my whole life, as a performer, I've never played with a band. I've always played alone, so I was never required to stay in rhythm or anything. So it was a real different experience for me to start playing with a band. There were so many basic things for me to learn.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
