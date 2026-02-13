@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No, there is literally nothing on the business side that I wouldn't sacrifice in a heartbeat to have an extra couple of hours' writing. Nothing.</b>
-> <p><i>J. K. Rowling</i></p>
+> <b>Right up until the time I retired at age 37, I felt like there were still things that I could do better.</b>
+> <p><i>Julius Erving</i></p>
 
 <br>
