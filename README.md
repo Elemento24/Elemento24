@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Strength of character may be learned at work, but beauty of character is learned at home.</b>
-> <p><i>Henry Drummond</i></p>
+> <b>Censorship is to art as lynching is to justice.</b>
+> <p><i>Henry Louis Gates</i></p>
 
 <br>
