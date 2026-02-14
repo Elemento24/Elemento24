@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's the beauty and curse of doing a daily show. Some days you've got nothing to talk about and other days Dick Cheney shoots his lawyer in the face and everyone is happy.</b>
-> <p><i>Craig Ferguson</i></p>
+> <b>To command is to serve, nothing more and nothing less.</b>
+> <p><i>Andre Malraux</i></p>
 
 <br>
