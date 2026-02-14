@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone knows that by far the happiest and universally enjoyable age of man is the first. What is there about babies which makes us hug and kiss and fondle them, so that even an enemy would give them help at that age?</b>
-> <p><i>Desiderius Erasmus</i></p>
+> <b>I drive an electric car.</b>
+> <p><i>David Duchovny</i></p>
 
 <br>
