@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To command is to serve, nothing more and nothing less.</b>
-> <p><i>Andre Malraux</i></p>
+> <b>The whole business of marshaling one's energies becomes more and more important as one grows older.</b>
+> <p><i>Hume Cronyn</i></p>
 
 <br>
