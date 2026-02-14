@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The secret of business is to know something that nobody else knows.</b>
-> <p><i>Aristotle Onassis</i></p>
+> <b>If I test the car for a year I can be quite competitive the next season.</b>
+> <p><i>Valentino Rossi</i></p>
 
 <br>
