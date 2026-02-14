@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To love our neighbor as ourselves is such a truth for regulating human society, that by that alone one might determine all the cases in social morality.</b>
-> <p><i>John Locke</i></p>
+> <b>People are so busy dreaming the American Dream, fantasizing about what they could be or have a right to be, that they're all asleep at the switch. Consequently we are living in the Age of Human Error.</b>
+> <p><i>Florence King</i></p>
 
 <br>
