@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate birthdays. I hate birthday parties. I hate them. I don't know what it is, anybody's only got to come wafting near me with a piece of cake with a candle on and I break out in hives.</b>
-> <p><i>Cat Deeley</i></p>
+> <b>Patience is the best remedy for every trouble.</b>
+> <p><i>Plautus</i></p>
 
 <br>
