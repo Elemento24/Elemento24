@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The whole business of marshaling one's energies becomes more and more important as one grows older.</b>
-> <p><i>Hume Cronyn</i></p>
+> <b>You, too, women, cast away all the cowards from your embraces they will give you only cowards for children, and you who are the daughters of the land of beauty must bear children who are noble and brave.</b>
+> <p><i>Giuseppe Garibaldi</i></p>
 
 <br>
