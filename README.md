@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are few things that we so unwillingly give up, even in advanced age, as the supposition that we still have the power of ingratiating ourselves with the fair sex.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>You can know or not know how a car runs and still enjoy riding in a car.</b>
+> <p><i>David Byrne</i></p>
 
 <br>
