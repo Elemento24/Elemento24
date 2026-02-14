@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The death of any man aged 56 is very sad for his widow and family. And no one would deny that Steve Jobs was a brilliant and highly innovative technician, with great business flair and marketing ability.</b>
-> <p><i>A. N. Wilson</i></p>
+> <b>I thought, after the Pulitzer, at least nothing will surprise me quite that much in my life. And another one happened. It was quite amazing.</b>
+> <p><i>Rita Dove</i></p>
 
 <br>
