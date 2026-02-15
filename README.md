@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's nobody in the business strong enough to scare me.</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>If a man is dumb, someone is going to get the best of him, so why not you? If you don't, you're as dumb as he is.</b>
+> <p><i>Arnold Rothstein</i></p>
 
 <br>
