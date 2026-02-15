@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My first car was a motorcycle.</b>
-> <p><i>Adam Carolla</i></p>
+> <b>There's nobody in the business strong enough to scare me.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
