@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's so hard for women in this business. And I want to be doing this when I'm 50.</b>
-> <p><i>Sienna Miller</i></p>
+> <b>A company is only as good as the people it keeps.</b>
+> <p><i>Mary Kay Ash</i></p>
 
 <br>
