@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I need that aggressive attitude to play my music and more men have that attitude than women.</b>
-> <p><i>Lita Ford</i></p>
+> <b>It's so hard for women in this business. And I want to be doing this when I'm 50.</b>
+> <p><i>Sienna Miller</i></p>
 
 <br>
