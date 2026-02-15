@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A change in the weather is sufficient to recreate the world and ourselves.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>I need that aggressive attitude to play my music and more men have that attitude than women.</b>
+> <p><i>Lita Ford</i></p>
 
 <br>
