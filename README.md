@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A company is only as good as the people it keeps.</b>
-> <p><i>Mary Kay Ash</i></p>
+> <b>My first car was a motorcycle.</b>
+> <p><i>Adam Carolla</i></p>
 
 <br>
