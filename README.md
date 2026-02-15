@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Culture is the habit of being pleased with the best and knowing why.</b>
-> <p><i>Henry Van Dyke</i></p>
+> <b>The terrifying and edible beauty of Art Nouveau architecture.</b>
+> <p><i>Salvador Dali</i></p>
 
 <br>
