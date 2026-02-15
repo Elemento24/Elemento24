@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are like a woman with a difficult pregnancy. We have to rebuild the social classes in Egypt, and we must change the way things were.</b>
-> <p><i>Naguib Mahfouz</i></p>
+> <b>The purely agitational attitude is not good enough for a detailed consideration of a subject.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
