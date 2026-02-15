@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If a man is dumb, someone is going to get the best of him, so why not you? If you don't, you're as dumb as he is.</b>
-> <p><i>Arnold Rothstein</i></p>
+> <b>There are races and then there are races. And without a doubt, the Indy 500 is the race that I've always wanted to attend. And now, to be driving the Corvette Pace Car... this is going to be unbelievable.</b>
+> <p><i>Guy Fieri</i></p>
 
 <br>
