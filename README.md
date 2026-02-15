@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are no right and wrong ways to work in this business, but there are some basic common-sense practices. Work very, very hard and always be prepared never give up and once you get the job, give them more than they ever expected: - Shine!</b>
-> <p><i>Jimmy Smits</i></p>
+> <b>It's good that the first half of the speech emphasized freedom, because George W. Bush has been the global champion for freedom. As he said, if we don't fight tyranny it will not leave us alone in peace.</b>
+> <p><i>Ernest Istook</i></p>
 
 <br>
