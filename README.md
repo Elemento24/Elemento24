@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that we're in a really amazing time, where there are really a lot of really fantastic female actresses and comedians. I imagine there's just a lot of opportunity for women to have powerful roles. Or it's just that there's more women writing TV. Women tend to maybe write strong women.</b>
-> <p><i>Whitney Cummings</i></p>
+> <b>When you're a stay-at-home mother you have to pretend it's really boring, but it's not. It's enriching and fulfilling, and an amazing experience. And then when you're a working mother you have to pretend that you feel guilty all day long.</b>
+> <p><i>Amy Poehler</i></p>
 
 <br>
