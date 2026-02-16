@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we need one recognized, respected public figure to make a tough, blunt statement on just what Reagan's record is and what he might do to the country, let alone the Republican Party before Christmas.</b>
-> <p><i>Robert Teeter</i></p>
+> <b>You know who a complicated tax code kills? The guy or gal trying to start a business out of the spare bedroom of their home. So we've got to simplify our tax code.</b>
+> <p><i>Marco Rubio</i></p>
 
 <br>
