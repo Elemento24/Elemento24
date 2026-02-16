@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The fight is always the same within the Democratic Party, isn't it? The more things change, the more they stay the same.</b>
-> <p><i>Dee Dee Myers</i></p>
+> <b>When the soul looks out of its body, it should see only beauty in its path. These are the sights we must hold in mind, in order to move to a higher place.</b>
+> <p><i>Yusef Lateef</i></p>
 
 <br>
