@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Italian men do appreciate beautiful women. They're not afraid of the beauty, which is nice.</b>
-> <p><i>Eva Herzigova</i></p>
+> <b>I've made club songs, and I've made radio songs, and I've made the car songs.</b>
+> <p><i>T-Pain</i></p>
 
 <br>
