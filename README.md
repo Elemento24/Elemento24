@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Back in the mid-1970s, we adopted some fairly ambitious goals to improve efficiency of our cars. What did we get? We got a tremendous boost in efficiency.</b>
-> <p><i>Jay Inslee</i></p>
+> <b>If you can't pay for a thing, don't buy it. If you can't get paid for it, don't sell it. Do this, and you will have calm and drowsy nights, with all of the good business you have now and none of the bad. If you have time, don't wait for time.</b>
+> <p><i>Ernst Fischer</i></p>
 
 <br>
