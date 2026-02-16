@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know who a complicated tax code kills? The guy or gal trying to start a business out of the spare bedroom of their home. So we've got to simplify our tax code.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>My father gave me the greatest gift anyone could give another person, he believed in me.</b>
+> <p><i>Jim Valvano</i></p>
 
 <br>
