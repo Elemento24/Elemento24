@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The feeling of your baby taking nourishment from your body for the first time is amazing, and it remains the most touching moment of my life.</b>
-> <p><i>Laura Schlessinger</i></p>
+> <b>The scientific theory I like best is that the rings of Saturn are composed entirely of lost airline luggage.</b>
+> <p><i>Mark Russell</i></p>
 
 <br>
