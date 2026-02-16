@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When the soul looks out of its body, it should see only beauty in its path. These are the sights we must hold in mind, in order to move to a higher place.</b>
-> <p><i>Yusef Lateef</i></p>
+> <b>I rate enthusiasm even above professional skill.</b>
+> <p><i>Edward Appleton</i></p>
 
 <br>
