@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's pretty amazing being me.</b>
-> <p><i>Matthew Morrison</i></p>
+> <b>To love and win is the best thing. To love and lose, the next best.</b>
+> <p><i>William Makepeace Thackeray</i></p>
 
 <br>
