@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To love and win is the best thing. To love and lose, the next best.</b>
-> <p><i>William Makepeace Thackeray</i></p>
+> <b>I went into the business for the money, and the art grew out of it. If people are disillusioned by that remark, I can't help it. It's the truth.</b>
+> <p><i>Charlie Chaplin</i></p>
 
 <br>
