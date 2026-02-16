@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today I can announce a raft of reforms that we estimate could save over 2.5 million police hours every year. That's the equivalent of more than 1,200 police officer posts. These reforms are a watershed moment in policing. They show that we really mean business in busting bureaucracy.</b>
-> <p><i>Theresa May</i></p>
+> <b>The other day I was reading a blog and I linked over to Streisand's Web site, and it was amazing politically. She's so insightful and incisive. And she also says whatever she wants.</b>
+> <p><i>Liz Phair</i></p>
 
 <br>
