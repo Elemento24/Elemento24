@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The other day I was reading a blog and I linked over to Streisand's Web site, and it was amazing politically. She's so insightful and incisive. And she also says whatever she wants.</b>
-> <p><i>Liz Phair</i></p>
+> <b>In 1981, at age 31, I was voted the best player in basketball, and the most valuable player in the league.</b>
+> <p><i>Julius Erving</i></p>
 
 <br>
