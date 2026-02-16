@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I rate enthusiasm even above professional skill.</b>
-> <p><i>Edward Appleton</i></p>
+> <b>Back in the mid-1970s, we adopted some fairly ambitious goals to improve efficiency of our cars. What did we get? We got a tremendous boost in efficiency.</b>
+> <p><i>Jay Inslee</i></p>
 
 <br>
