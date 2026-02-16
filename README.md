@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you can't pay for a thing, don't buy it. If you can't get paid for it, don't sell it. Do this, and you will have calm and drowsy nights, with all of the good business you have now and none of the bad. If you have time, don't wait for time.</b>
-> <p><i>Ernst Fischer</i></p>
+> <b>Italian men do appreciate beautiful women. They're not afraid of the beauty, which is nice.</b>
+> <p><i>Eva Herzigova</i></p>
 
 <br>
