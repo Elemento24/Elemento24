@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Would ye both eat your cake and have your cake?</b>
-> <p><i>John Heywood</i></p>
+> <b>Most women set out to try to change a man, and when they have changed him they do not like him.</b>
+> <p><i>Marlene Dietrich</i></p>
 
 <br>
