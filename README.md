@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're one of the forces that causes actors to fasten seat belts before they take off chasing the bad guy in the car... or removes some of the cigarette smoking on television.</b>
-> <p><i>Gerald McRaney</i></p>
+> <b>No change in musical style will survive unless it is accompanied by a change in clothing style. Rock is to dress up to.</b>
+> <p><i>Frank Zappa</i></p>
 
 <br>
