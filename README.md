@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Changing my body has given me the ability to do all these amazing things that I never in a million years imagined I could do.</b>
-> <p><i>Robin Quivers</i></p>
+> <b>When you look at all the miracles attributed to Jesus, they're all about change.</b>
+> <p><i>Michael Sheen</i></p>
 
 <br>
