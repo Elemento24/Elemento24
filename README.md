@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Silence is true wisdom's best reply.</b>
-> <p><i>Euripides</i></p>
+> <b>So for a year I spent all my time hiding from Jack Charlton in the car park practising my skills.</b>
+> <p><i>Craig Johnston</i></p>
 
 <br>
