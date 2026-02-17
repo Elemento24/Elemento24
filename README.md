@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No change in musical style will survive unless it is accompanied by a change in clothing style. Rock is to dress up to.</b>
-> <p><i>Frank Zappa</i></p>
+> <b>When you Google me, you'll find a lot of people don't like Richard Dreyfuss. Because I'm cocky and I present a cocky attitude. But no one has ever disagreed with the notion I represent, that we need more civic education. So far there's 100 percent support for that.</b>
+> <p><i>Richard Dreyfuss</i></p>
 
 <br>
