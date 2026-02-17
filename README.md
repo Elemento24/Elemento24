@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Death comes not to the living soul, nor age to the loving heart.</b>
-> <p><i>Phoebe Cary</i></p>
+> <b>I've always thought of beauty therapy, 'alternative' treatments and the like as the female equivalent of brothels - for essentially self-deceiving people who feel a bit hollow and have to pay to be touched.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
