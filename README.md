@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So for a year I spent all my time hiding from Jack Charlton in the car park practising my skills.</b>
-> <p><i>Craig Johnston</i></p>
+> <b>Would ye both eat your cake and have your cake?</b>
+> <p><i>John Heywood</i></p>
 
 <br>
