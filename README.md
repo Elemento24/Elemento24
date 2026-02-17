@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is a science arising out of many other sciences, and adorned with much and varied learning by the help of which a judgment is formed of those works which are the result of other arts.</b>
-> <p><i>Marcus V. Pollio</i></p>
+> <b>We're one of the forces that causes actors to fasten seat belts before they take off chasing the bad guy in the car... or removes some of the cigarette smoking on television.</b>
+> <p><i>Gerald McRaney</i></p>
 
 <br>
