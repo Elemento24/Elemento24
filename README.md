@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you look at all the miracles attributed to Jesus, they're all about change.</b>
-> <p><i>Michael Sheen</i></p>
+> <b>Hence, within the space of two generations there has been a complete revolution in the attitude of the trades-unions toward the women working in their trades.</b>
+> <p><i>Florence Kelley</i></p>
 
 <br>
