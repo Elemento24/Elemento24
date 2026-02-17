@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to have a massage therapist come to my house, get a massage, take a bath, go to bed. That's a perfect night alone for me.</b>
-> <p><i>Stacy Keibler</i></p>
+> <b>Changing my body has given me the ability to do all these amazing things that I never in a million years imagined I could do.</b>
+> <p><i>Robin Quivers</i></p>
 
 <br>
