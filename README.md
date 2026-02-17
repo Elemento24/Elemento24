@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love my beauty. It's not my fault.</b>
-> <p><i>Valentino Garavani</i></p>
+> <b>There's a small club of women who are willing to age.</b>
+> <p><i>Debra Winger</i></p>
 
 <br>
