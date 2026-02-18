@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can feel the 60S looming. In my profession, I've just moved along with my age. By thinking in decades, rather than whether someone's 42 or 47, you can give yourself a whole 10 years to turn yourself around in.</b>
-> <p><i>Francesca Annis</i></p>
+> <b>If you have only 95 minutes of material, make an only 95-minute movie. Amazing how often that's forgotten.</b>
+> <p><i>Stephen Hunter</i></p>
 
 <br>
