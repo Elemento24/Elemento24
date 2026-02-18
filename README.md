@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>She's always there for me when I need her She's my best friend she's just my everything.</b>
-> <p><i>Ashley Olsen</i></p>
+> <b>Law is not a profession at all, but rather a business service station and repair shop.</b>
+> <p><i>Adlai E. Stevenson</i></p>
 
 <br>
