@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pleasure we derive from the representation of the present is due, not only to the beauty it can be clothed in, but also to its essential quality of being the present.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>I saw how many people were poor and how many kids my age went to school hungry in the morning, which I don't think most of my contemporaries in racially segregated schools in the South thought very much about at the time.</b>
+> <p><i>Charles Kuralt</i></p>
 
 <br>
