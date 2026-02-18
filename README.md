@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A human being is a single being. Unique and unrepeatable.</b>
-> <p><i>Eileen Caddy</i></p>
+> <b>I've never really had a hobby, unless you count art, which the IRS once told me I had to declare as a hobby since I hadn't made money with it.</b>
+> <p><i>Laurie Anderson</i></p>
 
 <br>
