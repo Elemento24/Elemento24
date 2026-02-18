@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think art is inherently nonviolent and it actually occupies your mind with creation rather than destruction.</b>
-> <p><i>Anthony Kiedis</i></p>
+> <b>I mean, it's amazing that I get to meet all these people. I've learned so much from all of them. I just worked with Sofia Coppola and that was amazing. I learned so much from her. I can't even describe how much fun I had.</b>
+> <p><i>Elle Fanning</i></p>
 
 <br>
