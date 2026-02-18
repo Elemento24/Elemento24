@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Now I know that Wal-Mart's policies do not reflect the best way of doing business and the values that I think are important in America.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>She's always there for me when I need her She's my best friend she's just my everything.</b>
+> <p><i>Ashley Olsen</i></p>
 
 <br>
