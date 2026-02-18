@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never really had a hobby, unless you count art, which the IRS once told me I had to declare as a hobby since I hadn't made money with it.</b>
-> <p><i>Laurie Anderson</i></p>
+> <b>The first mistake of art is to assume that it's serious.</b>
+> <p><i>Lester Bangs</i></p>
 
 <br>
