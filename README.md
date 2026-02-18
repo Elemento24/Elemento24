@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, it's amazing that I get to meet all these people. I've learned so much from all of them. I just worked with Sofia Coppola and that was amazing. I learned so much from her. I can't even describe how much fun I had.</b>
-> <p><i>Elle Fanning</i></p>
+> <b>The longer one is alone, the easier it is to hear the song of the earth.</b>
+> <p><i>Robert Anton Wilson</i></p>
 
 <br>
