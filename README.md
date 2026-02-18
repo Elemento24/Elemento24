@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I saw how many people were poor and how many kids my age went to school hungry in the morning, which I don't think most of my contemporaries in racially segregated schools in the South thought very much about at the time.</b>
-> <p><i>Charles Kuralt</i></p>
+> <b>I think that everyone at any age should ask themselves, 'where do I want to be today, where do I want to be tomorrow, and where do I want to be in a hundred years?' We all have clear answers to those questions. We only have so much time. It's a real shame if we don't spend our lives trying to do that.</b>
+> <p><i>Jack Antonoff</i></p>
 
 <br>
