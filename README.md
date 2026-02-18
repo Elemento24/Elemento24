@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Law is not a profession at all, but rather a business service station and repair shop.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>A human being is a single being. Unique and unrepeatable.</b>
+> <p><i>Eileen Caddy</i></p>
 
 <br>
