@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Simplicity and repose are the qualities that measure the true value of any work of art.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>The pleasure we derive from the representation of the present is due, not only to the beauty it can be clothed in, but also to its essential quality of being the present.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
