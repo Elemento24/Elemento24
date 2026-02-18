@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Family trips to Yellowstone and to what are now national parks in Southern Utah, driving the primitive roads and cars of that day, were real adventures.</b>
-> <p><i>Paul D. Boyer</i></p>
+> <b>What I want to give in the theatre is beauty, that's what I want to give.</b>
+> <p><i>Dame Edith Evans</i></p>
 
 <br>
