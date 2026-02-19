@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The lead car is unique, except for the one behind it which is identical.</b>
-> <p><i>Murray Walker</i></p>
+> <b>A technical solution may be defined as one that requires a change only in the techniques of the natural sciences, demanding little or nothing in the way of change in human values or ideas of morality.</b>
+> <p><i>Garrett Hardin</i></p>
 
 <br>
