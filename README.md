@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Canada has a passive-aggressive culture, with a lot of sarcasm and righteousness. That went with my weird messianic complex. The ego is a fascinating monster. I was taught from a young age that I had to serve, so that turned into me thinking I had to save the planet.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>It wasn't a secret that I was gay. I'd come out to my parents during my junior year of high school, on the day that I also wrecked the family car.</b>
+> <p><i>Mary Cheney</i></p>
 
 <br>
