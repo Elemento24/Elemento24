@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Excellence is not a skill. It is an attitude.</b>
-> <p><i>Ralph Marston</i></p>
+> <b>So then I started doing a lot of episodic TV, just car chases or helicopter chases or whatever.</b>
+> <p><i>David R. Ellis</i></p>
 
 <br>
