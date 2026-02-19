@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only thing better than singing is more singing.</b>
-> <p><i>Ella Fitzgerald</i></p>
+> <b>Being in the business and growing up in L.A., I think I turned out pretty OK.</b>
+> <p><i>Emma Roberts</i></p>
 
 <br>
