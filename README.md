@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think of myself as a poor deprived ghetto girl who made good. I think of myself as somebody who from an early age knew I was responsible for myself, and I had to make good.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>Canada has a passive-aggressive culture, with a lot of sarcasm and righteousness. That went with my weird messianic complex. The ego is a fascinating monster. I was taught from a young age that I had to serve, so that turned into me thinking I had to save the planet.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
