@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Pictures deface walls more often than they decorate them.</b>
-> <p><i>William Wordsworth</i></p>
+> <b>The only thing better than singing is more singing.</b>
+> <p><i>Ella Fitzgerald</i></p>
 
 <br>
