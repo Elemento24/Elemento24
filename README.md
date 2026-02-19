@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The longer one is alone, the easier it is to hear the song of the earth.</b>
-> <p><i>Robert Anton Wilson</i></p>
+> <b>Beauty is not everything!</b>
+> <p><i>Chita Rivera</i></p>
 
 <br>
