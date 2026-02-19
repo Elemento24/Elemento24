@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every good painter paints what he is.</b>
-> <p><i>Jackson Pollock</i></p>
+> <b>Pictures deface walls more often than they decorate them.</b>
+> <p><i>William Wordsworth</i></p>
 
 <br>
