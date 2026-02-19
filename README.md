@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never tell a secret to a bride or a groom wait until they have been married longer.</b>
-> <p><i>E. W. Howe</i></p>
+> <b>The more people explore the world, the more they realize in every country there's a different aesthetic. Beauty really is in the eye of the beholder.</b>
+> <p><i>Helena Christensen</i></p>
 
 <br>
