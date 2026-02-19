@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty, n: the power by which a woman charms a lover and terrifies a husband.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>I think the beauty of working with young people is they remind you of the spirit of acting and it's just a big play.</b>
+> <p><i>Eric Bana</i></p>
 
 <br>
