@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It wasn't a secret that I was gay. I'd come out to my parents during my junior year of high school, on the day that I also wrecked the family car.</b>
-> <p><i>Mary Cheney</i></p>
+> <b>The business of the poet is not to find new emotions, but to use the ordinary ones and, in working them up into poetry, to express feelings which are not in actual emotions at all.</b>
+> <p><i>T. S. Eliot</i></p>
 
 <br>
