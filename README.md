@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry is the art of uniting pleasure with truth.</b>
-> <p><i>Samuel Johnson</i></p>
+> <b>The lead car is unique, except for the one behind it which is identical.</b>
+> <p><i>Murray Walker</i></p>
 
 <br>
