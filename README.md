@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You must do as your people do. If my people are poor, I must be poor. People ask me, 'Why don't you find a personal coach or a private car?' I can't. Then I won't be part of my people.</b>
-> <p><i>Haile Gebrselassie</i></p>
+> <b>Two packed houses. I guess the theater sat 2,700 people every night so it was an amazing experience.</b>
+> <p><i>Blair Underwood</i></p>
 
 <br>
