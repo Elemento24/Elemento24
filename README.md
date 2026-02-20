@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To drive an F1 car you have to be a little mad. On the morning of a race there's a mix of excitement and fear. If it's a wet track, then it's worse as you're not in control most of the time, which is the thing all drivers fear the most.</b>
-> <p><i>Jenson Button</i></p>
+> <b>I've lost touch with a lot of that boutique-type music just because of my age, and raising my son and the multiple jobs I have at this point.</b>
+> <p><i>Liz Phair</i></p>
 
 <br>
