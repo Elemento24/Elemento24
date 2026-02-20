@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never seen a worse situation than that of young writers in the United States. The publishing business in North America is so commercialized.</b>
-> <p><i>Manuel Puig</i></p>
+> <b>When I was in elementary school, I used to write letters to myself. I'd write letters and go 'Dear Kristen-at-16-years-old, happy birthday. I hope you're doing something.'</b>
+> <p><i>Kristin Kreuk</i></p>
 
 <br>
