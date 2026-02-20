@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to visualize a second or two ahead of your car what line you are taking, what you are going to do, before you get there because it comes too fast.</b>
-> <p><i>Emerson Fittipaldi</i></p>
+> <b>It's not fair the emphasis put on beauty, or on sexuality.</b>
+> <p><i>Rosanna Arquette</i></p>
 
 <br>
