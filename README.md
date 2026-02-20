@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Medicine is a science of uncertainty and an art of probability.</b>
-> <p><i>William Osler</i></p>
+> <b>Old age is no place for sissies.</b>
+> <p><i>Bette Davis</i></p>
 
 <br>
