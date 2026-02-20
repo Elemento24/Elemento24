@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world in general doesn't know what to make of originality it is startled out of its comfortable habits of thought, and its first reaction is one of anger.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>Many a revolution started with the actions of a few. Only 56 men signed the Declaration of Independence. A few hanging together can lead a nation to change.</b>
+> <p><i>Wynton Marsalis</i></p>
 
 <br>
