@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've lost touch with a lot of that boutique-type music just because of my age, and raising my son and the multiple jobs I have at this point.</b>
-> <p><i>Liz Phair</i></p>
+> <b>I've never seen a worse situation than that of young writers in the United States. The publishing business in North America is so commercialized.</b>
+> <p><i>Manuel Puig</i></p>
 
 <br>
