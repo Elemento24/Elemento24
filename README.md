@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not fair the emphasis put on beauty, or on sexuality.</b>
-> <p><i>Rosanna Arquette</i></p>
+> <b>Love has no age, no limit and no death.</b>
+> <p><i>John Galsworthy</i></p>
 
 <br>
