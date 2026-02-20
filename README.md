@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Organisations are now confronted with two sources of change: the traditional type that is initiated and managed and external changes over which no one has control.</b>
-> <p><i>Margaret J. Wheatley</i></p>
+> <b>The art of government is to make two-thirds of a nation pay all it possibly can pay for the benefit of the other third.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
