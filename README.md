@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is no place for sissies.</b>
-> <p><i>Bette Davis</i></p>
+> <b>Integrate purpose into your for-profit business model through a long term commitment to a cause that is aligned with your core values and those of your community.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
