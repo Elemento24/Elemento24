@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>More than art, more than literature, music is universally accessible.</b>
-> <p><i>Billy Joel</i></p>
+> <b>I've found the best way is to not be scared of the attention but to be grateful for it and open to it. It makes my days better rather than being annoyed that people want my attention.</b>
+> <p><i>Brandon Routh</i></p>
 
 <br>
