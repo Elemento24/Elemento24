@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of government is to make two-thirds of a nation pay all it possibly can pay for the benefit of the other third.</b>
-> <p><i>Voltaire</i></p>
+> <b>My mother never put an emphasis on looks. She let us grow up on our own time line. She never forced any beauty regimen into my world.</b>
+> <p><i>Rachel McAdams</i></p>
 
 <br>
