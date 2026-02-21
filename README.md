@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't be halfway in this business. If you don't meet the fans, you lose all you've got.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>Every man's work, whether it be literature, or music or pictures or architecture or anything else, is always a portrait of himself.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
