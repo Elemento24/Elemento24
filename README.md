@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Stevie Wonder is just one of those guys that completely delivers everything that you want to be true about Stevie Wonder. He's an amazing human being, and the fairytale exists with that man.</b>
-> <p><i>Adam Levine</i></p>
+> <b>The racing driver's mind has to have the ability to have amazing anticipation, coordination, and reflex. Because of the speed the car goes.</b>
+> <p><i>Emerson Fittipaldi</i></p>
 
 <br>
