@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My view is that at a younger age your optimism is more and you have more imagination etc. You have less bias.</b>
-> <p><i>Abdul Kalam</i></p>
+> <b>Comfort in expressing your emotions will allow you to share the best of yourself with others, but not being able to control your emotions will reveal your worst.</b>
+> <p><i>Bryant H. McGill</i></p>
 
 <br>
