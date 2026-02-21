@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother never put an emphasis on looks. She let us grow up on our own time line. She never forced any beauty regimen into my world.</b>
-> <p><i>Rachel McAdams</i></p>
+> <b>Translation is the art of failure.</b>
+> <p><i>Umberto Eco</i></p>
 
 <br>
