@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Geological change usually takes thousands of years to happen but we are seeing the climate changing not just in our lifetimes but also year by year.</b>
-> <p><i>James Lovelock</i></p>
+> <b>You can't be halfway in this business. If you don't meet the fans, you lose all you've got.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
