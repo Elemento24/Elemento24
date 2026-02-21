@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Translation is the art of failure.</b>
-> <p><i>Umberto Eco</i></p>
+> <b>Be able to be alone. Lose not the advantage of solitude, and the society of thyself.</b>
+> <p><i>Thomas Browne</i></p>
 
 <br>
