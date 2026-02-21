@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Comfort in expressing your emotions will allow you to share the best of yourself with others, but not being able to control your emotions will reveal your worst.</b>
-> <p><i>Bryant H. McGill</i></p>
+> <b>The worst part about celebrating another birthday is the shock that you're only as well as you are.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
