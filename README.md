@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Simplicity is the final achievement. After one has played a vast quantity of notes and more notes, it is simplicity that emerges as the crowning reward of art.</b>
-> <p><i>Frederic Chopin</i></p>
+> <b>My view is that at a younger age your optimism is more and you have more imagination etc. You have less bias.</b>
+> <p><i>Abdul Kalam</i></p>
 
 <br>
