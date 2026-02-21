@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be able to be alone. Lose not the advantage of solitude, and the society of thyself.</b>
-> <p><i>Thomas Browne</i></p>
+> <b>I just don't believe that you have to come in and insult people when you want to change things.</b>
+> <p><i>Sydney Schanberg</i></p>
 
 <br>
