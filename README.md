@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty lasts five minutes. Maybe longer if you have a good plastic surgeon.</b>
-> <p><i>Tia Carrere</i></p>
+> <b>Sid Vicious began the age of participation in which everyone could be the artist. Sid proved that you don't have to play well to be the star. You can play badly, or not even at all. I endorsed that attitude. If you can't write songs, no problem - simply steal one and change it to your taste.</b>
+> <p><i>Malcolm Mclaren</i></p>
 
 <br>
