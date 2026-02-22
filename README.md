@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always taught that a poor economy is the best opportunity for salespeople because the naysayers and grumblers have already given up, leaving more territory, more opportunities to be successful than in a good economy when virtually all salespeople are out there, giving it their best.</b>
-> <p><i>Zig Ziglar</i></p>
+> <b>In our open society, we are inclined to give to the less fortunate for the pure goodness of giving. We open our home to those who are alone on this holiday to spread some warmth into the life of another.</b>
+> <p><i>Jeff Miller</i></p>
 
 <br>
