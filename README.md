@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you spend enough time in or around Washington, you'll meet amazing people who work for the government.</b>
-> <p><i>Judy Woodruff</i></p>
+> <b>We should learn to accept that change is truly the only thing that's going on always, and learn to ride with it and enjoy it.</b>
+> <p><i>Alice Walker</i></p>
 
 <br>
