@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The principal contributor to loneliness in this country is television. What happens is that the family 'gets together' alone.</b>
-> <p><i>Ashley Montagu</i></p>
+> <b>If you spend enough time in or around Washington, you'll meet amazing people who work for the government.</b>
+> <p><i>Judy Woodruff</i></p>
 
 <br>
