@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Faith, mighty faith, the promise sees, And looks to God alone Laughs at impossibilities, And cries it shall be done.</b>
-> <p><i>Charles Wesley</i></p>
+> <b>It's amazing that you can listen to any song and you can always tell when there's some substance beneath it and when there isn't. Even if it's poetically written and technically brilliant, I'd rather hear something that's all over the place but has some soul to it.</b>
+> <p><i>Teddy Thompson</i></p>
 
 <br>
