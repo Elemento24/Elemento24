@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you're in the car, how well you do is down to you and you alone-no band, no management, no marketing.</b>
-> <p><i>Nick Mason</i></p>
+> <b>Our age knows nothing but reaction, and leaps from one extreme to another.</b>
+> <p><i>Reinhold Niebuhr</i></p>
 
 <br>
