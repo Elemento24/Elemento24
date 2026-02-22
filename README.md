@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing that you can listen to any song and you can always tell when there's some substance beneath it and when there isn't. Even if it's poetically written and technically brilliant, I'd rather hear something that's all over the place but has some soul to it.</b>
-> <p><i>Teddy Thompson</i></p>
+> <b>The principal contributor to loneliness in this country is television. What happens is that the family 'gets together' alone.</b>
+> <p><i>Ashley Montagu</i></p>
 
 <br>
