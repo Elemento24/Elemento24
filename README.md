@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never go to bed angry, stay up and fight.</b>
-> <p><i>William Congreve</i></p>
+> <b>When I started the business, I hardly went home. I became very driven about work and about my career.</b>
+> <p><i>Calvin Klein</i></p>
 
 <br>
