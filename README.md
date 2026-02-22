@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I started rapping before anybody had ever bought a car from it. It was truly about the art form and the culture, more so than now, where it's a successful way to make money. Back then you had to be doing it because you liked it.</b>
-> <p><i>Ice T</i></p>
+> <b>I've always taught that a poor economy is the best opportunity for salespeople because the naysayers and grumblers have already given up, leaving more territory, more opportunities to be successful than in a good economy when virtually all salespeople are out there, giving it their best.</b>
+> <p><i>Zig Ziglar</i></p>
 
 <br>
