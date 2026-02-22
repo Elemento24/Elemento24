@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We should learn to accept that change is truly the only thing that's going on always, and learn to ride with it and enjoy it.</b>
-> <p><i>Alice Walker</i></p>
+> <b>You get more churches burned down in the United States in the last two years than in the last hundred, because of the lack of understanding of culture and diversity and the beauty of it.</b>
+> <p><i>Edward James Olmos</i></p>
 
 <br>
