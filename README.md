@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry a criticism of life under the conditions fixed for such a criticism by the laws of poetic truth and poetic beauty.</b>
-> <p><i>Matthew Arnold</i></p>
+> <b>The way I see it, you should live everyday like its your birthday.</b>
+> <p><i>Paris Hilton</i></p>
 
 <br>
