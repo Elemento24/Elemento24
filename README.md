@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no prejudice that the work of art does not finally overcome.</b>
-> <p><i>Andre Gide</i></p>
+> <b>I'm 40 and I just got my first beauty campaign with Clairol Nice and Easy.</b>
+> <p><i>Teri Hatcher</i></p>
 
 <br>
