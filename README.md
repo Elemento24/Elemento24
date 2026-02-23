@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm 40 and I just got my first beauty campaign with Clairol Nice and Easy.</b>
-> <p><i>Teri Hatcher</i></p>
+> <b>If you think you don't want to play another psychopath, but the script is amazing, and the director is fantastic, and the story is incredible, then you may end up playing your third psychopath in a row.</b>
+> <p><i>Damian Lewis</i></p>
 
 <br>
