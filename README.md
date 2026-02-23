@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>While I'm not a celebrity, it's such a weird concept that society has cooked up for us. Astronauts and teachers are much more amazing than actors.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>Since my induction into the Sports Hall of Fame, I have wanted to have my No. 3 Chevy on exhibit for sports fans to see. I hope others will enjoy the car as much as I have.</b>
+> <p><i>Junior Johnson</i></p>
 
 <br>
