@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Since my induction into the Sports Hall of Fame, I have wanted to have my No. 3 Chevy on exhibit for sports fans to see. I hope others will enjoy the car as much as I have.</b>
-> <p><i>Junior Johnson</i></p>
+> <b>I've just finished reading a book about the brilliant Margaret Rutherford. She wasn't a beauty, but inside she was absolutely blazing and passionate about her work. She's one of those life-affirming characters.</b>
+> <p><i>Sophie Thompson</i></p>
 
 <br>
