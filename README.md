@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No man can think clearly when his fists are clenched.</b>
-> <p><i>George Jean Nathan</i></p>
+> <b>The year I was born, 1956, was the peak year for babies being born, and there are more people essentially our age than anybody else. We could crush these new generations if we decided too.</b>
+> <p><i>Tom Hanks</i></p>
 
 <br>
