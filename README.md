@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the facts don't fit the theory, change the facts.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>I'd love to go to art school. I'd love to learn how to draw. I'd love to be fluent in Spanish. I'd like to be a brain surgeon.</b>
+> <p><i>Billie Joe Armstrong</i></p>
 
 <br>
