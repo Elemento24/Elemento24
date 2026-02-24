@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To engage with art, we have to be willing to be wrong, venture outside our psychic comfort zones, suspend disbelief, and remember that art explores and alters consciousness simultaneously.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Tramping is too easy with all this money. My days were more exciting when I was penniless and had to forage around for my next meal... I've decided that I'm going to live this life for some time to come. The freedom and simple beauty of it is just too good to pass up.</b>
+> <p><i>Christopher McCandless</i></p>
 
 <br>
