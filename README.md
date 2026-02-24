@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business is never so healthy as when, like a chicken, it must do a certain amount of scratching around for what it gets.</b>
-> <p><i>Henry Ford</i></p>
+> <b>Employees make the best dates. You don't have to pick them up and they're always tax-deductible.</b>
+> <p><i>Andy Warhol</i></p>
 
 <br>
