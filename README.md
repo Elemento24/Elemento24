@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I trust in nature for the stable laws of beauty and utility. Spring shall plant and autumn garner to the end of time.</b>
-> <p><i>Robert Browning</i></p>
+> <b>The best way in the world to deceive believers is to cloak a message in religious language and declare that it conveys some new insight from God.</b>
+> <p><i>Charles Stanley</i></p>
 
 <br>
