@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bring a wife home to your house when you are of the right age, not far short of 30 years, nor much above this is the right time for marriage.</b>
-> <p><i>Hesiod</i></p>
+> <b>I trust in nature for the stable laws of beauty and utility. Spring shall plant and autumn garner to the end of time.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
