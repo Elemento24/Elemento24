@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This year, as we celebrate the 230th anniversary of America's independence, please remember the symbols that are sacred to this country. Fly Old Glory high and show your respect and admiration for this great nation and the values we hold dear.</b>
-> <p><i>Kenny Marchant</i></p>
+> <b>To engage with art, we have to be willing to be wrong, venture outside our psychic comfort zones, suspend disbelief, and remember that art explores and alters consciousness simultaneously.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
