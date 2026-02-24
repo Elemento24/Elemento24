@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Employees make the best dates. You don't have to pick them up and they're always tax-deductible.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>Not even old age knows how to love death.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
