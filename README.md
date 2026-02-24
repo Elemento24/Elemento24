@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's like you always have to put on a happy face, be the phony baloney, and I'm so not that. I never was that I'll never be that. That is part of the business that I don't like. Maybe that will always keep me an outsider, I don't know. But that's fine.</b>
-> <p><i>Chloe Sevigny</i></p>
+> <b>When you start suppressing feelings at an early age, it hurts you down the road. Full expression of anger and pain is very important.</b>
+> <p><i>Andrew Shue</i></p>
 
 <br>
