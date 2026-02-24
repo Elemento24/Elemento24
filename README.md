@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude is everything.</b>
-> <p><i>Diane von Furstenberg</i></p>
+> <b>As men get older, the toys get more expensive.</b>
+> <p><i>Marvin Davis</i></p>
 
 <br>
