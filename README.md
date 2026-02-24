@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not even old age knows how to love death.</b>
-> <p><i>Sophocles</i></p>
+> <b>Bring a wife home to your house when you are of the right age, not far short of 30 years, nor much above this is the right time for marriage.</b>
+> <p><i>Hesiod</i></p>
 
 <br>
