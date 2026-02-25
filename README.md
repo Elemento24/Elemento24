@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The finest works of art are precious, among other reasons, because they make it possible for us to know, if only imperfectly and for a little while, what it actually feels like to think subtly and feel nobly.</b>
-> <p><i>Aldous Huxley</i></p>
+> <b>I'm not as angry as I used to be. But I can get in touch with that anger pretty quickly if I feel my space is being invaded or somebody is not treating me with the respect that I think I want.</b>
+> <p><i>Samuel L. Jackson</i></p>
 
 <br>
