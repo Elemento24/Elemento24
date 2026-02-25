@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is not a game. It is an earnest business.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>I think the Mother is gradually revealing itself to me and taking over. But it is not the Mother alone. It is the Mother and the Father, the male and the female, sort of gradually having their marriage.</b>
+> <p><i>Bede Griffiths</i></p>
 
 <br>
