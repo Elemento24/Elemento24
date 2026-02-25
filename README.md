@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another thing I like to do is sit back and take in nature. To look at the birds, listen to their singing, go hiking, camping and jogging and running, walking along the beach, playing games and sometimes being alone with the great outdoors. It's very special to me.</b>
-> <p><i>Larry Wilcox</i></p>
+> <b>I guess if you take yourself seriously as an artist there starts either the problem or the beauty of doing good artwork.</b>
+> <p><i>Bill Griffith</i></p>
 
 <br>
