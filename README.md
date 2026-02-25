@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of the things we decide are not what we know to be the best. We say yes, merely because we are driven into a corner and must say something.</b>
-> <p><i>Frank Crane</i></p>
+> <b>I've seen so many people in this business that made a fortune. They get old and broke and can't make any money. I tell you something... no one's going to play a benefit for Jimmy Dean.</b>
+> <p><i>Jimmy Dean</i></p>
 
 <br>
