@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing what some people read into songs.</b>
-> <p><i>Richard Thompson</i></p>
+> <b>Politics is not a game. It is an earnest business.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
