@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I guess if you take yourself seriously as an artist there starts either the problem or the beauty of doing good artwork.</b>
-> <p><i>Bill Griffith</i></p>
+> <b>I just find the evangelical church too, well, restrictive. But the School of Practical Philosophy is nonconfrontational. We believe there are many forms of Scripture. What is true is true and will never change, whether it's in the Bible or in Shakespeare. It's about oneness.</b>
+> <p><i>Hugh Jackman</i></p>
 
 <br>
