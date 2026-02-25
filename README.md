@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a kid I had buck teeth and braces and acne. I hated what I saw. I'm still not comfortable, but that's why I change and adapt the way I look.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>Your best friend and worst enemy are both in this room right now. It's not your neighbor right or left - and it's not God or the devil - it's you.</b>
+> <p><i>Edwin Louis Cole</i></p>
 
 <br>
