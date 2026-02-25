@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your best friend and worst enemy are both in this room right now. It's not your neighbor right or left - and it's not God or the devil - it's you.</b>
-> <p><i>Edwin Louis Cole</i></p>
+> <b>Most of the things we decide are not what we know to be the best. We say yes, merely because we are driven into a corner and must say something.</b>
+> <p><i>Frank Crane</i></p>
 
 <br>
