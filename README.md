@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the Mother is gradually revealing itself to me and taking over. But it is not the Mother alone. It is the Mother and the Father, the male and the female, sort of gradually having their marriage.</b>
-> <p><i>Bede Griffiths</i></p>
+> <b>Voting is a right best exercised by people who have taken time to learn about the issues.</b>
+> <p><i>Tony Snow</i></p>
 
 <br>
