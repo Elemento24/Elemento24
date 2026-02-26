@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Things don't have to change the world to be important.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>It's amazing that this is all happening to Lost in Space.</b>
+> <p><i>Mark Goddard</i></p>
 
 <br>
