@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My greatest challenge has been to change the mindset of people. Mindsets play strange tricks on us. We see things the way our minds have instructed our eyes to see.</b>
-> <p><i>Muhammad Yunus</i></p>
+> <b>It's impossible, I think, however much I'd become disillusioned politically or evolve into a post-political person, I don't think I'd ever change my view that socialism is the best political moment humans have ever come up with.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
