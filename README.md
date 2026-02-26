@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Young people discovering their sexuality must know they walk with a strong tradition and that they are not alone. They have a right to information without being pressured.</b>
-> <p><i>Jasmine Guy</i></p>
+> <b>The biggest disease this day and age is that of people feeling unloved.</b>
+> <p><i>Princess Diana</i></p>
 
 <br>
