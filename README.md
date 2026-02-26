@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lorne finally said, Do the Blues Brothers thing. The response was amazing. People went nuts.</b>
-> <p><i>Steve Cropper</i></p>
+> <b>I'm a mad lover of sport. You cannot say a bad word to me about sports. So I know business is involved and I know it can be cynical, and, of course, I watch it, but for me it's pure.</b>
+> <p><i>Hugh Jackman</i></p>
 
 <br>
