@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm so happy to have been a part of that process and I would go straight back into the desert in a ton of chain mail for Ridley any day of the week. He's an amazing director and I can't wait to see the long version.</b>
-> <p><i>Orlando Bloom</i></p>
+> <b>Those who remember Washington's cold war culture in the 1980s will recall the shocked reactions to Reagan's intervention. People interested in foreign policy were astonished when in 1985 he met alone at Geneva - alone, not a single strategic thinker at his elbow! - with the Soviet Communist master Gorbachev.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
