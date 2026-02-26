@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think a child should be allowed to take his father's or mother's name at will on coming of age. Paternity is a legal fiction.</b>
-> <p><i>James Joyce</i></p>
+> <b>The incestuous relationship between government and big business thrives in the dark.</b>
+> <p><i>Jack Anderson</i></p>
 
 <br>
