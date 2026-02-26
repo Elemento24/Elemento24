@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In an age when the fashion is to be in love with yourself, confessing to be in love with somebody else is an admission of unfaithfulness to one's beloved.</b>
-> <p><i>Russell Baker</i></p>
+> <b>Lorne finally said, Do the Blues Brothers thing. The response was amazing. People went nuts.</b>
+> <p><i>Steve Cropper</i></p>
 
 <br>
