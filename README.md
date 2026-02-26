@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The older I grow the more I distrust the familiar doctrine that age brings wisdom.</b>
-> <p><i>H. L. Mencken</i></p>
+> <b>You call to a dog and a dog will break its neck to get to you. Dogs just want to please. Call to a cat and its attitude is, 'What's in it for me?'</b>
+> <p><i>Lewis Grizzard</i></p>
 
 <br>
