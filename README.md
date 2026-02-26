@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm still figuring out why people would want to look at me. Maybe it's generic beauty, but it's weird to be valued for something I was born with.</b>
-> <p><i>Josie Maran</i></p>
+> <b>In an age when the fashion is to be in love with yourself, confessing to be in love with somebody else is an admission of unfaithfulness to one's beloved.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
