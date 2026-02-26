@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing that this is all happening to Lost in Space.</b>
-> <p><i>Mark Goddard</i></p>
+> <b>I studied voice for about two years with an amazing coach, and I never rose above the level of mediocre.</b>
+> <p><i>Danny Strong</i></p>
 
 <br>
