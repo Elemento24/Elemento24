@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The incestuous relationship between government and big business thrives in the dark.</b>
-> <p><i>Jack Anderson</i></p>
+> <b>Young people discovering their sexuality must know they walk with a strong tradition and that they are not alone. They have a right to information without being pressured.</b>
+> <p><i>Jasmine Guy</i></p>
 
 <br>
