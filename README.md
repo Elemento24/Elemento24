@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I studied voice for about two years with an amazing coach, and I never rose above the level of mediocre.</b>
-> <p><i>Danny Strong</i></p>
+> <b>Driving race cars was an avenue for me to learn how to build my own car, and that was my ambition all along.</b>
+> <p><i>Caroll Shelby</i></p>
 
 <br>
