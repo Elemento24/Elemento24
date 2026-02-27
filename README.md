@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want to argue with my wife about her car - or my driving.</b>
-> <p><i>Dale Earnhardt</i></p>
+> <b>Art is the right hand of Nature. The latter has only given us being, the former has made us men.</b>
+> <p><i>Friedrich Schiller</i></p>
 
 <br>
