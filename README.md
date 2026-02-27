@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Money is a strange business. People who haven't got it aim it strongly. People who have are full of troubles.</b>
-> <p><i>Ayrton Senna</i></p>
+> <b>The best discussion of trouble in boardroom and business office is found in newspapers' own financial pages and speeches by journalists in management jobs.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
