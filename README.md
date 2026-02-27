@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best discussion of trouble in boardroom and business office is found in newspapers' own financial pages and speeches by journalists in management jobs.</b>
-> <p><i>Russell Baker</i></p>
+> <b>We're just into toys, whether it's motorcycles or race cars or computers. I've got the Palm Pilot right here with me, I've got the world's smallest phone. Maybe it's just because I'm still a big little kid and I just love toys, you know?</b>
+> <p><i>Catherine Bell</i></p>
 
 <br>
