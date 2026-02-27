@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You look at a herd of cattle and well, they all look the same... but they know. They all have an individual personality, and those personalities change from day to day. They can have their grumpy days and their happy days and their serene days. But it's unpredictable. You can't be off in outer space when you're dealing with animals.</b>
-> <p><i>Chris Cooper</i></p>
+> <b>For my birthday this year, my girlfriends - who knew I'd just inherited my dad's turntable - gave me a carton of albums like 'Blue Kentucky Girl,' by Emmylou Harris, and 'Off the Wall,' by Michael Jackson. It's all stuff we grew up with. I mean, you can't have a music collection without Prince's 'Purple Rain' - it just can't be done!</b>
+> <p><i>Connie Britton</i></p>
 
 <br>
