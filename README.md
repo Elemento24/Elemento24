@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We perceive when love begins and when it declines by our embarrassment when alone together.</b>
-> <p><i>Jean de la Bruyere</i></p>
+> <b>If you want to go somewhere, it is best to find someone who has already been there.</b>
+> <p><i>Robert Kiyosaki</i></p>
 
 <br>
