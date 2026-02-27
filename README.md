@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For my birthday this year, my girlfriends - who knew I'd just inherited my dad's turntable - gave me a carton of albums like 'Blue Kentucky Girl,' by Emmylou Harris, and 'Off the Wall,' by Michael Jackson. It's all stuff we grew up with. I mean, you can't have a music collection without Prince's 'Purple Rain' - it just can't be done!</b>
-> <p><i>Connie Britton</i></p>
+> <b>There's a lot of stress... but once you get in the car, all that goes out the window.</b>
+> <p><i>Dan Brown</i></p>
 
 <br>
