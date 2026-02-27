@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You call to a dog and a dog will break its neck to get to you. Dogs just want to please. Call to a cat and its attitude is, 'What's in it for me?'</b>
-> <p><i>Lewis Grizzard</i></p>
+> <b>The art of living well and the art of dying well are one.</b>
+> <p><i>Epicurus</i></p>
 
 <br>
