@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can barely remember what I wrote yesterday, let alone 10 years ago.</b>
-> <p><i>Andrew Sullivan</i></p>
+> <b>Self-reverence, self-knowledge, self-control these three alone lead one to sovereign power.</b>
+> <p><i>Alfred Lord Tennyson</i></p>
 
 <br>
