@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of living well and the art of dying well are one.</b>
-> <p><i>Epicurus</i></p>
+> <b>Chance gives rise to thoughts, and chance removes them no art can keep or acquire them.</b>
+> <p><i>Blaise Pascal</i></p>
 
 <br>
