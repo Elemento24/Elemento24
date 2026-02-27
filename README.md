@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Chance gives rise to thoughts, and chance removes them no art can keep or acquire them.</b>
-> <p><i>Blaise Pascal</i></p>
+> <b>What I'm doing is art - it's low-brow art but there's a magic in that.</b>
+> <p><i>Kesha</i></p>
 
 <br>
