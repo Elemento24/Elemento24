@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's a lot of stress... but once you get in the car, all that goes out the window.</b>
-> <p><i>Dan Brown</i></p>
+> <b>It was in San Diego and I was onstage and couldn't remember how to play the guitar properly. I was in terrible pain and my nervous system was just going wild, like somebody had just run a car over me.</b>
+> <p><i>Andy Partridge</i></p>
 
 <br>
