@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm happy to report that 'The New Press' is still in business to this day. But not thanks to me. I was a really bad publishing intern.</b>
-> <p><i>Lev Grossman</i></p>
+> <b>All I owe the world is my art.</b>
+> <p><i>Sherman Alexie</i></p>
 
 <br>
