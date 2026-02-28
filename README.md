@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Punishment may make us obey the orders we are given, but at best it will only teach an obedience to authority, not a self-control which enhances our self-respect.</b>
-> <p><i>Bruno Bettelheim</i></p>
+> <b>I also take pleasure in the so-called negative power in Grotjahn's work. That is, I love his paintings for what they are not. Unlike much art of the past decade, Grotjahn isn't simply working from a prescribed checklist of academically acceptable, curator-approved 'isms' and twists.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
