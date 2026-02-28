@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>American business has just forgotten the importance of selling.</b>
-> <p><i>Barry Goldwater</i></p>
+> <b>Any work that's worth doing has its challenges as well as its opportunities. That's true if you're running a business, it's true if you're trying to help on a campaign.</b>
+> <p><i>Carly Fiorina</i></p>
 
 <br>
