@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All I owe the world is my art.</b>
-> <p><i>Sherman Alexie</i></p>
+> <b>Aging seems to be the only available way to live a long life.</b>
+> <p><i>Kitty O'Neill Collins</i></p>
 
 <br>
