@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diplomacy is the art of saying 'Nice doggie' until you can find a rock.</b>
-> <p><i>Will Rogers</i></p>
+> <b>The more anger towards the past you carry in your heart, the less capable you are of loving in the present.</b>
+> <p><i>Barbara de Angelis</i></p>
 
 <br>
