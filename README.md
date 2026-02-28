@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The more anger towards the past you carry in your heart, the less capable you are of loving in the present.</b>
-> <p><i>Barbara de Angelis</i></p>
+> <b>A man who has never made a woman angry is a failure in life.</b>
+> <p><i>Christopher Morley</i></p>
 
 <br>
