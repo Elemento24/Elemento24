@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The world needs anger. The world often continues to allow evil because it isn't angry enough.</b>
-> <p><i>Bede Jarrett</i></p>
+> <b>Beauty will be convulsive or will not be at all.</b>
+> <p><i>Andre Breton</i></p>
 
 <br>
