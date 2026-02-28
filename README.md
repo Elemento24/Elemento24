@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love is the attempt to form a friendship inspired by beauty.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>I happened to come along in the music business when there was no trend.</b>
+> <p><i>Elvis Presley</i></p>
 
 <br>
