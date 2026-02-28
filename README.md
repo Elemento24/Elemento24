@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any work that's worth doing has its challenges as well as its opportunities. That's true if you're running a business, it's true if you're trying to help on a campaign.</b>
-> <p><i>Carly Fiorina</i></p>
+> <b>Love is the attempt to form a friendship inspired by beauty.</b>
+> <p><i>Marcus Tullius Cicero</i></p>
 
 <br>
