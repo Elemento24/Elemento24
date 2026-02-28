@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Cities are the greatest creations of humanity.</b>
-> <p><i>Daniel Libeskind</i></p>
+> <b>The beauty of doing film is that you construct whatever you do block by block and you can build something that will stay.</b>
+> <p><i>Michel Gondry</i></p>
 
 <br>
