@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The United Nations four or five years ago put out a study that said the meat industry, meat-eating, growing meat for food is the No. 1 killer of our planet - not No. 2 or No. 3: No 1. You know what's No. 2? Transportation. Everyone thinks that No. 1 is transportation, and goes out and buys a hybrid car. Screw the hybrid cars. Don't eat hamburgers.</b>
-> <p><i>Maggie Q</i></p>
+> <b>Mickey Mouse popped out of my mind onto a drawing pad 20 years ago on a train ride from Manhattan to Hollywood at a time when business fortunes of my brother Roy and myself were at lowest ebb and disaster seemed right around the corner.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
