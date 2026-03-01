@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unless we love and are loved, each of us is alone, each of us is deeply lonely.</b>
-> <p><i>Mortimer Adler</i></p>
+> <b>I would have probably stolen cars - it would have given me the same adrenaline rush as racing.</b>
+> <p><i>Valentino Rossi</i></p>
 
 <br>
