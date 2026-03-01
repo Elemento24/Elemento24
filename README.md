@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The key is to keep company only with people who uplift you, whose presence calls forth your best.</b>
-> <p><i>Epictetus</i></p>
+> <b>Art usually only makes the news in America when the subject is money.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
