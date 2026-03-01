@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What an amazing opportunity to do something like direct a movie and step out of your creative comfort zone and yet do something that is also so familiar at the same time. I was also just excited to have the chance to direct, which I may never get to do again.</b>
-> <p><i>Georgina Chapman</i></p>
+> <b>As a mom, I don't have much time for beauty.</b>
+> <p><i>Idina Menzel</i></p>
 
 <br>
