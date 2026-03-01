@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mickey Mouse popped out of my mind onto a drawing pad 20 years ago on a train ride from Manhattan to Hollywood at a time when business fortunes of my brother Roy and myself were at lowest ebb and disaster seemed right around the corner.</b>
-> <p><i>Walt Disney</i></p>
+> <b>Anger is implanted in us as sort of sting, to make us gnash with our teeth against the devil, to make us vehement against him, not to set us in array against each other.</b>
+> <p><i>Richard Savage</i></p>
 
 <br>
