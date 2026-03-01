@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Competition among insurers would bring down the cost of health care insurance, just as it brings down the cost of car or homeowners insurance.</b>
-> <p><i>Andrew P. Harris</i></p>
+> <b>The key is to keep company only with people who uplift you, whose presence calls forth your best.</b>
+> <p><i>Epictetus</i></p>
 
 <br>
