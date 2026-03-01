@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is implanted in us as sort of sting, to make us gnash with our teeth against the devil, to make us vehement against him, not to set us in array against each other.</b>
-> <p><i>Richard Savage</i></p>
+> <b>I always find beauty in things that are odd and imperfect - they are much more interesting.</b>
+> <p><i>Marc Jacobs</i></p>
 
 <br>
