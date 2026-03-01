@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The study of beauty is a duel in which the artist cries with terror before being defeated.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>Try to realize it's all within yourself no one else can make you change, and to see you're only very small and life flows on within you and without you.</b>
+> <p><i>George Harrison</i></p>
 
 <br>
