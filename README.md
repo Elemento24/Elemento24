@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is with rivers as it is with people: the greatest are not always the most agreeable nor the best to live with.</b>
-> <p><i>Henry Van Dyke</i></p>
+> <b>What an amazing opportunity to do something like direct a movie and step out of your creative comfort zone and yet do something that is also so familiar at the same time. I was also just excited to have the chance to direct, which I may never get to do again.</b>
+> <p><i>Georgina Chapman</i></p>
 
 <br>
