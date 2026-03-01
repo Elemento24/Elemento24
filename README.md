@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the end, the humanities can only be defended by stressing how indispensable they are and this means insisting on their vital role in the whole business of academic learning, rather than protesting that, like some poor relation, they don't cost much to be housed.</b>
-> <p><i>Terry Eagleton</i></p>
+> <b>Competition among insurers would bring down the cost of health care insurance, just as it brings down the cost of car or homeowners insurance.</b>
+> <p><i>Andrew P. Harris</i></p>
 
 <br>
