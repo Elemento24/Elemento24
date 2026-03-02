@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As far as I'm aware, everybody in the shadow cabinet accepts that there's a compelling case on climate change and a strong scientific case.</b>
-> <p><i>William Hague</i></p>
+> <b>It is in moments of illness that we are compelled to recognize that we live not alone but chained to a creature of a different kingdom, whole worlds apart, who has no knowledge of us and by whom it is impossible to make ourselves understood: our body.</b>
+> <p><i>Marcel Proust</i></p>
 
 <br>
