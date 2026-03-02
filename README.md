@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The movies are the only business where you can go out front and applaud yourself.</b>
-> <p><i>Will Rogers</i></p>
+> <b>The defects of the mind, like those of the face, grow worse with age.</b>
+> <p><i>Francois de La Rochefoucauld</i></p>
 
 <br>
