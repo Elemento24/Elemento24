@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When we dream alone it is only a dream, but when many dream together it is the beginning of a new reality.</b>
-> <p><i>Friedensreich Hundertwasser</i></p>
+> <b>In any architecture, there is an equity between the pragmatic function and the symbolic function.</b>
+> <p><i>Michael Graves</i></p>
 
 <br>
