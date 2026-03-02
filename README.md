@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The defects of the mind, like those of the face, grow worse with age.</b>
-> <p><i>Francois de La Rochefoucauld</i></p>
+> <b>Where I am today... I still have my ups and downs, but I take it one day at a time and I just hope that I can be the best that I can possibly be, not only for myself, but also young people that are out there today that need someone to look up to.</b>
+> <p><i>Demi Lovato</i></p>
 
 <br>
