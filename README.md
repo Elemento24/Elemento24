@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a mom, I don't have much time for beauty.</b>
-> <p><i>Idina Menzel</i></p>
+> <b>The movies are the only business where you can go out front and applaud yourself.</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
