@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No single man can be taken as a model for a perfect figure, for no man lives on earth who is endowed with the whole of beauty.</b>
-> <p><i>Albrecht Durer</i></p>
+> <b>A business of high principle generates greater drive and effectiveness because people know that they can do the right thing decisively and with confidence.</b>
+> <p><i>Marvin Bower</i></p>
 
 <br>
