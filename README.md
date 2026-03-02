@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is grace and confidence. I've learned to accept and appreciate what nature gave me.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>The thing about drugs and sex is that you lose all your inhibitions. I've had sex in trains, planes, wine bars... and quite a few car parks!</b>
+> <p><i>Robbie Williams</i></p>
 
 <br>
