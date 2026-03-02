@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is in moments of illness that we are compelled to recognize that we live not alone but chained to a creature of a different kingdom, whole worlds apart, who has no knowledge of us and by whom it is impossible to make ourselves understood: our body.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>Without strength and courage it's really hard to perform at the highest levels of international figure skating, because you're alone on the ice and you only have seven minutes over two nights to prove yourself.</b>
+> <p><i>Scott Hamilton</i></p>
 
 <br>
