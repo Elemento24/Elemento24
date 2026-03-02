@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The secret of a happy marriage is finding the right person. You know they're right if you love to be with them all the time.</b>
-> <p><i>Julia Child</i></p>
+> <b>As far as I'm aware, everybody in the shadow cabinet accepts that there's a compelling case on climate change and a strong scientific case.</b>
+> <p><i>William Hague</i></p>
 
 <br>
