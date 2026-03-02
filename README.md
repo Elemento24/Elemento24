@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In any architecture, there is an equity between the pragmatic function and the symbolic function.</b>
-> <p><i>Michael Graves</i></p>
+> <b>The secret of a happy marriage is finding the right person. You know they're right if you love to be with them all the time.</b>
+> <p><i>Julia Child</i></p>
 
 <br>
