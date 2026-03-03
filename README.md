@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of course art world ethics are important. But museums are no purer than any other institution or business. Academics aren't necessarily more high-minded than gallerists.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>A writer should write with his eyes and a painter paint with his ears.</b>
+> <p><i>Gertrude Stein</i></p>
 
 <br>
