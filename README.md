@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would like you all to give me a round of applause as I have not crashed my car in over 15 months.</b>
-> <p><i>Matthew Perry</i></p>
+> <b>Forgiving does not erase the bitter past. A healed memory is not a deleted memory. Instead, forgiving what we cannot forget creates a new way to remember. We change the memory of our past into a hope for our future.</b>
+> <p><i>Lewis B. Smedes</i></p>
 
 <br>
