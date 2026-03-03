@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When we have done our best, we should wait the result in peace.</b>
-> <p><i>John Lubbock</i></p>
+> <b>All still lifes are actually paintings of the world on the sixth day of creation, when God and the world were alone together, without man!</b>
+> <p><i>Robert Musil</i></p>
 
 <br>
