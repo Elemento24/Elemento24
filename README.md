@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are times when even the best manager is like the little boy with the big dog, waiting to see where the dog wants to go so he can take him there.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>I have long since come to believe that people never mean half of what they say, and that it is best to disregard their talk and judge only their actions.</b>
+> <p><i>Dorothy Day</i></p>
 
 <br>
