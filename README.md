@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a very brave person. I can go to North Vietnam, I can challenge my government, but I can't challenge the man I'm with if means I'm going to end up alone.</b>
-> <p><i>Jane Fonda</i></p>
+> <b>These things have a life of there own and never existed when I was growing up certainly worrying when one would get made. It's kind of amazing how that one movie kept living through all these years.</b>
+> <p><i>Stockard Channing</i></p>
 
 <br>
