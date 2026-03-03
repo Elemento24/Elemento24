@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love my government not least for the extent to which it leaves me alone.</b>
-> <p><i>John Updike</i></p>
+> <b>A steady patriot of the world alone, The friend of every country but his own.</b>
+> <p><i>George Canning</i></p>
 
 <br>
