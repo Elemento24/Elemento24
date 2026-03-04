@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Well, all comedy starts with anger. You get angry, and its never for a good reason, right? You know its not a good reason. And then you try and work it from there.</b>
-> <p><i>Jerry Seinfeld</i></p>
+> <b>The senior officer who met with reporters in Baghdad said there had been 21 car bombings in the capital in May, and 126 in the past 80 days. All last year, he said, there were only about 25 car bombings in Baghdad.</b>
+> <p><i>Rich Lowry</i></p>
 
 <br>
