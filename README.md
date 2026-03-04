@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think my principles change. I think the way in which you apply those principles to modern society changes.</b>
-> <p><i>William Hague</i></p>
+> <b>Having my first number one single and being able to travel to places I've never been before has been amazing. The tour was also fantastic. There are so many things which I've experienced this year which I never even dreamed of.</b>
+> <p><i>Gareth Gates</i></p>
 
 <br>
