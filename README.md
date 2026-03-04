@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Self-reverence, self-knowledge, self-control these three alone lead one to sovereign power.</b>
-> <p><i>Alfred Lord Tennyson</i></p>
+> <b>There's not a business or a master plan as far as I'm concerned. I take it week by week, and I don't think you ever expect to be able to do the next thing.</b>
+> <p><i>Lauren Conrad</i></p>
 
 <br>
