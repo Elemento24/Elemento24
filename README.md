@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have long since come to believe that people never mean half of what they say, and that it is best to disregard their talk and judge only their actions.</b>
-> <p><i>Dorothy Day</i></p>
+> <b>He who laughs best today, will also laughs last.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
