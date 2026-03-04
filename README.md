@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's not a business or a master plan as far as I'm concerned. I take it week by week, and I don't think you ever expect to be able to do the next thing.</b>
-> <p><i>Lauren Conrad</i></p>
+> <b>Nothing can stop the man with the right mental attitude from achieving his goal nothing on earth can help the man with the wrong mental attitude.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
