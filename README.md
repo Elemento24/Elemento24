@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I do retire, I know for a fact that I'll never be able to replace the incredible feeling I get when I'm driving an F1 car.</b>
-> <p><i>Jenson Button</i></p>
+> <b>I trust in nature for the stable laws of beauty and utility. Spring shall plant and autumn garner to the end of time.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
