@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not the body's posture, but the heart's attitude that counts when we pray.</b>
-> <p><i>Billy Graham</i></p>
+> <b>Woman must have her freedom, the fundamental freedom of choosing whether or not she will be a mother and how many children she will have. Regardless of what man's attitude may be, that problem is hers - and before it can be his, it is hers alone.</b>
+> <p><i>Margaret Sanger</i></p>
 
 <br>
