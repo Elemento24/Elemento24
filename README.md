@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prayer is talking with God. God knows your heart and is not so concerned with your words as He is with the attitude of your heart.</b>
-> <p><i>Josh McDowell</i></p>
+> <b>Grandeur and beauty are so very opposite, that you often diminish the one as you increase the other. Variety is most akin to the latter, simplicity to the former.</b>
+> <p><i>William Shenstone</i></p>
 
 <br>
