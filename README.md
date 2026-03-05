@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grandeur and beauty are so very opposite, that you often diminish the one as you increase the other. Variety is most akin to the latter, simplicity to the former.</b>
-> <p><i>William Shenstone</i></p>
+> <b>Part of show business is magic. You don't know how it happens.</b>
+> <p><i>Sammy Davis, Jr.</i></p>
 
 <br>
