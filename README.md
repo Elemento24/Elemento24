@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Part of show business is magic. You don't know how it happens.</b>
-> <p><i>Sammy Davis, Jr.</i></p>
+> <b>I have noticed even people who claim everything is predestined, and that we can do nothing to change it, look before they cross the road.</b>
+> <p><i>Stephen Hawking</i></p>
 
 <br>
