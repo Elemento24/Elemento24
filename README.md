@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I look up to Mick Jagger because he's an amazing performer and he's such an individual. I respect him and admire him eternally.</b>
-> <p><i>Victoria Justice</i></p>
+> <b>Just as we reject racism, sexism, ageism, and heterosexism, we reject speciesism. The species of a sentient being is no more reason to deny the protection of this basic right than race, sex, age, or sexual orientation is a reason to deny membership in the human moral community to other humans.</b>
+> <p><i>Gary L. Francione</i></p>
 
 <br>
