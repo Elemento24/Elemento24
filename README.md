@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just as we reject racism, sexism, ageism, and heterosexism, we reject speciesism. The species of a sentient being is no more reason to deny the protection of this basic right than race, sex, age, or sexual orientation is a reason to deny membership in the human moral community to other humans.</b>
-> <p><i>Gary L. Francione</i></p>
+> <b>Prayer is talking with God. God knows your heart and is not so concerned with your words as He is with the attitude of your heart.</b>
+> <p><i>Josh McDowell</i></p>
 
 <br>
