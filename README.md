@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You may call God love, you may call God goodness. But the best name for God is compassion.</b>
-> <p><i>Meister Eckhart</i></p>
+> <b>The artist belongs to his work, not the work to the artist.</b>
+> <p><i>Novalis</i></p>
 
 <br>
