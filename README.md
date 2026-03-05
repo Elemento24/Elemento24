@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is best for the wise man not to seem wise.</b>
-> <p><i>Aeschylus</i></p>
+> <b>I'm not anti-fashion, but I've always had a bit of a punk attitude. That's important, I think. I do my own thing.</b>
+> <p><i>Sade Adu</i></p>
 
 <br>
