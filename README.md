@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I feel less alone when I read the books of Ratzinger.</b>
-> <p><i>Oriana Fallaci</i></p>
+> <b>Mr. Speaker, I rise today to recognize the Peace Corps as it reached its 45th anniversary on March 1, 2006.</b>
+> <p><i>Solomon Ortiz</i></p>
 
 <br>
