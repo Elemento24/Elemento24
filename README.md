@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>About astrology and palmistry: they are good because they make people vivid and full of possibilities. They are communism at its best. Everybody has a birthday and almost everybody has a palm.</b>
-> <p><i>Kurt Vonnegut</i></p>
+> <b>I feel less alone when I read the books of Ratzinger.</b>
+> <p><i>Oriana Fallaci</i></p>
 
 <br>
