@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A national political campaign is better than the best circus ever heard of, with a mass baptism and a couple of hangings thrown in.</b>
-> <p><i>H. L. Mencken</i></p>
+> <b>The question, I've come to think, is not what inspires one to change, but what inspires one to remain changed.</b>
+> <p><i>Jonathan Safran Foer</i></p>
 
 <br>
