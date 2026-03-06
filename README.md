@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am Classic Rock Revisited. I revisit it every waking moment of my life because it has the spirit and the attitude and the fire and the middle finger. I am Rosa Parks with a Gibson guitar.</b>
-> <p><i>Ted Nugent</i></p>
+> <b>By its very nature the beautiful is isolated from everything else. From beauty no road leads to reality.</b>
+> <p><i>Hannah Arendt</i></p>
 
 <br>
