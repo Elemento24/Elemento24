@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The secret of long life is double careers. One to about age sixty, then another for the next thirty years.</b>
-> <p><i>David Ogilvy</i></p>
+> <b>There is a single thread of attitude, a single direction of flow, that joins our present time to its early burgeoning in Mediterranean civilization.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
