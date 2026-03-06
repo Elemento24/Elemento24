@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a single thread of attitude, a single direction of flow, that joins our present time to its early burgeoning in Mediterranean civilization.</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>Reba McEntire came through town when I lived in Texas. She had this amazing theatrical show with, like, 13 different wardrobe changes. I was eight and I was like, Wow, I wanna do that!</b>
+> <p><i>LeAnn Rimes</i></p>
 
 <br>
