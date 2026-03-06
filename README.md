@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Speak when you are angry - and you'll make the best speech you'll ever regret.</b>
-> <p><i>Laurence J. Peter</i></p>
+> <b>The Romans were not inventors of the supporting arch, but its extended use in vaults and intersecting barrel shapes and domes is theirs.</b>
+> <p><i>Harry Seidler</i></p>
 
 <br>
