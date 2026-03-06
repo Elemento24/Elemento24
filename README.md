@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is one of my sources of happiness never to desire a knowledge of other people's business.</b>
-> <p><i>Dolley Madison</i></p>
+> <b>I want you to remember when our White House reflected the best of who we are, not the worst of what Europe has become.</b>
+> <p><i>Mitt Romney</i></p>
 
 <br>
