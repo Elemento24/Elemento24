@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The nice thing about anger is that, as an emotion, it's strong enough to unplug me from the comedian's mind for a minute and just be a frustrated member of the citizenry.</b>
-> <p><i>Seth Meyers</i></p>
+> <b>When I was in college, I was debating to try my hand at show business, or to become a professor. I just thought of the risk of not going into show business and always wondering if I would've had a chance. Because that's where my real heart was.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
