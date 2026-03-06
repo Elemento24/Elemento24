@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One crowded hour of glorious life is worth an age without a name.</b>
-> <p><i>Walter Scott</i></p>
+> <b>Never trust a man, who when left alone with a tea cosey... Doesn't try it on.</b>
+> <p><i>Billy Connolly</i></p>
 
 <br>
