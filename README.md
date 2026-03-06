@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I couldn't be an ingenue today, because the business has changed. I remember when you could dress for a premiere just by putting on a cute top. Now you have to be perfect and fabulous in every way, or you're ridiculed.</b>
-> <p><i>Julia Roberts</i></p>
+> <b>God always gives His best to those who leave the choice with him.</b>
+> <p><i>Jim Elliot</i></p>
 
 <br>
