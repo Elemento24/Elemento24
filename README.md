@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Believe me, that was a happy age, before the days of architects, before the days of builders.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>You may not be able to change a situation, but with humor you can change your attitude about it.</b>
+> <p><i>Allen Klein</i></p>
 
 <br>
