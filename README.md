@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never trust a man, who when left alone with a tea cosey... Doesn't try it on.</b>
-> <p><i>Billy Connolly</i></p>
+> <b>Fact: The new '90210' is cooler than the old '90210.' It's the lithe, streamlined Skipper to the elder series' venerable Barbie. Gone are the traditional parents - they've been replaced by a hipster mom n' pop who get busted necking in the car.</b>
+> <p><i>Diablo Cody</i></p>
 
 <br>
