@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want you to remember when our White House reflected the best of who we are, not the worst of what Europe has become.</b>
-> <p><i>Mitt Romney</i></p>
+> <b>A woman's two cents worth is worth two cents in the music business.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
