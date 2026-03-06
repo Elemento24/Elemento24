@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was in college, I was debating to try my hand at show business, or to become a professor. I just thought of the risk of not going into show business and always wondering if I would've had a chance. Because that's where my real heart was.</b>
-> <p><i>Steve Martin</i></p>
+> <b>I couldn't be an ingenue today, because the business has changed. I remember when you could dress for a premiere just by putting on a cute top. Now you have to be perfect and fabulous in every way, or you're ridiculed.</b>
+> <p><i>Julia Roberts</i></p>
 
 <br>
