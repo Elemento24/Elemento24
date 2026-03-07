@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bologna is the best city in Italy for food and has the least number of tourists. With its medieval beauty, it has it all.</b>
-> <p><i>Mario Batali</i></p>
+> <b>Chicago is known for good steaks, expensive stores and beautiful architecture. Unfortunately, the Windy City also enjoys a reputation for corrupt politics, violent crime, and some of the strictest gun control laws anywhere in the country.</b>
+> <p><i>Bob Barr</i></p>
 
 <br>
