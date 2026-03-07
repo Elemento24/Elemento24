@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I jetset around and play these songs and get to hang with some pretty amazing people, then I go home to a really great farm, though actually it's a disaster area of a farm at the moment. But it's certainly a blast. I wouldn't trade lives with anyone right now.</b>
-> <p><i>Brad Paisley</i></p>
+> <b>Patience is the art of concealing your impatience.</b>
+> <p><i>Guy Kawasaki</i></p>
 
 <br>
