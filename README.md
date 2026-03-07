@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always loved aesthetics. Not particularly fashion, but an idea of beauty.</b>
-> <p><i>Miuccia Prada</i></p>
+> <b>Once the kids are in school, it's amazing what you can do.</b>
+> <p><i>Laura Schlessinger</i></p>
 
 <br>
