@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Remote villages and communities have lost their identity, and their peace and charm have been sacrificed to that worst of abominations, the automobile.</b>
-> <p><i>James Norman Hall</i></p>
+> <b>He's this amazing ambassador for all superheroes. What we've made as a film not only examines that but is also an amazing adventure story. It's been an honor to work on. As a comic book fan, Superman is like the Rosetta Stone of all superheroes.</b>
+> <p><i>Zack Snyder</i></p>
 
 <br>
