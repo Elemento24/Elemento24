@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is the recipe for successful achievement? To my mind there are just four essential ingredients: Choose a career you love, give it the best there is in you, seize your opportunities, and be a member of the team.</b>
-> <p><i>Benjamin Franklin Fairless</i></p>
+> <b>In art, scandal is a false narrative, a smoke screen that camouflages rather than reveals. When we don't know what we're seeing, we overreact.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
