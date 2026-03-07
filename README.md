@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education must provide the opportunities for self-fulfillment it can at best provide a rich and challenging environment for the individual to explore, in his own way.</b>
-> <p><i>Noam Chomsky</i></p>
+> <b>What is the recipe for successful achievement? To my mind there are just four essential ingredients: Choose a career you love, give it the best there is in you, seize your opportunities, and be a member of the team.</b>
+> <p><i>Benjamin Franklin Fairless</i></p>
 
 <br>
