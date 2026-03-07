@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He's this amazing ambassador for all superheroes. What we've made as a film not only examines that but is also an amazing adventure story. It's been an honor to work on. As a comic book fan, Superman is like the Rosetta Stone of all superheroes.</b>
-> <p><i>Zack Snyder</i></p>
+> <b>It is not from the benevolence of the butcher, the brewer, or the baker that we expect our dinner, but from their regard to their own interest.</b>
+> <p><i>Adam Smith</i></p>
 
 <br>
