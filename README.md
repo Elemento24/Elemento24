@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My dad instilled in me a great sense of humor. I wasn't bullied at school because my outward attitude was confident, and that helps.</b>
-> <p><i>Warwick Davis</i></p>
+> <b>Your children need your presence more than your presents.</b>
+> <p><i>Jesse Jackson</i></p>
 
 <br>
