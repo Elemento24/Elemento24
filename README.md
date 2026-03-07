@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By the time the children go to bed, I am as drained as any mother who has spent her day working, car pooling, building Lego castles and shopping for the precisely correct soccer cleat.</b>
-> <p><i>Ayelet Waldman</i></p>
+> <b>I'm not one of those women who thinks beauty is a curse.</b>
+> <p><i>Diane Kruger</i></p>
 
 <br>
