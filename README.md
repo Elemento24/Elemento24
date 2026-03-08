@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Words do not change their meanings so drastically in the course of centuries as, in our minds, names do in the course of a year or two.</b>
-> <p><i>Marcel Proust</i></p>
+> <b>Drug misuse is not a disease, it is a decision, like the decision to step out in front of a moving car. You would call that not a disease but an error of judgment.</b>
+> <p><i>Philip K. Dick</i></p>
 
 <br>
