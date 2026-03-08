@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every artist dips his brush in his own soul, and paints his own nature into his pictures.</b>
-> <p><i>Henry Ward Beecher</i></p>
+> <b>It is through art, and through art only, that we can realise our perfection.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
