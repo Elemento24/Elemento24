@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing one can do when it's raining is to let it rain.</b>
-> <p><i>Henry Wadsworth Longfellow</i></p>
+> <b>In addition to this, they already have a fuel cell car on the road in Japan. It is subsidized from within the corporation because they are still at a high cost.</b>
+> <p><i>Maurice Strong</i></p>
 
 <br>
