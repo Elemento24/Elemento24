@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is through art, and through art only, that we can realise our perfection.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>Taking joy in living is a woman's best cosmetic.</b>
+> <p><i>Rosalind Russell</i></p>
 
 <br>
