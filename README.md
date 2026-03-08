@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sex and beauty are inseparable, like life and consciousness. And the intelligence which goes with sex and beauty, and arises out of sex and beauty, is intuition.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>For a man who has compared himself to Theodore Roosevelt and the nation's challenges to those of the Gilded Age, Obama put forward a tepid agenda.</b>
+> <p><i>Ron Fournier</i></p>
 
 <br>
