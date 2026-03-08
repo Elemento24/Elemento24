@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Chicago is known for good steaks, expensive stores and beautiful architecture. Unfortunately, the Windy City also enjoys a reputation for corrupt politics, violent crime, and some of the strictest gun control laws anywhere in the country.</b>
-> <p><i>Bob Barr</i></p>
+> <b>I like to sing in the car with the windows rolled down and hair blowing all over my face.</b>
+> <p><i>Lauren Alaina</i></p>
 
 <br>
