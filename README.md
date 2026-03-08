@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Drug misuse is not a disease, it is a decision, like the decision to step out in front of a moving car. You would call that not a disease but an error of judgment.</b>
-> <p><i>Philip K. Dick</i></p>
+> <b>I lead no party I follow no leader. I have given the best part of my life to careful study of Islam, its law and polity, its culture, its history and its literature.</b>
+> <p><i>Muhammad Iqbal</i></p>
 
 <br>
