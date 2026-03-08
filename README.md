@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't ask every player to do the same thing. That's why we have amazing midfielders, defenders, forwards and keepers. You can't ask them to be of the same mold.</b>
-> <p><i>Tiffeny Milbrett</i></p>
+> <b>On the dance floor, as much as you say, 'Ladies, you are the car. He is the driver. You can only go where he takes you,' they still try to be in control.</b>
+> <p><i>Len Goodman</i></p>
 
 <br>
