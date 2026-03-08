@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to sing in the car with the windows rolled down and hair blowing all over my face.</b>
-> <p><i>Lauren Alaina</i></p>
+> <b>The world can forgive practically anything except people who mind their own business.</b>
+> <p><i>Margaret Mitchell</i></p>
 
 <br>
