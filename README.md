@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On the one hand, shopping is dependable: You can do it alone, if you lose your heart to something that is wrong for you, you can return it it's instant gratification and yet something you buy may well last for years.</b>
-> <p><i>Judith Krantz</i></p>
+> <b>Sex and beauty are inseparable, like life and consciousness. And the intelligence which goes with sex and beauty, and arises out of sex and beauty, is intuition.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
