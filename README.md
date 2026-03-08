@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination.</b>
-> <p><i>Elbert Hubbard</i></p>
+> <b>Ideas are elusive, slippery things. Best to keep a pad of paper and a pencil at your bedside, so you can stab them during the night before they get away.</b>
+> <p><i>Earl Nightingale</i></p>
 
 <br>
