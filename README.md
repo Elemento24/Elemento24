@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ideas are elusive, slippery things. Best to keep a pad of paper and a pencil at your bedside, so you can stab them during the night before they get away.</b>
-> <p><i>Earl Nightingale</i></p>
+> <b>I've also seen that great men are often lonely. This is understandable, because they have built such high standards for themselves that they often feel alone. But that same loneliness is part of their ability to create.</b>
+> <p><i>Yousuf Karsh</i></p>
 
 <br>
