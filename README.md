@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I lead no party I follow no leader. I have given the best part of my life to careful study of Islam, its law and polity, its culture, its history and its literature.</b>
-> <p><i>Muhammad Iqbal</i></p>
+> <b>The best thing one can do when it's raining is to let it rain.</b>
+> <p><i>Henry Wadsworth Longfellow</i></p>
 
 <br>
