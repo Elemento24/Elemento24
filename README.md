@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've also seen that great men are often lonely. This is understandable, because they have built such high standards for themselves that they often feel alone. But that same loneliness is part of their ability to create.</b>
-> <p><i>Yousuf Karsh</i></p>
+> <b>On the one hand, shopping is dependable: You can do it alone, if you lose your heart to something that is wrong for you, you can return it it's instant gratification and yet something you buy may well last for years.</b>
+> <p><i>Judith Krantz</i></p>
 
 <br>
