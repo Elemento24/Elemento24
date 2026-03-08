@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Religion is essentially the art and the theory of the remaking of man. Man is not a finished creation.</b>
-> <p><i>Edmund Burke</i></p>
+> <b>The real killers in the business world aren't the ones who aim for the top, it's the ones who aim for two notches below the top.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
