@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A belief in God is vitally important, not just in show business, but stability in life. You know, to recognize deity is the most important thing that you can do. I mean, it comes to the Ten Commandments. They weren't ten suggestions. They were Ten Commandments.</b>
-> <p><i>Donny Osmond</i></p>
+> <b>You always get a special kick on opening day, no matter how many you go through. You look forward to it like a birthday party when you're a kid. You think something wonderful is going to happen.</b>
+> <p><i>Joe DiMaggio</i></p>
 
 <br>
