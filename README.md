@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm the lead singer of the Beach Boys and an ambassador of this amazing music that touched a generation.</b>
-> <p><i>Mike Love</i></p>
+> <b>My deepest impulses are optimistic, an attitude that seems to me as spiritually necessary and proper as it is intellectually suspect.</b>
+> <p><i>Ellen Willis</i></p>
 
 <br>
