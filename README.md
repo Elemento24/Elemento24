@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When the best leader's work is done the people say, 'We did it ourselves.'</b>
-> <p><i>Lao Tzu</i></p>
+> <b>Close elections tend to break toward the challenger because undecided voters - having held out so long against the incumbent - are by nature looking for change.</b>
+> <p><i>Ron Fournier</i></p>
 
 <br>
