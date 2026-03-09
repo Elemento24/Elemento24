@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we need one recognized, respected public figure to make a tough, blunt statement on just what Reagan's record is and what he might do to the country, let alone the Republican Party before Christmas.</b>
-> <p><i>Robert Teeter</i></p>
+> <b>I'm the lead singer of the Beach Boys and an ambassador of this amazing music that touched a generation.</b>
+> <p><i>Mike Love</i></p>
 
 <br>
