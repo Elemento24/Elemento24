@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Close elections tend to break toward the challenger because undecided voters - having held out so long against the incumbent - are by nature looking for change.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>When you're eight years old nothing is your business.</b>
+> <p><i>Lenny Bruce</i></p>
 
 <br>
