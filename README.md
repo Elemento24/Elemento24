@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's human nature to gripe, but I'm going ahead and doing the best I can.</b>
-> <p><i>Elvis Presley</i></p>
+> <b>The beauty of a main title is that you establish your main theme and maybe a bit of your secondary theme. You plant the seed that you're going to go water later in the score. And so, having that removed just made it so much more difficult.</b>
+> <p><i>Danny Elfman</i></p>
 
 <br>
