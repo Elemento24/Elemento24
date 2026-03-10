@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If any man claims the Negro should be content... let him say he would willingly change the color of his skin and go to live in the Negro section of a large city. Then and only then has he a right to such a claim.</b>
-> <p><i>Robert Kennedy</i></p>
+> <b>In a world that is constantly changing, there is no one subject or set of subjects that will serve you for the foreseeable future, let alone for the rest of your life. The most important skill to acquire now is learning how to learn.</b>
+> <p><i>John Naisbitt</i></p>
 
 <br>
