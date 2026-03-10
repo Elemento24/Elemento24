@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mattresses! Beautiful! Let's go buy a couple of mattresses. Give 'em to people for their birthday.</b>
-> <p><i>Lawrence Tierney</i></p>
+> <b>Part of show business is magic. You don't know how it happens.</b>
+> <p><i>Sammy Davis, Jr.</i></p>
 
 <br>
