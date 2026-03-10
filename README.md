@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is art but a way of seeing?</b>
-> <p><i>Saul Bellow</i></p>
+> <b>I really think we should pass a law in every state, I don't care whether it takes the independence away from an old person or not. You shouldn't be driving a car if you're over the age of 80. Maybe even less than that.</b>
+> <p><i>Evel Knievel</i></p>
 
 <br>
