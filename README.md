@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you have ideas, you have the main asset you need, and there isn't any limit to what you can do with your business and your life. Ideas are any man's greatest asset.</b>
-> <p><i>Harvey S. Firestone</i></p>
+> <b>Sometimes you could be in an unhappy relationship you are very much in love with someone, but it's making you unhappy and you think things can change and you can work it out.</b>
+> <p><i>Vanessa Paradis</i></p>
 
 <br>
