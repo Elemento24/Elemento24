@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is necessary to change a person is to change his awareness of himself.</b>
-> <p><i>Abraham Maslow</i></p>
+> <b>Mattresses! Beautiful! Let's go buy a couple of mattresses. Give 'em to people for their birthday.</b>
+> <p><i>Lawrence Tierney</i></p>
 
 <br>
