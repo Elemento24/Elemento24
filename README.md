@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the most powerful weapon which you can use to change the world.</b>
-> <p><i>Nelson Mandela</i></p>
+> <b>But to sustain a marriage for 50 years, you have to get real a little bit and find someone who is understanding and who you can grow with. My mom always says, 'Marry the man who loves you a millimeter more.'</b>
+> <p><i>Ali Larter</i></p>
 
 <br>
