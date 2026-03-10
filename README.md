@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thing that lies at the foundation of positive change, the way I see it, is service to a fellow human being.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>When you first get money, you buy all these things so no one thinks you're mean, and you spread it around. You get a chauffeur and you find yourself thrown around the back of this car and you think, I was happier when I had my own little car! I could drive myself!</b>
+> <p><i>Paul McCartney</i></p>
 
 <br>
