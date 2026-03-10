@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art gives me the freedom I don't have when I make music.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>The thing that lies at the foundation of positive change, the way I see it, is service to a fellow human being.</b>
+> <p><i>Lee Iacocca</i></p>
 
 <br>
