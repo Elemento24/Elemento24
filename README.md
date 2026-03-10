@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really think we should pass a law in every state, I don't care whether it takes the independence away from an old person or not. You shouldn't be driving a car if you're over the age of 80. Maybe even less than that.</b>
-> <p><i>Evel Knievel</i></p>
+> <b>Experience taught me a few things. One is to listen to your gut, no matter how good something sounds on paper. The second is that you're generally better off sticking with what you know. And the third is that sometimes your best investments are the ones you don't make.</b>
+> <p><i>Donald Trump</i></p>
 
 <br>
