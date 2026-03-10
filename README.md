@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes you could be in an unhappy relationship you are very much in love with someone, but it's making you unhappy and you think things can change and you can work it out.</b>
-> <p><i>Vanessa Paradis</i></p>
+> <b>Education is the most powerful weapon which you can use to change the world.</b>
+> <p><i>Nelson Mandela</i></p>
 
 <br>
