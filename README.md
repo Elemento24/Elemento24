@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As far as those kinds of things, I also played at the concert to call for the release of Nelson Mandela when he was a political prisoner in South Africa. We were celebrating his 70th birthday and calling for his release.</b>
-> <p><i>Jackson Browne</i></p>
+> <b>The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader.</b>
+> <p><i>Ben Okri</i></p>
 
 <br>
