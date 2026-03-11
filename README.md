@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The bass player's function, along with the drums, is to be the engine that drives the car... everything else is merely colours.</b>
-> <p><i>Suzi Quatro</i></p>
+> <b>Well there's nobody who has a more supportive husband than I do, and he has a business that he runs, and it's his own business, so he has work to do, my kids have school to do, I mean, people have - there are other things in life besides politics.</b>
+> <p><i>Caroline Kennedy</i></p>
 
 <br>
