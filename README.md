@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader.</b>
-> <p><i>Ben Okri</i></p>
+> <b>I do believe very much in the idea of unexpected or 'convulsive' beauty - beauty in the service of liberty.</b>
+> <p><i>Jeff Vandermeer</i></p>
 
 <br>
