@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best evaluation I can make of a player is to look in his eyes and see how scared they are.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>The philosophies of one age have become the absurdities of the next, and the foolishness of yesterday has become the wisdom of tomorrow.</b>
+> <p><i>William Osler</i></p>
 
 <br>
