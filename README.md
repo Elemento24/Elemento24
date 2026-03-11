@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Power and beauty come from a very deep place.</b>
-> <p><i>Brooke Burke</i></p>
+> <b>I'm not really in the excuse business.</b>
+> <p><i>Bill Parcells</i></p>
 
 <br>
