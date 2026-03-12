@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am fully committed to Hannah Montana. It's what gave me this amazing opportunity to reach out to so many people. I'm really excited about our new season. We are making great new episodes that I can't wait for our fans to see and I'm looking forward to the 'Hannah Montana' movie that will be out in the spring.</b>
-> <p><i>Miley Cyrus</i></p>
+> <b>Galleries began growing in both number and size in the late seventies, when artists who worked in lofts wanted to exhibit their work in spaces similar to the ones the art was made in.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
