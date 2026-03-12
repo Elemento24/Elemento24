@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My curiosity and my appetite for evolving as an actor is one of the main components of me still working today in the business.</b>
-> <p><i>Kim Cattrall</i></p>
+> <b>The cat could very well be man's best friend but would never stoop to admitting it.</b>
+> <p><i>Doug Larson</i></p>
 
 <br>
