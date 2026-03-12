@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children rarely want to know who their parents were before they were parents, and when age finally stirs their curiosity, there is no parent left to tell them.</b>
-> <p><i>Russell Baker</i></p>
+> <b>In this business, if you don't pay your debts you're finished.</b>
+> <p><i>Roger Stone</i></p>
 
 <br>
