@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not from the benevolence of the butcher, the brewer, or the baker that we expect our dinner, but from their regard to their own interest.</b>
-> <p><i>Adam Smith</i></p>
+> <b>The real message of the Dance opens up the vistas of life to all who have the urge to express beauty with no other instrument than their own bodies, with no apparatus and no dependence on anything other than space.</b>
+> <p><i>Ruth St. Denis</i></p>
 
 <br>
