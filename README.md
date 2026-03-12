@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A lot of people, including business leaders, think the future belongs to China. Globalization is not a zero-sum game, but we need to hone our skills to stay in play.</b>
-> <p><i>Jon Meacham</i></p>
+> <b>It is not strange... to mistake change for progress.</b>
+> <p><i>Millard Fillmore</i></p>
 
 <br>
