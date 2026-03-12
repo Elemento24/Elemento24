@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Galleries began growing in both number and size in the late seventies, when artists who worked in lofts wanted to exhibit their work in spaces similar to the ones the art was made in.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>It is not in life, but in art that self-fulfillment is to be found.</b>
+> <p><i>Wilson Mizner</i></p>
 
 <br>
