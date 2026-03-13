@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They say eyes clear with age.</b>
-> <p><i>Philip Larkin</i></p>
+> <b>I shall not grow conservative with age.</b>
+> <p><i>Elizabeth Cady Stanton</i></p>
 
 <br>
