@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is little difference in people, but that little difference makes a big difference. That little difference is attitude. The big difference is whether it is positive or negative.</b>
-> <p><i>Robert Collier</i></p>
+> <b>Performing doesn't turn me on. It's an egomaniac business, filled with prima donnas - including this one.</b>
+> <p><i>Dan Rather</i></p>
 
 <br>
