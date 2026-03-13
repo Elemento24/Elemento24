@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People lose people, we lose things in our life as we're constantly growing and changing. That's what life is is change, and a lot of that is loss. It's what you gain from that loss that makes life.</b>
-> <p><i>Thomas Jane</i></p>
+> <b>I am going to miss that time when you take that corner better than anybody else could have taken it on that lap or you do that great qualifying lap or you make that great pass or you bring a crippled car home.</b>
+> <p><i>Bobby Rahal</i></p>
 
 <br>
