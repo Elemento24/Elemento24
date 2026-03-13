@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's this thing of you can live in a city and be completely alone, not notice anything going on around you.</b>
-> <p><i>Simon Pegg</i></p>
+> <b>It's clever, but is it Art?</b>
+> <p><i>Rudyard Kipling</i></p>
 
 <br>
