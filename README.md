@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I shall not grow conservative with age.</b>
-> <p><i>Elizabeth Cady Stanton</i></p>
+> <b>We can't forget what happened on May 4th, 1970, when four students gave up their lives because they had the American constitutional right of peaceful protest. They gave up their lives. And to sing that song in that spot on that anniversary was very emotional for us.</b>
+> <p><i>Graham Nash</i></p>
 
 <br>
