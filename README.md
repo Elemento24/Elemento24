@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shutting off the thought process is not rejuvenating the mind is like a car battery - it recharges by running.</b>
-> <p><i>Bill Watterson</i></p>
+> <b>There is an infinite difference between a little wrong and just right, between fairly good and the best, between mediocrity and superiority.</b>
+> <p><i>Orison Swett Marden</i></p>
 
 <br>
