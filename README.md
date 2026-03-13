@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think whether you're having setbacks or not, the role of a leader is to always display a winning attitude.</b>
-> <p><i>Colin Powell</i></p>
+> <b>Shutting off the thought process is not rejuvenating the mind is like a car battery - it recharges by running.</b>
+> <p><i>Bill Watterson</i></p>
 
 <br>
