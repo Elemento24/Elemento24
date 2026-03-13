@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can't forget what happened on May 4th, 1970, when four students gave up their lives because they had the American constitutional right of peaceful protest. They gave up their lives. And to sing that song in that spot on that anniversary was very emotional for us.</b>
-> <p><i>Graham Nash</i></p>
+> <b>I've had to calm down, I have a kid! It is amazing. It's the best thing ever. Nothing better than it.</b>
+> <p><i>Kevin Pietersen</i></p>
 
 <br>
