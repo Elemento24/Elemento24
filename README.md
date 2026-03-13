@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I will never be an old man. To me, old age is always 15 years older than I am.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>People lose people, we lose things in our life as we're constantly growing and changing. That's what life is is change, and a lot of that is loss. It's what you gain from that loss that makes life.</b>
+> <p><i>Thomas Jane</i></p>
 
 <br>
