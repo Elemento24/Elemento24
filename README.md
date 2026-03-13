@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am going to miss that time when you take that corner better than anybody else could have taken it on that lap or you do that great qualifying lap or you make that great pass or you bring a crippled car home.</b>
-> <p><i>Bobby Rahal</i></p>
+> <b>There's this thing of you can live in a city and be completely alone, not notice anything going on around you.</b>
+> <p><i>Simon Pegg</i></p>
 
 <br>
