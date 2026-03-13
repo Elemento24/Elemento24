@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The cat could very well be man's best friend but would never stoop to admitting it.</b>
-> <p><i>Doug Larson</i></p>
+> <b>Our judgments judge us, and nothing reveals us, exposes our weaknesses, more ingeniously than the attitude of pronouncing upon our fellows.</b>
+> <p><i>Paul Valery</i></p>
 
 <br>
