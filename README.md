@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's clever, but is it Art?</b>
-> <p><i>Rudyard Kipling</i></p>
+> <b>It's amazing to me that people have any interest in such a low-level sex scandal. If I were sleeping with a congressman, maybe, but I'm a nobody and the people I'm writing about are nobodies.</b>
+> <p><i>Jessica Cutler</i></p>
 
 <br>
