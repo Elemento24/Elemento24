@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is an infinite difference between a little wrong and just right, between fairly good and the best, between mediocrity and superiority.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>Liberalism is an attitude rather than a set of dogmas - an attitude that insists upon questioning all plausible and self-evident propositions, seeking not to reject them but to find out what evidence there is to support them rather than their possible alternatives.</b>
+> <p><i>Morris Raphael Cohen</i></p>
 
 <br>
