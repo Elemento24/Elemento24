@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Performing doesn't turn me on. It's an egomaniac business, filled with prima donnas - including this one.</b>
-> <p><i>Dan Rather</i></p>
+> <b>I think whether you're having setbacks or not, the role of a leader is to always display a winning attitude.</b>
+> <p><i>Colin Powell</i></p>
 
 <br>
