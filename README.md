@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had to calm down, I have a kid! It is amazing. It's the best thing ever. Nothing better than it.</b>
-> <p><i>Kevin Pietersen</i></p>
+> <b>There is little difference in people, but that little difference makes a big difference. That little difference is attitude. The big difference is whether it is positive or negative.</b>
+> <p><i>Robert Collier</i></p>
 
 <br>
