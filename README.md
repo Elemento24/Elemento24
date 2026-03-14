@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing to hold onto in life is each other.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>If you want to go somewhere, it is best to find someone who has already been there.</b>
+> <p><i>Robert Kiyosaki</i></p>
 
 <br>
