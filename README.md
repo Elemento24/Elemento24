@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The townspeople outside the reservations had a very superior attitude toward Indians, which was kind of funny, because they weren't very wealthy they were on the fringes of society themselves.</b>
-> <p><i>James Welch</i></p>
+> <b>The best thing to hold onto in life is each other.</b>
+> <p><i>Audrey Hepburn</i></p>
 
 <br>
