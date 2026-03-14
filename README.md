@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Self-reverence, self-knowledge, self-control these three alone lead one to sovereign power.</b>
-> <p><i>Alfred Lord Tennyson</i></p>
+> <b>I think, like everybody else in New Hampshire, when I pull up to fill up my car and I pay $50, I get upset. And I'm wondering if these prices are legitimate.</b>
+> <p><i>Judd Gregg</i></p>
 
 <br>
