@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A stockbroker urged me to buy a stock that would triple its value every year. I told him, 'At my age, I don't even buy green bananas.'</b>
-> <p><i>Claude Pepper</i></p>
+> <b>I am very rich because of 'Chic' - artistically as well as spiritually. It's been an amazing life.</b>
+> <p><i>Nile Rodgers</i></p>
 
 <br>
