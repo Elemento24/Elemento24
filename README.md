@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am very rich because of 'Chic' - artistically as well as spiritually. It's been an amazing life.</b>
-> <p><i>Nile Rodgers</i></p>
+> <b>Because I've made a film with such an amazing director as Tarantino, I'm much more conscious of working with good directors from now on, so that's what's important to me. I don't really care about making a big movie - I just want to make good ones.</b>
+> <p><i>Melanie Laurent</i></p>
 
 <br>
