@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fail I alone, in words and deeds? Why, all men strive and who succeeds?</b>
-> <p><i>Robert Browning</i></p>
+> <b>A stockbroker urged me to buy a stock that would triple its value every year. I told him, 'At my age, I don't even buy green bananas.'</b>
+> <p><i>Claude Pepper</i></p>
 
 <br>
