@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>McSweeney's as a publishing company is built on a business model that only works when we sell physical books. So we try to put a lot of effort into the design and production of the book-as-object.</b>
-> <p><i>Dave Eggers</i></p>
+> <b>Fail I alone, in words and deeds? Why, all men strive and who succeeds?</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
