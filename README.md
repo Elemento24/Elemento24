@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to go somewhere, it is best to find someone who has already been there.</b>
-> <p><i>Robert Kiyosaki</i></p>
+> <b>Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
