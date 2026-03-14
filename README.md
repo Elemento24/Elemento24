@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.</b>
-> <p><i>Denis Waitley</i></p>
+> <b>I've never looked forward to a birthday like I'm looking forward to my new daughter's birthday, because two days after that is when I can apply for reinstatement.</b>
+> <p><i>Pete Rose</i></p>
 
 <br>
