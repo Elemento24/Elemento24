@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the places where we lived when I was growing up had this big wood out the back. And starting when I was about 8, I used to enjoy just walking alone through the wood late. Eleven p.m. Midnight. Later.</b>
-> <p><i>Christian Bale</i></p>
+> <b>Alone is a much better film than House of the Dead and better than most horror movies out today.</b>
+> <p><i>Uwe Boll</i></p>
 
 <br>
