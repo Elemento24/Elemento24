@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is pretty amazing. My parents, who came from Nicaragua to the U.S. - who would have thought that they would have American kids on the Olympic team? I think that's the epitome of the Olympic dream.</b>
-> <p><i>Diana Lopez</i></p>
+> <b>What beauty is, I know not, though it adheres to many things.</b>
+> <p><i>Albrecht Durer</i></p>
 
 <br>
