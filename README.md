@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not the application of a canon of beauty but what the instinct and the brain can conceive beyond any canon. When we love a woman we don't start measuring her limbs.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>Some people call it global warming some people call it climate change. What is the difference?</b>
+> <p><i>Frank Luntz</i></p>
 
 <br>
