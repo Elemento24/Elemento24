@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people call it global warming some people call it climate change. What is the difference?</b>
-> <p><i>Frank Luntz</i></p>
+> <b>In such ugly times, the only true protest is beauty.</b>
+> <p><i>Phil Ochs</i></p>
 
 <br>
