@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm always suspicious of really beautiful women telling us we shouldn't be worried about beauty.</b>
-> <p><i>Susan Estrich</i></p>
+> <b>It's amazing where the paranoid mind can take you.</b>
+> <p><i>Bill Ayers</i></p>
 
 <br>
