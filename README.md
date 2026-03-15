@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We must advertise to U.S. business that we are there, that our attitude has changed, and that we care. When we are asked to help, we have to perform and provide the right advice.</b>
-> <p><i>Lawrence Eagleburger</i></p>
+> <b>In times of change learners inherit the earth while the learned find themselves beautifully equipped to deal with a world that no longer exists.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
