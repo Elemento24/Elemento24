@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In times of change learners inherit the earth while the learned find themselves beautifully equipped to deal with a world that no longer exists.</b>
-> <p><i>Eric Hoffer</i></p>
+> <b>I'm always suspicious of really beautiful women telling us we shouldn't be worried about beauty.</b>
+> <p><i>Susan Estrich</i></p>
 
 <br>
