@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maybe we can show government how to operate better as a result of better architecture. Eventually, I think Chicago will be the most beautiful great city left in the world.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>As a child, I had to get up early for school or work. I'd get ready by myself. I'd set my alarm to wake me up very early in the morning, and be off to work, the family driver driving me every morning. I did it alone, my parents never coming in to wake me up.</b>
+> <p><i>Janet Jackson</i></p>
 
 <br>
