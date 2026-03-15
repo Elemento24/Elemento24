@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What beauty is, I know not, though it adheres to many things.</b>
-> <p><i>Albrecht Durer</i></p>
+> <b>For the man sound of body and serene of mind there is no such thing as bad weather every day has its beauty, and storms which whip the blood do but make it pulse more vigorously.</b>
+> <p><i>George Gissing</i></p>
 
 <br>
