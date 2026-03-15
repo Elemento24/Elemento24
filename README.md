@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The jewelry business is a very, very tough business - tougher than the computer business. You truly have to understand how to take care of your customers.</b>
-> <p><i>Guy Kawasaki</i></p>
+> <b>I've been on the cover of 'Time' magazine three times, not for my beauty but because what I was doing was newsworthy around the world. I've worked with teams all my life, but I've been nice and I've been kind.</b>
+> <p><i>Cheryl Tiegs</i></p>
 
 <br>
