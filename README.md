@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing where the paranoid mind can take you.</b>
-> <p><i>Bill Ayers</i></p>
+> <b>We emphasize that we believe in change because we were born of it, we have lived by it, we prospered and grew great by it. So the status quo has never been our god, and we ask no one else to bow down before it.</b>
+> <p><i>Carl T. Rowan</i></p>
 
 <br>
