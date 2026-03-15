@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing. We're all friends and friendly. So when the cameras go down, depending on the mood or the nature of the material we're dealing with, there's usually a kind of a prevailing light attitude that's floating around.</b>
-> <p><i>Richard Dean Anderson</i></p>
+> <b>Art is not the application of a canon of beauty but what the instinct and the brain can conceive beyond any canon. When we love a woman we don't start measuring her limbs.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
