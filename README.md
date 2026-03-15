@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hope the millions of people I've touched have the optimism and desire to share their goals and hard work and persevere with a positive attitude.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>What's so touching is the way we fight the war right until the moment our business is taken care of and then we turn on a dime and we immediately start taking care of people. It's like a shock and aw shucks campaign.</b>
+> <p><i>Dennis Miller</i></p>
 
 <br>
