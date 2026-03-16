@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've gotten crankier in my old age.</b>
-> <p><i>Shirley MacLaine</i></p>
+> <b>Google is in an amazing position to be the target of tons of lawsuits that will set precedent for many important things for us on the Internet.</b>
+> <p><i>Joichi Ito</i></p>
 
 <br>
