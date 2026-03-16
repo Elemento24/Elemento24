@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To see a player dunk in women's college basketball is just amazing. It's great to see that the game has reached that level now.</b>
-> <p><i>Holly Johnson</i></p>
+> <b>Age is an issue of mind over matter. If you don't mind, it doesn't matter.</b>
+> <p><i>Mark Twain</i></p>
 
 <br>
