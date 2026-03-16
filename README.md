@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been on the cover of 'Time' magazine three times, not for my beauty but because what I was doing was newsworthy around the world. I've worked with teams all my life, but I've been nice and I've been kind.</b>
-> <p><i>Cheryl Tiegs</i></p>
+> <b>I've gotten crankier in my old age.</b>
+> <p><i>Shirley MacLaine</i></p>
 
 <br>
