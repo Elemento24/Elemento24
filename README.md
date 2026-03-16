@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is my work, and I've spent my whole life at a drawing board, but life is more important than architecture. What matters is to improve human beings.</b>
-> <p><i>Oscar Niemeyer</i></p>
+> <b>The attitude that nature is chaotic and that the artist puts order into it is a very absurd point of view, I think. All that we can hope for is to put some order into ourselves.</b>
+> <p><i>Willem de Kooning</i></p>
 
 <br>
