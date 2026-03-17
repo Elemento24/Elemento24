@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Study is the bane of childhood, the oil of youth, the indulgence of adulthood, and a restorative in old age.</b>
-> <p><i>Walter Savage Landor</i></p>
+> <b>You have to respect your audience. Without them, you're essentially standing alone, singing to yourself.</b>
+> <p><i>K. D. Lang</i></p>
 
 <br>
