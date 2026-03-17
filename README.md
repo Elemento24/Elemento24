@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't care whether people like me or dislike me. I'm not on earth to win a popularity contest. I'm here to be the best human being I possibly can be.</b>
-> <p><i>Tab Hunter</i></p>
+> <b>Love, with very young people, is a heartless business. We drink at that age from thirst, or to get drunk it is only later in life that we occupy ourselves with the individuality of our wine.</b>
+> <p><i>Isak Dinesen</i></p>
 
 <br>
