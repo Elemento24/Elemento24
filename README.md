@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love, with very young people, is a heartless business. We drink at that age from thirst, or to get drunk it is only later in life that we occupy ourselves with the individuality of our wine.</b>
-> <p><i>Isak Dinesen</i></p>
+> <b>Live daringly, boldly, fearlessly. Taste the relish to be found in competition - in having put forth the best within you.</b>
+> <p><i>Henry J. Kaiser</i></p>
 
 <br>
