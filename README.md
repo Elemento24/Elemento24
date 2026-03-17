@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of a woman must be seen from in her eyes, because that is the doorway to her heart, the place where love resides.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>It's motive alone which gives character to the actions of men.</b>
+> <p><i>Jean de la Bruyere</i></p>
 
 <br>
