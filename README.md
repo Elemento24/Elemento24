@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Adele's amazing, I think the world of her and her music and I think Tinie Tempah is cool. To work with someone like Kanye West would be awesome.</b>
-> <p><i>Joe Jonas</i></p>
+> <b>You can be in this business 50 years and still not know anything about it.</b>
+> <p><i>Sammy Davis, Jr.</i></p>
 
 <br>
