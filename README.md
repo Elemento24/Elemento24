@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Artists to my mind are the real architects of change, and not the political legislators who implement change after the fact.</b>
-> <p><i>William S. Burroughs</i></p>
+> <b>Some of the greatest actors have turned superheroes into a serious business: Michael Keaton and Jack Nicholson in 'Batman' Ian McKellen and Patrick Stewart, the first venerable knights of the X-Men, who have now passed the baton to Michael Fassbender and James McAvoy.</b>
+> <p><i>Tom Hiddleston</i></p>
 
 <br>
