@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, I look like a woman but I think like a man. And in this world of business, that has helped me a lot. Because by the time they think that I don't know what's goin' on, I then got the money, and gone.</b>
-> <p><i>Dolly Parton</i></p>
+> <b>But curb thou the high spirit in thy breast, for gentle ways are best, and keep aloof from sharp contentions.</b>
+> <p><i>Homer</i></p>
 
 <br>
