@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But curb thou the high spirit in thy breast, for gentle ways are best, and keep aloof from sharp contentions.</b>
-> <p><i>Homer</i></p>
+> <b>A multitude of bees can tell the time of day, calculate the geometry of the sun's position, argue about the best location for the next swarm. Bees do a lot of close observing of other bees maybe they know what follows stinging and do it anyway.</b>
+> <p><i>Lewis Thomas</i></p>
 
 <br>
