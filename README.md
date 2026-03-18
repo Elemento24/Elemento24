@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I started out mopping floors, waiting tables, and tending bar at my dad's tavern. I put myself through school working odd jobs and night shifts. I poured my heart and soul into a small business. And when I saw how out-of-touch Washington had become with the core values of this great nation, I put my name forward and ran for office.</b>
-> <p><i>John Boehner</i></p>
+> <b>Every child senses, with all the horse sense that's in him, that any parent is angry inside when children misbehave and they dread more the anger that is rarely or never expressed openly, wondering how awful it might be.</b>
+> <p><i>Benjamin Spock</i></p>
 
 <br>
