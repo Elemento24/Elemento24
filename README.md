@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of the greatest actors have turned superheroes into a serious business: Michael Keaton and Jack Nicholson in 'Batman' Ian McKellen and Patrick Stewart, the first venerable knights of the X-Men, who have now passed the baton to Michael Fassbender and James McAvoy.</b>
-> <p><i>Tom Hiddleston</i></p>
+> <b>I started out mopping floors, waiting tables, and tending bar at my dad's tavern. I put myself through school working odd jobs and night shifts. I poured my heart and soul into a small business. And when I saw how out-of-touch Washington had become with the core values of this great nation, I put my name forward and ran for office.</b>
+> <p><i>John Boehner</i></p>
 
 <br>
