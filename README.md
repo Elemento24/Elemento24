@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love art dealers. In some ways, they're my favorite people in the art world. Really. I love that they put their money where their taste is, create their own aesthetic universes, support artists, employ people, and do all of this while letting us see art for free. Many are visionaries.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I think the sport of wrestling, which I became involved with at the age of 14... I competed until I was 34, kind of old for a contact sport. I coached the sport until I was 47. I think the discipline of wrestling has given me the discipline I have to write.</b>
+> <p><i>John Irving</i></p>
 
 <br>
