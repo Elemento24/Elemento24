@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that the way people live can be directed a little by architecture.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>A writer should write with his eyes and a painter paint with his ears.</b>
+> <p><i>Gertrude Stein</i></p>
 
 <br>
