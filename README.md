@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every child senses, with all the horse sense that's in him, that any parent is angry inside when children misbehave and they dread more the anger that is rarely or never expressed openly, wondering how awful it might be.</b>
-> <p><i>Benjamin Spock</i></p>
+> <b>I love art dealers. In some ways, they're my favorite people in the art world. Really. I love that they put their money where their taste is, create their own aesthetic universes, support artists, employ people, and do all of this while letting us see art for free. Many are visionaries.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
