@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the sport of wrestling, which I became involved with at the age of 14... I competed until I was 34, kind of old for a contact sport. I coached the sport until I was 47. I think the discipline of wrestling has given me the discipline I have to write.</b>
-> <p><i>John Irving</i></p>
+> <b>I always wanted to be a zookeeper when I was growing up, and I've wound up a zookeeper! I've been working with the Los Angeles Zoo for 45 years! I'm the luckiest old broad on two feet because my life is divided absolutely in half - half animals and half show business. You can't ask for better than two things you love the most.</b>
+> <p><i>Betty White</i></p>
 
 <br>
