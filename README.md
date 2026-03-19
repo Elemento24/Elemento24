@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I guess if you take yourself seriously as an artist there starts either the problem or the beauty of doing good artwork.</b>
-> <p><i>Bill Griffith</i></p>
+> <b>You cannot expect to achieve new goals or move beyond your present circumstances unless you change.</b>
+> <p><i>Les Brown</i></p>
 
 <br>
