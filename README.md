@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the rarest things that a man ever does, is to do the best he can.</b>
-> <p><i>Josh Billings</i></p>
+> <b>The double hundred Fowler hit in the Madras Test was an absolute beauty.</b>
+> <p><i>David Gower</i></p>
 
 <br>
