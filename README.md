@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Know what's weird? Day by day, nothing seems to change. But pretty soon, everything's different.</b>
-> <p><i>Bill Watterson</i></p>
+> <b>My biggest hero, Gregory Peck, was my birthday present on April 14, 1973. I just sat and stared at him.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
