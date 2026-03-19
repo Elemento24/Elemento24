@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I guess winning an Oscar is the ultimate dream. A lot of amazing actors go their whole career without even being nominated. So that would definitely be a goal to reach. It's a difficult one, but I'm aiming for it!</b>
-> <p><i>Taylor Lautner</i></p>
+> <b>The really amazing part, to me, was when Florida made it into the Final Four, the Democrats didn't demand a recount.</b>
+> <p><i>Ann Coulter</i></p>
 
 <br>
