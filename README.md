@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People will buy anything that is 'one to a customer.'</b>
-> <p><i>Sinclair Lewis</i></p>
+> <b>I don't paint things. I only paint the difference between things.</b>
+> <p><i>Henri Matisse</i></p>
 
 <br>
