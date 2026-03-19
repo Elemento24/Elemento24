@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The really amazing part, to me, was when Florida made it into the Final Four, the Democrats didn't demand a recount.</b>
-> <p><i>Ann Coulter</i></p>
+> <b>It doesn't matter what color, sex, religion, age, sexual orientation, etc., everyone should have the same freedoms and liberties.</b>
+> <p><i>Lance Bass</i></p>
 
 <br>
