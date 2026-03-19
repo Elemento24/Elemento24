@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the United States three new methods of transportation made their appearance at almost the same time - the steamboat, the canal boat, and the rail car.</b>
-> <p><i>John Moody</i></p>
+> <b>One of the rarest things that a man ever does, is to do the best he can.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
