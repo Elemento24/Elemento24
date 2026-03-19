@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your best teacher is your last mistake.</b>
-> <p><i>Ralph Nader</i></p>
+> <b>In the United States three new methods of transportation made their appearance at almost the same time - the steamboat, the canal boat, and the rail car.</b>
+> <p><i>John Moody</i></p>
 
 <br>
