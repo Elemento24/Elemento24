@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the 19th century, you had bourgeois art without politics - an almost frozen idea of what beauty is.</b>
-> <p><i>Douglas Sirk</i></p>
+> <b>I have always been a business person.</b>
+> <p><i>Bethenny Frankel</i></p>
 
 <br>
