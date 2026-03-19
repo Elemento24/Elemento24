@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My biggest hero, Gregory Peck, was my birthday present on April 14, 1973. I just sat and stared at him.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>I guess if you take yourself seriously as an artist there starts either the problem or the beauty of doing good artwork.</b>
+> <p><i>Bill Griffith</i></p>
 
 <br>
