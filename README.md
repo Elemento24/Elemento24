@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't paint things. I only paint the difference between things.</b>
-> <p><i>Henri Matisse</i></p>
+> <b>I was in prison for a charge in Texas, murder one. Back in the '70s in Texas, I was there. I heard the shot. I was in the car.</b>
+> <p><i>Duane Chapman</i></p>
 
 <br>
