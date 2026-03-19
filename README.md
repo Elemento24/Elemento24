@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing to me that young people will still pick up a cigarette.</b>
-> <p><i>Loni Anderson</i></p>
+> <b>In the 19th century, you had bourgeois art without politics - an almost frozen idea of what beauty is.</b>
+> <p><i>Douglas Sirk</i></p>
 
 <br>
