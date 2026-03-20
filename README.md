@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The day before the anniversary of D-Day, we lost a man who was equaled by few and surpassed by none as a leader in the cause of freedom: Ronald Reagan.</b>
-> <p><i>Mac Thornberry</i></p>
+> <b>In LA, where I live, it's all about perfectionism. Beauty is now defined by your bones sticking out of your decolletage. For that to be the standard is really perilous for women.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
