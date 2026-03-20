@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.</b>
-> <p><i>Mark Twain</i></p>
+> <b>It is well for people who think to change their minds occasionally in order to keep them clean. For those who do not think, it is best at least to rearrange their prejudices once in a while.</b>
+> <p><i>Luther Burbank</i></p>
 
 <br>
