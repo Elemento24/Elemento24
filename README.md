@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is well for people who think to change their minds occasionally in order to keep them clean. For those who do not think, it is best at least to rearrange their prejudices once in a while.</b>
-> <p><i>Luther Burbank</i></p>
+> <b>Scholarship was one thing, drudgery another. I very soon concluded that nothing would induce me to read, let alone make notes on, hundreds and hundreds of very, very, very boring books.</b>
+> <p><i>Simon Raven</i></p>
 
 <br>
