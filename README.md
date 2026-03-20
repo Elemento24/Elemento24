@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best lack all conviction, while the worst are full of passionate intensity.</b>
-> <p><i>William Butler Yeats</i></p>
+> <b>Art is not the application of a canon of beauty but what the instinct and the brain can conceive beyond any canon. When we love a woman we don't start measuring her limbs.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
