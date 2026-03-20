@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can no longer waste time and money. Every day, more than 2,000 girls in America, age 15-19, give birth - in the wealthiest, most educated nation in the world! Neither you nor I should accept this statistic.</b>
-> <p><i>Jane Fonda</i></p>
+> <b>A horse is a thing of beauty... none will tire of looking at him as long as he displays himself in his splendor.</b>
+> <p><i>Xenophon</i></p>
 
 <br>
