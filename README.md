@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the way to change it is to handle issues individually when it's essential to do so.</b>
-> <p><i>Stephen Harper</i></p>
+> <b>The best lack all conviction, while the worst are full of passionate intensity.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
