@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're taught to be ashamed of confusion, anger, fear and sadness, and to me they're of equal value to happiness, excitement and inspiration.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>Because beauty isn't enough, there must be something more.</b>
+> <p><i>Eva Herzigova</i></p>
 
 <br>
