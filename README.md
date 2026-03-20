@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I already gave my best. I have no regrets at all.</b>
-> <p><i>William Hung</i></p>
+> <b>Baseball is a game, yes. It is also a business. But what is most truly is is disguised combat. For all its gentility, its almost leisurely pace, baseball is violence under wraps.</b>
+> <p><i>Willie Mays</i></p>
 
 <br>
