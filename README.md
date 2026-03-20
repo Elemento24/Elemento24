@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because beauty isn't enough, there must be something more.</b>
-> <p><i>Eva Herzigova</i></p>
+> <b>I told you I'm not going to criticize my successor. I'll just tell you that there are people at Gitmo that will kill American people at a drop of a hat and I don't believe that persuasion isn't going to work. Therapy isn't going to cause terrorists to change their mind.</b>
+> <p><i>George W. Bush</i></p>
 
 <br>
