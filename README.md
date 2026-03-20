@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I told you I'm not going to criticize my successor. I'll just tell you that there are people at Gitmo that will kill American people at a drop of a hat and I don't believe that persuasion isn't going to work. Therapy isn't going to cause terrorists to change their mind.</b>
-> <p><i>George W. Bush</i></p>
+> <b>India is the meeting place of the religions and among these Hinduism alone is by itself a vast and complex thing, not so much a religion as a great diversified and yet subtly unified mass of spiritual thought, realization and aspiration.</b>
+> <p><i>Sri Aurobindo</i></p>
 
 <br>
