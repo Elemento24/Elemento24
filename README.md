@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just wanna thank all those amazing Internet bloggers out there that hate me day-to-day. I love you! You rock!</b>
-> <p><i>Tori Spelling</i></p>
+> <b>I would make tea for Joni Mitchell or clean her car, anything to be in the studio and watch her work.</b>
+> <p><i>Sheena Easton</i></p>
 
 <br>
