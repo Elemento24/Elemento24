@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Talent alone won't make you a success. Neither will being in the right place at the right time, unless you are ready. The most important question is: 'Are your ready?'</b>
-> <p><i>Johnny Carson</i></p>
+> <b>I'm not someone who likes to have my picture taken, let alone see it plastered all over the place.</b>
+> <p><i>Laura Linney</i></p>
 
 <br>
