@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to wait for a big star to come in and generate interest on a project, and now that has become me, which is an amazing blessing.</b>
-> <p><i>Jeremy Renner</i></p>
+> <b>I wasn't very good about juggling family and my career. I was interested in who was coming to the children's birthday party, what my son was writing. I was thinking about Legos.</b>
+> <p><i>Jill Clayburgh</i></p>
 
 <br>
