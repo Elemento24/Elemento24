@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Winning 'The Apprentice' changed my life in ways I could never have imagined. It has been an amazing experience working for Donald Trump and I am very grateful for the whole opportunity.</b>
-> <p><i>Bill Rancic</i></p>
+> <b>Life's too short when you find yourself sitting in a car for four hours every day trying to get from East L.A. to West L.A. to Hollywood and then back to East L.A.</b>
+> <p><i>Garrett Hedlund</i></p>
 
 <br>
