@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life doesn't imitate art, it imitates bad television.</b>
-> <p><i>Woody Allen</i></p>
+> <b>We are all geniuses up to the age of ten.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
