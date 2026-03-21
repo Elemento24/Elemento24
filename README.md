@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to visualize a second or two ahead of your car what line you are taking, what you are going to do, before you get there because it comes too fast.</b>
-> <p><i>Emerson Fittipaldi</i></p>
+> <b>People who don't like me talk about it as though I'm trash because I have tattoos. I find that insane because it's 2008, not the 1950s. Tattoos aren't limited to sailors. It's a form of art I find beautiful. I love it.</b>
+> <p><i>Megan Fox</i></p>
 
 <br>
