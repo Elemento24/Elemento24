@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The two operations of our understanding, intuition and deduction, on which alone we have said we must rely in the acquisition of knowledge.</b>
-> <p><i>Rene Descartes</i></p>
+> <b>Life doesn't imitate art, it imitates bad television.</b>
+> <p><i>Woody Allen</i></p>
 
 <br>
