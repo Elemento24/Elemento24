@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People who don't like me talk about it as though I'm trash because I have tattoos. I find that insane because it's 2008, not the 1950s. Tattoos aren't limited to sailors. It's a form of art I find beautiful. I love it.</b>
-> <p><i>Megan Fox</i></p>
+> <b>There's no way in the world that just because women turn the number 40, they're anything less than amazing. That's crazy. If anything, you're even more amazing!</b>
+> <p><i>Jennifer Lopez</i></p>
 
 <br>
