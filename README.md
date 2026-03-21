@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would make tea for Joni Mitchell or clean her car, anything to be in the studio and watch her work.</b>
-> <p><i>Sheena Easton</i></p>
+> <b>She's always there for me when I need her She's my best friend she's just my everything.</b>
+> <p><i>Ashley Olsen</i></p>
 
 <br>
