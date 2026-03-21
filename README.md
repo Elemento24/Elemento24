@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>She's always there for me when I need her She's my best friend she's just my everything.</b>
-> <p><i>Ashley Olsen</i></p>
+> <b>You have to wait for a big star to come in and generate interest on a project, and now that has become me, which is an amazing blessing.</b>
+> <p><i>Jeremy Renner</i></p>
 
 <br>
