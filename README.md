@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wasn't very good about juggling family and my career. I was interested in who was coming to the children's birthday party, what my son was writing. I was thinking about Legos.</b>
-> <p><i>Jill Clayburgh</i></p>
+> <b>Talent alone won't make you a success. Neither will being in the right place at the right time, unless you are ready. The most important question is: 'Are your ready?'</b>
+> <p><i>Johnny Carson</i></p>
 
 <br>
