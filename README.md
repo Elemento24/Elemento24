@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The giant white cube is now impeding rather than enhancing the rhythms of art. It preprograms a viewer's journey, shifts the emphasis from process to product, and lacks individuality and openness. It's not that art should be seen only in rutty bombed-out environments, but it should seem alive.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>You know, I look like a woman but I think like a man. And in this world of business, that has helped me a lot. Because by the time they think that I don't know what's goin' on, I then got the money, and gone.</b>
+> <p><i>Dolly Parton</i></p>
 
 <br>
