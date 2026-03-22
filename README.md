@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just like food too much, and I don't want to change. I spent so much of childhood trying to change, and I just got sick of it... I don't want to look like Britney Spears, I just don't want to. She's hideous.</b>
-> <p><i>Beth Ditto</i></p>
+> <b>I'm in exactly the same position as everybody else who has a small business. I mean I get loads of money, all from different sources. You give it to your accountant. They manage it.</b>
+> <p><i>Kenneth Robert Livingstone</i></p>
 
 <br>
