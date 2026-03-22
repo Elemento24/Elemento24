@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be adult is to be alone.</b>
-> <p><i>Jean Rostand</i></p>
+> <b>The giant white cube is now impeding rather than enhancing the rhythms of art. It preprograms a viewer's journey, shifts the emphasis from process to product, and lacks individuality and openness. It's not that art should be seen only in rutty bombed-out environments, but it should seem alive.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
