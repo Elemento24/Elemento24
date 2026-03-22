@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Childhood obesity is best tackled at home through improved parental involvement, increased physical exercise, better diet and restraint from eating.</b>
-> <p><i>Bob Filner</i></p>
+> <b>People say I'm extravagant because I want to be surrounded by beauty. But tell me, who wants to be surrounded by garbage?</b>
+> <p><i>Imelda Marcos</i></p>
 
 <br>
