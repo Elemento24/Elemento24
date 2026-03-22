@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can survive with anger, but you can't live with it forever.</b>
-> <p><i>Ariel Dorfman</i></p>
+> <b>Plant and your spouse plants with you weed and you weed alone.</b>
+> <p><i>Jean-Jacques Rousseau</i></p>
 
 <br>
