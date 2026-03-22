@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate birthdays. I thought that I only hated my own birthday, and then I realized that I hate my children's birthdays too.</b>
-> <p><i>Samantha Bee</i></p>
+> <b>Virtue alone has majesty in death.</b>
+> <p><i>Edward Young</i></p>
 
 <br>
