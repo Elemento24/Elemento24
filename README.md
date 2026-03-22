@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can know or not know how a car runs and still enjoy riding in a car.</b>
-> <p><i>David Byrne</i></p>
+> <b>I hate birthdays. I thought that I only hated my own birthday, and then I realized that I hate my children's birthdays too.</b>
+> <p><i>Samantha Bee</i></p>
 
 <br>
