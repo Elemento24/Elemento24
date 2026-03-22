@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People say I'm extravagant because I want to be surrounded by beauty. But tell me, who wants to be surrounded by garbage?</b>
-> <p><i>Imelda Marcos</i></p>
+> <b>I just like food too much, and I don't want to change. I spent so much of childhood trying to change, and I just got sick of it... I don't want to look like Britney Spears, I just don't want to. She's hideous.</b>
+> <p><i>Beth Ditto</i></p>
 
 <br>
