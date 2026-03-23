@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whoever wants to know something about me - as an artist which alone is significant - they should look attentively at my pictures and there seek to recognise what I am and what I want.</b>
-> <p><i>Gustav Klimt</i></p>
+> <b>One expected growth, change without it, the world was less, the well of inspiration dried up, the muses fled.</b>
+> <p><i>Charles de Lint</i></p>
 
 <br>
