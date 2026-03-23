@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is a radiance that originates from within and comes from inner security and strong character.</b>
-> <p><i>Jane Seymour</i></p>
+> <b>I really wanted there to be something in my life that I enjoy just for the beauty of it.</b>
+> <p><i>Robert Caro</i></p>
 
 <br>
