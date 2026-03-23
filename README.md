@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I felt a tremendous sadness for men who can't deal with a woman of their own age.</b>
-> <p><i>Michael Caine</i></p>
+> <b>At the end of the day, there's only a few major stars in the music business, and then there's all these people that are aspiring to be that.</b>
+> <p><i>John Legend</i></p>
 
 <br>
