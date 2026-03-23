@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In our age there is no such thing as 'keeping out of politics.' All issues are political issues, and politics itself is a mass of lies, evasions, folly, hatred and schizophrenia.</b>
-> <p><i>George Orwell</i></p>
+> <b>That's what happens nowadays with people working on computers. They can so easily fix things with their mouse and take out all the, 'Oh, somebody coughed in the background we need to take that out' - or somebody hit a bad note. Those are all the best moments.</b>
+> <p><i>Jack White</i></p>
 
 <br>
