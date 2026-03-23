@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My business doesn't keep me warm at night.</b>
-> <p><i>Bethenny Frankel</i></p>
+> <b>Like any business, the oil industry runs on the basic premise of supply and demand. The more supply - the lower the price. The higher the demand - the higher price. In other words, the more people who can buy oil, the higher the price of oil.</b>
+> <p><i>Ron Wyden</i></p>
 
 <br>
