@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the end of the day, there's only a few major stars in the music business, and then there's all these people that are aspiring to be that.</b>
-> <p><i>John Legend</i></p>
+> <b>When they are alone they want to be with others, and when they are with others they want to be alone. After all, human beings are like that.</b>
+> <p><i>Gertrude Stein</i></p>
 
 <br>
