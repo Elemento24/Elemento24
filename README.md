@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Women are smart in business and dumb in love. They won't date outside their zip code, let alone outside the city. They are city snobs.</b>
-> <p><i>Patti Stanger</i></p>
+> <b>In our age there is no such thing as 'keeping out of politics.' All issues are political issues, and politics itself is a mass of lies, evasions, folly, hatred and schizophrenia.</b>
+> <p><i>George Orwell</i></p>
 
 <br>
