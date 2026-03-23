@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had one drama teacher who was amazing, Ms. Perkins. She really tried to inspire me and get me going.</b>
-> <p><i>Carlos Pena, Jr.</i></p>
+> <b>If you owe the bank $100 that's your problem. If you owe the bank $100 million, that's the bank's problem.</b>
+> <p><i>J. Paul Getty</i></p>
 
 <br>
