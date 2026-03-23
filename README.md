@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a child, I had to get up early for school or work. I'd get ready by myself. I'd set my alarm to wake me up very early in the morning, and be off to work, the family driver driving me every morning. I did it alone, my parents never coming in to wake me up.</b>
-> <p><i>Janet Jackson</i></p>
+> <b>Discrimination due to age is one of the great tragedies of modern life. The desire to work and be useful is what makes life worth living, and to be told your efforts are not needed because you are the wrong age is a crime.</b>
+> <p><i>Johnny Ball</i></p>
 
 <br>
