@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Discrimination due to age is one of the great tragedies of modern life. The desire to work and be useful is what makes life worth living, and to be told your efforts are not needed because you are the wrong age is a crime.</b>
-> <p><i>Johnny Ball</i></p>
+> <b>I had one drama teacher who was amazing, Ms. Perkins. She really tried to inspire me and get me going.</b>
+> <p><i>Carlos Pena, Jr.</i></p>
 
 <br>
