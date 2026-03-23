@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture arouses sentiments in man. The architect's task therefore, is to make those sentiments more precise.</b>
-> <p><i>Adolf Loos</i></p>
+> <b>Whoever wants to know something about me - as an artist which alone is significant - they should look attentively at my pictures and there seek to recognise what I am and what I want.</b>
+> <p><i>Gustav Klimt</i></p>
 
 <br>
