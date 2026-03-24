@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like being alone.</b>
-> <p><i>Cristiano Ronaldo</i></p>
+> <b>Hence, within the space of two generations there has been a complete revolution in the attitude of the trades-unions toward the women working in their trades.</b>
+> <p><i>Florence Kelley</i></p>
 
 <br>
