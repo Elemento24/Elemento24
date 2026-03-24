@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Raising a small child as a woman while travelling 10 months out of the year would, I believe, be something I would not be able or even want to do, although with the amazing example of Leila, I am no longer so sure.</b>
-> <p><i>Lara St. John</i></p>
+> <b>If you get half a million, at a certain stage you probably will get 4 million people, if they are able to hear it. The touring thing is unbelievable. It really is amazing from what we did the last tour even to what we are doing now.</b>
+> <p><i>John Mayer</i></p>
 
 <br>
