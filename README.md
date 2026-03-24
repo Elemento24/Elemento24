@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do like athletes as they have amazing self-discipline.</b>
-> <p><i>Seal</i></p>
+> <b>I have a need to make these sorts of connections literal sometimes, and a vehicle often helps to do that. I have a relationship to car culture. It isn't really about loving cars. It's sort of about needing them.</b>
+> <p><i>Matthew Barney</i></p>
 
 <br>
