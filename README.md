@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is youth without levity, and age without decay.</b>
-> <p><i>Doris Day</i></p>
+> <b>I don't like being alone.</b>
+> <p><i>Cristiano Ronaldo</i></p>
 
 <br>
