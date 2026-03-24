@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you get half a million, at a certain stage you probably will get 4 million people, if they are able to hear it. The touring thing is unbelievable. It really is amazing from what we did the last tour even to what we are doing now.</b>
-> <p><i>John Mayer</i></p>
+> <b>It's always easier if you have the support of your family, if you're not alone. I came from a country that has been through a lot of troubles in the last 20 to 30 years, but we have been through them together.</b>
+> <p><i>Novak Djokovic</i></p>
 
 <br>
