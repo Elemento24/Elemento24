@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Hollywood, you play a mom, and the next thing you know, you're on 'The Golden Girls.' They age you so fast.</b>
-> <p><i>Gabrielle Union</i></p>
+> <b>You want to balance the budget in this country? We change the salary structure for Congress and the President. Every year they don't balance the budget, we don't pay them.</b>
+> <p><i>Daniel Keys Moran</i></p>
 
 <br>
