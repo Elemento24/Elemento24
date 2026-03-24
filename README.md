@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hence, within the space of two generations there has been a complete revolution in the attitude of the trades-unions toward the women working in their trades.</b>
-> <p><i>Florence Kelley</i></p>
+> <b>Acting is still, of course, what I love to do most. The beauty of it is that by changing characters, it never gets boring.</b>
+> <p><i>Christopher Lambert</i></p>
 
 <br>
