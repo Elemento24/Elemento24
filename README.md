@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to sing in the car with the windows rolled down and hair blowing all over my face.</b>
-> <p><i>Lauren Alaina</i></p>
+> <b>Middle age is youth without levity, and age without decay.</b>
+> <p><i>Doris Day</i></p>
 
 <br>
