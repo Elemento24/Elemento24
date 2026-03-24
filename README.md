@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I enjoy trying to develop a car and Mercedes are one of the biggest car manufacturers in the world.</b>
-> <p><i>Lewis Hamilton</i></p>
+> <b>1 month ago the American people stopped to remember the third anniversary of the beginning of the Iraq war. We thought first and foremost of the selflessness, patriotism and heroism by our troops, our National Guard and Reserves.</b>
+> <p><i>Rosa DeLauro</i></p>
 
 <br>
