@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everyone says, 'You give birth, you go home, and you have this amazing baby and it's just beautiful'. And I walked in and I just started sobbing.</b>
-> <p><i>Bridget Moynahan</i></p>
+> <b>I enjoy trying to develop a car and Mercedes are one of the biggest car manufacturers in the world.</b>
+> <p><i>Lewis Hamilton</i></p>
 
 <br>
