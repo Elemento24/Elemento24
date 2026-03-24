@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's always easier if you have the support of your family, if you're not alone. I came from a country that has been through a lot of troubles in the last 20 to 30 years, but we have been through them together.</b>
-> <p><i>Novak Djokovic</i></p>
+> <b>Everyone says, 'You give birth, you go home, and you have this amazing baby and it's just beautiful'. And I walked in and I just started sobbing.</b>
+> <p><i>Bridget Moynahan</i></p>
 
 <br>
