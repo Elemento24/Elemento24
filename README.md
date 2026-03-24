@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>1 month ago the American people stopped to remember the third anniversary of the beginning of the Iraq war. We thought first and foremost of the selflessness, patriotism and heroism by our troops, our National Guard and Reserves.</b>
-> <p><i>Rosa DeLauro</i></p>
+> <b>I do like athletes as they have amazing self-discipline.</b>
+> <p><i>Seal</i></p>
 
 <br>
