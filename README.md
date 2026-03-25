@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I lived the true American dream, because I was able to pursue what I set as my goals at a very young age.</b>
-> <p><i>Mario Andretti</i></p>
+> <b>You have to master not only the art of listening to your head, you must also master listening to your heart and listening to your gut.</b>
+> <p><i>Carly Fiorina</i></p>
 
 <br>
