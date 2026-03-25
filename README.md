@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to master not only the art of listening to your head, you must also master listening to your heart and listening to your gut.</b>
-> <p><i>Carly Fiorina</i></p>
+> <b>Working with amazing people, you continue to learn and develop yourself, as an actor and as a person.</b>
+> <p><i>Josh Hutcherson</i></p>
 
 <br>
