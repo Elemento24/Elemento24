@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Acting is still, of course, what I love to do most. The beauty of it is that by changing characters, it never gets boring.</b>
-> <p><i>Christopher Lambert</i></p>
+> <b>The best rules to form a young man, are, to talk little, to hear much, to reflect alone upon what has passed in company, to distrust one's own opinions, and value others that deserve it.</b>
+> <p><i>William Temple</i></p>
 
 <br>
