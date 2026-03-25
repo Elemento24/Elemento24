@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is such amazing talent at Disney. My job is 100% creative, and I am very excited to creatively lead them.</b>
-> <p><i>John Lasseter</i></p>
+> <b>The rewards of virtue alone abide secure.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
