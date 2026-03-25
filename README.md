@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In high school, during marathon phone conversations, cheap pizza dinners and long suburban car rides, I began to fall for boys because of who they actually were, or at least who I thought they might become.</b>
-> <p><i>J. Courtney Sullivan</i></p>
+> <b>I lived the true American dream, because I was able to pursue what I set as my goals at a very young age.</b>
+> <p><i>Mario Andretti</i></p>
 
 <br>
