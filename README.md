@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing how complete is the delusion that beauty is goodness.</b>
-> <p><i>Leo Tolstoy</i></p>
+> <b>In high school, during marathon phone conversations, cheap pizza dinners and long suburban car rides, I began to fall for boys because of who they actually were, or at least who I thought they might become.</b>
+> <p><i>J. Courtney Sullivan</i></p>
 
 <br>
