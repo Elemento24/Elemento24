@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business of America is business.</b>
-> <p><i>Calvin Coolidge</i></p>
+> <b>Nothing so conclusively proves a man's ability to lead others as what he does from day to day to lead himself.</b>
+> <p><i>Thomas J. Watson</i></p>
 
 <br>
