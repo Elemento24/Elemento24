@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best rules to form a young man, are, to talk little, to hear much, to reflect alone upon what has passed in company, to distrust one's own opinions, and value others that deserve it.</b>
-> <p><i>William Temple</i></p>
+> <b>The only way to get the best of an argument is to avoid it.</b>
+> <p><i>Dale Carnegie</i></p>
 
 <br>
