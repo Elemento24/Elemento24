@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's your mental attitude. So many of us start dreading age in high school and that's a waste of a lovely life. 'Oh... I'm 30, oh, I'm 40, oh, 50.' Make the most of it.</b>
-> <p><i>Betty White</i></p>
+> <b>Regardless of age, regardless of position, regardless of the business we happen to be in, all of us need to understand the importance of branding. We are CEOs of our own companies: Me, Inc. To be in business today, our most important job is to be head marketer for the brand called You.</b>
+> <p><i>Tom Peters</i></p>
 
 <br>
