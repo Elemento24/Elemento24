@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Regardless of age, regardless of position, regardless of the business we happen to be in, all of us need to understand the importance of branding. We are CEOs of our own companies: Me, Inc. To be in business today, our most important job is to be head marketer for the brand called You.</b>
-> <p><i>Tom Peters</i></p>
+> <b>I love my government not least for the extent to which it leaves me alone.</b>
+> <p><i>John Updike</i></p>
 
 <br>
