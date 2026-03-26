@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love my government not least for the extent to which it leaves me alone.</b>
-> <p><i>John Updike</i></p>
+> <b>The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.</b>
+> <p><i>Paul Getty</i></p>
 
 <br>
