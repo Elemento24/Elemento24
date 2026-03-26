@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You must do as your people do. If my people are poor, I must be poor. People ask me, 'Why don't you find a personal coach or a private car?' I can't. Then I won't be part of my people.</b>
-> <p><i>Haile Gebrselassie</i></p>
+> <b>At a young age, I was interested in comic books, which was really how I learnt to read. The name Cage came from a comic book character called Power Man.</b>
+> <p><i>Nicolas Cage</i></p>
 
 <br>
