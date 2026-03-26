@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our economic system, run for profit and waste and based primarily on the extractive industries, is the cause of climate change. We have wasted the earth's treasure and we can no longer exploit it cheaply.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>We're all entitled to opinions about how art institutions should behave, and entitled to voicing those opinions through whatever means available to us. We're also allowed to change or modify our opinions.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
