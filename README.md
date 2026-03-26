@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A metaphysical tour de force of untethered meaning and involuting interlocking contrapuntal rhythms, 'The Clock' is more than a movie or even a work of art. It is so strange and other-ish that it becomes a stream-of-consciousness algorithm unto itself - something almost inhuman.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>In the first book of my Discworld series, published more than 26 years ago, I introduced Death as a character there was nothing particularly new about this - death has featured in art and literature since medieval times, and for centuries we have had a fascination with the Grim Reaper.</b>
+> <p><i>Terry Pratchett</i></p>
 
 <br>
