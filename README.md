@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to talk to the bullied kids of the world. Tell them to hang on, it will get better. Know that an 'Iron Chef,' actors, musicians, artists and all successful people have probably been bullied in their life. And the best part of your life is yet to come. Whatever it takes to live, do it!</b>
-> <p><i>Cat Cora</i></p>
+> <b>So while an incredible amount of progress has been made, on this fifth anniversary, I wanted to come here and tell the people of this city directly: My administration is going to stand with you - and fight alongside you - until the job is done. Until New Orleans is all the way back, all the way.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
