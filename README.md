@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.</b>
-> <p><i>Paul Getty</i></p>
+> <b>A task becomes a duty from the moment you suspect it to be an essential part of that integrity which alone entitles a man to assume responsibility.</b>
+> <p><i>Dag Hammarskjold</i></p>
 
 <br>
