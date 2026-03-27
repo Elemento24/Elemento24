@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The American formula for creating business is not to have the government create business.</b>
-> <p><i>John Sununu</i></p>
+> <b>I like to find the beauty in the ugly. When I'm in a thrift store, I gravitate toward pieces I know I'll wear a ton, and insane pieces that I'm sure most people would consider gross. But I find them inspiring. Our van is currently stocked with some of my random findings from this tour. Maybe I'll call my aesthetic 'van fashion.'</b>
+> <p><i>Victoria Legrand</i></p>
 
 <br>
