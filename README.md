@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The video game culture was an important thing to keep alive in the film because we're in a new era right now. The idea that kids can play video games like Grand Theft Auto or any video game is amazing. The video games are one step before a whole other virtual universe.</b>
-> <p><i>Vin Diesel</i></p>
+> <b>When I was in my 20s it did occur to me that there was something perverted about an attitude that thought that killing somebody was a minor offence compared to kissing somebody.</b>
+> <p><i>John McGahern</i></p>
 
 <br>
