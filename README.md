@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you never change your mind, why have one?</b>
-> <p><i>Edward de Bono</i></p>
+> <b>The video game culture was an important thing to keep alive in the film because we're in a new era right now. The idea that kids can play video games like Grand Theft Auto or any video game is amazing. The video games are one step before a whole other virtual universe.</b>
+> <p><i>Vin Diesel</i></p>
 
 <br>
