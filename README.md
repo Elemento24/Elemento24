@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I can't find my car keys in the morning. Trying to get out of my house is a nightmare. 'Where's my wallet? Where are my keys? I have to go find a missing person.'</b>
-> <p><i>Anthony LaPaglia</i></p>
+> <b>There are people who take rumors and embellish them in a way that can be devastating. And this pollution has to be eradicated by people in our business as best we can.</b>
+> <p><i>Bob Woodward</i></p>
 
 <br>
