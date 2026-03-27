@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think you have to be a little bit strict. You can't be friend and their parent in a lot of situations, especially in this day and age where it's so dangerous for kids. So there's a bit of sternness, I guess, in the way I raise my kids.</b>
-> <p><i>Tim McGraw</i></p>
+> <b>It was just like a dream. I could have ended up with an album that's not all that different from anything else coming out of Nashville. Mutt made the difference. He took these songs, my attitude, my creativity, and colored them in a way that is unique.</b>
+> <p><i>Shania Twain</i></p>
 
 <br>
