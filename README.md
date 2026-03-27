@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are people who take rumors and embellish them in a way that can be devastating. And this pollution has to be eradicated by people in our business as best we can.</b>
-> <p><i>Bob Woodward</i></p>
+> <b>A building has integrity just like a man. And just as seldom.</b>
+> <p><i>Ayn Rand</i></p>
 
 <br>
