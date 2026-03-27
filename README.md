@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let us take things as we find them: let us not attempt to distort them into what they are not... We cannot make facts. All our wishing cannot change them. We must use them.</b>
-> <p><i>John Henry Newman</i></p>
+> <b>I think Islam has been hijacked by the idea that all Muslims are terrorists that Islam is about hate, about war, about jihad - I think that hijacks the spirituality and beauty that exists within Islam. I believe in allowing Islam to be seen in context and in its entirety and being judged on what it really is, not what you think it is.</b>
+> <p><i>Aasif Mandvi</i></p>
 
 <br>
