@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A task becomes a duty from the moment you suspect it to be an essential part of that integrity which alone entitles a man to assume responsibility.</b>
-> <p><i>Dag Hammarskjold</i></p>
+> <b>It's not catastrophes, murders, deaths, diseases, that age and kill us it's the way people look and laugh, and run up the steps of omnibuses.</b>
+> <p><i>Virginia Woolf</i></p>
 
 <br>
