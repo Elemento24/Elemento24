@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Probably only an art-worlder like me could assign deeper meaning to something as simple and silly as Tebowing. But, to us, anytime people repeat a stance or a little dance, alone or together, we see that it can mean something. Imagistic and unspoken language is our thing.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Under this window in stormy weather I marry this man and woman together Let none but Him who rules the thunder Put this man and woman asunder.</b>
+> <p><i>Jonathan Swift</i></p>
 
 <br>
