@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With just about every player in Australia, his whole goal and ambition is to play for Australia. That's why they're playing first class cricket. It's just a different attitude.</b>
-> <p><i>Shane Warne</i></p>
+> <b>Probably only an art-worlder like me could assign deeper meaning to something as simple and silly as Tebowing. But, to us, anytime people repeat a stance or a little dance, alone or together, we see that it can mean something. Imagistic and unspoken language is our thing.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
