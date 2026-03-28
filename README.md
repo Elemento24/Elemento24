@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You want to make sure this particular car is going to please the customer and then you're going to be rewarded with something that is going to please the shareholder.</b>
-> <p><i>Carlos Ghosn</i></p>
+> <b>I lived on the top of one hill and the school was at the top of another hill. Nobody ever went to school by car - we didn't have any cars during the war. So that to and from school was itself a training.</b>
+> <p><i>Roger Bannister</i></p>
 
 <br>
