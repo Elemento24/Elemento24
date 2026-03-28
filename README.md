@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I shall give you hunger, and pain, and sleepless nights. Also beauty, and satisfactions known to few, and glimpses of the heavenly life. None of these you shall have continually, and of their coming and going you shall not be foretold.</b>
-> <p><i>Howard Lindsay</i></p>
+> <b>Government alone cannot solve the problems we deal with in our correctional facilities, treatment centers, homeless shelters and crisis centers - we need our faith-based and community partners.</b>
+> <p><i>Dirk Kempthorne</i></p>
 
 <br>
