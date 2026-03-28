@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was taught from a young age that many people would treat me as a second-class citizen because I was African-American and because I was female.</b>
-> <p><i>Queen Latifah</i></p>
+> <b>At best the family teaches the finest things human beings can learn from one another generosity and love. But it is also, all too often, where we learn nasty things like hate, rage and shame.</b>
+> <p><i>Barbara Ehrenreich</i></p>
 
 <br>
