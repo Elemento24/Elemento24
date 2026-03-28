@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know my country has not perfected itself. At times, we've struggled to keep the promise of liberty and equality for all of our people. We've made our share of mistakes, and there are times when our actions around the world have not lived up to our best intentions.</b>
-> <p><i>Barack Obama</i></p>
+> <b>You always get a special kick on opening day, no matter how many you go through. You look forward to it like a birthday party when you're a kid. You think something wonderful is going to happen.</b>
+> <p><i>Joe DiMaggio</i></p>
 
 <br>
