@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fail I alone, in words and deeds? Why, all men strive and who succeeds?</b>
-> <p><i>Robert Browning</i></p>
+> <b>If you break 100, watch your golf. If you break 80, watch your business.</b>
+> <p><i>Joey Adams</i></p>
 
 <br>
