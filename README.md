@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Less is more.</b>
-> <p><i>Ludwig Mies van der Rohe</i></p>
+> <b>Actors are agents of change. A film, a piece of theater, a piece of music, or a book can make a difference. It can change the world.</b>
+> <p><i>Alan Rickman</i></p>
 
 <br>
