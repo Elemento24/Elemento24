@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Under this window in stormy weather I marry this man and woman together Let none but Him who rules the thunder Put this man and woman asunder.</b>
-> <p><i>Jonathan Swift</i></p>
+> <b>I shall give you hunger, and pain, and sleepless nights. Also beauty, and satisfactions known to few, and glimpses of the heavenly life. None of these you shall have continually, and of their coming and going you shall not be foretold.</b>
+> <p><i>Howard Lindsay</i></p>
 
 <br>
