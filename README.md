@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Emmanuel Lewis was amazing to work with. I'll love that guy to the end of time.</b>
-> <p><i>Corin Nemec</i></p>
+> <b>I was taught from a young age that many people would treat me as a second-class citizen because I was African-American and because I was female.</b>
+> <p><i>Queen Latifah</i></p>
 
 <br>
