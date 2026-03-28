@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Government alone cannot solve the problems we deal with in our correctional facilities, treatment centers, homeless shelters and crisis centers - we need our faith-based and community partners.</b>
-> <p><i>Dirk Kempthorne</i></p>
+> <b>I know my country has not perfected itself. At times, we've struggled to keep the promise of liberty and equality for all of our people. We've made our share of mistakes, and there are times when our actions around the world have not lived up to our best intentions.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
