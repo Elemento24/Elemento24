@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you break 100, watch your golf. If you break 80, watch your business.</b>
-> <p><i>Joey Adams</i></p>
+> <b>The foundations of a strong economy don't rest alone on the decisions of Chancellors or the spending programmes of government.</b>
+> <p><i>George Osborne</i></p>
 
 <br>
