@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Actors are agents of change. A film, a piece of theater, a piece of music, or a book can make a difference. It can change the world.</b>
-> <p><i>Alan Rickman</i></p>
+> <b>Because I've made a film with such an amazing director as Tarantino, I'm much more conscious of working with good directors from now on, so that's what's important to me. I don't really care about making a big movie - I just want to make good ones.</b>
+> <p><i>Melanie Laurent</i></p>
 
 <br>
