@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of the individual poems, some are more lyric and some are more descriptive or narrative. Each poem is fixed in a moment. All those moments written or read together take on the movement and architecture of a narrative.</b>
-> <p><i>Marilyn Hacker</i></p>
+> <b>I don't believe one grows older. I think that what happens early on in life is that at a certain age one stands still and stagnates.</b>
+> <p><i>T. S. Eliot</i></p>
 
 <br>
