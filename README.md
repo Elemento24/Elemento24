@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With my daughter, we do arts and crafts, we read a lot, we listen to music, and we cut the strings off balloons and bounce them around after birthday parties.</b>
-> <p><i>Lisa Loeb</i></p>
+> <b>Shanghai set out to take over from Hong Kong and I think it's done that. It's got the most amazing futuristic skyline which rivals and even betters Tokyo.</b>
+> <p><i>Paul Oakenfold</i></p>
 
 <br>
