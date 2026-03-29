@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All those involved in the construction of an architectural design, from the architect to the builder, have an attachment to the architecture, although it's difficult to quantify the attachment.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>The task of art today is to bring chaos into order.</b>
+> <p><i>Theodor Adorno</i></p>
 
 <br>
