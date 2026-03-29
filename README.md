@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's important to say that actors can't act alone, it's impossible. What we have to do is support each other.</b>
-> <p><i>Philip Seymour Hoffman</i></p>
+> <b>I have no fear of making changes, destroying the image, etc., because the painting has a life of its own.</b>
+> <p><i>Jackson Pollock</i></p>
 
 <br>
