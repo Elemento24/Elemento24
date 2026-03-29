@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any time I need to get a serious attitude adjustment, I put on one of their records, and there are examples there for all time to keep us honest and keep us reaching they'll never be eclipsed.</b>
-> <p><i>Benny Green</i></p>
+> <b>The hydrogen powered car, with its high fuel mileage and zero emission rate, is just one example of the products under development that will help increase our energy independence.</b>
+> <p><i>Dan Lipinski</i></p>
 
 <br>
