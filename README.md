@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have no fear of making changes, destroying the image, etc., because the painting has a life of its own.</b>
-> <p><i>Jackson Pollock</i></p>
+> <b>Literature is the art of discovering something extraordinary about ordinary people, and saying with ordinary words something extraordinary.</b>
+> <p><i>Boris Pasternak</i></p>
 
 <br>
