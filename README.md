@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even one voice can be heard loudly all over the world in this day and age.</b>
-> <p><i>Aung San Suu Kyi</i></p>
+> <b>All those involved in the construction of an architectural design, from the architect to the builder, have an attachment to the architecture, although it's difficult to quantify the attachment.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
