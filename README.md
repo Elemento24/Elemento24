@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people seem to understand this - that life and change take time - but I am not one of those people.</b>
-> <p><i>Anne Lamott</i></p>
+> <b>I learned the truth at seventeen, That love was meant for beauty queens, And high school girls with clear skinned smiles, Who married young and then retired.</b>
+> <p><i>Janis Ian</i></p>
 
 <br>
