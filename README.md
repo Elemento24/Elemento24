@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In LA, where I live, it's all about perfectionism. Beauty is now defined by your bones sticking out of your decolletage. For that to be the standard is really perilous for women.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>It's only when you're alone that you realize where you are. You have nothing to fall back on except your own resources.</b>
+> <p><i>Paul Theroux</i></p>
 
 <br>
