@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shanghai set out to take over from Hong Kong and I think it's done that. It's got the most amazing futuristic skyline which rivals and even betters Tokyo.</b>
-> <p><i>Paul Oakenfold</i></p>
+> <b>Of the individual poems, some are more lyric and some are more descriptive or narrative. Each poem is fixed in a moment. All those moments written or read together take on the movement and architecture of a narrative.</b>
+> <p><i>Marilyn Hacker</i></p>
 
 <br>
