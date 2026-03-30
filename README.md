@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you get to a certain age, there is no coming back.</b>
-> <p><i>Brian Clough</i></p>
+> <b>In almost every profession - whether it's law or journalism, finance or medicine or academia or running a small business - people rely on confidential communications to do their jobs. We count on the space of trust that confidentiality provides. When someone breaches that trust, we are all worse off for it.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
