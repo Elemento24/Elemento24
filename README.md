@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Modernity signifies the transitory, the fugitive, the contingent, the half of art of which the other half is the eternal and the immutable.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>In art, the hand can never execute anything higher than the heart can imagine.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
