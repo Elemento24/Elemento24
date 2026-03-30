@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no anger ever in a spiritual. There's always the dream of a hope of a better day coming. That God understands the troubles that I'm experiencing.</b>
-> <p><i>Jessye Norman</i></p>
+> <b>Dick Van Dyke was my first idol. He's an amazing physical comedian, like a classic clown, but also very smart and not afraid to show vulnerability.</b>
+> <p><i>Douglas Wood</i></p>
 
 <br>
