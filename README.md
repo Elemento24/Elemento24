@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In almost every profession - whether it's law or journalism, finance or medicine or academia or running a small business - people rely on confidential communications to do their jobs. We count on the space of trust that confidentiality provides. When someone breaches that trust, we are all worse off for it.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>I'm a big fan of Courtney Love. I love Hole and I love her acting and I love her attitude. I just hope I never meet her in a dark alley.</b>
+> <p><i>Jeff Ross</i></p>
 
 <br>
