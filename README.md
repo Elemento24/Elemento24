@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a responsibility to nurture and shepherd my talent and when I'm living the parts of my life not related to that I feel I have the right to be left alone.</b>
-> <p><i>Ashley Judd</i></p>
+> <b>There's no anger ever in a spiritual. There's always the dream of a hope of a better day coming. That God understands the troubles that I'm experiencing.</b>
+> <p><i>Jessye Norman</i></p>
 
 <br>
