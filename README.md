@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are a lot of people with a lot of money, and I'm amazed they don't understand what a great pleasure it can be to give.</b>
-> <p><i>Robert Mondavi</i></p>
+> <b>Modernity signifies the transitory, the fugitive, the contingent, the half of art of which the other half is the eternal and the immutable.</b>
+> <p><i>Charles Baudelaire</i></p>
 
 <br>
