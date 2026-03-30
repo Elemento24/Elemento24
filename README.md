@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As a speaker, business leader or marketer of any type, the onus is now on each of us to become equally capable of communicating very personally with a seemingly endless number of people connected by social technologies.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Spiritual space is lost in gaining convenience. I saw the need to create a mixture of Japanese spiritual culture and modern western architecture.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
