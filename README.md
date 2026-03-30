@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What you know about the people whom you know at all well is truly amazing, even though you have never formulated it.</b>
-> <p><i>Harry Stack Sullivan</i></p>
+> <b>When you get to a certain age, there is no coming back.</b>
+> <p><i>Brian Clough</i></p>
 
 <br>
