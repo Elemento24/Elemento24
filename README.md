@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obama won the presidency on the strength of his message and the skills of the messenger. Now the talk of hope and change feels out of tune when so many Americans are out of work, over-mortgaged, and worried that life will be even tougher for their children.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>Hold fast to youth and beauty.</b>
+> <p><i>Elizabeth Arden</i></p>
 
 <br>
