@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your body actually reminds you about your age and your injuries - the body has a stronger memory than your mind.</b>
-> <p><i>Mikhail Baryshnikov</i></p>
+> <b>Bracketing has turned all my experiences, remembered and present, into a gallery of miracles where I wander around dazzled by the beauty of events I cannot explain.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
