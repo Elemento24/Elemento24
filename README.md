@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sometimes the beauty is easy. Sometimes you don't have to try at all. Sometimes you can hear the wind blow in a handshake. Sometimes there's poetry written right on the bathroom wall.</b>
-> <p><i>Ani DiFranco</i></p>
+> <b>I have an amazing relationship with my wife, but sometimes there are arguments. It happens.</b>
+> <p><i>Kris Allen</i></p>
 
 <br>
