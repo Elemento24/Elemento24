@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nicole will come up in conversations where it's in a part of the conversation. Or we may be somewhere and I would tell some story about their mother and I. You know, we always honor her birthday.</b>
-> <p><i>O. J. Simpson</i></p>
+> <b>Sometimes the beauty is easy. Sometimes you don't have to try at all. Sometimes you can hear the wind blow in a handshake. Sometimes there's poetry written right on the bathroom wall.</b>
+> <p><i>Ani DiFranco</i></p>
 
 <br>
