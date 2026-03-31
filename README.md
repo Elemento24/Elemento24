@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One science only will one genius fit so vast is art, so narrow human wit.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>Most of these people who are celebrities now don't do anything to deserve it, so by that fact alone, I don't want to be one.</b>
+> <p><i>will.i.am</i></p>
 
 <br>
