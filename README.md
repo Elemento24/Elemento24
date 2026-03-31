@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Bracketing has turned all my experiences, remembered and present, into a gallery of miracles where I wander around dazzled by the beauty of events I cannot explain.</b>
-> <p><i>Martha Beck</i></p>
+> <b>Woman must have her freedom, the fundamental freedom of choosing whether or not she will be a mother and how many children she will have. Regardless of what man's attitude may be, that problem is hers - and before it can be his, it is hers alone.</b>
+> <p><i>Margaret Sanger</i></p>
 
 <br>
