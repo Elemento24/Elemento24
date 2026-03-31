@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be a morning-talk-show host. I love Kelly Ripa's job. She gets to live in New York and has this amazing job hosting a talk show.</b>
-> <p><i>Ellie Kemper</i></p>
+> <b>I'm not saying I wasn't flawed or amateurish. But you can never say I did anything to appease the music business.</b>
+> <p><i>Patti Smith</i></p>
 
 <br>
