@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yeah, I've worked with a couple of female directors, now, and I think that they're amazing. As good or better than guy directors.</b>
-> <p><i>Alia Shawkat</i></p>
+> <b>The amazing thing now is that most of those so-called critics who were telling me to find my own voice seem to have lost theirs.</b>
+> <p><i>Brian Lumley</i></p>
 
 <br>
