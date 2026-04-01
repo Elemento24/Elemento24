@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Obama does not represent America. Nor does he represent anything what our forefathers stood for. This country is basically built on an attitude. It's a way of life. It's not because you're born here. It's not that you're supposed to take from those who have and give to those who haven't. That kills a country. It killed Russia.</b>
-> <p><i>Luke Scott</i></p>
+> <b>Yeah, I've worked with a couple of female directors, now, and I think that they're amazing. As good or better than guy directors.</b>
+> <p><i>Alia Shawkat</i></p>
 
 <br>
