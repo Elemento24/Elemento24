@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is the most impotent of passions. It effects nothing it goes about, and hurts the one who is possessed by it more than the one against whom it is directed.</b>
-> <p><i>Carl Sandburg</i></p>
+> <b>These days too many of us seem inclined to cover our ears, close our eyes, and blindly follow the most narrow, conservative tenets of religion or else seek comfort in the ancient traditions of New Age ritual.</b>
+> <p><i>Joan D. Vinge</i></p>
 
 <br>
