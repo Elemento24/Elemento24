@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being in the business and growing up in L.A., I think I turned out pretty OK.</b>
-> <p><i>Emma Roberts</i></p>
+> <b>The beauty about the D-list is that people who are on it probably don't know they are.</b>
+> <p><i>Kathy Griffin</i></p>
 
 <br>
