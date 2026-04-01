@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to inspire people to superior performance is to convince them by everything you do and by your everyday attitude that you are wholeheartedly supporting them.</b>
-> <p><i>Harold S. Geneen</i></p>
+> <b>It was either Voltaire or Charlie Sheen who said, 'We are born alone. We live alone. We die alone. And anything in between that can give us the illusion that we're not, we cling to.'</b>
+> <p><i>Gabriel Byrne</i></p>
 
 <br>
