@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was a little different. I still say I'm a little different, because success to me is not having the most money, or having the biggest car or the biggest house.</b>
-> <p><i>Herschel Walker</i></p>
+> <b>Being in the business and growing up in L.A., I think I turned out pretty OK.</b>
+> <p><i>Emma Roberts</i></p>
 
 <br>
