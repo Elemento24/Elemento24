@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was either Voltaire or Charlie Sheen who said, 'We are born alone. We live alone. We die alone. And anything in between that can give us the illusion that we're not, we cling to.'</b>
-> <p><i>Gabriel Byrne</i></p>
+> <b>Anger is the most impotent of passions. It effects nothing it goes about, and hurts the one who is possessed by it more than the one against whom it is directed.</b>
+> <p><i>Carl Sandburg</i></p>
 
 <br>
