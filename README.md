@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>These days too many of us seem inclined to cover our ears, close our eyes, and blindly follow the most narrow, conservative tenets of religion or else seek comfort in the ancient traditions of New Age ritual.</b>
-> <p><i>Joan D. Vinge</i></p>
+> <b>Legend: A lie that has attained the dignity of age.</b>
+> <p><i>H. L. Mencken</i></p>
 
 <br>
