@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The amazing thing now is that most of those so-called critics who were telling me to find my own voice seem to have lost theirs.</b>
-> <p><i>Brian Lumley</i></p>
+> <b>Dreams are the seeds of change. Nothing ever grows without a seed, and nothing ever changes without a dream.</b>
+> <p><i>Debby Boone</i></p>
 
 <br>
