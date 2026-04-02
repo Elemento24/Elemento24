@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was dating my first boyfriend in high school for a long time, and we broke up before prom. I hadn't met anyone else that I really wanted to go with, and my friends have always been amazing. So I went with my friends and got a million photos with them!</b>
-> <p><i>Shay Mitchell</i></p>
+> <b>I think I would cope like anyone copes with any tragedy. I'm sure I would be very upset for a while and then there would come a point where I would either have to stay in this place of darkness and anger, or I'd have to accept that it happened.</b>
+> <p><i>Jason Ritter</i></p>
 
 <br>
