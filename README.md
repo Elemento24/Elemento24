@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dreams are the seeds of change. Nothing ever grows without a seed, and nothing ever changes without a dream.</b>
-> <p><i>Debby Boone</i></p>
+> <b>I don't know why, it's the same reason why you like some music and you don't like others. There's something about it that you like. Ultimately I don't find it's in my best interests to try and analyze it, since it's fundamentally emotional.</b>
+> <p><i>Jerry Garcia</i></p>
 
 <br>
