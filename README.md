@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The second album was emotionally exhausting and my life felt like it had become very serious at a very young age.</b>
-> <p><i>Delta Goodrem</i></p>
+> <b>The world does not need tourists who ride by in a bus clucking their tongues. The world as it is needs those who will love it enough to change it, with what they have, where they are.</b>
+> <p><i>Robert Fulghum</i></p>
 
 <br>
