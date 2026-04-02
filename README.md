@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest writers of this age... are aware of the mystery of our existence.</b>
-> <p><i>J. B. Priestley</i></p>
+> <b>An investment in knowledge pays the best interest.</b>
+> <p><i>Benjamin Franklin</i></p>
 
 <br>
