@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We hold that the most wonderful and splendid proof of genius is a great poem produced in a civilized age.</b>
-> <p><i>Thomas B. Macaulay</i></p>
+> <b>My parents were amazing and wonderful, but there was a lot of pressure to do my best and in every way possible.</b>
+> <p><i>Kate Bosworth</i></p>
 
 <br>
