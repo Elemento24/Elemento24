@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Work and struggle and never accept an evil that you can change.</b>
-> <p><i>Andre Gide</i></p>
+> <b>Isn't it amazing how celebrity status preempts even the most ingrained hatreds?</b>
+> <p><i>Camryn Manheim</i></p>
 
 <br>
