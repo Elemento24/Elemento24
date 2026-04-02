@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An investment in knowledge pays the best interest.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>Emotion resulting from a work of art is only of value when it is not obtained by sentimental blackmail.</b>
+> <p><i>Jean Cocteau</i></p>
 
 <br>
