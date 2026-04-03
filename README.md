@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A healthy attitude is contagious but don't wait to catch it from others. Be a carrier.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>Making checklists of things you're looking for in a person is the numero uno thing you can do to guarantee you'll be alone forever.</b>
+> <p><i>Joseph Gordon-Levitt</i></p>
 
 <br>
