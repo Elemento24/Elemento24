@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude of the actor is his interpretation of what he reads, and the written word is what creates the role in the actor's mind, and I guess in reading the things that were given to me, I reacted as you guys saw me, you know.</b>
-> <p><i>Gene Barry</i></p>
+> <b>I'd really like to get the girl, shoot the gun, drive the car, have fun. I even have these kind of action dreams, where I'm the action guy.</b>
+> <p><i>Kevin Bacon</i></p>
 
 <br>
