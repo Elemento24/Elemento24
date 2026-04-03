@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The death of any man aged 56 is very sad for his widow and family. And no one would deny that Steve Jobs was a brilliant and highly innovative technician, with great business flair and marketing ability.</b>
-> <p><i>A. N. Wilson</i></p>
+> <b>The attitude of the actor is his interpretation of what he reads, and the written word is what creates the role in the actor's mind, and I guess in reading the things that were given to me, I reacted as you guys saw me, you know.</b>
+> <p><i>Gene Barry</i></p>
 
 <br>
