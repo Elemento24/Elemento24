@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I would cope like anyone copes with any tragedy. I'm sure I would be very upset for a while and then there would come a point where I would either have to stay in this place of darkness and anger, or I'd have to accept that it happened.</b>
-> <p><i>Jason Ritter</i></p>
+> <b>Though there might not be any easy answers to the problem of poverty, its most compelling scribes do not resign themselves to representation solely for the sake of those age-old verities of truth and beauty.</b>
+> <p><i>Leslie Jamison</i></p>
 
 <br>
