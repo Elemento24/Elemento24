@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I thought it was amazing to work with authors, to get a manuscript and try to make up a cover for it.</b>
-> <p><i>Dick Bruna</i></p>
+> <b>I like physics. I think it is the best science out of all three of them, because generally it's more useful. You learn about speed and velocity and time, and that's all clever stuff.</b>
+> <p><i>Tom Felton</i></p>
 
 <br>
