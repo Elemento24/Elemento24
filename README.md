@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Though there might not be any easy answers to the problem of poverty, its most compelling scribes do not resign themselves to representation solely for the sake of those age-old verities of truth and beauty.</b>
-> <p><i>Leslie Jamison</i></p>
+> <b>When you're a stay-at-home mother you have to pretend it's really boring, but it's not. It's enriching and fulfilling, and an amazing experience. And then when you're a working mother you have to pretend that you feel guilty all day long.</b>
+> <p><i>Amy Poehler</i></p>
 
 <br>
