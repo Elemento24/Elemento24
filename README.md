@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The earth was made so various, that the mind Of desultory man, studious of change, And pleased with novelty, might be indulged.</b>
-> <p><i>William Cowper</i></p>
+> <b>A healthy attitude is contagious but don't wait to catch it from others. Be a carrier.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
