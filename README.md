@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Get mad, then get over it.</b>
-> <p><i>Colin Powell</i></p>
+> <b>I thought it was amazing to work with authors, to get a manuscript and try to make up a cover for it.</b>
+> <p><i>Dick Bruna</i></p>
 
 <br>
