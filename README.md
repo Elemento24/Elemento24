@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Comedians walk out, get a feel for the crowd. If it's not going good, we change directions. If we got to drag your momma into this thing, we will. Whatever we got to do.</b>
-> <p><i>Steve Harvey</i></p>
+> <b>Revived in this country the long forgotten beauties of Gothic architecture.</b>
+> <p><i>James Wyatt</i></p>
 
 <br>
