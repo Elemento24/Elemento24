@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Revived in this country the long forgotten beauties of Gothic architecture.</b>
-> <p><i>James Wyatt</i></p>
+> <b>In business, you're the Chief Salesman. Create a sense of demand, rather than waiting to have demand.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
