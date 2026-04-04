@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People think, 'She's a model. She must have such an attitude. She must be so stuck up.' But I'm normal. I cry. I'm not rich. I drive a 1987 Chevrolet Celebrity.</b>
-> <p><i>Summer Altice</i></p>
+> <b>Comedians walk out, get a feel for the crowd. If it's not going good, we change directions. If we got to drag your momma into this thing, we will. Whatever we got to do.</b>
+> <p><i>Steve Harvey</i></p>
 
 <br>
