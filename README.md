@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are generally amazed that I would take an interest in any form that would require me to stop talking for three hours.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace.</b>
+> <p><i>Morihei Ueshiba</i></p>
 
 <br>
