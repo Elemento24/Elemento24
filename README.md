@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life is the only art that we are required to practice without preparation, and without being allowed the preliminary trials, the failures and botches, that are essential for training.</b>
-> <p><i>Lewis Mumford</i></p>
+> <b>People are generally amazed that I would take an interest in any form that would require me to stop talking for three hours.</b>
+> <p><i>Henry A. Kissinger</i></p>
 
 <br>
