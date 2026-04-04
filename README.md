@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never lend your car to anyone to whom you have given birth.</b>
-> <p><i>Erma Bombeck</i></p>
+> <b>If you can't change your fate, change your attitude.</b>
+> <p><i>Charles Revson</i></p>
 
 <br>
