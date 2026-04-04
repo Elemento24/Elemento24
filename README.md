@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Going to car racing school was phenomenal.</b>
-> <p><i>Michelle Rodriguez</i></p>
+> <b>Never lend your car to anyone to whom you have given birth.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
