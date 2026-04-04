@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young. The greatest thing in life is to keep your mind young.</b>
-> <p><i>Henry Ford</i></p>
+> <b>Middle age is when your old classmates are so grey and wrinkled and bald they don't recognize you.</b>
+> <p><i>Bennett Cerf</i></p>
 
 <br>
