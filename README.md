@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace.</b>
-> <p><i>Morihei Ueshiba</i></p>
+> <b>It's not beauty but fine qualities, my girl, that keep a husband.</b>
+> <p><i>Euripides</i></p>
 
 <br>
