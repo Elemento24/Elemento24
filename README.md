@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Design must reflect the practical and aesthetic in business but above all... good design must primarily serve people.</b>
-> <p><i>Thomas J. Watson</i></p>
+> <b>I'd be lying if I said I wasn't angry some days. But I really have worked hard to put a lot of the anger and disappointment in the past.</b>
+> <p><i>Monica Lewinsky</i></p>
 
 <br>
