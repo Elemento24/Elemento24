@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing more requisite in business than despatch.</b>
-> <p><i>Joseph Addison</i></p>
+> <b>I get a lot of return business. I think it's all those years I put in traveling around the country people saw me before and had a good time so they want to see me again.</b>
+> <p><i>Rita Rudner</i></p>
 
 <br>
