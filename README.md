@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Raising a small child as a woman while travelling 10 months out of the year would, I believe, be something I would not be able or even want to do, although with the amazing example of Leila, I am no longer so sure.</b>
-> <p><i>Lara St. John</i></p>
+> <b>The trick of this thing and the beauty of this thing is that it's a cowboy movie first and then stuff happens. Even after stuff happens it doesn't change - it hasn't suddenly changed into another kind of movie. It's still a cowboy movie. And that's what's incredible about it because nobody has done that before, that's new territory.</b>
+> <p><i>Harrison Ford</i></p>
 
 <br>
