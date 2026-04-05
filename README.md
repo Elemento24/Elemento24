@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I get a lot of return business. I think it's all those years I put in traveling around the country people saw me before and had a good time so they want to see me again.</b>
-> <p><i>Rita Rudner</i></p>
+> <b>Isn't it amazing the way the future succeeds in creating an appropriate past?</b>
+> <p><i>John Leonard</i></p>
 
 <br>
