@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not ugly, but my beauty is a total creation.</b>
-> <p><i>Georg Wilhelm Friedrich Hegel</i></p>
+> <b>Anger: an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
