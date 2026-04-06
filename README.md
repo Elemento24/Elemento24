@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the best friend. An educated person is respected everywhere. Education beats the beauty and the youth.</b>
-> <p><i>Chanakya</i></p>
+> <b>Forgiveness is the economy of the heart... forgiveness saves the expense of anger, the cost of hatred, the waste of spirits.</b>
+> <p><i>Hannah More</i></p>
 
 <br>
