@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had a very happy childhood, but I wasn't that happy a child. I liked being alone and creating characters and voices. I think that's when your creativity is developed, when you're young. I liked the world of the imagination because it was an easy place to go to.</b>
-> <p><i>David Walliams</i></p>
+> <b>Because most people are not sufficiently employed in themselves, they run about loose, hungering for employment, and satisfy themselves in various supererogatory occupations. The easiest of these occupations, which have all to do with making things already made, is the making of people: it is called the art of friendship.</b>
+> <p><i>Laura Riding</i></p>
 
 <br>
