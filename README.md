@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I need some isolation, it's necessary to me, that's just who I am. I need to be left alone.</b>
-> <p><i>Laura Marling</i></p>
+> <b>I'm not ugly, but my beauty is a total creation.</b>
+> <p><i>Georg Wilhelm Friedrich Hegel</i></p>
 
 <br>
