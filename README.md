@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I wanted to be a forest ranger or a coal man. At a very early age, I knew I didn't want to do what my dad did, which was work in an office.</b>
-> <p><i>Harrison Ford</i></p>
+> <b>I read and walked for miles at night along the beach, writing bad blank verse and searching endlessly for someone wonderful who would step out of the darkness and change my life. It never crossed my mind that that person could be me.</b>
+> <p><i>Anna Quindlen</i></p>
 
 <br>
