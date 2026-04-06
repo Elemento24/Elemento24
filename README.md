@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To engage with art, we have to be willing to be wrong, venture outside our psychic comfort zones, suspend disbelief, and remember that art explores and alters consciousness simultaneously.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Traditionally, Medicare's assurance has been that for the elderly and persons with disabilities that they will not be alone when confronted with the full burden of their health care costs.</b>
+> <p><i>Mike Fitzpatrick</i></p>
 
 <br>
