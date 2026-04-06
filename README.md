@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because most people are not sufficiently employed in themselves, they run about loose, hungering for employment, and satisfy themselves in various supererogatory occupations. The easiest of these occupations, which have all to do with making things already made, is the making of people: it is called the art of friendship.</b>
-> <p><i>Laura Riding</i></p>
+> <b>Education is the best friend. An educated person is respected everywhere. Education beats the beauty and the youth.</b>
+> <p><i>Chanakya</i></p>
 
 <br>
