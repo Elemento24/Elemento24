@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude of physiological psychology to sensations and feelings, considered as psychical elements, is, naturally, the attitude of psychology at large.</b>
-> <p><i>Wilhelm Wundt</i></p>
+> <b>Show business has been really, really good to me because I can work and take a lot of time off, and I'm extremely undisciplined person.</b>
+> <p><i>Meryl Streep</i></p>
 
 <br>
