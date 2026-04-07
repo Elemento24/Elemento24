@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Far away there in the sunshine are my highest aspirations. I may not reach them, but I can look up and see their beauty, believe in them, and try to follow where they lead.</b>
-> <p><i>Louisa May Alcott</i></p>
+> <b>To all the positions, I just bring the determination to win. Me being an unselfish player, I think that can carry on to my teammates. When you have one of the best players on the court being unselfish, I think that transfers to the other players.</b>
+> <p><i>LeBron James</i></p>
 
 <br>
