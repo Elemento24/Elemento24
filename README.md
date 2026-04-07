@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a very brave person. I can go to North Vietnam, I can challenge my government, but I can't challenge the man I'm with if means I'm going to end up alone.</b>
-> <p><i>Jane Fonda</i></p>
+> <b>Flirting is the gentle art of making a man feel pleased with himself.</b>
+> <p><i>Helen Rowland</i></p>
 
 <br>
