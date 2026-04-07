@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Flirting is the gentle art of making a man feel pleased with himself.</b>
-> <p><i>Helen Rowland</i></p>
+> <b>I have the most amazing support network around me.</b>
+> <p><i>Jenny Frost</i></p>
 
 <br>
