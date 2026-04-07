@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best weapon of a dictatorship is secrecy, but the best weapon of a democracy should be the weapon of openness.</b>
-> <p><i>Niels Bohr</i></p>
+> <b>Action and reaction, ebb and flow, trial and error, change - this is the rhythm of living. Out of our over-confidence, fear out of our fear, clearer vision, fresh hope. And out of hope, progress.</b>
+> <p><i>Bruce Barton</i></p>
 
 <br>
