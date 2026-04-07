@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He who is incapable of feeling strong passions, of being shaken by anger, of living in every sense of the word, will never be a good actor.</b>
-> <p><i>Sarah Bernhardt</i></p>
+> <b>The ultimate victory in competition is derived from the inner satisfaction of knowing that you have done your best and that you have gotten the most out of what you had to give.</b>
+> <p><i>Howard Cosell</i></p>
 
 <br>
