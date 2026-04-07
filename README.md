@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If philosophy is practice, a demand to know the manner in which its history is to be studied is entailed: a theoretical attitude toward it becomes real only in the living appropriation of its contents from the texts.</b>
-> <p><i>Karl Jaspers</i></p>
+> <b>To live alone is the fate of all great souls.</b>
+> <p><i>Arthur Schopenhauer</i></p>
 
 <br>
