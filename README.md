@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As an American, you have a right to good health care that is effective, accessible, and affordable, that serves you from infancy through old age, that allows you to go to practitioners and facilities of your choosing, and that offers a broad range of therapeutic options.</b>
-> <p><i>Andrew Weil</i></p>
+> <b>Informed decision-making comes from a long tradition of guessing and then blaming others for inadequate results.</b>
+> <p><i>Scott Adams</i></p>
 
 <br>
