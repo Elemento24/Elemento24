@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is a science arising out of many other sciences, and adorned with much and varied learning by the help of which a judgment is formed of those works which are the result of other arts.</b>
-> <p><i>Marcus V. Pollio</i></p>
+> <b>The thing is, I don't believe in most of what's done. The amount of financial and imaginative energy that's put into mediocrity is just amazing which I find to be fundamentally offensive as a human being.</b>
+> <p><i>William Hurt</i></p>
 
 <br>
