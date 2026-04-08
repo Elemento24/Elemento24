@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business of the advertiser is to see that we go about our business with some magic spell or tune or slogan throbbing quietly in the background of our minds.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>Literature isn't a moral beauty contest. Its power arises from the authority and audacity with which the impersonation is pulled off the belief it inspires is what counts.</b>
+> <p><i>Philip Roth</i></p>
 
 <br>
