@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because primarily of the power of the Internet, people of modest means can band together and amass vast sums of money that can change the world for some public good if they all agree.</b>
-> <p><i>William J. Clinton</i></p>
+> <b>Architecture is a science arising out of many other sciences, and adorned with much and varied learning by the help of which a judgment is formed of those works which are the result of other arts.</b>
+> <p><i>Marcus V. Pollio</i></p>
 
 <br>
