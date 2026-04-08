@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love photo sessions. I'm alone, I'm the queen, everyone's taking care of me.</b>
-> <p><i>Eva Herzigova</i></p>
+> <b>I don't like people who have never fallen or stumbled. Their virtue is lifeless and it isn't of much value. Life hasn't revealed its beauty to them.</b>
+> <p><i>Boris Pasternak</i></p>
 
 <br>
