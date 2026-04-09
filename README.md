@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People may hear your words, but they feel your attitude.</b>
-> <p><i>John C. Maxwell</i></p>
+> <b>I've always taught that a poor economy is the best opportunity for salespeople because the naysayers and grumblers have already given up, leaving more territory, more opportunities to be successful than in a good economy when virtually all salespeople are out there, giving it their best.</b>
+> <p><i>Zig Ziglar</i></p>
 
 <br>
