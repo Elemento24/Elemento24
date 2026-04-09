@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Spiritual space is lost in gaining convenience. I saw the need to create a mixture of Japanese spiritual culture and modern western architecture.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>I hope to find the roles that are age appropriate but not yearning to be younger, or parenting ad nauseam.</b>
+> <p><i>Debra Winger</i></p>
 
 <br>
