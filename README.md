@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hope to find the roles that are age appropriate but not yearning to be younger, or parenting ad nauseam.</b>
-> <p><i>Debra Winger</i></p>
+> <b>It is error alone which needs the support of government. Truth can stand by itself.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
