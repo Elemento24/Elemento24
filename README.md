@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I felt a tremendous sadness for men who can't deal with a woman of their own age.</b>
-> <p><i>Michael Caine</i></p>
+> <b>A positive attitude is something everyone can work on, and everyone can learn how to employ it.</b>
+> <p><i>Joan Lunden</i></p>
 
 <br>
