@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's better for me to play with guys because Rock 'n' Roll has such an aggressive attitude.</b>
-> <p><i>Lita Ford</i></p>
+> <b>Happy the man, and happy he alone, he who can call today his own he who, secure within, can say, tomorrow do thy worst, for I have lived today.</b>
+> <p><i>John Dryden</i></p>
 
 <br>
