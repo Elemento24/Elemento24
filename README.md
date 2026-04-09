@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always taught that a poor economy is the best opportunity for salespeople because the naysayers and grumblers have already given up, leaving more territory, more opportunities to be successful than in a good economy when virtually all salespeople are out there, giving it their best.</b>
-> <p><i>Zig Ziglar</i></p>
+> <b>I don't think radio is selling records like they used to. They'd hawk the song and hawk the artist and you'd get so excited, you'd stop your car and go into the nearest record store.</b>
+> <p><i>Herb Alpert</i></p>
 
 <br>
