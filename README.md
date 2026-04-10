@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Los Angeles, by the time you're 35, you're older than most of the buildings.</b>
-> <p><i>Delia Ephron</i></p>
+> <b>We are not weak if we make a proper use of those means which the God of Nature has placed in our power... the battle, sir, is not to the strong alone it is to the vigilant, the active, the brave.</b>
+> <p><i>Patrick Henry</i></p>
 
 <br>
