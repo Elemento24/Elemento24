@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yeah, well I think anyone who likes fast cars will love the Tesla. And it has fantastic handling by the way. I mean this car will crush a Porsche on the track, just crush it. So if you like fast cars, you'll love this car. And then oh, by the way, it happens to be electric and it's twice the efficiency of a Prius.</b>
-> <p><i>Elon Musk</i></p>
+> <b>Tell me, why is the media here so negative? Why are we in India so embarrassed to recognise our own strengths, our achievements? We are such a great nation. We have so many amazing success stories but we refuse to acknowledge them. Why?</b>
+> <p><i>Abdul Kalam</i></p>
 
 <br>
