@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The human soul needs actual beauty more than bread.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>It is absolutely impossible to transcend the laws of nature. What can change in historically different circumstances is only the form in which these laws expose themselves.</b>
+> <p><i>Karl Marx</i></p>
 
 <br>
