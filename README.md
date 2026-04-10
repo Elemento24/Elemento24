@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are not weak if we make a proper use of those means which the God of Nature has placed in our power... the battle, sir, is not to the strong alone it is to the vigilant, the active, the brave.</b>
-> <p><i>Patrick Henry</i></p>
+> <b>The human soul needs actual beauty more than bread.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
