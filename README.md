@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To say the word Romanticism is to say modern art - that is, intimacy, spirituality, color, aspiration towards the infinite, expressed by every means available to the arts.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>If one does not know to which port one is sailing, no wind is favorable.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
