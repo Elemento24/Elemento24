@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best preparation for tomorrow is doing your best today.</b>
-> <p><i>H. Jackson Brown, Jr.</i></p>
+> <b>There has been a change in attitude, though.</b>
+> <p><i>Daniel Petrie</i></p>
 
 <br>
