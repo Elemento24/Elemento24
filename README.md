@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Talent alone won't make you a success. Neither will being in the right place at the right time, unless you are ready. The most important question is: 'Are your ready?'</b>
-> <p><i>Johnny Carson</i></p>
+> <b>The best preparation for tomorrow is doing your best today.</b>
+> <p><i>H. Jackson Brown, Jr.</i></p>
 
 <br>
