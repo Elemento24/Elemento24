@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way you can get good, unless you're a genius, is to copy. That's the best thing. Just steal.</b>
-> <p><i>Ritchie Blackmore</i></p>
+> <b>100 million iphones don't lie. What an amazing man. He is the apple of all of our i's. We have an i everything and its all so amazing.</b>
+> <p><i>Billy Bush</i></p>
 
 <br>
