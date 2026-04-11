@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of a woman is not in the clothes she wears, the figure that she carries or the way she combs her hair.</b>
-> <p><i>Audrey Hepburn</i></p>
+> <b>I love vintage shopping, I think it's really fun. And I love the feeling of finding the most amazing piece for less.</b>
+> <p><i>Emma Roberts</i></p>
 
 <br>
