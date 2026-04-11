@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a drugstore beauty girl, I love going to the drugstore and buying makeup.</b>
-> <p><i>Melanie Fiona</i></p>
+> <b>If you feel like it's difficult to change, you will probably have a harder time succeeding.</b>
+> <p><i>Andrea Jung</i></p>
 
 <br>
