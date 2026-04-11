@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is veneer, rouge, aestheticism, art museums, new theaters, etc. that make America impotent. The good things are football, kindness, and jazz bands.</b>
-> <p><i>George Santayana</i></p>
+> <b>It seems that when you get to a certain age you almost give yourself permission to misbehave and say what you think. People allow it, with very old people.</b>
+> <p><i>Julie Walters</i></p>
 
 <br>
