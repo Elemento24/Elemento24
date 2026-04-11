@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Except for politics, no business is scrutinized more exhaustively than journalism.</b>
-> <p><i>Russell Baker</i></p>
+> <b>I mean, the shoe - there is a music to it, there is attitude, there is sound, it's a movement. Clothes - it's a different story. There are a million things I'd rather do before designing clothes: directing, landscaping.</b>
+> <p><i>Christian Louboutin</i></p>
 
 <br>
