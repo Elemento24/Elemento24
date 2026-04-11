@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems that when you get to a certain age you almost give yourself permission to misbehave and say what you think. People allow it, with very old people.</b>
-> <p><i>Julie Walters</i></p>
+> <b>Tell me who is able to keep his bed chaste, or which goddess is able to live with one god alone?</b>
+> <p><i>Sextus Propertius</i></p>
 
 <br>
