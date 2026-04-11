@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Driving race cars was an avenue for me to learn how to build my own car, and that was my ambition all along.</b>
-> <p><i>Caroll Shelby</i></p>
+> <b>When it comes to cars, only two varieties of people are possible - cowards and fools.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
