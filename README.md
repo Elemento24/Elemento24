@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love MySpace it's done an amazing job for me and it's been insane over the past couple of weeks, but I'm not a poster girl for them.</b>
-> <p><i>Lily Allen</i></p>
+> <b>The progress of evolution from President Washington to President Grant was alone evidence to upset Darwin.</b>
+> <p><i>Henry Adams</i></p>
 
 <br>
