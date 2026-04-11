@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old friends are best.</b>
-> <p><i>John Selden</i></p>
+> <b>I hope that in some way that I can be some sort of beacon of hope, especially because I am not the typical Hollywood beauty.</b>
+> <p><i>Octavia Spencer</i></p>
 
 <br>
