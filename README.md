@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think all teenagers feel alone, and that nobody else knows what they are going through and all that sort of stuff.</b>
-> <p><i>Nicholas Hoult</i></p>
+> <b>Except for politics, no business is scrutinized more exhaustively than journalism.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
