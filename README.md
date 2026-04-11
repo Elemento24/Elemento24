@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Tell me who is able to keep his bed chaste, or which goddess is able to live with one god alone?</b>
-> <p><i>Sextus Propertius</i></p>
+> <b>The only way you can get good, unless you're a genius, is to copy. That's the best thing. Just steal.</b>
+> <p><i>Ritchie Blackmore</i></p>
 
 <br>
