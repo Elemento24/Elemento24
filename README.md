@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I could go away tomorrow. I've already accomplished something. It's such a selfish business that sometimes I get sick of myself.</b>
-> <p><i>Jim Carrey</i></p>
+> <b>The magic kit we developed with Idea Village is an extraordinary success in 40,000 stores across America. The TV commercial we shot for it has produced amazing results - unbelievable.</b>
+> <p><i>Criss Angel</i></p>
 
 <br>
