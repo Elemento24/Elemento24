@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If there is anything that we wish to change in the child, we should first examine it and see whether it is not something that could better be changed in ourselves.</b>
-> <p><i>Carl Jung</i></p>
+> <b>Stop this attitude that older people ain't any good anymore! We're as good as we ever were - if we ever were any good.</b>
+> <p><i>Dolly Parton</i></p>
 
 <br>
