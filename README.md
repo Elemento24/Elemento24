@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Jersey stands alone, and because I'm from Jersey, I never make fun of where people are from. I'll make fun of what they look like, but I'll never make fun of where they are from. Jersey is special.</b>
-> <p><i>Jeff Ross</i></p>
+> <b>I think I could go away tomorrow. I've already accomplished something. It's such a selfish business that sometimes I get sick of myself.</b>
+> <p><i>Jim Carrey</i></p>
 
 <br>
