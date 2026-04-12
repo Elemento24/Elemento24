@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hope that in some way that I can be some sort of beacon of hope, especially because I am not the typical Hollywood beauty.</b>
-> <p><i>Octavia Spencer</i></p>
+> <b>Beauty, unlike the rest of the gifts handed out at birth, does not require dedication, patience and hard work to pay off. But it's also the only gift that does not keep on giving.</b>
+> <p><i>Paulina Porizkova</i></p>
 
 <br>
