@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The magic kit we developed with Idea Village is an extraordinary success in 40,000 stores across America. The TV commercial we shot for it has produced amazing results - unbelievable.</b>
-> <p><i>Criss Angel</i></p>
+> <b>I've always leaned toward a feminine, funky style, even in business settings. I used to paint my nails blue in 1993, before it was mainstream.</b>
+> <p><i>Sara Blakely</i></p>
 
 <br>
