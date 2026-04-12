@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like to change characters and then, slowly I believe the audience treat me as, like an actor who can fight. It's not like an action star.</b>
-> <p><i>Jackie Chan</i></p>
+> <b>If there is anything that we wish to change in the child, we should first examine it and see whether it is not something that could better be changed in ourselves.</b>
+> <p><i>Carl Jung</i></p>
 
 <br>
