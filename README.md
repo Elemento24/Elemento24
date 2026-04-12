@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unfortunately we don't have all the bits and pieces on the car that we had hoped to have by this stage so we've got to make as good a job as we can with what we have and we feel we are doing well with that at the moment.</b>
-> <p><i>David Leslie</i></p>
+> <b>Creative thinking inspires ideas. Ideas inspire change.</b>
+> <p><i>Barbara Januszkiewicz</i></p>
 
 <br>
