@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm taking a bit of a wait-and-see attitude towards 3D.</b>
-> <p><i>Christopher Nolan</i></p>
+> <b>I have a right to my anger, and I don't want anybody telling me I shouldn't be, that it's not nice to be, and that something's wrong with me because I get angry.</b>
+> <p><i>Maxine Waters</i></p>
 
 <br>
