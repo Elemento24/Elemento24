@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Creative thinking inspires ideas. Ideas inspire change.</b>
-> <p><i>Barbara Januszkiewicz</i></p>
+> <b>I'm taking a bit of a wait-and-see attitude towards 3D.</b>
+> <p><i>Christopher Nolan</i></p>
 
 <br>
