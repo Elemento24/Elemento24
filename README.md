@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty, unlike the rest of the gifts handed out at birth, does not require dedication, patience and hard work to pay off. But it's also the only gift that does not keep on giving.</b>
-> <p><i>Paulina Porizkova</i></p>
+> <b>I've never seen a worse situation than that of young writers in the United States. The publishing business in North America is so commercialized.</b>
+> <p><i>Manuel Puig</i></p>
 
 <br>
