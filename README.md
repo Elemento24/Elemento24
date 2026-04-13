@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The hardest thing to understand in the world is the income tax.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>Advertising is a racket, like the movies and the brokerage business. You cannot be honest without admitting that its constructive contribution to humanity is exactly minus zero.</b>
+> <p><i>F. Scott Fitzgerald</i></p>
 
 <br>
