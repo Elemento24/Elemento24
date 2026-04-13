@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Going to car racing school was phenomenal.</b>
-> <p><i>Michelle Rodriguez</i></p>
+> <b>The hardest thing to understand in the world is the income tax.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
