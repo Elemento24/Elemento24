@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Artists don't talk about art. Artists talk about work. If I have anything to say to young writers, it's stop thinking of writing as art. Think of it as work.</b>
-> <p><i>Paddy Chayefsky</i></p>
+> <b>It's a tricky place, especially the last sector. I wasn't happy in practice. I wasn't happy with the car and I wasn't happy with myself. But I always thought there was more in the car.</b>
+> <p><i>Sebastian Vettel</i></p>
 
 <br>
