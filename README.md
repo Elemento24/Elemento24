@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think any man in business would be foolish to fool around with his secretary. If it's somebody else's secretary, fine.</b>
-> <p><i>Barry Goldwater</i></p>
+> <b>You have to master not only the art of listening to your head, you must also master listening to your heart and listening to your gut.</b>
+> <p><i>Carly Fiorina</i></p>
 
 <br>
