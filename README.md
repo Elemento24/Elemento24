@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For Forms of Government let fools contest whatever is best administered is best.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>I came back to work when my children were two months old. At that early age, they seem to have little awareness of anybody but their Raggedy Ann dolls, so it wasn't a matter of them missing me. I was missing them.</b>
+> <p><i>Jane Pauley</i></p>
 
 <br>
