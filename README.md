@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate show business.</b>
-> <p><i>Joni Mitchell</i></p>
+> <b>For Forms of Government let fools contest whatever is best administered is best.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
