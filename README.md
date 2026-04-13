@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Advertising is a racket, like the movies and the brokerage business. You cannot be honest without admitting that its constructive contribution to humanity is exactly minus zero.</b>
-> <p><i>F. Scott Fitzgerald</i></p>
+> <b>I never had little brothers, so I was totally not used to hearing a lot of cussing at a young age! I learned what 'pull my finger' meant the hard way.</b>
+> <p><i>Danica McKellar</i></p>
 
 <br>
