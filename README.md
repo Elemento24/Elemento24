@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's a tricky place, especially the last sector. I wasn't happy in practice. I wasn't happy with the car and I wasn't happy with myself. But I always thought there was more in the car.</b>
-> <p><i>Sebastian Vettel</i></p>
+> <b>The foundations of a strong economy don't rest alone on the decisions of Chancellors or the spending programmes of government.</b>
+> <p><i>George Osborne</i></p>
 
 <br>
