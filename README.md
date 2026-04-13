@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The foundations of a strong economy don't rest alone on the decisions of Chancellors or the spending programmes of government.</b>
-> <p><i>George Osborne</i></p>
+> <b>I think any man in business would be foolish to fool around with his secretary. If it's somebody else's secretary, fine.</b>
+> <p><i>Barry Goldwater</i></p>
 
 <br>
