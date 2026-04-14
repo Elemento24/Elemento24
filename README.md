@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never had little brothers, so I was totally not used to hearing a lot of cussing at a young age! I learned what 'pull my finger' meant the hard way.</b>
-> <p><i>Danica McKellar</i></p>
+> <b>There is small risk a general will be regarded with contempt by those he leads, if, whatever he may have to preach, he shows himself best able to perform.</b>
+> <p><i>Xenophon</i></p>
 
 <br>
