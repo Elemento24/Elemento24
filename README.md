@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Attitude determines the altitude of life.</b>
-> <p><i>Edwin Louis Cole</i></p>
+> <b>The reason I met my husband was because I remembered a friend's birthday. The moral of the story is: Remember people's birthdays.</b>
+> <p><i>Julianna Margulies</i></p>
 
 <br>
