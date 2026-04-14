@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Use what talents you possess the woods would be very silent if no birds sang there except those that sang best.</b>
-> <p><i>Henry Van Dyke</i></p>
+> <b>Attitude determines the altitude of life.</b>
+> <p><i>Edwin Louis Cole</i></p>
 
 <br>
