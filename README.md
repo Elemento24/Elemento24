@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who love him love that he sells the most art they take it as a point of faith that this proves Kinkade is the best. But his fans don't only rely on this supply-and-demand justification. They go back to values.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>The hours I spend with you I look upon as sort of a perfumed garden, a dim twilight, and a fountain singing to it. You and you alone make me feel that I am alive. Other men it is said have seen angels, but I have seen thee and thou art enough.</b>
+> <p><i>George Edward Moore</i></p>
 
 <br>
