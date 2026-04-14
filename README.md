@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The hours I spend with you I look upon as sort of a perfumed garden, a dim twilight, and a fountain singing to it. You and you alone make me feel that I am alive. Other men it is said have seen angels, but I have seen thee and thou art enough.</b>
-> <p><i>George Edward Moore</i></p>
+> <b>I believe in prayer. It's the best way we have to draw strength from heaven.</b>
+> <p><i>Josephine Baker</i></p>
 
 <br>
