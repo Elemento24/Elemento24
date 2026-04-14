@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is small risk a general will be regarded with contempt by those he leads, if, whatever he may have to preach, he shows himself best able to perform.</b>
-> <p><i>Xenophon</i></p>
+> <b>Use what talents you possess the woods would be very silent if no birds sang there except those that sang best.</b>
+> <p><i>Henry Van Dyke</i></p>
 
 <br>
