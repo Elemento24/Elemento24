@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have two younger sisters and I'm such an advocate of owning who you are as a person. Don't be ashamed or intimidated. Never feel like you are not amazing.</b>
-> <p><i>Khloe Kardashian</i></p>
+> <b>Ignorance is always afraid of change.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
