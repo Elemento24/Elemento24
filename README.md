@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In such ugly times, the only true protest is beauty.</b>
-> <p><i>Phil Ochs</i></p>
+> <b>Those who love him love that he sells the most art they take it as a point of faith that this proves Kinkade is the best. But his fans don't only rely on this supply-and-demand justification. They go back to values.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
