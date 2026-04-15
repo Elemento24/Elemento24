@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's wonderful to have the most important thing in the world there first thing in the morning. And especially in this business, where the opportunity to think everything is about you is there every day, now I really know that it isn't all about me.</b>
-> <p><i>Kate Beckinsale</i></p>
+> <b>I'd rather drive the yellow brick road, you wouldn't happen to know of a rental car place around.</b>
+> <p><i>Ryan Stiles</i></p>
 
 <br>
