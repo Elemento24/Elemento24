@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think this is the most extraordinary collection of talent, of human knowledge, that has ever been gathered at the White House - with the possible exception of when Thomas Jefferson dined alone.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>It is wise to direct your anger towards problems - not people to focus your energies on answers - not excuses.</b>
+> <p><i>William Arthur Ward</i></p>
 
 <br>
