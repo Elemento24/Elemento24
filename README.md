@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Had the United States and the United Kingdom gone on alone to capture Baghdad, under the provisions of the Geneva and Hague conventions we would have been considered occupying powers and therefore would have been responsible for all the costs of maintaining or restoring government, education and other services for the people of Iraq.</b>
-> <p><i>Norman Schwarzkopf</i></p>
+> <b>Never believe that a few caring people can't change the world. For, indeed, that's all who ever have.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
