@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is wise to direct your anger towards problems - not people to focus your energies on answers - not excuses.</b>
-> <p><i>William Arthur Ward</i></p>
+> <b>Then as everything, like I say, things started to come together, when things started to go our way, that's when you results started to come. I was no different driver. I was certainly learning every time I went in the car.</b>
+> <p><i>Dan Wheldon</i></p>
 
 <br>
