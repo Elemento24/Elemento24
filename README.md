@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd rather drive the yellow brick road, you wouldn't happen to know of a rental car place around.</b>
-> <p><i>Ryan Stiles</i></p>
+> <b>A successful economic development strategy must focus on improving the skills of the area's workforce, reducing the cost of doing business and making available the resources business needs to compete and thrive in today's global economy.</b>
+> <p><i>Rod Blagojevich</i></p>
 
 <br>
