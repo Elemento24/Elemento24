@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We Orientals find beauty not only in the thing itself but in the pattern of the shadows, the light and darkness which that thing provides.</b>
-> <p><i>Junichiro Tanizaki</i></p>
+> <b>People are like stained - glass windows. They sparkle and shine when the sun is out, but when the darkness sets in, their true beauty is revealed only if there is a light from within.</b>
+> <p><i>Elisabeth Kubler-Ross</i></p>
 
 <br>
