@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never believe that a few caring people can't change the world. For, indeed, that's all who ever have.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>We Orientals find beauty not only in the thing itself but in the pattern of the shadows, the light and darkness which that thing provides.</b>
+> <p><i>Junichiro Tanizaki</i></p>
 
 <br>
