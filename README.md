@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm quitting the business today. I'm going to open up an appliance store, I've always really been into toasters. I'm giving it all up.</b>
-> <p><i>Dane Cook</i></p>
+> <b>It's wonderful to have the most important thing in the world there first thing in the morning. And especially in this business, where the opportunity to think everything is about you is there every day, now I really know that it isn't all about me.</b>
+> <p><i>Kate Beckinsale</i></p>
 
 <br>
