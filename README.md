@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your children need your presence more than your presents.</b>
-> <p><i>Jesse Jackson</i></p>
+> <b>Pay attention to the beauty surrounding you.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
