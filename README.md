@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One of the many pleasures of old age is giving things up.</b>
-> <p><i>Malcolm Muggeridge</i></p>
+> <b>I'm quitting the business today. I'm going to open up an appliance store, I've always really been into toasters. I'm giving it all up.</b>
+> <p><i>Dane Cook</i></p>
 
 <br>
