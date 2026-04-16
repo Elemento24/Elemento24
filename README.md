@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Consider what kind of car you get. Buy cars and other products that have the least impact environmentally.</b>
-> <p><i>Al Gore</i></p>
+> <b>Not only is women's work never done, the definition keeps changing.</b>
+> <p><i>Bill Copeland</i></p>
 
 <br>
