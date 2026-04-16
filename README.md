@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's been such a deep and amazing journey for me, getting close to John Keats, and also I love Shelley and Byron. I mean, the thing about the Romantic poets is that they've got the epitaph of romantic posthumously. They all died really young, and Keats, the youngest of them all.</b>
-> <p><i>Jane Campion</i></p>
+> <b>Consider what kind of car you get. Buy cars and other products that have the least impact environmentally.</b>
+> <p><i>Al Gore</i></p>
 
 <br>
