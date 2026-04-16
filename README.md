@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You may choose your words like a connoisseur, And polish it up with art, But the word that sways, and stirs, and stays, Is the word that comes from the heart.</b>
-> <p><i>Ella Wheeler Wilcox</i></p>
+> <b>I'd like to grow up and be beautiful. I know it doesn't matter, but it doesn't hurt.</b>
+> <p><i>Kirsten Dunst</i></p>
 
 <br>
