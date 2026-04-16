@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good manners is the art of making those people easy with whom we converse. Whoever makes the fewest people uneasy is the best bred in the room.</b>
-> <p><i>Jonathan Swift</i></p>
+> <b>We cannot remember too often that when we observe nature, and especially the ordering of nature, it is always ourselves alone we are observing.</b>
+> <p><i>Georg C. Lichtenberg</i></p>
 
 <br>
