@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not only is women's work never done, the definition keeps changing.</b>
-> <p><i>Bill Copeland</i></p>
+> <b>Some people ask the secret of our long marriage. We take time to go to a restaurant two times a week. A little candlelight, dinner, soft music and dancing. She goes Tuesdays, I go Fridays.</b>
+> <p><i>Henny Youngman</i></p>
 
 <br>
