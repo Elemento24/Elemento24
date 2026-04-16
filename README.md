@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We cannot remember too often that when we observe nature, and especially the ordering of nature, it is always ourselves alone we are observing.</b>
-> <p><i>Georg C. Lichtenberg</i></p>
+> <b>The percentage you're paying is too high priced While you're living beyond all your means And the man in the suit has just bought a new car From the profit he's made on your dreams.</b>
+> <p><i>Steve Winwood</i></p>
 
 <br>
