@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are like stained - glass windows. They sparkle and shine when the sun is out, but when the darkness sets in, their true beauty is revealed only if there is a light from within.</b>
-> <p><i>Elisabeth Kubler-Ross</i></p>
+> <b>You may choose your words like a connoisseur, And polish it up with art, But the word that sways, and stirs, and stays, Is the word that comes from the heart.</b>
+> <p><i>Ella Wheeler Wilcox</i></p>
 
 <br>
