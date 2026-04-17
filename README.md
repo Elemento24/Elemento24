@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They say marriage will change you but it didn't change me. Being in love changed me.</b>
-> <p><i>R. Kelly</i></p>
+> <b>Some broad themes brought me where I am today. At a very young age, my hobby became thinking and finding connections.</b>
+> <p><i>Dean Kamen</i></p>
 
 <br>
