@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Never believe that a few caring people can't change the world. For, indeed, that's all who ever have.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>For many my behavior has been a major disappointment, my behavior has caused considerable worry to my business partners, and everyone involved in my business, but most importantly to the young people we influence, I apologize.</b>
+> <p><i>Tiger Woods</i></p>
 
 <br>
