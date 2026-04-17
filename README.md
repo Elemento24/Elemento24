@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That we find a crystal or a poppy beautiful means that we are less alone, that we are more deeply inserted into existence than the course of a single life would lead us to believe.</b>
-> <p><i>John Berger</i></p>
+> <b>The Internet creates as well as destroys. Social networks, search advertising, and cloud computing are multibillion dollar industries that didn't exist 10 years ago. They are products of the same force that has rendered the Postal Service's core business obsolete.</b>
+> <p><i>John Sununu</i></p>
 
 <br>
