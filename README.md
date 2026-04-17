@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, when I was a kid waiting on the bus, I remember that was when I imagined my life. I imagined everything that I was gonna be when I grew up and I imagined all of these amazing journeys and amazing people I'd meet. Of course, all of it has kind of come to fruition.</b>
-> <p><i>Glen Hansard</i></p>
+> <b>I read murder mysteries. I exercise 40 minutes a day. I watch videotapes while I exercise. I listen to audiotapes when I am in my car. And I try to stay in three different centuries.</b>
+> <p><i>Grover Norquist</i></p>
 
 <br>
