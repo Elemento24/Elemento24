@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I read murder mysteries. I exercise 40 minutes a day. I watch videotapes while I exercise. I listen to audiotapes when I am in my car. And I try to stay in three different centuries.</b>
-> <p><i>Grover Norquist</i></p>
+> <b>The idea is, if I can't heal from my art, then how can you heal?</b>
+> <p><i>Maynard James Keenan</i></p>
 
 <br>
