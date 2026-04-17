@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every human is an artist. The dream of your life is to make beautiful art.</b>
-> <p><i>Miguel Angel Ruiz</i></p>
+> <b>If you think nobody cares if you're alive, try missing a couple of car payments.</b>
+> <p><i>Earl Wilson</i></p>
 
 <br>
