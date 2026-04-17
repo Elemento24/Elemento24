@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some broad themes brought me where I am today. At a very young age, my hobby became thinking and finding connections.</b>
-> <p><i>Dean Kamen</i></p>
+> <b>Never believe that a few caring people can't change the world. For, indeed, that's all who ever have.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
