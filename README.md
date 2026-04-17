@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>More business is lost every year through neglect than through any other cause.</b>
-> <p><i>Rose Kennedy</i></p>
+> <b>I am Classic Rock Revisited. I revisit it every waking moment of my life because it has the spirit and the attitude and the fire and the middle finger. I am Rosa Parks with a Gibson guitar.</b>
+> <p><i>Ted Nugent</i></p>
 
 <br>
