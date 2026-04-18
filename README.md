@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's naive to pray for world peace if we're not going to change the form in which we live.</b>
-> <p><i>Godfrey Reggio</i></p>
+> <b>I'm a grown woman and sometimes, I might be a little fat, you know? Am I alone there? Not really.</b>
+> <p><i>Leighton Meester</i></p>
 
 <br>
