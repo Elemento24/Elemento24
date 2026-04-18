@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You get to a certain age where you prepare yourself for happiness. Sometimes you never remember to actually get happy.</b>
-> <p><i>John Mayer</i></p>
+> <b>The intellectual architecture means focusing on doing great work instead of focusing on agency politics.</b>
+> <p><i>Jay Chiat</i></p>
 
 <br>
