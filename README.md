@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dogs feel very strongly that they should always go with you in the car, in case the need should arise for them to bark violently at nothing right in your ear.</b>
-> <p><i>Dave Barry</i></p>
+> <b>The art world can be very intimidating because it's just so vast. You talk to people who are really clued in to all the young artists and coming into it you're never going to be able to catch up immediately, even though there's pressure to.</b>
+> <p><i>Daniel Radcliffe</i></p>
 
 <br>
