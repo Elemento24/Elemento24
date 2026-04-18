@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to get a bad law repealed is to enforce it strictly.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>Comics are so full of amazing work. And I can't look at a drawing of a woman without thinking of, for instance, Wallace Wood and his amazing way of capturing beauty.</b>
+> <p><i>Frank Miller</i></p>
 
 <br>
