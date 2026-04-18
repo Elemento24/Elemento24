@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am constantly amazed by Tina Fey. And I am Tina Fey.</b>
-> <p><i>Tina Fey</i></p>
+> <b>Dogs feel very strongly that they should always go with you in the car, in case the need should arise for them to bark violently at nothing right in your ear.</b>
+> <p><i>Dave Barry</i></p>
 
 <br>
