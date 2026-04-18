@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Internet creates as well as destroys. Social networks, search advertising, and cloud computing are multibillion dollar industries that didn't exist 10 years ago. They are products of the same force that has rendered the Postal Service's core business obsolete.</b>
-> <p><i>John Sununu</i></p>
+> <b>I was raised in Chicago and I guess that was one of the special breeding grounds for gangsters of all colors. That was the Detroit of the gangster world. The car industry was thugs.</b>
+> <p><i>Quincy Jones</i></p>
 
 <br>
