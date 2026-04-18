@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm a grown woman and sometimes, I might be a little fat, you know? Am I alone there? Not really.</b>
-> <p><i>Leighton Meester</i></p>
+> <b>I'm proud of the U.S.A. We've done some amazing things. To wear our flag in the Olympics is an honor.</b>
+> <p><i>Shaun White</i></p>
 
 <br>
