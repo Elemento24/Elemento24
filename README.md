@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I won't say there aren't any Harvard graduates who have never asserted a superior attitude. But they have done so to our great embarrassment and in no way represent the Harvard I know.</b>
-> <p><i>Derek Bok</i></p>
+> <b>Every year on your birthday, you get a chance to start new.</b>
+> <p><i>Sammy Hagar</i></p>
 
 <br>
