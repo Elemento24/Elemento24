@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He leaned about the same way in falling towards Jacqueline, forward, down towards the bottom of the car.</b>
-> <p><i>Abraham Zapruder</i></p>
+> <b>I've never worried about age.</b>
+> <p><i>Jeanne Moreau</i></p>
 
 <br>
