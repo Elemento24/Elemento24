@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every year on your birthday, you get a chance to start new.</b>
-> <p><i>Sammy Hagar</i></p>
+> <b>You teach best what you most need to learn.</b>
+> <p><i>Richard Bach</i></p>
 
 <br>
