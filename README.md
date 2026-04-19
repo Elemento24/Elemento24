@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You teach best what you most need to learn.</b>
-> <p><i>Richard Bach</i></p>
+> <b>Creativity is allowing yourself to make mistakes. Art is knowing which ones to keep.</b>
+> <p><i>Scott Adams</i></p>
 
 <br>
