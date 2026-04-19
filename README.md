@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age: the crown of life, our play's last act.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>Many kids come out of college, they have a credit card and a diploma. They don't know how to buy a house or a car or health insurance or life insurance. They do not know basic microeconomics.</b>
+> <p><i>Jesse Jackson</i></p>
 
 <br>
