@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age: I fall asleep during the funerals of my friends.</b>
-> <p><i>Mason Cooley</i></p>
+> <b>He leaned about the same way in falling towards Jacqueline, forward, down towards the bottom of the car.</b>
+> <p><i>Abraham Zapruder</i></p>
 
 <br>
