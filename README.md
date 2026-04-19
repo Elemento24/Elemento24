@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Paris, one is always reminded of being a foreigner. If you park your car wrong, it is not the fact that it's on the sidewalk that matters, but the fact that you speak with an accent.</b>
-> <p><i>Roman Polanski</i></p>
+> <b>I don't know how to drive a car.</b>
+> <p><i>Javier Bardem</i></p>
 
 <br>
