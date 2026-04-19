@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Engineering, medicine, business, architecture and painting are concerned not with the necessary but with the contingent - not with how things are but with how they might be - in short, with design.</b>
-> <p><i>Herbert Simon</i></p>
+> <b>You do have to do business with and to try to influence people you don't agree with, or find disagreeable, so it's important to stress that balance.</b>
+> <p><i>William Hague</i></p>
 
 <br>
