@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All good art is an indiscretion.</b>
-> <p><i>Tennessee Williams</i></p>
+> <b>Laugh and the world laughs with you, snore and you sleep alone.</b>
+> <p><i>Anthony Burgess</i></p>
 
 <br>
