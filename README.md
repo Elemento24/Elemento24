@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A good character is the best tombstone. Those who loved you and were helped by you will remember you when forget-me-nots have withered. Carve your name on hearts, not on marble.</b>
-> <p><i>Charles Spurgeon</i></p>
+> <b>All good art is an indiscretion.</b>
+> <p><i>Tennessee Williams</i></p>
 
 <br>
