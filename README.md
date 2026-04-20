@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Exuberance is beauty.</b>
-> <p><i>William Blake</i></p>
+> <b>When a woman puts on a heel, she has a different posture, a different attitude. She really stands up and has a consciousness of her body.</b>
+> <p><i>Christian Louboutin</i></p>
 
 <br>
