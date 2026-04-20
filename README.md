@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Grace in women has more effect than beauty.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>My brother and Lauren are very close with me and they are in Sun Valley, so sometimes I need to go there and feel their presence. And there are times I need to see my bro' alone.</b>
+> <p><i>Picabo Street</i></p>
 
 <br>
