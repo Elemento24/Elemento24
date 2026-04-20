@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't allow anybody to change me. I still walk outta my house in rollers and I take walks. I do not care what people think.</b>
-> <p><i>Britney Spears</i></p>
+> <b>Grace in women has more effect than beauty.</b>
+> <p><i>William Hazlitt</i></p>
 
 <br>
