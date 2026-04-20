@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You do have to do business with and to try to influence people you don't agree with, or find disagreeable, so it's important to stress that balance.</b>
-> <p><i>William Hague</i></p>
+> <b>A good character is the best tombstone. Those who loved you and were helped by you will remember you when forget-me-nots have withered. Carve your name on hearts, not on marble.</b>
+> <p><i>Charles Spurgeon</i></p>
 
 <br>
