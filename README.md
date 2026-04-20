@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing I've learned is, if you're going out, never go out alone - you leave yourself vulnerable. If you've got someone else there you trust, they can say, be wary of that person. I probably used to be too trusting of people.</b>
-> <p><i>Daniel Radcliffe</i></p>
+> <b>I don't allow anybody to change me. I still walk outta my house in rollers and I take walks. I do not care what people think.</b>
+> <p><i>Britney Spears</i></p>
 
 <br>
