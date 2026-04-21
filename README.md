@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Try as hard as we may for perfection, the net result of our labors is an amazing variety of imperfectness. We are surprised at our own versatility in being able to fail in so many different ways.</b>
-> <p><i>Samuel McChord Crothers</i></p>
+> <b>I've had to calm down, I have a kid! It is amazing. It's the best thing ever. Nothing better than it.</b>
+> <p><i>Kevin Pietersen</i></p>
 
 <br>
