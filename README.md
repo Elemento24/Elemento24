@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because beauty isn't enough, there must be something more.</b>
-> <p><i>Eva Herzigova</i></p>
+> <b>Generalised anger and frustration is something that gets you in the studio, and gets you to work - though it's not necessarily evident in anything that's finished.</b>
+> <p><i>Bruce Nauman</i></p>
 
 <br>
