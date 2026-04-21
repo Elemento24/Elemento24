@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If beauty isn't genius it usually signals at least a high level of animal cunning.</b>
-> <p><i>Peter York</i></p>
+> <b>We're taught to be ashamed of confusion, anger, fear and sadness, and to me they're of equal value to happiness, excitement and inspiration.</b>
+> <p><i>Alanis Morissette</i></p>
 
 <br>
