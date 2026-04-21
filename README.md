@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It takes a long time to become young.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>Try as hard as we may for perfection, the net result of our labors is an amazing variety of imperfectness. We are surprised at our own versatility in being able to fail in so many different ways.</b>
+> <p><i>Samuel McChord Crothers</i></p>
 
 <br>
