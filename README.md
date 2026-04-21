@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Generalised anger and frustration is something that gets you in the studio, and gets you to work - though it's not necessarily evident in anything that's finished.</b>
-> <p><i>Bruce Nauman</i></p>
+> <b>It's so amazing, standing on the corner -this happened in Washington, D.C. - and somebody comes by in a Cadillac and you hear 'Manic Monday' on the radio, and you don't even know this person, and they're listening to it and singing along with it. Wow! Blows your mind.</b>
+> <p><i>Debbi Peterson</i></p>
 
 <br>
