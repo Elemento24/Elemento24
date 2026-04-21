@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had to calm down, I have a kid! It is amazing. It's the best thing ever. Nothing better than it.</b>
-> <p><i>Kevin Pietersen</i></p>
+> <b>If beauty isn't genius it usually signals at least a high level of animal cunning.</b>
+> <p><i>Peter York</i></p>
 
 <br>
