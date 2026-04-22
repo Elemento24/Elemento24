@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After all, the best part of a holiday is perhaps not so much to be resting yourself, as to see all the other fellows busy working.</b>
-> <p><i>Kenneth Grahame</i></p>
+> <b>When I started my last business, I didn't receive a paycheck for 13 months. The average person can't handle that pressure.</b>
+> <p><i>Robert Kiyosaki</i></p>
 
 <br>
