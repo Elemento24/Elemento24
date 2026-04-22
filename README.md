@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We're taught to be ashamed of confusion, anger, fear and sadness, and to me they're of equal value to happiness, excitement and inspiration.</b>
-> <p><i>Alanis Morissette</i></p>
+> <b>The thought came to me that all one loves in art becomes beautiful. Beauty is nothing but the expression of the fact that something is being loved. Only thus could she be defined.</b>
+> <p><i>Robert Musil</i></p>
 
 <br>
