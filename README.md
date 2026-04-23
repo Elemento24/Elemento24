@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I trust in nature for the stable laws of beauty and utility. Spring shall plant and autumn garner to the end of time.</b>
-> <p><i>Robert Browning</i></p>
+> <b>And this year is going to be the 25th anniversary of the 17-0 team, the only undefeated season.</b>
+> <p><i>Don Shula</i></p>
 
 <br>
