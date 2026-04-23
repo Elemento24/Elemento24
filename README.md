@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Prophesy is a good line of business, but it is full of risks.</b>
-> <p><i>Mark Twain</i></p>
+> <b>Even truth needs to be clad in new garments if it is to appeal to a new age.</b>
+> <p><i>Georg C. Lichtenberg</i></p>
 
 <br>
