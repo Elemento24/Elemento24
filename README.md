@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And this year is going to be the 25th anniversary of the 17-0 team, the only undefeated season.</b>
-> <p><i>Don Shula</i></p>
+> <b>I was able to do To Sleep with Anger, a very powerful film about African Americans, their spirituality, and the things that happened within a small community and a family.</b>
+> <p><i>Danny Glover</i></p>
 
 <br>
