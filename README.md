@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be honest, everything in my life outside of tennis is great. I'm doing amazing projects that, if I didn't have time off, I wouldn't be able to focus on.</b>
-> <p><i>Maria Sharapova</i></p>
+> <b>Situational unawareness in the private marketplace or on the battlefield will cost you your livelihood or your life. In the Age of Obama, however, such willful ignorance is a job prerequisite. The less you know the better.</b>
+> <p><i>Michelle Malkin</i></p>
 
 <br>
