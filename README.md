@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man's sentiments are generally just and right, while it is second selfish thought which makes him trim and adopt some other view. The best reforms are worked out when sentiment operates, as it does in women, with the indignation of righteousness.</b>
-> <p><i>Leland Stanford</i></p>
+> <b>Opinions alter, manners change, creeds rise and fall, but the moral laws are written on the table of eternity.</b>
+> <p><i>Lord Acton</i></p>
 
 <br>
