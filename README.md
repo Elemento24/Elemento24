@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was able to do To Sleep with Anger, a very powerful film about African Americans, their spirituality, and the things that happened within a small community and a family.</b>
-> <p><i>Danny Glover</i></p>
+> <b>We were making the first step out of the age of chemistry and physics, and into the age of biology.</b>
+> <p><i>Jeremy Rifkin</i></p>
 
 <br>
