@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Excellence is the best deterrent to racism or sexism.</b>
-> <p><i>Oprah Winfrey</i></p>
+> <b>To be honest, everything in my life outside of tennis is great. I'm doing amazing projects that, if I didn't have time off, I wouldn't be able to focus on.</b>
+> <p><i>Maria Sharapova</i></p>
 
 <br>
