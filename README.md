@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In chess one cannot control everything. Sometimes a game takes an unexpected turn, in which beauty begins to emerge. Both players are always instrumental in this.</b>
-> <p><i>Vladimir Kramnik</i></p>
+> <b>He never is alone that is accompanied with noble thoughts.</b>
+> <p><i>John Fletcher</i></p>
 
 <br>
