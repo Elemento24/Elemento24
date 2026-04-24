@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Motion capture is amazing. I prefer it. You wear a 'Power Ranger'-esque suit, you have tape balls on you, you have 60 cameras around you capturing your every movement and there's no hair, no makeup.</b>
-> <p><i>Kellan Lutz</i></p>
+> <b>Magic is the oldest part of the show business profession. It can now be used as a forward-thinking tool to build a child's confidence. It has been an amazing part in many entertainers' lives, including Steve Martin and the late Johnny Carson.</b>
+> <p><i>Criss Angel</i></p>
 
 <br>
