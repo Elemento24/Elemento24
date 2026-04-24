@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But the building's identity resided in the ornament.</b>
-> <p><i>Louis Sullivan</i></p>
+> <b>Beauty is the oracle that speaks to us all.</b>
+> <p><i>Luis Barragan</i></p>
 
 <br>
