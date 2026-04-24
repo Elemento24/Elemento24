@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even truth needs to be clad in new garments if it is to appeal to a new age.</b>
-> <p><i>Georg C. Lichtenberg</i></p>
+> <b>Motion capture is amazing. I prefer it. You wear a 'Power Ranger'-esque suit, you have tape balls on you, you have 60 cameras around you capturing your every movement and there's no hair, no makeup.</b>
+> <p><i>Kellan Lutz</i></p>
 
 <br>
