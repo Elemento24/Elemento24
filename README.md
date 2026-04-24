@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the oracle that speaks to us all.</b>
-> <p><i>Luis Barragan</i></p>
+> <b>I'm very competitive by nature. And I like to be the underdog - It's the best way to win. To come from behind and win is a great feeling!</b>
+> <p><i>Zac Efron</i></p>
 
 <br>
