@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's easy to get wrapped up in sharing everyday life with a partner. It's fun to get lost in love and romance. It's the best. But holding on to yourself while doing that is the most important thing.</b>
-> <p><i>Brittany Murphy</i></p>
+> <b>On the stage, you alone hold the key, and on the night you have to trust that the director has inspired you enough to take the material and run with it.</b>
+> <p><i>Greta Scacchi</i></p>
 
 <br>
