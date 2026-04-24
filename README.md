@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very competitive by nature. And I like to be the underdog - It's the best way to win. To come from behind and win is a great feeling!</b>
-> <p><i>Zac Efron</i></p>
+> <b>Opinions are made to be changed - or how is truth to be got at?</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
