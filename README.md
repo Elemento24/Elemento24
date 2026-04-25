@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember being at Greenblatt's on Sunset, and some guy just walked straight up to me, and he had some bling on and whatever, and said something about a party down in Malibu and asked if I would jump in his car and go to the party. All I could think was, 'Who are you? I don't know you, and I don't care about how good your car is.'</b>
-> <p><i>Yvonne Strahovski</i></p>
+> <b>Your attitude, not your aptitude, will determine your altitude.</b>
+> <p><i>Zig Ziglar</i></p>
 
 <br>
