@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Short words are best and the old words when short are best of all.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>I'm a drugstore beauty girl, I love going to the drugstore and buying makeup.</b>
+> <p><i>Melanie Fiona</i></p>
 
 <br>
