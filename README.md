@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Does an architecture to assuage the spirit have a place?</b>
-> <p><i>Arthur Erickson</i></p>
+> <b>A great source of calamity lies in regret and anticipation therefore a person is wise who thinks of the present alone, regardless of the past or future.</b>
+> <p><i>Oliver Goldsmith</i></p>
 
 <br>
