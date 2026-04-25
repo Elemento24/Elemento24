@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your attitude, not your aptitude, will determine your altitude.</b>
-> <p><i>Zig Ziglar</i></p>
+> <b>My humour has always come from anger, but I have to make sure I don't just get angry and jump on a soapbox.</b>
+> <p><i>Carl Hiaasen</i></p>
 
 <br>
