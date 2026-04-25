@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I look up to Mick Jagger because he's an amazing performer and he's such an individual. I respect him and admire him eternally.</b>
-> <p><i>Victoria Justice</i></p>
+> <b>Middle age is when your old classmates are so grey and wrinkled and bald they don't recognize you.</b>
+> <p><i>Bennett Cerf</i></p>
 
 <br>
