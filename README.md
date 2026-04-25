@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty and the devil are the same thing.</b>
-> <p><i>Robert Mapplethorpe</i></p>
+> <b>Of all our possessions, wisdom alone is imortal.</b>
+> <p><i>Isocrates</i></p>
 
 <br>
