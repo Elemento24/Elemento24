@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My humour has always come from anger, but I have to make sure I don't just get angry and jump on a soapbox.</b>
-> <p><i>Carl Hiaasen</i></p>
+> <b>Onion rings in the car cushions do not improve with time.</b>
+> <p><i>Erma Bombeck</i></p>
 
 <br>
