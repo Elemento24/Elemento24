@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Later, my father died up in Marysville. So, my mother and I got in the car and came down to Hollywood.</b>
-> <p><i>Marc Davis</i></p>
+> <b>I look up to Mick Jagger because he's an amazing performer and he's such an individual. I respect him and admire him eternally.</b>
+> <p><i>Victoria Justice</i></p>
 
 <br>
