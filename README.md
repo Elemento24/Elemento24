@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Opinions are made to be changed - or how is truth to be got at?</b>
-> <p><i>Lord Byron</i></p>
+> <b>Does an architecture to assuage the spirit have a place?</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
