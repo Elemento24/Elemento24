@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would like you all to give me a round of applause as I have not crashed my car in over 15 months.</b>
-> <p><i>Matthew Perry</i></p>
+> <b>I can change a tire, but I couldn't change a fuse on the computer panel on my car.</b>
+> <p><i>Mike O'Malley</i></p>
 
 <br>
