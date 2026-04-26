@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Behind every small business, there's a story worth knowing. All the corner shops in our towns and cities, the restaurants, cleaners, gyms, hair salons, hardware stores - these didn't come out of nowhere.</b>
-> <p><i>Paul Ryan</i></p>
+> <b>Success or failure depends more upon attitude than upon capacity successful men act as though they have accomplished or are enjoying something. Soon it becomes a reality. Act, look, feel successful, conduct yourself accordingly, and you will be amazed at the positive results.</b>
+> <p><i>William James</i></p>
 
 <br>
