@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Iraq is just a symbol of the attitude of western democracies to the rest of the world.</b>
-> <p><i>Harold Pinter</i></p>
+> <b>Behind every small business, there's a story worth knowing. All the corner shops in our towns and cities, the restaurants, cleaners, gyms, hair salons, hardware stores - these didn't come out of nowhere.</b>
+> <p><i>Paul Ryan</i></p>
 
 <br>
