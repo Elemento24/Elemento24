@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Middle age is when your old classmates are so grey and wrinkled and bald they don't recognize you.</b>
-> <p><i>Bennett Cerf</i></p>
+> <b>Maybe back in the day you didn't need to be the greatest looking to be on TV and you didn't need to speak the best, but in this day and age, I think you need to be the package. You need to look the part for your sponsors, you need to be able to speak the part for the media and to big CEOs.</b>
+> <p><i>Danica Patrick</i></p>
 
 <br>
