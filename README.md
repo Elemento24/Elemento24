@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The great art of films does not consist of descriptive movement of face and body but in the movements of thought and soul transmitted in a kind of intense isolation.</b>
-> <p><i>Louise Brooks</i></p>
+> <b>The union movement has been the best middle class job creating program that America has ever had, and it doesn't cost the government a dime.</b>
+> <p><i>Andy Stern</i></p>
 
 <br>
