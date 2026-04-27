@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In high school, during marathon phone conversations, cheap pizza dinners and long suburban car rides, I began to fall for boys because of who they actually were, or at least who I thought they might become.</b>
-> <p><i>J. Courtney Sullivan</i></p>
+> <b>The great art of films does not consist of descriptive movement of face and body but in the movements of thought and soul transmitted in a kind of intense isolation.</b>
+> <p><i>Louise Brooks</i></p>
 
 <br>
