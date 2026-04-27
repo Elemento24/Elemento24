@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Because for whatever reason, even though I want to stay home all the time and be left alone, I want to tell the world who I am now.</b>
-> <p><i>Fiona Apple</i></p>
+> <b>I grew up where my parents would literally shove me in the car rather than have to say hello to a neighbor.</b>
+> <p><i>Amy Sherman-Palladino</i></p>
 
 <br>
