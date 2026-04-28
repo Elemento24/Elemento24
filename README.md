@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age is a case of mind over matter. If you don't mind, it don't matter.</b>
-> <p><i>Satchel Paige</i></p>
+> <b>Vitality is radiated from exceptional art and architecture.</b>
+> <p><i>Arthur Erickson</i></p>
 
 <br>
