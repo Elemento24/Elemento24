@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When they are alone they want to be with others, and when they are with others they want to be alone. After all, human beings are like that.</b>
-> <p><i>Gertrude Stein</i></p>
+> <b>When we can lay down our fear and anger and choose responses other than aggression, we create the conditions for bringing out the best in us humans.</b>
+> <p><i>Margaret J. Wheatley</i></p>
 
 <br>
