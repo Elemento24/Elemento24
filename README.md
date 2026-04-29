@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My anger with the US was not at first, that they had used that weapon - although that anger came later.</b>
-> <p><i>Wilfred Burchett</i></p>
+> <b>Wisdom is the abstract of the past, but beauty is the promise of the future.</b>
+> <p><i>Oliver Wendell Holmes</i></p>
 
 <br>
