@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I studied voice for about two years with an amazing coach, and I never rose above the level of mediocre.</b>
-> <p><i>Danny Strong</i></p>
+> <b>My anger with the US was not at first, that they had used that weapon - although that anger came later.</b>
+> <p><i>Wilfred Burchett</i></p>
 
 <br>
