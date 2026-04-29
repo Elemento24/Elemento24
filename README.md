@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The freethinking of one age is the common sense of the next.</b>
-> <p><i>Matthew Arnold</i></p>
+> <b>When they are alone they want to be with others, and when they are with others they want to be alone. After all, human beings are like that.</b>
+> <p><i>Gertrude Stein</i></p>
 
 <br>
