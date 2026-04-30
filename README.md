@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rhetoric is the art of ruling the minds of men.</b>
-> <p><i>Plato</i></p>
+> <b>Age acquires no value save through thought and discipline.</b>
+> <p><i>James Truslow Adams</i></p>
 
 <br>
