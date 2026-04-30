@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Character is the result of two things: mental attitude and the way we spend our time.</b>
-> <p><i>Elbert Hubbard</i></p>
+> <b>I lost twins at 14 weeks, and I had to have an D and C on my birthday.</b>
+> <p><i>Amy Weber</i></p>
 
 <br>
