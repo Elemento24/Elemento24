@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I lost twins at 14 weeks, and I had to have an D and C on my birthday.</b>
-> <p><i>Amy Weber</i></p>
+> <b>Cigarettes and coffee: an alcoholic's best friend!</b>
+> <p><i>Gerard Way</i></p>
 
 <br>
