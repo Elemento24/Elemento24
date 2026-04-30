@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love heels... whoever created heels is amazing!</b>
-> <p><i>Katie Cassidy</i></p>
+> <b>Character is the result of two things: mental attitude and the way we spend our time.</b>
+> <p><i>Elbert Hubbard</i></p>
 
 <br>
