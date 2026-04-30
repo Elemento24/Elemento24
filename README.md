@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age acquires no value save through thought and discipline.</b>
-> <p><i>James Truslow Adams</i></p>
+> <b>In the West, you have always associated the Islamic faith 100 percent with Arab culture. This in itself is a fundamentalist attitude and it is mistaken.</b>
+> <p><i>Youssou N'Dour</i></p>
 
 <br>
