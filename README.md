@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anyone who keeps the ability to see beauty never grows old.</b>
-> <p><i>Franz Kafka</i></p>
+> <b>Any new financial order for the world must tackle the three chief challenges of our age.</b>
+> <p><i>James Buchan</i></p>
 
 <br>
