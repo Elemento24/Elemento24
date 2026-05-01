@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Take the attitude of a student, never be too big to ask questions, never know too much to learn something new.</b>
-> <p><i>Og Mandino</i></p>
+> <b>Clever men are good, but they are not the best.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
