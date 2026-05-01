@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fashion is quite inclusive and good at embracing different things and different forms of beauty. It's a very liberal industry. You can be yourself. Just not overweight.</b>
-> <p><i>Andrej Pejic</i></p>
+> <b>Regardless of age, regardless of position, regardless of the business we happen to be in, all of us need to understand the importance of branding. We are CEOs of our own companies: Me, Inc. To be in business today, our most important job is to be head marketer for the brand called You.</b>
+> <p><i>Tom Peters</i></p>
 
 <br>
