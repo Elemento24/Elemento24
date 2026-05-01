@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is less important than quality.</b>
-> <p><i>Eugene Ormandy</i></p>
+> <b>The movies are the only business where you can go out front and applaud yourself.</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
