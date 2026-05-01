@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The people who live in a golden age usually go around complaining how yellow everything looks.</b>
-> <p><i>Randall Jarrell</i></p>
+> <b>Just going on the road and entertaining the fans, that's amazing.</b>
+> <p><i>Jordan Knight</i></p>
 
 <br>
