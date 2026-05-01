@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just going on the road and entertaining the fans, that's amazing.</b>
-> <p><i>Jordan Knight</i></p>
+> <b>Beauty is less important than quality.</b>
+> <p><i>Eugene Ormandy</i></p>
 
 <br>
