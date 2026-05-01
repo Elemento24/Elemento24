@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any new financial order for the world must tackle the three chief challenges of our age.</b>
-> <p><i>James Buchan</i></p>
+> <b>As soon as I get my car I think I'll be going to the cinema more. Since I don't go very often, there are no films that are a must see at the moment. I usually wait till they come out on DVD.</b>
+> <p><i>Tom Felton</i></p>
 
 <br>
