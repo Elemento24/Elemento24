@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We need comprehensive reform that will make America the best place in the world to invest and do business.</b>
-> <p><i>Jim DeMint</i></p>
+> <b>Every Body has so good an Opinion of their own Understanding as to think their own way the best.</b>
+> <p><i>Mary Astell</i></p>
 
 <br>
