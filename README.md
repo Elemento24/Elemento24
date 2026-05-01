@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Regardless of age, regardless of position, regardless of the business we happen to be in, all of us need to understand the importance of branding. We are CEOs of our own companies: Me, Inc. To be in business today, our most important job is to be head marketer for the brand called You.</b>
-> <p><i>Tom Peters</i></p>
+> <b>The people who live in a golden age usually go around complaining how yellow everything looks.</b>
+> <p><i>Randall Jarrell</i></p>
 
 <br>
