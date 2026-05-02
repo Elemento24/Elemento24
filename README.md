@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's no business like show business, but there are several businesses like accounting.</b>
-> <p><i>David Letterman</i></p>
+> <b>A whopping 89 percent of buyers start their home search online. How your house looks online is the modern equivalent of 'curb appeal.' Rent a wide-angle lens and good lighting, get rid of your clutter and post at least eight great photos to win the beauty contest.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
