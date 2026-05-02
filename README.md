@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In this age, which believes that there is a short cut to everything, the greatest lesson to be learned is that the most difficult way is, in the long run, the easiest.</b>
-> <p><i>Henry Miller</i></p>
+> <b>I kind of resent this attitude of men that we somehow must always look good.</b>
+> <p><i>Sharon Gless</i></p>
 
 <br>
