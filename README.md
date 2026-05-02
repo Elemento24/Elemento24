@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're into architecture and you're from the West, everything is hors d'oeuvres for working to rebuild the Temple. Ultimately you're led there. You can't escape it.</b>
-> <p><i>Ben Nicholson</i></p>
+> <b>Freedom is the sure possession of those alone who have the courage to defend it.</b>
+> <p><i>Pericles</i></p>
 
 <br>
