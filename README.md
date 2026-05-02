@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A whopping 89 percent of buyers start their home search online. How your house looks online is the modern equivalent of 'curb appeal.' Rent a wide-angle lens and good lighting, get rid of your clutter and post at least eight great photos to win the beauty contest.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>I remember the first time I felt that I was sharing the stage with someone spectacular was dancing with Beyonce. It was the dancers, the band, Beyonce and me in front of thousands of people. That was sick. It was pretty amazing that I got to travel the world with someone like her.</b>
+> <p><i>Harry Shum, Jr.</i></p>
 
 <br>
