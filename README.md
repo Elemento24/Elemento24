@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The movies are the only business where you can go out front and applaud yourself.</b>
-> <p><i>Will Rogers</i></p>
+> <b>People are unjust to anger - it can be enlivening and a lot of fun.</b>
+> <p><i>Philip Roth</i></p>
 
 <br>
