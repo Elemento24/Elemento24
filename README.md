@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, I think we're put here on earth to make your own destiny, to begin with. I don't think there's anything you can do this way or that way to change anything.</b>
-> <p><i>Waylon Jennings</i></p>
+> <b>In this age, which believes that there is a short cut to everything, the greatest lesson to be learned is that the most difficult way is, in the long run, the easiest.</b>
+> <p><i>Henry Miller</i></p>
 
 <br>
