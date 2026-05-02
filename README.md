@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The time you spend alone with God will transform your character and increase your devotion. Then your integrity and godly behavior in an unbelieving world will make others long to know the Lord.</b>
-> <p><i>Charles Stanley</i></p>
+> <b>I started walking at night with my sister in law which has been amazing. It really does something for you. It just kind of clears the mind, it just makes you feel better, things start to tighten a little bit.</b>
+> <p><i>Ashley Scott</i></p>
 
 <br>
