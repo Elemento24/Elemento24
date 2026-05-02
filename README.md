@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember the first time I felt that I was sharing the stage with someone spectacular was dancing with Beyonce. It was the dancers, the band, Beyonce and me in front of thousands of people. That was sick. It was pretty amazing that I got to travel the world with someone like her.</b>
-> <p><i>Harry Shum, Jr.</i></p>
+> <b>I prefer to sing in the shower vs. the car. The shower is just steam, you know, its just you, and nature, and no clothing. You know, there's nothing separating you. It's just you, and the voice - you, and the water.</b>
+> <p><i>Jacob Lusk</i></p>
 
 <br>
