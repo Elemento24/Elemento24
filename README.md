@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To the man who loves art for its own sake, it is frequently in its least important and lowliest manifestations that the keenest pleasure is to be derived.</b>
-> <p><i>Arthur Conan Doyle</i></p>
+> <b>The second album was emotionally exhausting and my life felt like it had become very serious at a very young age.</b>
+> <p><i>Delta Goodrem</i></p>
 
 <br>
