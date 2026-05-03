@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have found there are four steps to change. 1. You must want it. 2. You must believe it. 3. You must live it. 4. You will become it.</b>
-> <p><i>Glenn Beck</i></p>
+> <b>All the adversity I've had in my life, all my troubles and obstacles, have strengthened me... You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you.</b>
+> <p><i>Walt Disney</i></p>
 
 <br>
