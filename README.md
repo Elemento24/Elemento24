@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ability is the art of getting credit for all the home runs somebody else hits.</b>
-> <p><i>Casey Stengel</i></p>
+> <b>It is your business when the wall next door catches fire.</b>
+> <p><i>Horace</i></p>
 
 <br>
