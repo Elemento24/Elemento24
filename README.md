@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The sanitary and mechanical age we are now entering makes up for the mercy it grants to our sense of smell by the ferocity with which it assails our sense of hearing.</b>
-> <p><i>Havelock Ellis</i></p>
+> <b>To the man who loves art for its own sake, it is frequently in its least important and lowliest manifestations that the keenest pleasure is to be derived.</b>
+> <p><i>Arthur Conan Doyle</i></p>
 
 <br>
