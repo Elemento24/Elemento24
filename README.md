@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ask five economists and you'll get five different answers - six if one went to Harvard.</b>
-> <p><i>Edgar R. Fiedler</i></p>
+> <b>There is definitely something sexy about a girl with an attitude and a pair of leather pants.</b>
+> <p><i>Eliza Dushku</i></p>
 
 <br>
