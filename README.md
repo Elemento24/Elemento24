@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The second album was emotionally exhausting and my life felt like it had become very serious at a very young age.</b>
-> <p><i>Delta Goodrem</i></p>
+> <b>If a person with a bullet in Dallas can change the world, imagine a person with an idea could do.</b>
+> <p><i>J. Michael Straczynski</i></p>
 
 <br>
