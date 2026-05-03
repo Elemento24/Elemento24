@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Virtue is not left to stand alone. He who practices it will have neighbors.</b>
-> <p><i>Confucius</i></p>
+> <b>Ability is the art of getting credit for all the home runs somebody else hits.</b>
+> <p><i>Casey Stengel</i></p>
 
 <br>
