@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to wait six months to purchase a fuel efficient automobile made from overseas.</b>
-> <p><i>Ed Markey</i></p>
+> <b>I'd like to do a lot of things - whether in design or architecture or business.</b>
+> <p><i>Caroline Wozniacki</i></p>
 
 <br>
