@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is definitely something sexy about a girl with an attitude and a pair of leather pants.</b>
-> <p><i>Eliza Dushku</i></p>
+> <b>You have to wait six months to purchase a fuel efficient automobile made from overseas.</b>
+> <p><i>Ed Markey</i></p>
 
 <br>
