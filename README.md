@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is your business when the wall next door catches fire.</b>
-> <p><i>Horace</i></p>
+> <b>It doesn't matter what color, sex, religion, age, sexual orientation, etc., everyone should have the same freedoms and liberties.</b>
+> <p><i>Lance Bass</i></p>
 
 <br>
