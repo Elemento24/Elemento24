@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All business proceeds on beliefs, or judgements of probabilities, and not on certainties.</b>
-> <p><i>Charles W. Eliot</i></p>
+> <b>Probably the happiest period in life most frequently is in middle age, when the eager passions of youth are cooled, and the infirmities of age not yet begun as we see that the shadows, which are at morning and evening so large, almost entirely disappear at midday.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
