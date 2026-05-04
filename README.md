@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Probably the happiest period in life most frequently is in middle age, when the eager passions of youth are cooled, and the infirmities of age not yet begun as we see that the shadows, which are at morning and evening so large, almost entirely disappear at midday.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>You will reciprocally promise love, loyalty and matrimonial honesty. We only want for you this day that these words constitute the principle of your entire life and that with the help of divine grace you will observe these solemn vows that today, before God, you formulate.</b>
+> <p><i>Pope John Paul II</i></p>
 
 <br>
