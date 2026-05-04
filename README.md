@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty: the adjustment of all parts proportionately so that one cannot add or subtract or change without impairing the harmony of the whole.</b>
-> <p><i>Leon Battista Alberti</i></p>
+> <b>At the age of four with paper hats and wooden swords we're all Generals. Only some of us never grow out of it.</b>
+> <p><i>Peter Ustinov</i></p>
 
 <br>
