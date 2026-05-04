@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To be honest, I sort of feel like 'movie actor' isn't of this time. I love it. But it's a 20th-century art form.</b>
-> <p><i>Joseph Gordon-Levitt</i></p>
+> <b>All business proceeds on beliefs, or judgements of probabilities, and not on certainties.</b>
+> <p><i>Charles W. Eliot</i></p>
 
 <br>
