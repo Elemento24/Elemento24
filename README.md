@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If only we could persuade galleries to observe a fallow period in which, for two months every other year, new and old works of art could be sold in back rooms and all main galleries would be devoted to revisiting shows gone by.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>I find, in being black, a thing of beauty: a joy a strength a secret cup of gladness.</b>
+> <p><i>Ossie Davis</i></p>
 
 <br>
