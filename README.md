@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm 20 years old. I like to party as much as anyone my age. Going clubbing is my way of relaxing or releasing a lot of stress. I don't feel that I should have to justify that part of my life. I don't know that I'm necessarily an addict.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>Beauty is only skin deep. If you go after someone just because she's beautiful but don't have anything to talk about, it's going to get boring fast. You want to look beyond the surface and see if you can have fun or if you have anything in common with this person.</b>
+> <p><i>Amanda Peet</i></p>
 
 <br>
