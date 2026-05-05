@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I find, in being black, a thing of beauty: a joy a strength a secret cup of gladness.</b>
-> <p><i>Ossie Davis</i></p>
+> <b>I went to watch my father at Silverstone in the early 1950s, and I've still got the car he was in.</b>
+> <p><i>Nick Mason</i></p>
 
 <br>
