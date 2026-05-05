@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you are a mother, you are never really alone in your thoughts. A mother always has to think twice, once for herself and once for her child.</b>
-> <p><i>Sophia Loren</i></p>
+> <b>If only we could persuade galleries to observe a fallow period in which, for two months every other year, new and old works of art could be sold in back rooms and all main galleries would be devoted to revisiting shows gone by.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
