@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only a monopolist could study a business and ruin it by giving away products.</b>
-> <p><i>Scott McNealy</i></p>
+> <b>It doesn't matter about money having it, not having it. Or having clothes, or not having them. You're still left alone with yourself in the end.</b>
+> <p><i>Billy Idol</i></p>
 
 <br>
