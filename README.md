@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is only skin deep. If you go after someone just because she's beautiful but don't have anything to talk about, it's going to get boring fast. You want to look beyond the surface and see if you can have fun or if you have anything in common with this person.</b>
-> <p><i>Amanda Peet</i></p>
+> <b>Find beauty not only in the thing itself but in the pattern of the shadows, the light and dark which that thing provides.</b>
+> <p><i>Junichiro Tanizaki</i></p>
 
 <br>
