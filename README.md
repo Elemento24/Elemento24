@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It doesn't matter about money having it, not having it. Or having clothes, or not having them. You're still left alone with yourself in the end.</b>
-> <p><i>Billy Idol</i></p>
+> <b>There are no better cosmetics than a severe temperance and purity, modesty and humility, a gracious temper and calmness of spirit and there is no true beauty without the signatures of these graces in the very countenance.</b>
+> <p><i>Arthur Helps</i></p>
 
 <br>
