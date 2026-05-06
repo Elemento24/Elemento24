@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life doesn't require that we be the best, only that we try our best.</b>
-> <p><i>H. Jackson Brown, Jr.</i></p>
+> <b>Let us be true: this is the highest maxim of art and of life, the secret of eloquence and of virtue, and of all moral authority.</b>
+> <p><i>Henri Frederic Amiel</i></p>
 
 <br>
