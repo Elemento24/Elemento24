@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shakespeare is all big themes, like the most amazing love, or the most scary war.</b>
-> <p><i>Anna Torv</i></p>
+> <b>Life doesn't require that we be the best, only that we try our best.</b>
+> <p><i>H. Jackson Brown, Jr.</i></p>
 
 <br>
