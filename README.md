@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pursuit of truth and beauty is a sphere of activity in which we are permitted to remain children all our lives.</b>
-> <p><i>Albert Einstein</i></p>
+> <b>It is easy enough to be friendly to one's friends. But to befriend the one who regards himself as your enemy is the quintessence of true religion. The other is mere business.</b>
+> <p><i>Mahatma Gandhi</i></p>
 
 <br>
