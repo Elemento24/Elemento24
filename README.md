@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Get in the race car do what I do then go home. We don't have freedom to do anything anymore.</b>
-> <p><i>Tony Stewart</i></p>
+> <b>Borrowing knowledge of reality from all sources, taking the best from every study, Science of Mind brings together the highest enlightenment of the ages.</b>
+> <p><i>Ernest Holmes</i></p>
 
 <br>
