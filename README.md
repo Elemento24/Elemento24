@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let us be true: this is the highest maxim of art and of life, the secret of eloquence and of virtue, and of all moral authority.</b>
-> <p><i>Henri Frederic Amiel</i></p>
+> <b>Art is not necessary at all. All that is necessary to make this world a better place to live in is to love - to love as Christ loved, as Buddha loved.</b>
+> <p><i>Isadora Duncan</i></p>
 
 <br>
