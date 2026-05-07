@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Second to agriculture, humbug is the biggest industry of our age.</b>
-> <p><i>Alfred Nobel</i></p>
+> <b>Failure doesn't mean you are a failure it just means you haven't succeeded yet.</b>
+> <p><i>Robert H. Schuller</i></p>
 
 <br>
