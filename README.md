@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Money is such an amazing teacher: What you choose to do with your money shows whether you are truly powerful or powerless.</b>
-> <p><i>Suze Orman</i></p>
+> <b>I tend not to wear accessories. I'm not one of those gals with a drawerful of amazing jewelry. I don't even have my ears pierced! But I have one bracelet that never comes off my wrist.</b>
+> <p><i>Rachael Taylor</i></p>
 
 <br>
