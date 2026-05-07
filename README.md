@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Borrowing knowledge of reality from all sources, taking the best from every study, Science of Mind brings together the highest enlightenment of the ages.</b>
-> <p><i>Ernest Holmes</i></p>
+> <b>Second to agriculture, humbug is the biggest industry of our age.</b>
+> <p><i>Alfred Nobel</i></p>
 
 <br>
