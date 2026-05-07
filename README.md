@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you forgive, you in no way change the past - but you sure do change the future.</b>
-> <p><i>Bernard Meltzer</i></p>
+> <b>People never cease to amaze me.</b>
+> <p><i>Tina Yothers</i></p>
 
 <br>
