@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm in show business... I want to hang out with Janet Jackson, not Jesse Jackson.</b>
-> <p><i>Chris Rock</i></p>
+> <b>It's amazing, it doesn't feel like it has been 10 years since retirement.</b>
+> <p><i>Gabriela Sabatini</i></p>
 
 <br>
