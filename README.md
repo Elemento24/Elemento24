@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm happy to report that 'The New Press' is still in business to this day. But not thanks to me. I was a really bad publishing intern.</b>
-> <p><i>Lev Grossman</i></p>
+> <b>How old would you be if you didn't know how old you are?</b>
+> <p><i>Satchel Paige</i></p>
 
 <br>
