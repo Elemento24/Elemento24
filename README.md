@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd get kicked out of buildings all day long, people would rip up my business card in my face. It's a humbling business to be in. But I knew I could sell and I knew I wanted to sell something I had created. I cut the feet out of those pantyhose and I knew I was on to something. This was it.</b>
-> <p><i>Sara Blakely</i></p>
+> <b>People are craving this great progress in electronics, going after computers, the Internet, etc. It's a giant progress technologically. But they must have a balance of soul, a balance for human beauty. That means art has an important role.</b>
+> <p><i>Mstislav Rostropovich</i></p>
 
 <br>
