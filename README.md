@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing, it doesn't feel like it has been 10 years since retirement.</b>
-> <p><i>Gabriela Sabatini</i></p>
+> <b>I'd get kicked out of buildings all day long, people would rip up my business card in my face. It's a humbling business to be in. But I knew I could sell and I knew I wanted to sell something I had created. I cut the feet out of those pantyhose and I knew I was on to something. This was it.</b>
+> <p><i>Sara Blakely</i></p>
 
 <br>
