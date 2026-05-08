@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are only two things a child will share willingly communicable diseases and its mother's age.</b>
-> <p><i>Benjamin Spock</i></p>
+> <b>I'm in show business... I want to hang out with Janet Jackson, not Jesse Jackson.</b>
+> <p><i>Chris Rock</i></p>
 
 <br>
