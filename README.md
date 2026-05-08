@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are craving this great progress in electronics, going after computers, the Internet, etc. It's a giant progress technologically. But they must have a balance of soul, a balance for human beauty. That means art has an important role.</b>
-> <p><i>Mstislav Rostropovich</i></p>
+> <b>Experience taught me a few things. One is to listen to your gut, no matter how good something sounds on paper. The second is that you're generally better off sticking with what you know. And the third is that sometimes your best investments are the ones you don't make.</b>
+> <p><i>Donald Trump</i></p>
 
 <br>
