@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wit as an instrument of revenge is as infamous as art is as a means of sensual titillation.</b>
-> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
+> <b>I'm happy to report that 'The New Press' is still in business to this day. But not thanks to me. I was a really bad publishing intern.</b>
+> <p><i>Lev Grossman</i></p>
 
 <br>
