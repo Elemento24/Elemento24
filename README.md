@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>How old would you be if you didn't know how old you are?</b>
-> <p><i>Satchel Paige</i></p>
+> <b>There is a role and function for beauty in our time.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
