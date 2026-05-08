@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a role and function for beauty in our time.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>So long as you don't feel life's paltry and a miserable business, the rest doesn't matter, happiness or unhappiness.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
