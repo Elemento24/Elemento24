@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was on my fifth birthday that Papa put his hand on my shoulder and said, 'Remember, my son, if you ever need a helping hand, you'll find one at the end of your arm.'</b>
-> <p><i>Sam Levenson</i></p>
+> <b>I did the best I could, and in some arenas, my best was not good enough. I've made some bad choices.</b>
+> <p><i>Amy Grant</i></p>
 
 <br>
