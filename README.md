@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm aware if I'm playing at my best I'm tough to beat. And I enjoy that.</b>
-> <p><i>Tiger Woods</i></p>
+> <b>Always Do Your Best. Your best is going to change from moment to moment it will be different when you are healthy as opposed to sick. Under any circumstance, simply do your best, and you will avoid self-judgment, self-abuse and regret.</b>
+> <p><i>Miguel Angel Ruiz</i></p>
 
 <br>
