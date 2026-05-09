@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At home in Ireland, there's a habit of avoidance, an ironical attitude towards the authority figure.</b>
-> <p><i>Seamus Heaney</i></p>
+> <b>Mechanization best serves mediocrity.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
