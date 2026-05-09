@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The man who has done his level best... is a success, even though the world may write him down a failure.</b>
-> <p><i>B. C. Forbes</i></p>
+> <b>My sister, she's amazing. She sort of inspired me to take this journey to Latin America.</b>
+> <p><i>Jenna Bush</i></p>
 
 <br>
