@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Freedom is the sure possession of those alone who have the courage to defend it.</b>
-> <p><i>Pericles</i></p>
+> <b>The best part of beauty is that which no picture can express.</b>
+> <p><i>Francis Bacon</i></p>
 
 <br>
