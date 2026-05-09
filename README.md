@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Always Do Your Best. Your best is going to change from moment to moment it will be different when you are healthy as opposed to sick. Under any circumstance, simply do your best, and you will avoid self-judgment, self-abuse and regret.</b>
-> <p><i>Miguel Angel Ruiz</i></p>
+> <b>If you love dance and you have the gift of teaching, teaching is super amazing and important because my teachers planted that seed in me. As a teacher you understand the difference or the definition of a Baryshnikov or a Gregory Hines, so teaching is really important and very necessary.</b>
+> <p><i>Laurieann Gibson</i></p>
 
 <br>
