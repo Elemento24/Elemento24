@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mechanization best serves mediocrity.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>The man who has done his level best... is a success, even though the world may write him down a failure.</b>
+> <p><i>B. C. Forbes</i></p>
 
 <br>
