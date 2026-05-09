@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My sister, she's amazing. She sort of inspired me to take this journey to Latin America.</b>
-> <p><i>Jenna Bush</i></p>
+> <b>Throughout my whole life, as a performer, I've never played with a band. I've always played alone, so I was never required to stay in rhythm or anything. So it was a real different experience for me to start playing with a band. There were so many basic things for me to learn.</b>
+> <p><i>Steve Martin</i></p>
 
 <br>
