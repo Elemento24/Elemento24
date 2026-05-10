@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Under Barack Obama, the only 'Change' is that 'Hope' has been hard to find. Now millions of Americans are insecure about their future. But instead of inspiring us by reminding us of what makes us special, he divides us against each other. He tells Americans they're worse off because others are better off. That people got rich by making others poor.</b>
-> <p><i>Marco Rubio</i></p>
+> <b>I would hope that understanding and reconciliation are not limited to the 19th hole alone.</b>
+> <p><i>Gerald R. Ford</i></p>
 
 <br>
