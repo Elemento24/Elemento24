@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best medicine I know for rheumatism is to thank the Lord that it ain't gout.</b>
-> <p><i>Josh Billings</i></p>
+> <b>'Breaking Bad' is the best, the greatest, the most amazing thing I have ever watched on television.</b>
+> <p><i>Tony Kaye</i></p>
 
 <br>
