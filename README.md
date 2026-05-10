@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was little, I saw the play 'Les Miserables' on Broadway, I thought it was the most amazing thing I have ever seen.</b>
-> <p><i>Ashley Tisdale</i></p>
+> <b>There's nothing wrong with the car except that it's on fire.</b>
+> <p><i>Murray Walker</i></p>
 
 <br>
