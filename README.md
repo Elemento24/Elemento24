@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lesser artists borrow, great artists steal.</b>
-> <p><i>Igor Stravinsky</i></p>
+> <b>The best medicine I know for rheumatism is to thank the Lord that it ain't gout.</b>
+> <p><i>Josh Billings</i></p>
 
 <br>
