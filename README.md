@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always loved music. You know, my parents said I started singing when I was 4, in the car.</b>
-> <p><i>Bob Seger</i></p>
+> <b>I allow myself one nice car.</b>
+> <p><i>Slash</i></p>
 
 <br>
