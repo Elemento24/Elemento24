@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no spot of ground, however arid, bare or ugly, that cannot be tamed into such a state as may give an impression of beauty and delight.</b>
-> <p><i>Gertrude Jekyll</i></p>
+> <b>There is one other business where the customer is always wrong and that's the media.</b>
+> <p><i>Rush Limbaugh</i></p>
 
 <br>
