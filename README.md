@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In less enlightened times, the best way to impress women was to own a hot car. But women wised up and realized it was better to buy their own hot cars so they wouldn't have to ride around with jerks.</b>
-> <p><i>Scott Adams</i></p>
+> <b>There is no spot of ground, however arid, bare or ugly, that cannot be tamed into such a state as may give an impression of beauty and delight.</b>
+> <p><i>Gertrude Jekyll</i></p>
 
 <br>
