@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would hope that understanding and reconciliation are not limited to the 19th hole alone.</b>
-> <p><i>Gerald R. Ford</i></p>
+> <b>You have to accept whatever comes and the only important thing is that you meet it with courage and with the best that you have to give.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
