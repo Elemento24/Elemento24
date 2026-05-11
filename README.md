@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is only one thing for us to do, and that is to do our level best right where we are every day of our lives To use our best judgment, and then to trust the rest to that Power which holds the forces of the universe in his hands.</b>
-> <p><i>Orison Swett Marden</i></p>
+> <b>It's tough because a lot of my friends in normal life, a lot of my friends in the entertainment business, and a lot of my friends in the wrestling business are gay. Just to say something spiteful and hurtful, I don't get it... if it was true and I was gay, I'd embrace it, and I'd tell you guys about it and I'd celebrate it.</b>
+> <p><i>Hulk Hogan</i></p>
 
 <br>
