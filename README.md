@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is one other business where the customer is always wrong and that's the media.</b>
-> <p><i>Rush Limbaugh</i></p>
+> <b>Beauty, like truth, is relative to the time when one lives and to the individual who can grasp it. The expression of beauty is in direct ratio to the power of conception the artist has acquired.</b>
+> <p><i>Gustave Courbet</i></p>
 
 <br>
