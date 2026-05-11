@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would like to see more airplay for all artists, no matter what age. I think there's a lot of money being spent toward the young guys, but a lot of the older guys are the ones who blazed the trail for those young guys.</b>
-> <p><i>Willie Nelson</i></p>
+> <b>What We want is to make it possible for our unfortunate people to live a life of industry for it is by steady work alone that we hope for our physical and moral rehabilitation. For this reason above all we have undertaken to rally our people around our ideal.</b>
+> <p><i>Theodor Herzl</i></p>
 
 <br>
