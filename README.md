@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I learned to change my accent in England, your accent identifies you very strongly with a class, and I did not want to be held back.</b>
-> <p><i>Sting</i></p>
+> <b>I'd like to introduce someone who has just come into my life. I've admired him for 35 years. He's someone who represents integrity, honesty, art, and on top of that stuff I'm actually sleeping with him.</b>
+> <p><i>Shirley MacLaine</i></p>
 
 <br>
