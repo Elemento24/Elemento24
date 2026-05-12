@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My duty is to try to reach beauty. Cinema is emotion. When you laugh you cry.</b>
-> <p><i>Roberto Benigni</i></p>
+> <b>As you grow in this business, you learn how to do more with less.</b>
+> <p><i>Morgan Freeman</i></p>
 
 <br>
