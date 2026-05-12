@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As you grow in this business, you learn how to do more with less.</b>
-> <p><i>Morgan Freeman</i></p>
+> <b>The soul that sees beauty may sometimes walk alone.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
