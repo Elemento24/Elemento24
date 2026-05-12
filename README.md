@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The soul that sees beauty may sometimes walk alone.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>The dialogue between client and architect is about as intimate as any conversation you can have, because when you're talking about building a house, you're talking about dreams.</b>
+> <p><i>Robert A. M. Stern</i></p>
 
 <br>
