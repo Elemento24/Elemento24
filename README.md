@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't move so fast that you try to change the mores faster than people can accept it. That doesn't mean you do nothing, but it means that you do the things that need to be done according to priority.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>My duty is to try to reach beauty. Cinema is emotion. When you laugh you cry.</b>
+> <p><i>Roberto Benigni</i></p>
 
 <br>
