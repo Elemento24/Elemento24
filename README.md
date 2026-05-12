@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd like to introduce someone who has just come into my life. I've admired him for 35 years. He's someone who represents integrity, honesty, art, and on top of that stuff I'm actually sleeping with him.</b>
-> <p><i>Shirley MacLaine</i></p>
+> <b>You can't move so fast that you try to change the mores faster than people can accept it. That doesn't mean you do nothing, but it means that you do the things that need to be done according to priority.</b>
+> <p><i>Eleanor Roosevelt</i></p>
 
 <br>
