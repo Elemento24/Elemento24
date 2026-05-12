@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be remembered for the work that I've done, rather than the car accidents that I've gotten into, the men that I've not dated - or the man that I have.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>I've seen so many people in this business that made a fortune. They get old and broke and can't make any money. I tell you something... no one's going to play a benefit for Jimmy Dean.</b>
+> <p><i>Jimmy Dean</i></p>
 
 <br>
