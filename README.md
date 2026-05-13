@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Right's view of government and the Left's view of big business are both correct.</b>
-> <p><i>Robert Anton Wilson</i></p>
+> <b>I don't want to look at other people my age in leather. Why would I put it on?</b>
+> <p><i>George Michael</i></p>
 
 <br>
