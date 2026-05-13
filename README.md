@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Living the past is a dull and lonely business looking back strains the neck muscles, causing you to bump into people not going your way.</b>
-> <p><i>Edna Ferber</i></p>
+> <b>To keep the record straight, it wasn't always John and Yoko. We've all accused one another of various business things we tend to be pretty paranoid by now, as you can imagine. There's a lot of money involved.</b>
+> <p><i>Paul McCartney</i></p>
 
 <br>
