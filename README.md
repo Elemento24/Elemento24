@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is good taste, and good taste alone, that possesses the power to sterilize and is always the first handicap to any creative functioning.</b>
-> <p><i>Salvador Dali</i></p>
+> <b>Living the past is a dull and lonely business looking back strains the neck muscles, causing you to bump into people not going your way.</b>
+> <p><i>Edna Ferber</i></p>
 
 <br>
