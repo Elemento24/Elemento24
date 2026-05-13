@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The dialogue between client and architect is about as intimate as any conversation you can have, because when you're talking about building a house, you're talking about dreams.</b>
-> <p><i>Robert A. M. Stern</i></p>
+> <b>The world can forgive practically anything except people who mind their own business.</b>
+> <p><i>Margaret Mitchell</i></p>
 
 <br>
