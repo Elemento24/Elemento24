@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'll never forget my 24th birthday when my tooth got punched out. And for a second I was like, it would be really hilarious if I sold it on eBay. But I can't, that's just too creepy. I don't think I can go there.</b>
-> <p><i>Evan Rachel Wood</i></p>
+> <b>My therapist says I still haven't got in touch with my anger. Maybe one day I'm going to explode. But I'm still really happy. I know it looks like a strange and painful upbringing - all those experiences led me to the paths that I'm on now.</b>
+> <p><i>Drew Barrymore</i></p>
 
 <br>
