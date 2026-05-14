@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I define nothing. Not beauty, not patriotism. I take each thing as it is, without prior rules about what it should be.</b>
-> <p><i>Bob Dylan</i></p>
+> <b>Golf is so popular simply because it is the best game in the world at which to be bad.</b>
+> <p><i>A. A. Milne</i></p>
 
 <br>
