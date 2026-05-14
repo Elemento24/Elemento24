@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Goals allow you to control the direction of change in your favor.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>It is more rewarding to watch money change the world than watch it accumulate.</b>
+> <p><i>Gloria Steinem</i></p>
 
 <br>
