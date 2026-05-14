@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Postal Service's unmatched ability to reach every household and business in America six days a week is a vital part of the nation's infrastructure.</b>
-> <p><i>Joe Baca</i></p>
+> <b>Hesitation increases in relation to risk in equal proportion to age.</b>
+> <p><i>Ernest Hemingway</i></p>
 
 <br>
