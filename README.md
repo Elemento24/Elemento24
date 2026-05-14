@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Golf is so popular simply because it is the best game in the world at which to be bad.</b>
-> <p><i>A. A. Milne</i></p>
+> <b>I'll never forget my 24th birthday when my tooth got punched out. And for a second I was like, it would be really hilarious if I sold it on eBay. But I can't, that's just too creepy. I don't think I can go there.</b>
+> <p><i>Evan Rachel Wood</i></p>
 
 <br>
