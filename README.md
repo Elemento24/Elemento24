@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hesitation increases in relation to risk in equal proportion to age.</b>
-> <p><i>Ernest Hemingway</i></p>
+> <b>One keeps forgetting old age up to the very brink of the grave.</b>
+> <p><i>Sidonie Gabrielle Colette</i></p>
 
 <br>
