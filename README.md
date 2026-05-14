@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One keeps forgetting old age up to the very brink of the grave.</b>
-> <p><i>Sidonie Gabrielle Colette</i></p>
+> <b>I decided that if I could paint that flower in a huge scale, you could not ignore its beauty.</b>
+> <p><i>Georgia O'Keeffe</i></p>
 
 <br>
