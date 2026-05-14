@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A few years back, when my style was 'punk grandma,' I picked up an amazing pair of sandals - orthopaedic ones, with really thick soles. I've given them away to a friend now, because these days my look is more '1980s substitute teacher gone wild.'</b>
-> <p><i>Beth Ditto</i></p>
+> <b>The Postal Service's unmatched ability to reach every household and business in America six days a week is a vital part of the nation's infrastructure.</b>
+> <p><i>Joe Baca</i></p>
 
 <br>
