@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're feeling insecure and you need to feel special, the best place to go is somewhere foreign where people treat you as special because you're different.</b>
-> <p><i>Kristin Scott Thomas</i></p>
+> <b>Man shall not live by bread alone, but by every word that proceeds from the mouth of God.</b>
+> <p><i>Jesus Christ</i></p>
 
 <br>
