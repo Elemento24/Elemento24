@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I decided that if I could paint that flower in a huge scale, you could not ignore its beauty.</b>
-> <p><i>Georgia O'Keeffe</i></p>
+> <b>If you're feeling insecure and you need to feel special, the best place to go is somewhere foreign where people treat you as special because you're different.</b>
+> <p><i>Kristin Scott Thomas</i></p>
 
 <br>
