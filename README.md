@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We awaken in others the same attitude of mind we hold toward them.</b>
-> <p><i>Elbert Hubbard</i></p>
+> <b>Everything in life that we really accept undergoes a change.</b>
+> <p><i>Katherine Mansfield</i></p>
 
 <br>
