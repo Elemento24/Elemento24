@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Time, in general, has always been a central obsession of mine - what it does to people, how it can constitute a plot all on its own. So naturally, I am interested in old age.</b>
-> <p><i>Anne Tyler</i></p>
+> <b>In the social business marketplace, brands that hope to build loyal and growing communities do so most effectively when they demonstrate their core values and allow a community to build and engage around it.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
