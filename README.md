@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Loss is nothing else but change, and change is Nature's delight.</b>
-> <p><i>Marcus Aurelius</i></p>
+> <b>Those people in New York are not gonna change me none.</b>
+> <p><i>Elvis Presley</i></p>
 
 <br>
