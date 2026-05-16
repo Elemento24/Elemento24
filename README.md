@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The hardest thing about being in this business is just being able to be yourself. People act like there's this one set of rules to follow to be a pop star and I think, 'Well, you say I'm a pop star, so maybe that's not true.'</b>
-> <p><i>Kelly Clarkson</i></p>
+> <b>I hope I'm not a tourist attraction - I'm sure that they come here really because St. Andrews is just amazing, a beautiful place.</b>
+> <p><i>Prince William</i></p>
 
 <br>
