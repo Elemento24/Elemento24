@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing is so intolerable to man as being fully at rest, without a passion, without business, without entertainment, without care.</b>
-> <p><i>Blaise Pascal</i></p>
+> <b>A guy named Charlie Beacham was my first mentor at Ford. He taught me the importance of the dealers, and he rubbed my nose in the retail business.</b>
+> <p><i>Lee Iacocca</i></p>
 
 <br>
