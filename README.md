@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best portion of a good man's life is his little, nameless, unremembered acts of kindness and of love.</b>
-> <p><i>William Wordsworth</i></p>
+> <b>True life is lived when tiny changes occur.</b>
+> <p><i>Leo Tolstoy</i></p>
 
 <br>
