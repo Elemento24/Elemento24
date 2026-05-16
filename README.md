@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In every work of art the subject is primordial, whether the artist knows it or not. The measure of the formal qualities is only a sign of the measure of the artist's obsession with his subject the form is always in proportion to the obsession.</b>
-> <p><i>Alberto Giacometti</i></p>
+> <b>I really believe that all of us have a lot of darkness in our souls. Anger, rage, fear, sadness. I don't think that's only reserved for people who have horrible upbringings. I think it really exists and is part of the human condition. I think in the course of your life you figure out ways to deal with that.</b>
+> <p><i>Kevin Bacon</i></p>
 
 <br>
