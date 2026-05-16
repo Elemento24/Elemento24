@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A guy named Charlie Beacham was my first mentor at Ford. He taught me the importance of the dealers, and he rubbed my nose in the retail business.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>Anger will never disappear so long as thoughts of resentment are cherished in the mind. Anger will disappear just as soon as thoughts of resentment are forgotten.</b>
+> <p><i>John Dryden</i></p>
 
 <br>
