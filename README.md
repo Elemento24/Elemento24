@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hope I'm not a tourist attraction - I'm sure that they come here really because St. Andrews is just amazing, a beautiful place.</b>
-> <p><i>Prince William</i></p>
+> <b>Nothing is so intolerable to man as being fully at rest, without a passion, without business, without entertainment, without care.</b>
+> <p><i>Blaise Pascal</i></p>
 
 <br>
