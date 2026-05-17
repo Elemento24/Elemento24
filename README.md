@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Normal is getting dressed in clothes that you buy for work, driving through traffic in a car that you are still paying for, in order to get to a job that you need so you can pay for the clothes, car and the house that you leave empty all day in order to afford to live in it.</b>
-> <p><i>Ellen Goodman</i></p>
+> <b>Anybody under the age of forty knows hip-hop, gospel and R&ampB pretty well, and it's all a part of what we consider to be 'black music.' There is a natural synergy between the three.</b>
+> <p><i>John Legend</i></p>
 
 <br>
