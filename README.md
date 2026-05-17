@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't have any confidence in my beauty when I was young. I felt like a character actress, and I still do.</b>
-> <p><i>Meryl Streep</i></p>
+> <b>I think we all have blocks between us and the best version of ourselves, whether it's shyness, insecurity, anxiety, whether it's a physical block, and the story of a person overcoming that block to their best self. It's truly inspiring because I think all of us are engaged in that every day.</b>
+> <p><i>Tom Hooper</i></p>
 
 <br>
