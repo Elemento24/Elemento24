@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Do business managers have a commitment to anything more than the success of their company and to making money? It would be hard to say that they do. Indeed, many business leaders deny that there is any conflict between self-interest and the interests of all.</b>
-> <p><i>Peter Singer</i></p>
+> <b>I think that Scottish people, like Canadians, are often misunderstood and what I like about my Scottish friends and relatives is how quickly it can go from love to anger. It's a great dynamic.</b>
+> <p><i>Mike Myers</i></p>
 
 <br>
