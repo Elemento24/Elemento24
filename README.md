@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anybody under the age of forty knows hip-hop, gospel and R&ampB pretty well, and it's all a part of what we consider to be 'black music.' There is a natural synergy between the three.</b>
-> <p><i>John Legend</i></p>
+> <b>Yes, my grandfather worked with Thomas Edison on the electric car, and he sold electric cars at the 1900 World's Fair in Paris.</b>
+> <p><i>Al Jardine</i></p>
 
 <br>
