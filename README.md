@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first time I rode a bike I was four or five. I crashed into the back of a car.</b>
-> <p><i>David Millar</i></p>
+> <b>Beauty is but the sensible image of the Infinite. Like truth and justice it lives within us like virtue and the moral law it is a companion of the soul.</b>
+> <p><i>George Bancroft</i></p>
 
 <br>
