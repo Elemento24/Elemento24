@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Let us not look back in anger, nor forward in fear, but around in awareness.</b>
-> <p><i>James Thurber</i></p>
+> <b>I think the most exciting thing is that you expect people our age to know the music, but actually a lot of kids know the music, and if anything is left, we have left really good music, and that's the important part, not the mop-tops or whatever.</b>
+> <p><i>Ringo Starr</i></p>
 
 <br>
