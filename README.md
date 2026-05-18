@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The soul that sees beauty may sometimes walk alone.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>When anger rises, think of the consequences.</b>
+> <p><i>Confucius</i></p>
 
 <br>
