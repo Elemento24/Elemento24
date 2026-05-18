@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once I planned to write a book of poems entirely about the things in my pocket. But I found it would be too long and the age of the great epics is past.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>Let us not look back in anger, nor forward in fear, but around in awareness.</b>
+> <p><i>James Thurber</i></p>
 
 <br>
