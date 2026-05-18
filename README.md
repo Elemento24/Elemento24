@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When anger rises, think of the consequences.</b>
-> <p><i>Confucius</i></p>
+> <b>O, thou art fairer than the evening air clad in the beauty of a thousand stars.</b>
+> <p><i>Christopher Marlowe</i></p>
 
 <br>
