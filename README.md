@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's usually a big kind of vent of frustration or anger or sadness that puts me in the right frame of mind to write. It's such a cliche to say that artists write when they're down, but it's true for me. It's a relief to get out what's eating away at my heart or my soul or my head.</b>
-> <p><i>Ellie Goulding</i></p>
+> <b>A great city, whose image dwells in the memory of man, is the type of some great idea. Rome represents conquest Faith hovers over the towers of Jerusalem and Athens embodies the pre-eminent quality of the antique world, Art.</b>
+> <p><i>Benjamin Disraeli</i></p>
 
 <br>
