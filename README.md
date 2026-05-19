@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The human face is the organic seat of beauty. It is the register of value in development, a record of Experience, whose legitimate office is to perfect the life, a legible language to those who will study it, of the majestic mistress, the soul.</b>
-> <p><i>Eliza Farnham</i></p>
+> <b>The true and solid peace of nations consists not in equality of arms, but in mutual trust alone.</b>
+> <p><i>Pope John XXIII</i></p>
 
 <br>
