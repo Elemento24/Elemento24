@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm afraid that if you look at a thing long enough, it loses all of its meaning.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>It's usually a big kind of vent of frustration or anger or sadness that puts me in the right frame of mind to write. It's such a cliche to say that artists write when they're down, but it's true for me. It's a relief to get out what's eating away at my heart or my soul or my head.</b>
+> <p><i>Ellie Goulding</i></p>
 
 <br>
