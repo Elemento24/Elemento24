@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A great city, whose image dwells in the memory of man, is the type of some great idea. Rome represents conquest Faith hovers over the towers of Jerusalem and Athens embodies the pre-eminent quality of the antique world, Art.</b>
-> <p><i>Benjamin Disraeli</i></p>
+> <b>The human face is the organic seat of beauty. It is the register of value in development, a record of Experience, whose legitimate office is to perfect the life, a legible language to those who will study it, of the majestic mistress, the soul.</b>
+> <p><i>Eliza Farnham</i></p>
 
 <br>
