@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reason for the sadness of this modern age and the men who live in it is that it looks for the truth in everything and finds it.</b>
-> <p><i>Edmond de Goncourt</i></p>
+> <b>Life imitates art far more than art imitates Life.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
