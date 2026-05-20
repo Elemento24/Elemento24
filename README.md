@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Life imitates art far more than art imitates Life.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>Loneliness is my least favorite thing about life. The thing that I'm most worried about is just being alone without anybody to care for or someone who will care for me.</b>
+> <p><i>Anne Hathaway</i></p>
 
 <br>
