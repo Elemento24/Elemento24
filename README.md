@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Croatia is an amazing place.</b>
-> <p><i>Jean Reno</i></p>
+> <b>I get such lovely gifts from fans... amazing pictures, handmade jewellery. I'm very lucky!</b>
+> <p><i>Leona Lewis</i></p>
 
 <br>
