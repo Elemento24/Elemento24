@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Architecture is the learned game, correct and magnificent, of forms assembled in the light.</b>
-> <p><i>Le Corbusier</i></p>
+> <b>Never believe that a few caring people can't change the world. For, indeed, that's all who ever have.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
