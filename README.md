@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would like you all to give me a round of applause as I have not crashed my car in over 15 months.</b>
-> <p><i>Matthew Perry</i></p>
+> <b>I was in prison for a charge in Texas, murder one. Back in the '70s in Texas, I was there. I heard the shot. I was in the car.</b>
+> <p><i>Duane Chapman</i></p>
 
 <br>
