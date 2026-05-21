@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think being on a TV show is amazing but also, people get kind of used to seeing you a certain way and so it becomes a challenge to break free from that in a way.</b>
-> <p><i>Aubrey Plaza</i></p>
+> <b>I would like you all to give me a round of applause as I have not crashed my car in over 15 months.</b>
+> <p><i>Matthew Perry</i></p>
 
 <br>
