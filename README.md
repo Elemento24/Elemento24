@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist is an artist only because of his exquisite sense of beauty, a sense which shows him intoxicating pleasures, but which at the same time implies and contains an equally exquisite sense of all deformities and all disproportion.</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>The best way to make your dreams come true is to wake up.</b>
+> <p><i>Paul Valery</i></p>
 
 <br>
