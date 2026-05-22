@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to make your dreams come true is to wake up.</b>
-> <p><i>Paul Valery</i></p>
+> <b>I love the solitude of being on a plane and finally getting to read an entire book and being left alone.</b>
+> <p><i>Christina Ricci</i></p>
 
 <br>
