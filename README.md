@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I loved about 'Summer' was that they were these four bright kids with a wonderful future. In a way, she was the one with the brains, and then you have the beauty queen and the jock and the introvert.</b>
-> <p><i>Kevin Williamson</i></p>
+> <b>Sometimes I think I might not have written 'The Age of Miracles' if I hadn't grown up in California, if I hadn't been exposed to its very particular blend of beauty and disaster, of danger and denial.</b>
+> <p><i>Karen Thompson Walker</i></p>
 
 <br>
