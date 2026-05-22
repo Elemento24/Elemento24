@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In my experience, if you have to keep the lavatory door shut by extending your left leg, it's modern architecture.</b>
-> <p><i>Nancy Banks Smith</i></p>
+> <b>What I loved about 'Summer' was that they were these four bright kids with a wonderful future. In a way, she was the one with the brains, and then you have the beauty queen and the jock and the introvert.</b>
+> <p><i>Kevin Williamson</i></p>
 
 <br>
