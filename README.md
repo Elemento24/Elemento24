@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I know plenty of actresses in their early thirties who look amazing, although there's that old saying: 'Ladies get older, men get more distinguished.'</b>
-> <p><i>Scott Porter</i></p>
+> <b>Business is the salt of life.</b>
+> <p><i>Voltaire</i></p>
 
 <br>
