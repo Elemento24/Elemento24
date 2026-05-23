@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I couldn't find the sports car of my dreams, so I built it myself.</b>
-> <p><i>Ferdinand Porsche</i></p>
+> <b>I have laid aside business, and gone a'fishing.</b>
+> <p><i>Izaak Walton</i></p>
 
 <br>
