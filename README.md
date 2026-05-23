@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But once you have satisfied your material needs, which I think every wealth creator should - the house, the car, the plane, the boat - what comes next?</b>
-> <p><i>Tom Hunter</i></p>
+> <b>Well just meeting J. K. Rowling was amazing because she created all this world. And all the fans, we all get so obsessed with it and then you met the one person who made it all up. It was just so amazing. And I was just so amazed that that she wrote this book and all of the films have happened.</b>
+> <p><i>Evanna Lynch</i></p>
 
 <br>
