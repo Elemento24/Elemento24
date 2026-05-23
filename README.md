@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have laid aside business, and gone a'fishing.</b>
-> <p><i>Izaak Walton</i></p>
+> <b>Shadows sometimes people don't see shadows. The Chinese of course never paint them in pictures, oriental art never deals with shadow. But I noticed these shadows and I knew it meant it was sunny.</b>
+> <p><i>David Hockney</i></p>
 
 <br>
