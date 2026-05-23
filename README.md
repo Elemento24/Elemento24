@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was a little doubtful about the propriety of going to the Mammoth Cave without a gentleman escort, but if two ladies travel alone they must have the courage of men.</b>
-> <p><i>Maria Mitchell</i></p>
+> <b>Because of my age and because there's more work on the small screen. What it's missing in quality it makes up for in quantity. From an actor's selfish point of view.</b>
+> <p><i>Cesar Romero</i></p>
 
 <br>
