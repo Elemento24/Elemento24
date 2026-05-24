@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've already established my (political)machinery. It's like a car. It's fixed already. You just have to get in and drive it.</b>
-> <p><i>Manny Pacquiao</i></p>
+> <b>Age has been the perfect fire extinguisher for flaming youth.</b>
+> <p><i>Navjot Singh Sidhu</i></p>
 
 <br>
