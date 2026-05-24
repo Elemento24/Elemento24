@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Next to acquiring good friends, the best acquisition is that of good books.</b>
-> <p><i>Charles Caleb Colton</i></p>
+> <b>Humor is one of the best ingredients of survival.</b>
+> <p><i>Aung San Suu Kyi</i></p>
 
 <br>
