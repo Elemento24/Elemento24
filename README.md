@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The contemporary thing in art and literature is the thing which doesn't make enough difference to the people of that generation so that they can accept it or reject it.</b>
-> <p><i>Gertrude Stein</i></p>
+> <b>I've already established my (political)machinery. It's like a car. It's fixed already. You just have to get in and drive it.</b>
+> <p><i>Manny Pacquiao</i></p>
 
 <br>
