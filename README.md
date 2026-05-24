@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be perceived as a guy who played his best in all facets, not just scoring. A guy who loved challenges.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>I vividly remember being 14. That was the age when I started to get happy: I started being a writer and stopped being a loser.</b>
+> <p><i>Anthony Horowitz</i></p>
 
 <br>
