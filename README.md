@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My parents got married late and they had kids late, so I never felt a social or cultural thing to be married or pregnant or a homeowner by a certain age.</b>
-> <p><i>Anna Kendrick</i></p>
+> <b>The balance of private good and general welfare is at the bottom of civilized morals but the morals of the Heroic Age are founded on individuality, and on nothing else.</b>
+> <p><i>Lascelles Abercrombie</i></p>
 
 <br>
