@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The balance of private good and general welfare is at the bottom of civilized morals but the morals of the Heroic Age are founded on individuality, and on nothing else.</b>
-> <p><i>Lascelles Abercrombie</i></p>
+> <b>I absolutely don't care about my looks and I'm so used to them that I wouldn't change a thing. I would end up missing my defects.</b>
+> <p><i>Colin Firth</i></p>
 
 <br>
