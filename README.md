@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age carries all things away, even the mind.</b>
-> <p><i>Virgil</i></p>
+> <b>My parents got married late and they had kids late, so I never felt a social or cultural thing to be married or pregnant or a homeowner by a certain age.</b>
+> <p><i>Anna Kendrick</i></p>
 
 <br>
