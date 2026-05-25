@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rhetoric is the art of ruling the minds of men.</b>
-> <p><i>Plato</i></p>
+> <b>For a while I felt very alone sort of out there in the world of comics, especially here in the States.</b>
+> <p><i>Bill Sienkiewicz</i></p>
 
 <br>
