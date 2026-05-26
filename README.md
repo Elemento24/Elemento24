@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Woman's at best a contradiction still.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>Anger tears me up inside... My own... or anyone else's.</b>
+> <p><i>Betty White</i></p>
 
 <br>
