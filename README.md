@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No dancer can watch Fred Astaire and not know that we all should have been in another business.</b>
-> <p><i>Mikhail Baryshnikov</i></p>
+> <b>The progress of evolution from President Washington to President Grant was alone evidence to upset Darwin.</b>
+> <p><i>Henry Adams</i></p>
 
 <br>
