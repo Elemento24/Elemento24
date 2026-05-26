@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I absolutely don't care about my looks and I'm so used to them that I wouldn't change a thing. I would end up missing my defects.</b>
-> <p><i>Colin Firth</i></p>
+> <b>No dancer can watch Fred Astaire and not know that we all should have been in another business.</b>
+> <p><i>Mikhail Baryshnikov</i></p>
 
 <br>
