@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't help getting older, but you don't have to get old.</b>
-> <p><i>George Burns</i></p>
+> <b>Woman's at best a contradiction still.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
