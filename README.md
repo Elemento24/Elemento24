@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It can be kind of gruesome at times, making things alone.</b>
-> <p><i>Jenny Holzer</i></p>
+> <b>Every animal leaves traces of what it was man alone leaves traces of what he created.</b>
+> <p><i>Jacob Bronowski</i></p>
 
 <br>
