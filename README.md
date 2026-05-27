@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Mass transportation is doomed to failure in North America because a person's car is the only place where he can be alone and think.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>It is one of my sources of happiness never to desire a knowledge of other people's business.</b>
+> <p><i>Dolley Madison</i></p>
 
 <br>
