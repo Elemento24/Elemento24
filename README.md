@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The owners don't win by having a lockout. Shutting down your business is not good for anybody and it's certainly not good for the players, it's certainly not good for the fans. And that's most important to us.</b>
-> <p><i>Roger Goodell</i></p>
+> <b>A human being is a single being. Unique and unrepeatable.</b>
+> <p><i>Eileen Caddy</i></p>
 
 <br>
