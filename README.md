@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is one of my sources of happiness never to desire a knowledge of other people's business.</b>
-> <p><i>Dolley Madison</i></p>
+> <b>The owners don't win by having a lockout. Shutting down your business is not good for anybody and it's certainly not good for the players, it's certainly not good for the fans. And that's most important to us.</b>
+> <p><i>Roger Goodell</i></p>
 
 <br>
