@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Coldplay fans are the best in the world. If you like Coldplay then you're obviously very intelligent and good looking and all-around brilliant.</b>
-> <p><i>Chris Martin</i></p>
+> <b>The 1st period is won by the best technician. The 2nd period is won by the kid in the best shape. The 3rd period is won by the kid with the biggest heart.</b>
+> <p><i>Dan Gable</i></p>
 
 <br>
