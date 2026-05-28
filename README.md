@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The reason for the slow progress of the world seems to lie in a single fact. Every man is born under the yoke, and grows up beneath the oppressions of his age.</b>
-> <p><i>John Jay Chapman</i></p>
+> <b>What we actually learn, from any given set of circumstances, determines whether we become increasingly powerless or more powerful.</b>
+> <p><i>Blaine Lee</i></p>
 
 <br>
