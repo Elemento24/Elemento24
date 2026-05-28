@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What we actually learn, from any given set of circumstances, determines whether we become increasingly powerless or more powerful.</b>
-> <p><i>Blaine Lee</i></p>
+> <b>Coldplay fans are the best in the world. If you like Coldplay then you're obviously very intelligent and good looking and all-around brilliant.</b>
+> <p><i>Chris Martin</i></p>
 
 <br>
