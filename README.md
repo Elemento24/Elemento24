@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Lesser artists borrow, great artists steal.</b>
-> <p><i>Igor Stravinsky</i></p>
+> <b>If we are to change our world view, images have to change. The artist now has a very important job to do. He's not a little peripheral figure entertaining rich people, he's really needed.</b>
+> <p><i>Vaclav Havel</i></p>
 
 <br>
