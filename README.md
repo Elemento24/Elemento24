@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm drawn to furniture design as complete architecture on a minor scale.</b>
-> <p><i>Brad Pitt</i></p>
+> <b>Yes'm, old friends is always best, 'less you can catch a new one that's fit to make an old one out of.</b>
+> <p><i>Sarah Orne Jewett</i></p>
 
 <br>
