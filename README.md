@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best book, like the best speech, will do it all - make us laugh, think, cry and cheer - preferably in that order.</b>
-> <p><i>Madeleine Albright</i></p>
+> <b>If any demonstrator ever lays down in front of my car, it'll be the last car he'll ever lay down in front of.</b>
+> <p><i>George C. Wallace</i></p>
 
 <br>
