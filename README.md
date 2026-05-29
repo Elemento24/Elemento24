@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're curious, London's an amazing place.</b>
-> <p><i>David Bailey</i></p>
+> <b>I have always admired and had enormous respect for Elizabeth Taylor. She was not only an incredible actress but an amazing woman as well.</b>
+> <p><i>Lindsay Lohan</i></p>
 
 <br>
