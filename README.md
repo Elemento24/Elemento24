@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of love is largely the art of persistence.</b>
-> <p><i>Albert Ellis</i></p>
+> <b>If you're curious, London's an amazing place.</b>
+> <p><i>David Bailey</i></p>
 
 <br>
