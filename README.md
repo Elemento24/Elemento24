@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have always admired and had enormous respect for Elizabeth Taylor. She was not only an incredible actress but an amazing woman as well.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>In one century, we've added 28 years to our average life span - a change so rapid that our brains couldn't possibly have evolved to accommodate it.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
