@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If any demonstrator ever lays down in front of my car, it'll be the last car he'll ever lay down in front of.</b>
-> <p><i>George C. Wallace</i></p>
+> <b>The art of love is largely the art of persistence.</b>
+> <p><i>Albert Ellis</i></p>
 
 <br>
