@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the age of the individual's liquidation, the question of individuality must be raised anew.</b>
-> <p><i>Theodor Adorno</i></p>
+> <b>It's just amazing to do something that's part of a pop culture phenomenon.</b>
+> <p><i>Chaske Spencer</i></p>
 
 <br>
