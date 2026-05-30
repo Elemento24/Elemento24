@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Business can be a source of progressive change.</b>
-> <p><i>Jerry Greenfield</i></p>
+> <b>My wife and I, unlike many intellectuals, spent five years working on assembly lines. We came to fully understand the criticisms of the industrial age, in which you are an appendage of a machine that sets the pace.</b>
+> <p><i>Alvin Toffler</i></p>
 
 <br>
