@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The goal seems to me at times just to be business first.</b>
-> <p><i>Laura Linney</i></p>
+> <b>Business can be a source of progressive change.</b>
+> <p><i>Jerry Greenfield</i></p>
 
 <br>
