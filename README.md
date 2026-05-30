@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My wife and I, unlike many intellectuals, spent five years working on assembly lines. We came to fully understand the criticisms of the industrial age, in which you are an appendage of a machine that sets the pace.</b>
-> <p><i>Alvin Toffler</i></p>
+> <b>My dream car would be a Maserati. That would be amazing.</b>
+> <p><i>Jordana Brewster</i></p>
 
 <br>
