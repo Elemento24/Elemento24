@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's just amazing to do something that's part of a pop culture phenomenon.</b>
-> <p><i>Chaske Spencer</i></p>
+> <b>The goal seems to me at times just to be business first.</b>
+> <p><i>Laura Linney</i></p>
 
 <br>
