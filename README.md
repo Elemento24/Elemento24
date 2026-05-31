@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age has deformities enough of its own. It should never add to them the deformity of vice.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>All art comes from other art, and all immigrants come from other places.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
