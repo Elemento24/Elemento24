@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All art comes from other art, and all immigrants come from other places.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Art is a step from what is obvious and well-known toward what is arcane and concealed.</b>
+> <p><i>Khalil Gibran</i></p>
 
 <br>
