@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is a step from what is obvious and well-known toward what is arcane and concealed.</b>
-> <p><i>Khalil Gibran</i></p>
+> <b>I grew up in the business since I was three years old so I've always kind of been in front of the camera and grew up in commercials and I knew that I wanted to do it no matter what, I just loved it.</b>
+> <p><i>Ashley Tisdale</i></p>
 
 <br>
