@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I grew up in the business since I was three years old so I've always kind of been in front of the camera and grew up in commercials and I knew that I wanted to do it no matter what, I just loved it.</b>
-> <p><i>Ashley Tisdale</i></p>
+> <b>While a large segment of the art world has obsessed over a tiny number of stars and their prices, an aesthetic shift has been occurring. It's not a movement - movements are more sure of themselves. It's a change of mood or expectation, a desire for art to be more than showy effects, big numbers, and gamesmanship.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
