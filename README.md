@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We couldn't get the car back until well after the end of the race and we had very little time for repairs.</b>
-> <p><i>John Surtees</i></p>
+> <b>Architecture is involved with the world, but at the same time it has a certain autonomy. This autonomy cannot be explained in terms of traditional logic because the most interesting parts of the work are non-verbal. They operate within the terms of the work, like any art.</b>
+> <p><i>Thom Mayne</i></p>
 
 <br>
