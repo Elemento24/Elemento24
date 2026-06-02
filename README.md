@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is not just physical.</b>
-> <p><i>Halle Berry</i></p>
+> <b>The reason is that they define how I have gone about my business. I have trusted to intuition. I did it at the beginning. I do it even now. I have no idea how things might turn out, where in my writing I might go next.</b>
+> <p><i>V. S. Naipaul</i></p>
 
 <br>
