@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is truth's smile when she beholds her own face in a perfect mirror.</b>
-> <p><i>Rabindranath Tagore</i></p>
+> <b>For every minute you remain angry, you give up sixty seconds of peace of mind.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
