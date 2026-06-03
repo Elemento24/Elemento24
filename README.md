@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best teacher is the one who suggests rather than dogmatizes, and inspires his listener with the wish to teach himself.</b>
-> <p><i>Edward G. Bulwer-Lytton</i></p>
+> <b>Laughter is not a bad beginning for a friendship, and it is the best ending for one.</b>
+> <p><i>Henry Ward Beecher</i></p>
 
 <br>
