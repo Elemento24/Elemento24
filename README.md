@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Try, try, try, and keep on trying is the rule that must be followed to become an expert in anything.</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>The new dynamics between brands and consumers, driven by social media, are proving to be a powerful impetus for change.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
