@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our work is the presentation of our capabilities.</b>
-> <p><i>Edward Gibbon</i></p>
+> <b>Most of us start out with a positive attitude and a plan to do our best.</b>
+> <p><i>Marilu Henner</i></p>
 
 <br>
