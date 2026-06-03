@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Laughter is not a bad beginning for a friendship, and it is the best ending for one.</b>
-> <p><i>Henry Ward Beecher</i></p>
+> <b>Try, try, try, and keep on trying is the rule that must be followed to become an expert in anything.</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
