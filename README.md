@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is good taste, and good taste alone, that possesses the power to sterilize and is always the first handicap to any creative functioning.</b>
-> <p><i>Salvador Dali</i></p>
+> <b>Our work is the presentation of our capabilities.</b>
+> <p><i>Edward Gibbon</i></p>
 
 <br>
