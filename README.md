@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The new dynamics between brands and consumers, driven by social media, are proving to be a powerful impetus for change.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>It is good taste, and good taste alone, that possesses the power to sterilize and is always the first handicap to any creative functioning.</b>
+> <p><i>Salvador Dali</i></p>
 
 <br>
