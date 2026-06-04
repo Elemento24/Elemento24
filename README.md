@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have found there are four steps to change. 1. You must want it. 2. You must believe it. 3. You must live it. 4. You will become it.</b>
-> <p><i>Glenn Beck</i></p>
+> <b>Maybe one day the world will change, that we'll be in a luxurious position of being able to debate whether or not it's inherently wrong to eat animals, but the question doesn't matter right now.</b>
+> <p><i>Jonathan Safran Foer</i></p>
 
 <br>
