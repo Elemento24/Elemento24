@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maybe one day the world will change, that we'll be in a luxurious position of being able to debate whether or not it's inherently wrong to eat animals, but the question doesn't matter right now.</b>
-> <p><i>Jonathan Safran Foer</i></p>
+> <b>It is through art, and through art only, that we can realise our perfection.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
