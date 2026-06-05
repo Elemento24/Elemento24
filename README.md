@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude of physiological psychology to sensations and feelings, considered as psychical elements, is, naturally, the attitude of psychology at large.</b>
-> <p><i>Wilhelm Wundt</i></p>
+> <b>Is fuel efficiency really what we need most desperately? I say that what we really need is a car that can be shot when it breaks down.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
