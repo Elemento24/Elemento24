@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There weren't any astronauts until I was about 10. Yuri Gagarin went into space right around my 10th birthday.</b>
-> <p><i>John L. Phillips</i></p>
+> <b>Order is the shape upon which beauty depends.</b>
+> <p><i>Pearl S. Buck</i></p>
 
 <br>
