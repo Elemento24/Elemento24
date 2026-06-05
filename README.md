@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our combination of great research universities, a pro-risk business culture, deep pools of innovation-seeking equity capital and reliable business and contract law is unprecedented and unparalleled in the world.</b>
-> <p><i>Marc Andreessen</i></p>
+> <b>I don't think I ever got the hang of the writers' room. I love collaborating with people, but I really do my best work alone, and I think I would want to - if I did something again, I think I'd want to take total ownership the way Aaron Sorkin or David Kelley does.</b>
+> <p><i>Diablo Cody</i></p>
 
 <br>
