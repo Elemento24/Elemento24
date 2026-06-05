@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is not something you can count on. Usually, when people say you are beautiful, it is when there is a harmony between the inside and the outside.</b>
-> <p><i>Emmanuelle Beart</i></p>
+> <b>That's why I do this music business thing, it's communication with people without having the extreme inconvenience of actually phoning anybody up.</b>
+> <p><i>Steven Morrissey</i></p>
 
 <br>
