@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing is more generally known than our duties which belong to Christianity and yet, how amazing is it, nothing is less practiced?</b>
-> <p><i>George Whitefield</i></p>
+> <b>There weren't any astronauts until I was about 10. Yuri Gagarin went into space right around my 10th birthday.</b>
+> <p><i>John L. Phillips</i></p>
 
 <br>
