@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is fuel efficiency really what we need most desperately? I say that what we really need is a car that can be shot when it breaks down.</b>
-> <p><i>Russell Baker</i></p>
+> <b>Our combination of great research universities, a pro-risk business culture, deep pools of innovation-seeking equity capital and reliable business and contract law is unprecedented and unparalleled in the world.</b>
+> <p><i>Marc Andreessen</i></p>
 
 <br>
