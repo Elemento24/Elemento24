@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Order is the shape upon which beauty depends.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>The attitude of physiological psychology to sensations and feelings, considered as psychical elements, is, naturally, the attitude of psychology at large.</b>
+> <p><i>Wilhelm Wundt</i></p>
 
 <br>
