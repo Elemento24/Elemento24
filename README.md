@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Baseball is a game, yes. It is also a business. But what is most truly is is disguised combat. For all its gentility, its almost leisurely pace, baseball is violence under wraps.</b>
-> <p><i>Willie Mays</i></p>
+> <b>Most urgently, women's identity must be premised upon our 'beauty' so that we will remain vulnerable to outside approval, carrying the vital sensitive organ of self-esteem exposed to the air.</b>
+> <p><i>Naomi Wolf</i></p>
 
 <br>
