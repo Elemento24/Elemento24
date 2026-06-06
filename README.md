@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's why I do this music business thing, it's communication with people without having the extreme inconvenience of actually phoning anybody up.</b>
-> <p><i>Steven Morrissey</i></p>
+> <b>My greatest challenge has been to change the mindset of people. Mindsets play strange tricks on us. We see things the way our minds have instructed our eyes to see.</b>
+> <p><i>Muhammad Yunus</i></p>
 
 <br>
