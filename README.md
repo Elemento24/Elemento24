@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It was amazing to me that, all of a sudden, I was hearing my music on the radio and coming out of cars.</b>
-> <p><i>Lenny Kravitz</i></p>
+> <b>The real sadness of fifty is not that you change so much but that you change so little.</b>
+> <p><i>Max Lerner</i></p>
 
 <br>
