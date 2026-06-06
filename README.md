@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would no more quarrel with a man because of his religion than I would because of his art.</b>
-> <p><i>Mary Baker Eddy</i></p>
+> <b>It was amazing to me that, all of a sudden, I was hearing my music on the radio and coming out of cars.</b>
+> <p><i>Lenny Kravitz</i></p>
 
 <br>
