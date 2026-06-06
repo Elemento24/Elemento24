@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most urgently, women's identity must be premised upon our 'beauty' so that we will remain vulnerable to outside approval, carrying the vital sensitive organ of self-esteem exposed to the air.</b>
-> <p><i>Naomi Wolf</i></p>
+> <b>To give and then not feel that one has given is the very best of all ways of giving.</b>
+> <p><i>Max Beerbohm</i></p>
 
 <br>
