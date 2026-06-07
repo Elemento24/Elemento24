@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To give and then not feel that one has given is the very best of all ways of giving.</b>
-> <p><i>Max Beerbohm</i></p>
+> <b>You are 27 or 28 right? It is very tough to live at that age. When nothing is sure. I have sympathy with you.</b>
+> <p><i>Haruki Murakami</i></p>
 
 <br>
