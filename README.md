@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diplomacy: the art of restraining power.</b>
-> <p><i>Henry A. Kissinger</i></p>
+> <b>Each age tries to form its own conception of the past. Each age writes the history of the past anew with reference to the conditions uppermost in its own time.</b>
+> <p><i>Frederick Jackson Turner</i></p>
 
 <br>
