@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No human being is constituted to know the truth, the whole truth, and nothing but the truth and even the best of men must be content with fragments, with partial glimpses, never the full fruition.</b>
-> <p><i>William Osler</i></p>
+> <b>You may choose your words like a connoisseur, And polish it up with art, But the word that sways, and stirs, and stays, Is the word that comes from the heart.</b>
+> <p><i>Ella Wheeler Wilcox</i></p>
 
 <br>
