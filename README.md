@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each age tries to form its own conception of the past. Each age writes the history of the past anew with reference to the conditions uppermost in its own time.</b>
-> <p><i>Frederick Jackson Turner</i></p>
+> <b>Californians invented the concept of life-style. This alone warrants their doom.</b>
+> <p><i>Don DeLillo</i></p>
 
 <br>
