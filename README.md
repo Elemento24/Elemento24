@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Each age, it is found, must write its own books or rather, each generation for the next succeeding.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>No human being is constituted to know the truth, the whole truth, and nothing but the truth and even the best of men must be content with fragments, with partial glimpses, never the full fruition.</b>
+> <p><i>William Osler</i></p>
 
 <br>
