@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yet, it is true, poetry is delicious the best prose is that which is most full of poetry.</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>Writing about music is like dancing about architecture.</b>
+> <p><i>Martin Mull</i></p>
 
 <br>
