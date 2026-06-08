@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is with rivers as it is with people: the greatest are not always the most agreeable nor the best to live with.</b>
-> <p><i>Henry Van Dyke</i></p>
+> <b>The art of acceptance is the art of making someone who has just done you a small favor wish that he might have done you a greater one.</b>
+> <p><i>Martin Luther King, Jr.</i></p>
 
 <br>
