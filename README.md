@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of acceptance is the art of making someone who has just done you a small favor wish that he might have done you a greater one.</b>
-> <p><i>Martin Luther King, Jr.</i></p>
+> <b>What I find most upsetting about this new all-consuming beauty culture is that the obsession with good looks, and how you can supposedly attain them, is almost entirely female-driven.</b>
+> <p><i>Julie Burchill</i></p>
 
 <br>
