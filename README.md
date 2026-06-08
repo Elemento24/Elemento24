@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That is, we believed, the supreme duty of the parent, who only was permitted to claim in some degree the priestly office and function, since it is his creative and protecting power which alone approaches the solemn function of Deity.</b>
-> <p><i>Charles Eastman</i></p>
+> <b>Despite the demands of this job, one of the things my wife and I try to do is to spend time together alone. And one of the things we really enjoy doing together is seeing a good movie.</b>
+> <p><i>Warren Christopher</i></p>
 
 <br>
