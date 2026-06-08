@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Writing about music is like dancing about architecture.</b>
-> <p><i>Martin Mull</i></p>
+> <b>That is, we believed, the supreme duty of the parent, who only was permitted to claim in some degree the priestly office and function, since it is his creative and protecting power which alone approaches the solemn function of Deity.</b>
+> <p><i>Charles Eastman</i></p>
 
 <br>
