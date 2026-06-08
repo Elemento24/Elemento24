@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Despite the demands of this job, one of the things my wife and I try to do is to spend time together alone. And one of the things we really enjoy doing together is seeing a good movie.</b>
-> <p><i>Warren Christopher</i></p>
+> <b>Integrity reveals beauty.</b>
+> <p><i>Thomas Leonard</i></p>
 
 <br>
