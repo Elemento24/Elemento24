@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Good acting is all in the writing. If it isn't on the page, then it really won't make any difference. You cannot act on force of personality alone.</b>
-> <p><i>Larry Hagman</i></p>
+> <b>In a free society, government reflects the soul of its people. If people want change at the top, they will have to live in different ways. Our major social problems are not the cause of our decadence. They are a reflection of it.</b>
+> <p><i>Cal Thomas</i></p>
 
 <br>
