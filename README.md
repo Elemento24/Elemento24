@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In a free society, government reflects the soul of its people. If people want change at the top, they will have to live in different ways. Our major social problems are not the cause of our decadence. They are a reflection of it.</b>
-> <p><i>Cal Thomas</i></p>
+> <b>And what's more I've got no need for anyone to tell me how to do it. I am not interested. You act how you want to and leave me alone to do my own thing.</b>
+> <p><i>Olivier Martinez</i></p>
 
 <br>
