@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sayles could pull a performance out of a dog. I'm serious. He was just amazing. The world could fall apart and he remained on neutral.</b>
-> <p><i>Elizabeth Pena</i></p>
+> <b>Words do not change their meanings so drastically in the course of centuries as, in our minds, names do in the course of a year or two.</b>
+> <p><i>Marcel Proust</i></p>
 
 <br>
