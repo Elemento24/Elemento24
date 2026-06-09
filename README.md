@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And what's more I've got no need for anyone to tell me how to do it. I am not interested. You act how you want to and leave me alone to do my own thing.</b>
-> <p><i>Olivier Martinez</i></p>
+> <b>The best mind-altering drug is the truth.</b>
+> <p><i>Lily Tomlin</i></p>
 
 <br>
