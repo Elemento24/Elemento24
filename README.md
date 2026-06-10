@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My older brother Mike is an excellent trumpet player. By the time he was 12, he was playing around Kansas City in classical situations. He was already an amazing talent.</b>
-> <p><i>Pat Metheny</i></p>
+> <b>Attitude is your acceptance of the natural laws, or your rejection of the natural laws.</b>
+> <p><i>Stuart Chase</i></p>
 
 <br>
