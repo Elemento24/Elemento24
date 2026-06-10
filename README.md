@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's easy to make a buck. It's a lot tougher to make a difference.</b>
-> <p><i>Tom Brokaw</i></p>
+> <b>Every one who has a heart, however ignorant of architecture he may be, feels the transcendent beauty and poetry of the mediaeval churches.</b>
+> <p><i>Goldwin Smith</i></p>
 
 <br>
