@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only idiots refuse to change their minds.</b>
-> <p><i>Brigitte Bardot</i></p>
+> <b>Setting a good example for your children takes all the fun out of middle age.</b>
+> <p><i>William Feather</i></p>
 
 <br>
