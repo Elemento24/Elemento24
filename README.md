@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every one who has a heart, however ignorant of architecture he may be, feels the transcendent beauty and poetry of the mediaeval churches.</b>
-> <p><i>Goldwin Smith</i></p>
+> <b>My older brother Mike is an excellent trumpet player. By the time he was 12, he was playing around Kansas City in classical situations. He was already an amazing talent.</b>
+> <p><i>Pat Metheny</i></p>
 
 <br>
