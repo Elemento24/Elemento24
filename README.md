@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It may, however, be said that the level of experience to which concepts are inapplicable cannot yield any knowledge of a universal character, for concepts alone are capable of being socialized.</b>
-> <p><i>Muhammad Iqbal</i></p>
+> <b>The best beauty advice I ever received is to keep skin hydrated and limit harsh exposure to the sun. If you are set on the tanned look, there are plenty of great creams that will give you a healthy-looking glow.</b>
+> <p><i>Erica Durance</i></p>
 
 <br>
