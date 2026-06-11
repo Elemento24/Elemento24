@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We live in an age of mediocrity.</b>
-> <p><i>Lauren Bacall</i></p>
+> <b>When life was worrying about a car payment or a rent payment and a bill, you're so consumed with that, you really don't have time to know yourself. That's surviving and getting by.</b>
+> <p><i>Fred Durst</i></p>
 
 <br>
