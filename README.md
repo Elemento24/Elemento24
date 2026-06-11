@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Hope is the best possession. None are completely wretched but those who are without hope. Few are reduced so low as that.</b>
-> <p><i>William Hazlitt</i></p>
+> <b>Artists who seek perfection in everything are those who cannot attain it in anything.</b>
+> <p><i>Gustave Flaubert</i></p>
 
 <br>
