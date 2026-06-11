@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Artists who seek perfection in everything are those who cannot attain it in anything.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>We live in an age of mediocrity.</b>
+> <p><i>Lauren Bacall</i></p>
 
 <br>
