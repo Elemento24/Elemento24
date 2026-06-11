@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When life was worrying about a car payment or a rent payment and a bill, you're so consumed with that, you really don't have time to know yourself. That's surviving and getting by.</b>
-> <p><i>Fred Durst</i></p>
+> <b>How many deaf people do you know in real life? Unless they live in a cave, or are 14, which seems to be true for most people in this business, what could I possibly tell them that they don't already know?</b>
+> <p><i>Marlee Matlin</i></p>
 
 <br>
