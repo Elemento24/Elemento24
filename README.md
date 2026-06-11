@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Setting a good example for your children takes all the fun out of middle age.</b>
-> <p><i>William Feather</i></p>
+> <b>It may, however, be said that the level of experience to which concepts are inapplicable cannot yield any knowledge of a universal character, for concepts alone are capable of being socialized.</b>
+> <p><i>Muhammad Iqbal</i></p>
 
 <br>
