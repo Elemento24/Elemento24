@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That song is a story that shows how easily you could get slipped into being labeled as the bad guy, even though what you really trying to do is tell the bad guy to leave you alone.</b>
-> <p><i>Slick Rick</i></p>
+> <b>No one else can take risks for us, or face our losses on our behalf, or give us self-esteem. No one can spare us from life's slings and arrows, and when death comes, we meet it alone.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
