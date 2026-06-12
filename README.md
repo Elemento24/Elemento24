@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman can't be alone. She needs a man. A man and a woman support and strengthen each other. She just can't do it by herself.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>That song is a story that shows how easily you could get slipped into being labeled as the bad guy, even though what you really trying to do is tell the bad guy to leave you alone.</b>
+> <p><i>Slick Rick</i></p>
 
 <br>
