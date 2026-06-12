@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The anger of lovers renews their love.</b>
-> <p><i>Terence</i></p>
+> <b>A woman can't be alone. She needs a man. A man and a woman support and strengthen each other. She just can't do it by herself.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
