@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No one else can take risks for us, or face our losses on our behalf, or give us self-esteem. No one can spare us from life's slings and arrows, and when death comes, we meet it alone.</b>
-> <p><i>Martha Beck</i></p>
+> <b>Fear is that thing that keeps you up there on that other plateau. Fear is that thing that just keeps you closed down, and quite frankly, alone.</b>
+> <p><i>Andrew Shue</i></p>
 
 <br>
