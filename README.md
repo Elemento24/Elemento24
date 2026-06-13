@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fear is that thing that keeps you up there on that other plateau. Fear is that thing that just keeps you closed down, and quite frankly, alone.</b>
-> <p><i>Andrew Shue</i></p>
+> <b>Certain thoughts are prayers. There are moments when, whatever be the attitude of the body, the soul is on its knees.</b>
+> <p><i>Victor Hugo</i></p>
 
 <br>
