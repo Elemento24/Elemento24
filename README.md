@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Tell me thy company, and I'll tell thee what thou art.</b>
-> <p><i>Miguel de Cervantes</i></p>
+> <b>I'm gonna be making records anyway, even if I had to sell 'em out of the trunk of my car. I'm that kind of musician and singer.</b>
+> <p><i>Dolly Parton</i></p>
 
 <br>
