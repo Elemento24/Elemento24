@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Certain thoughts are prayers. There are moments when, whatever be the attitude of the body, the soul is on its knees.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>I know what men want. Men want to be really, really close to someone who will leave them alone.</b>
+> <p><i>Elayne Boosler</i></p>
 
 <br>
