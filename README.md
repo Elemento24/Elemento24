@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One way or another, we all have to find what best fosters the flowering of our humanity in this contemporary life, and dedicate ourselves to that.</b>
-> <p><i>Joseph Campbell</i></p>
+> <b>We virtually never feel our age, but thinking that we should can lead to disaster.</b>
+> <p><i>Martha Beck</i></p>
 
 <br>
