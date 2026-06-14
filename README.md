@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We virtually never feel our age, but thinking that we should can lead to disaster.</b>
-> <p><i>Martha Beck</i></p>
+> <b>Maggie Smith is an amazing woman, and not as serious in real life.</b>
+> <p><i>Allen Leech</i></p>
 
 <br>
