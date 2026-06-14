@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am not fighting for success, just to get more beauty out of myself and share it with more people.</b>
-> <p><i>Ben Okri</i></p>
+> <b>Anger is one of the sinews of the soul.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
