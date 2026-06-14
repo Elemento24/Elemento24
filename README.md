@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Had 'Bridesmaids' not ended up being so amazing and successful, we would never have been able to make 'Bachelorette.' So we are in awe of 'Bridesmaids' and totally owe them so much.</b>
-> <p><i>Lizzy Caplan</i></p>
+> <b>One way or another, we all have to find what best fosters the flowering of our humanity in this contemporary life, and dedicate ourselves to that.</b>
+> <p><i>Joseph Campbell</i></p>
 
 <br>
