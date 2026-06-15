@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty has been democratised. No longer the preserve of movie stars and models but available to all. But while the invitation to beauty is welcomed, it has become not so much an option as an imperative.</b>
-> <p><i>Susie Orbach</i></p>
+> <b>Beauty is unbearable, drives us to despair, offering us for a minute the glimpse of an eternity that we should like to stretch out over the whole of time.</b>
+> <p><i>Albert Camus</i></p>
 
 <br>
