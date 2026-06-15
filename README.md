@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maggie Smith is an amazing woman, and not as serious in real life.</b>
-> <p><i>Allen Leech</i></p>
+> <b>As we grow old, the beauty steals inward.</b>
+> <p><i>Ralph Waldo Emerson</i></p>
 
 <br>
