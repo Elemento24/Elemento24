@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had some vague memory of visiting Canberra as a lad, when we came up with my father by car. But when I made the long train journey from Sydney to Canberra and arrived at the little stop, I did wonder slightly whether this really was the national capital.</b>
-> <p><i>John Henry Carver</i></p>
+> <b>When I go to the clinic next and sit with a tube in my arm and watch the poison go in, I'm in an attitude of abject passivity. It doesn't feel like fighting at all it just feels like submitting.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
