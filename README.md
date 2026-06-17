@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that the biggest beauty essential is as simple as a good, full night's sleep.</b>
-> <p><i>Angela Kinsey</i></p>
+> <b>I play PC and Xbox games at home, and I just got a PSP as a birthday present.</b>
+> <p><i>Uwe Boll</i></p>
 
 <br>
