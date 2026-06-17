@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The central conservative truth is that it is culture, not politics, that determines the success of a society. The central liberal truth is that politics can change a culture and save it from itself.</b>
-> <p><i>Daniel Patrick Moynihan</i></p>
+> <b>I can't understand why the Democratic parties seem so hostile to economic growth and business.</b>
+> <p><i>Jack Kemp</i></p>
 
 <br>
