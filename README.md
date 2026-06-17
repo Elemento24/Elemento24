@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not the body's posture, but the heart's attitude that counts when we pray.</b>
-> <p><i>Billy Graham</i></p>
+> <b>The central conservative truth is that it is culture, not politics, that determines the success of a society. The central liberal truth is that politics can change a culture and save it from itself.</b>
+> <p><i>Daniel Patrick Moynihan</i></p>
 
 <br>
