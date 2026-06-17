@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ideas are elusive, slippery things. Best to keep a pad of paper and a pencil at your bedside, so you can stab them during the night before they get away.</b>
-> <p><i>Earl Nightingale</i></p>
+> <b>I think that the biggest beauty essential is as simple as a good, full night's sleep.</b>
+> <p><i>Angela Kinsey</i></p>
 
 <br>
