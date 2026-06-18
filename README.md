@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Though beauty gives you a weird sense of entitlement, it's rather frightening and threatening to have others ascribe such importance to something you know you're just renting for a while.</b>
-> <p><i>Candice Bergen</i></p>
+> <b>Like charity, I believe glamour should begin at home.</b>
+> <p><i>Loretta Young</i></p>
 
 <br>
