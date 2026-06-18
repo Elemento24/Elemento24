@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way people are going to change their car buying habits, and the only way government will get behind alternatively fueled vehicles, is if gasoline prices continue to go up.</b>
-> <p><i>Alexandra Paul</i></p>
+> <b>Ethics and equity and the principles of justice do not change with the calendar.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
