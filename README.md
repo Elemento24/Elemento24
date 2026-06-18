@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Ethics and equity and the principles of justice do not change with the calendar.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>Christians should be ready for a change because Jesus was the greatest changer in history.</b>
+> <p><i>Ralph Abernathy</i></p>
 
 <br>
