@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The car business is a lot like football. In football, you have to win once a week. In the car business, you have to win every day.</b>
-> <p><i>Tom Dempsey</i></p>
+> <b>I enjoy trying to develop a car and Mercedes are one of the biggest car manufacturers in the world.</b>
+> <p><i>Lewis Hamilton</i></p>
 
 <br>
