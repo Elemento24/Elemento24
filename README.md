@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We've just got to be careful - with all sports, let alone cricket - I think there's so much emphasis on doing the right thing all the time, but I think the public want to be entertained when they come to watch sport.</b>
-> <p><i>Shane Warne</i></p>
+> <b>I think one of the coolest things about the job is the level of trust we have for each other. The actors fully trust that the writers will write amazing episodes, and the writers trust that the actors will follow their instincts with the characters.</b>
+> <p><i>John Krasinski</i></p>
 
 <br>
