@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The excellency of every art is its intensity, capable of making all disagreeable evaporate.</b>
-> <p><i>John Keats</i></p>
+> <b>The best activities for your health are pumping and humping.</b>
+> <p><i>Arnold Schwarzenegger</i></p>
 
 <br>
