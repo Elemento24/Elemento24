@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think one of the coolest things about the job is the level of trust we have for each other. The actors fully trust that the writers will write amazing episodes, and the writers trust that the actors will follow their instincts with the characters.</b>
-> <p><i>John Krasinski</i></p>
+> <b>The car business is a lot like football. In football, you have to win once a week. In the car business, you have to win every day.</b>
+> <p><i>Tom Dempsey</i></p>
 
 <br>
