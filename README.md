@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think that generally music should be a positive thing, I like Bob Marley's attitude: he said that his goal in life was to single handedly fight all the evil in the world with nothing but music, and when he went to a place he didn't go to play, he went to conquer.</b>
-> <p><i>Jon Fishman</i></p>
+> <b>San Francisco is a mad city - inhabited for the most part by perfectly insane people whose women are of a remarkable beauty.</b>
+> <p><i>Rudyard Kipling</i></p>
 
 <br>
