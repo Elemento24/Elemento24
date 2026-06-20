@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A work of art has no importance whatever to society. It is only important to the individual.</b>
-> <p><i>Vladimir Nabokov</i></p>
+> <b>I was already on pole, then by half a second and then one second and I just kept going. Suddenly I was nearly two seconds faster than anybody else, including my team mate with the same car.</b>
+> <p><i>Ayrton Senna</i></p>
 
 <br>
