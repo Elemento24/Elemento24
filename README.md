@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was already on pole, then by half a second and then one second and I just kept going. Suddenly I was nearly two seconds faster than anybody else, including my team mate with the same car.</b>
-> <p><i>Ayrton Senna</i></p>
+> <b>What I want to give in the theatre is beauty, that's what I want to give.</b>
+> <p><i>Dame Edith Evans</i></p>
 
 <br>
