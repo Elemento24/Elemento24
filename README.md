@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I want to give in the theatre is beauty, that's what I want to give.</b>
-> <p><i>Dame Edith Evans</i></p>
+> <b>I must create a system or be enslaved by another mans I will not reason and compare: my business is to create.</b>
+> <p><i>William Blake</i></p>
 
 <br>
