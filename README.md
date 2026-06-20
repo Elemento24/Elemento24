@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shock, confusion, fear, anger, grief, and defiance. On Sept. 11, 2001, and for the three days following the worst terrorist attack on U.S. soil, President George W. Bush led with raw emotion that reflected the public's whipsawing stages of acceptance.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>I've had to be a man since I was 12 or 13. I had a job. And I was playing the piano for people twice my age. Handling responsibility is what makes a man a man.</b>
+> <p><i>Jamie Foxx</i></p>
 
 <br>
