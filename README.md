@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I must create a system or be enslaved by another mans I will not reason and compare: my business is to create.</b>
-> <p><i>William Blake</i></p>
+> <b>Shock, confusion, fear, anger, grief, and defiance. On Sept. 11, 2001, and for the three days following the worst terrorist attack on U.S. soil, President George W. Bush led with raw emotion that reflected the public's whipsawing stages of acceptance.</b>
+> <p><i>Ron Fournier</i></p>
 
 <br>
