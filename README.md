@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success or failure in business is caused more by the mental attitude even than by mental capacities.</b>
-> <p><i>Walter Scott</i></p>
+> <b>Obviously the first sentiment is disappointment that we didn't get the car home and more disappointment that at the time that it stopped the car was in the lead.</b>
+> <p><i>John Surtees</i></p>
 
 <br>
