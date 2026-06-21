@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I listen to KCRW in the car and Pandora radio, which I stream through the stereo from my iPhone. I've been listening to everything from Caribou to Conway Twitty. If I'm going on a longer car ride, I'll download some podcasts.</b>
-> <p><i>Sam Trammell</i></p>
+> <b>In the end, all business operations can be reduced to three words: people, product, and profits.</b>
+> <p><i>Lee Iacocca</i></p>
 
 <br>
