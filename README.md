@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I got all the respect in the world for the front-runners in this race, but ask yourself: If we replace a Democratic insider with a Republican insider, you think we're really going to change Washington, D.C.? You don't have to settle for Washington and Wall Street insiders who supported the Wall Street bailout and the Obamacare individual mandate.</b>
-> <p><i>Rick Perry</i></p>
+> <b>What I learned in jail is that I can't change. I can't live a different lifestyle-this is it. This is the life that they gave and this is the life that I made.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
