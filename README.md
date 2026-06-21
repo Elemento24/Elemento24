@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've had to be a man since I was 12 or 13. I had a job. And I was playing the piano for people twice my age. Handling responsibility is what makes a man a man.</b>
-> <p><i>Jamie Foxx</i></p>
+> <b>I want to say that probably 24 hours after I told CBS that I was stepping down at my 65th birthday, I was already regretting it. And I regretted it every day since.</b>
+> <p><i>Walter Cronkite</i></p>
 
 <br>
