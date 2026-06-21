@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I learned in jail is that I can't change. I can't live a different lifestyle-this is it. This is the life that they gave and this is the life that I made.</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>Physical beauty isn't so impressive to me.</b>
+> <p><i>Dita Von Teese</i></p>
 
 <br>
