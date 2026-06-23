@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A work of art has no importance whatever to society. It is only important to the individual.</b>
-> <p><i>Vladimir Nabokov</i></p>
+> <b>To the press alone, chequered as it is with abuses, the world is indebted for all the triumphs which have been gained by reason and humanity over error and oppression.</b>
+> <p><i>James Madison</i></p>
 
 <br>
