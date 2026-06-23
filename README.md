@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Without change, something sleeps inside us, and seldom awakens. The sleeper must awaken.</b>
-> <p><i>Frank Herbert</i></p>
+> <b>A work of art has no importance whatever to society. It is only important to the individual.</b>
+> <p><i>Vladimir Nabokov</i></p>
 
 <br>
