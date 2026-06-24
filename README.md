@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Trophies and medals have never meant much to me. I've had amazing experiences, which let you feel like you've accomplished something.</b>
-> <p><i>John Krasinski</i></p>
+> <b>It is the fight alone that pleases us, not the victory.</b>
+> <p><i>Blaise Pascal</i></p>
 
 <br>
