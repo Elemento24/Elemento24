@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every building is a prototype. No two are alike.</b>
-> <p><i>Helmut Jahn</i></p>
+> <b>Trophies and medals have never meant much to me. I've had amazing experiences, which let you feel like you've accomplished something.</b>
+> <p><i>John Krasinski</i></p>
 
 <br>
