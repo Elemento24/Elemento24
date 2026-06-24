@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My early childhood prepared me to be a social psychologist. I grew up in a South Bronx ghetto in a very poor family. From Sicilian origin, I was the first person in my family to complete high school, let alone go to college.</b>
-> <p><i>Philip Zimbardo</i></p>
+> <b>Every building is a prototype. No two are alike.</b>
+> <p><i>Helmut Jahn</i></p>
 
 <br>
