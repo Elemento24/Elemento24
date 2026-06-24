@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Taught from infancy that beauty is woman's sceptre, the mind shapes itself to the body, and roaming round its gilt cage, only seeks to adorn its prison.</b>
-> <p><i>Mary Wollstonecraft</i></p>
+> <b>My early childhood prepared me to be a social psychologist. I grew up in a South Bronx ghetto in a very poor family. From Sicilian origin, I was the first person in my family to complete high school, let alone go to college.</b>
+> <p><i>Philip Zimbardo</i></p>
 
 <br>
