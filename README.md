@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Girls shouldn't worry about being the equal of men in the business world.</b>
-> <p><i>Marilyn Monroe</i></p>
+> <b>A celibate, like the fly in the heart of an apple, dwells in a perpetual sweetness, but sits alone, and is confined and dies in singularity.</b>
+> <p><i>Jeremy Taylor</i></p>
 
 <br>
