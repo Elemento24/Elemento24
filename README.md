@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Instead of being presented with stereotypes by age, sex, color, class, or religion, children must have the opportunity to learn that within each range, some people are loathsome and some are delightful.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>Children rarely want to know who their parents were before they were parents, and when age finally stirs their curiosity, there is no parent left to tell them.</b>
+> <p><i>Russell Baker</i></p>
 
 <br>
