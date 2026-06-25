@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It takes a long time to become young.</b>
-> <p><i>Pablo Picasso</i></p>
+> <b>Instead of being presented with stereotypes by age, sex, color, class, or religion, children must have the opportunity to learn that within each range, some people are loathsome and some are delightful.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
