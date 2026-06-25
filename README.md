@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Like music and art, love of nature is a common language that can transcend political or social boundaries.</b>
-> <p><i>Jimmy Carter</i></p>
+> <b>Girls shouldn't worry about being the equal of men in the business world.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
