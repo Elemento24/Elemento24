@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Children rarely want to know who their parents were before they were parents, and when age finally stirs their curiosity, there is no parent left to tell them.</b>
-> <p><i>Russell Baker</i></p>
+> <b>I think I'm actually quite a materialistic person, I value what it takes to make a car or build a nice house. Money does change things, but how it changes people depends on how they react to it.</b>
+> <p><i>Roland Gift</i></p>
 
 <br>
