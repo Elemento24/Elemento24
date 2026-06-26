@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can't fake it when you're alone with God, you know.</b>
-> <p><i>Jim Bakker</i></p>
+> <b>We teach people that they upset themselves. We can't change the past, so we change how people are thinking, feeling and behaving today.</b>
+> <p><i>Albert Ellis</i></p>
 
 <br>
