@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love alone could waken love.</b>
-> <p><i>Pearl S. Buck</i></p>
+> <b>Nobody grows old merely by living a number of years. We grow old by deserting our ideals. Years may wrinkle the skin, but to give up enthusiasm wrinkles the soul.</b>
+> <p><i>Samuel Ullman</i></p>
 
 <br>
