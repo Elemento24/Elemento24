@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I find that a man is as old as his work. If his work keeps him from moving forward, he will look forward with the work.</b>
-> <p><i>William Ernest Hocking</i></p>
+> <b>Twenty years ago, I was living in a lovely cottage on the edge of Dartmoor but I couldn't afford to run a car.</b>
+> <p><i>Mary Wesley</i></p>
 
 <br>
