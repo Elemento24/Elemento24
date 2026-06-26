@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I'm actually quite a materialistic person, I value what it takes to make a car or build a nice house. Money does change things, but how it changes people depends on how they react to it.</b>
-> <p><i>Roland Gift</i></p>
+> <b>I spent a lot of money on booze, birds and fast cars. The rest I just squandered.</b>
+> <p><i>George Best</i></p>
 
 <br>
