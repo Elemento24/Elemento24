@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I spent a lot of money on booze, birds and fast cars. The rest I just squandered.</b>
-> <p><i>George Best</i></p>
+> <b>She got her looks from her father. He's a plastic surgeon.</b>
+> <p><i>Groucho Marx</i></p>
 
 <br>
