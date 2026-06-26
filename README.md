@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>She got her looks from her father. He's a plastic surgeon.</b>
-> <p><i>Groucho Marx</i></p>
+> <b>I find that a man is as old as his work. If his work keeps him from moving forward, he will look forward with the work.</b>
+> <p><i>William Ernest Hocking</i></p>
 
 <br>
