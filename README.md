@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All the times being like, 'Who rented this car and why are we going to this place?' You take the easy route and go, 'Oh, thanks for the champagne. I'll have another.'</b>
-> <p><i>Rosario Dawson</i></p>
+> <b>The phenomenon of home schooling is a wonderful example of the American can-do attitude. Growing numbers of parents have become disenchanted with government-run public schools. Many parents have simply taken matters into their own hands, literally.</b>
+> <p><i>Steve Forbes</i></p>
 
 <br>
