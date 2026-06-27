@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love her attitude, but as much as I'd like to bring my medals to a speech or appearance, I never do.</b>
-> <p><i>Mary Lou Retton</i></p>
+> <b>All the times being like, 'Who rented this car and why are we going to this place?' You take the easy route and go, 'Oh, thanks for the champagne. I'll have another.'</b>
+> <p><i>Rosario Dawson</i></p>
 
 <br>
