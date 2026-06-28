@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I felt Joyce was an influence on my fiction, but in a very general way, as a kind of inspiration and a model for the beauty of language.</b>
-> <p><i>Don DeLillo</i></p>
+> <b>Everybody has a gun in their car in Detroit.</b>
+> <p><i>Jim Harrison</i></p>
 
 <br>
