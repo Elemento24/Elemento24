@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People tend not to use this word beauty because it's not intellectual - but there has to be an overlap between beauty and intellect.</b>
-> <p><i>Tadao Ando</i></p>
+> <b>I felt Joyce was an influence on my fiction, but in a very general way, as a kind of inspiration and a model for the beauty of language.</b>
+> <p><i>Don DeLillo</i></p>
 
 <br>
