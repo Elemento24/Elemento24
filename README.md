@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is permitted to survive only if it renounces the right to be different, and integrates itself into the omnipotent realm of the profane.</b>
-> <p><i>Theodor Adorno</i></p>
+> <b>As a restaurateur, my job is to basically control the chaos and the drama. There's always going to be chaos in the restaurant business.</b>
+> <p><i>Rocco DiSpirito</i></p>
 
 <br>
