@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is the art of choosing between the disastrous and the unpalatable.</b>
-> <p><i>John Kenneth Galbraith</i></p>
+> <b>People tend not to use this word beauty because it's not intellectual - but there has to be an overlap between beauty and intellect.</b>
+> <p><i>Tadao Ando</i></p>
 
 <br>
