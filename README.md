@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We each own one car, and we have a reasonable house. It's a lovely place to be, but it's not extravagant.</b>
-> <p><i>Reese Witherspoon</i></p>
+> <b>Art is permitted to survive only if it renounces the right to be different, and integrates itself into the omnipotent realm of the profane.</b>
+> <p><i>Theodor Adorno</i></p>
 
 <br>
