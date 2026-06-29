@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are patronizing the theatres with renewed enthusiasm - there is an entire picnic-like attitude when families go out to see movies, which is a very good sign. They want to see larger-than-life characters on the big screen and not just watch movies on television or on DVDs.</b>
-> <p><i>Salman Khan</i></p>
+> <b>I do read books. I suppose it's more or less the same thing, but at least I'm alone and I'm an individual. I can stop anytime I want, which I frequently do.</b>
+> <p><i>Jack Vance</i></p>
 
 <br>
