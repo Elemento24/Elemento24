@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody has a gun in their car in Detroit.</b>
-> <p><i>Jim Harrison</i></p>
+> <b>People are patronizing the theatres with renewed enthusiasm - there is an entire picnic-like attitude when families go out to see movies, which is a very good sign. They want to see larger-than-life characters on the big screen and not just watch movies on television or on DVDs.</b>
+> <p><i>Salman Khan</i></p>
 
 <br>
