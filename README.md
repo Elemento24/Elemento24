@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The problem is that the Iraqi people are facing atrocities from both sides - Zarqawi and also the American troops at times. The Zarqawi groups uses car bombs, the Americans use other bombs. You also know what they do in the prisons.</b>
-> <p><i>Akbar Hashemi Rafsanjani</i></p>
+> <b>Well, I want to do The Music Man. I think it's an amazing opportunity, but I think that they are probably looking at major movie stars right now, and I don't blame them.</b>
+> <p><i>Gregory Harrison</i></p>
 
 <br>
