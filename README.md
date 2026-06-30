@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of writing is the art of discovering what you believe.</b>
-> <p><i>Gustave Flaubert</i></p>
+> <b>Even with, or perhaps, because of, this background, I have over the past few years sensed a very dramatic change in attitude on the part of Prince Edward Islanders towards the on-going rush for so-called modernization.</b>
+> <p><i>Alex Campbell</i></p>
 
 <br>
