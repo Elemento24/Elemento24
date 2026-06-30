@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Watching Bernadette Peters perform is like an acting class. She's amazing.</b>
-> <p><i>Jenna Ushkowitz</i></p>
+> <b>Acting is still, of course, what I love to do most. The beauty of it is that by changing characters, it never gets boring.</b>
+> <p><i>Christopher Lambert</i></p>
 
 <br>
