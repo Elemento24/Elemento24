@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The automobile engine will come, and then I will consider my life's work complete.</b>
-> <p><i>Rudolf Diesel</i></p>
+> <b>Shakespeare is all big themes, like the most amazing love, or the most scary war.</b>
+> <p><i>Anna Torv</i></p>
 
 <br>
