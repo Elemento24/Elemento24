@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The way in which mathematicians and physicists and historians talk is quite different, and what a physicist means by physical intuition and what a mathematician means by beauty or elegance are things worth thinking about.</b>
-> <p><i>Clifford Geertz</i></p>
+> <b>The automobile engine will come, and then I will consider my life's work complete.</b>
+> <p><i>Rudolf Diesel</i></p>
 
 <br>
