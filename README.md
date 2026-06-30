@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shakespeare is all big themes, like the most amazing love, or the most scary war.</b>
-> <p><i>Anna Torv</i></p>
+> <b>Architecture is not an inspirational business, it's a rational procedure to do sensible and hopefully beautiful things that's all.</b>
+> <p><i>Harry Seidler</i></p>
 
 <br>
