@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There was no respect for youth when I was young, and now that I am old, there is no respect for age, I missed it coming and going.</b>
-> <p><i>J. B. Priestley</i></p>
+> <b>In the 1970s and 1980s there was so little decent fiction for young people, but we're now in a golden age that shows no sign of fading. Philip Pullman, J. K. Rowling, Lemony Snicket are only three of the best known among a good number of equals.</b>
+> <p><i>David Mitchell</i></p>
 
 <br>
