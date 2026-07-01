@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty we love is very silent. It smiles softly to itself, but never speaks.</b>
-> <p><i>Richard Le Gallienne</i></p>
+> <b>If architecture had nothing to do with art, it would be astonishingly easy to build houses, but the architect's task - his most difficult task - is always that of selecting.</b>
+> <p><i>Arne Jacobsen</i></p>
 
 <br>
