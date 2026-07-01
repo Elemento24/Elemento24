@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is one to say about June, the time of perfect young summer, the fulfillment of the promise of the earlier months, and with as yet no sign to remind one that its fresh young beauty will ever fade.</b>
-> <p><i>Gertrude Jekyll</i></p>
+> <b>The beauty we love is very silent. It smiles softly to itself, but never speaks.</b>
+> <p><i>Richard Le Gallienne</i></p>
 
 <br>
