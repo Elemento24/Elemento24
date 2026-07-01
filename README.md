@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If architecture had nothing to do with art, it would be astonishingly easy to build houses, but the architect's task - his most difficult task - is always that of selecting.</b>
-> <p><i>Arne Jacobsen</i></p>
+> <b>People talk about the conscience, but it seems to me one must just bring it up to a certain point and leave it there. You can let your conscience alone if you're nice to the second housemaid.</b>
+> <p><i>Henry James</i></p>
 
 <br>
