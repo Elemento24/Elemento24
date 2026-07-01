@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People talk about the conscience, but it seems to me one must just bring it up to a certain point and leave it there. You can let your conscience alone if you're nice to the second housemaid.</b>
-> <p><i>Henry James</i></p>
+> <b>There was no respect for youth when I was young, and now that I am old, there is no respect for age, I missed it coming and going.</b>
+> <p><i>J. B. Priestley</i></p>
 
 <br>
