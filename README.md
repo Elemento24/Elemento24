@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Probably the happiest period in life most frequently is in middle age, when the eager passions of youth are cooled, and the infirmities of age not yet begun as we see that the shadows, which are at morning and evening so large, almost entirely disappear at midday.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>White is actually one of my favorite colors. I have a white car. I love white.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
