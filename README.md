@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think love can happen at any age... it has no age.</b>
-> <p><i>Shahrukh Khan</i></p>
+> <b>I guess winning an Oscar is the ultimate dream. A lot of amazing actors go their whole career without even being nominated. So that would definitely be a goal to reach. It's a difficult one, but I'm aiming for it!</b>
+> <p><i>Taylor Lautner</i></p>
 
 <br>
