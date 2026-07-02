@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Those who excel in virtue have the best right of all to rebel, but then they are of all men the least inclined to do so.</b>
-> <p><i>Aristotle</i></p>
+> <b>I don't care about age very much.</b>
+> <p><i>Chinua Achebe</i></p>
 
 <br>
