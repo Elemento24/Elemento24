@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>White is actually one of my favorite colors. I have a white car. I love white.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>The faults of a superior person are like the sun and moon. They have their faults, and everyone sees them they change and everyone looks up to them.</b>
+> <p><i>Confucius</i></p>
 
 <br>
