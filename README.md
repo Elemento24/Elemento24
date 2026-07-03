@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The problem is that the Iraqi people are facing atrocities from both sides - Zarqawi and also the American troops at times. The Zarqawi groups uses car bombs, the Americans use other bombs. You also know what they do in the prisons.</b>
-> <p><i>Akbar Hashemi Rafsanjani</i></p>
+> <b>Through Kurt I saw the beauty of minimalism and the importance of music that's stripped down.</b>
+> <p><i>Dave Grohl</i></p>
 
 <br>
