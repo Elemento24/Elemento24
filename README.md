@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If your life changes, we can change the world, too.</b>
-> <p><i>Yoko Ono</i></p>
+> <b>The problem is that the Iraqi people are facing atrocities from both sides - Zarqawi and also the American troops at times. The Zarqawi groups uses car bombs, the Americans use other bombs. You also know what they do in the prisons.</b>
+> <p><i>Akbar Hashemi Rafsanjani</i></p>
 
 <br>
