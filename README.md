@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The building of the architecture of a novel - the craft of it - is something I never tire of.</b>
-> <p><i>John Irving</i></p>
+> <b>I believe every chess player senses beauty, when he succeeds in creating situations, which contradict the expectations and the rules, and he succeeds in mastering this situation.</b>
+> <p><i>Vladimir Kramnik</i></p>
 
 <br>
