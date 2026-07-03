@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best way to keep one's word is not to give it.</b>
-> <p><i>Napoleon Bonaparte</i></p>
+> <b>If your life changes, we can change the world, too.</b>
+> <p><i>Yoko Ono</i></p>
 
 <br>
