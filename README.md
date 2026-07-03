@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe every chess player senses beauty, when he succeeds in creating situations, which contradict the expectations and the rules, and he succeeds in mastering this situation.</b>
-> <p><i>Vladimir Kramnik</i></p>
+> <b>You will never change your life until you change something you do daily.</b>
+> <p><i>Mike Murdock</i></p>
 
 <br>
