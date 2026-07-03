@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Through Kurt I saw the beauty of minimalism and the importance of music that's stripped down.</b>
-> <p><i>Dave Grohl</i></p>
+> <b>The greater the decrease in the social significance of an art form, the sharper the distinction between criticism and enjoyment by the public. The conventional is uncritically enjoyed, and the truly new is criticized with aversion.</b>
+> <p><i>Walter Benjamin</i></p>
 
 <br>
