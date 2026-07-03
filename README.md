@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't care about age very much.</b>
-> <p><i>Chinua Achebe</i></p>
+> <b>The building of the architecture of a novel - the craft of it - is something I never tire of.</b>
+> <p><i>John Irving</i></p>
 
 <br>
