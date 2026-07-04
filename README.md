@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Brevity is the best recommendation of speech, whether in a senator or an orator.</b>
-> <p><i>Marcus Tullius Cicero</i></p>
+> <b>I don't want life to imitate art. I want life to be art.</b>
+> <p><i>Ernst Fischer</i></p>
 
 <br>
