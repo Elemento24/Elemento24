@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's pretty amazing being me.</b>
-> <p><i>Matthew Morrison</i></p>
+> <b>Normally in dangerous situations I have a getaway car.</b>
+> <p><i>Sacha Baron Cohen</i></p>
 
 <br>
