@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't want life to imitate art. I want life to be art.</b>
-> <p><i>Ernst Fischer</i></p>
+> <b>I think about my work every minute of the day.</b>
+> <p><i>Jeff Koons</i></p>
 
 <br>
