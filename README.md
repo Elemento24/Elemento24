@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>From 1997 when we came in, you guys and the public bought seven million more cars. You didn't get rid of the second car, did you? So what is happening is the growth of cars on the motorway.</b>
-> <p><i>John Prescott</i></p>
+> <b>Sweat equity is the most valuable equity there is. Know your business and industry better than anyone else in the world. Love what you do or don't do it.</b>
+> <p><i>Mark Cuban</i></p>
 
 <br>
