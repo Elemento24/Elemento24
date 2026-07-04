@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greater the decrease in the social significance of an art form, the sharper the distinction between criticism and enjoyment by the public. The conventional is uncritically enjoyed, and the truly new is criticized with aversion.</b>
-> <p><i>Walter Benjamin</i></p>
+> <b>From 1997 when we came in, you guys and the public bought seven million more cars. You didn't get rid of the second car, did you? So what is happening is the growth of cars on the motorway.</b>
+> <p><i>John Prescott</i></p>
 
 <br>
