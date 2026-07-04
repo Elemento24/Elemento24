@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Normally in dangerous situations I have a getaway car.</b>
-> <p><i>Sacha Baron Cohen</i></p>
+> <b>Your attitude, not your aptitude, will determine your altitude.</b>
+> <p><i>Zig Ziglar</i></p>
 
 <br>
