@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've never felt like I was in the cookie business. I've always been in a feel good feeling business. My job is to sell joy. My job is to sell happiness. My job is to sell an experience.</b>
-> <p><i>Debbi Fields</i></p>
+> <b>A man from a primitive culture who sees an automobile might guess that it was powered by the wind or by an antelope hidden under the car, but when he opens up the hood and sees the engine he immediately realizes that it was designed.</b>
+> <p><i>Michael Behe</i></p>
 
 <br>
