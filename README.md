@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your attitude, not your aptitude, will determine your altitude.</b>
-> <p><i>Zig Ziglar</i></p>
+> <b>Politics is not a game. It is an earnest business.</b>
+> <p><i>Winston Churchill</i></p>
 
 <br>
