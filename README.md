@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have had fans make me the big picture collages of the photo books I have had fans send me birthday cakes... sing to me on my voicemail. I have had fans flash me. I have had older fans give me their bras and underwear onstage.</b>
-> <p><i>Puff Daddy</i></p>
+> <b>It is not necessary that you leave the house. Remain at your table and listen. Do not even listen, only wait. Do not even wait, be wholly still and alone. The world will present itself to you for its unmasking, it can do no other, in ecstasy it will writhe at your feet.</b>
+> <p><i>Franz Kafka</i></p>
 
 <br>
