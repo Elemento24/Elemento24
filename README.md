@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is not a game. It is an earnest business.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>I feel fortunate that I'm not a beauty. I'm not a classic beauty. I feel it is harder for girls who are like that. There are fewer parts.</b>
+> <p><i>Olivia Colman</i></p>
 
 <br>
