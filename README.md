@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is anything you can get away with.</b>
-> <p><i>Marshall McLuhan</i></p>
+> <b>You can't help getting older, but you don't have to get old.</b>
+> <p><i>George Burns</i></p>
 
 <br>
