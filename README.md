@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was entirely natural and in many ways I have the same attitude now. I don't mourn the loss of my youth because I believe you should enjoy what you have while you have it.</b>
-> <p><i>Koo Stark</i></p>
+> <b>If the nineteenth century was the age of the editorial chair, ours is the century of the psychiatrist's couch.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
