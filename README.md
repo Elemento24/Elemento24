@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think about art when I'm working. I try to think about life.</b>
-> <p><i>Jean-Michel Basquiat</i></p>
+> <b>If I look at the message I'm portraying, I think it definitely is be who you are, but be your best you.</b>
+> <p><i>Kim Kardashian</i></p>
 
 <br>
