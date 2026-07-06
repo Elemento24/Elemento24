@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty in things exists in the mind which contemplates them.</b>
-> <p><i>David Hume</i></p>
+> <b>The best argument I know for an immortal life is the existence of a man who deserves one.</b>
+> <p><i>William James</i></p>
 
 <br>
