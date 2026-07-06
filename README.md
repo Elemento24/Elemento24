@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I look at the message I'm portraying, I think it definitely is be who you are, but be your best you.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>Art is anything you can get away with.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
