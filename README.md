@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To engage with art, we have to be willing to be wrong, venture outside our psychic comfort zones, suspend disbelief, and remember that art explores and alters consciousness simultaneously.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>You don't have to carry a designer bag that costs more than a car to look cool.</b>
+> <p><i>Kesha</i></p>
 
 <br>
