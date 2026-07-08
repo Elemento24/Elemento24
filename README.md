@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The remarkable thing is, we have a choice everyday regarding the attitude we will embrace for that day.</b>
-> <p><i>Charles R. Swindoll</i></p>
+> <b>Nothing is as dangerous in architecture as dealing with separated problems. If we split life into separated problems we split the possibilities to make good building art.</b>
+> <p><i>Alvar Aalto</i></p>
 
 <br>
