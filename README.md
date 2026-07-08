@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beyonce is the most amazing woman in the world.</b>
-> <p><i>Chris O'Dowd</i></p>
+> <b>When you get to a certain age, there is no coming back.</b>
+> <p><i>Brian Clough</i></p>
 
 <br>
