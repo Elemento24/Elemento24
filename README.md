@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Giving money and power to government is like giving whiskey and car keys to teenage boys.</b>
-> <p><i>P. J. O'Rourke</i></p>
+> <b>The movies are the only business where you can go out front and applaud yourself.</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
