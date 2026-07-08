@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing is as dangerous in architecture as dealing with separated problems. If we split life into separated problems we split the possibilities to make good building art.</b>
-> <p><i>Alvar Aalto</i></p>
+> <b>On some campuses, change is effected through nonviolent or even violent means.</b>
+> <p><i>Hillary Clinton</i></p>
 
 <br>
