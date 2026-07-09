@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Litigation takes the place of sex at middle age.</b>
-> <p><i>Gore Vidal</i></p>
+> <b>I want to change things for the better, just like everybody else.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
