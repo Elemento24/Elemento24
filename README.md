@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On some campuses, change is effected through nonviolent or even violent means.</b>
-> <p><i>Hillary Clinton</i></p>
+> <b>Nobody has wrestled everybody in the business like I have, especially not Bret Hart.</b>
+> <p><i>Ric Flair</i></p>
 
 <br>
