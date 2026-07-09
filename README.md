@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was blessed with certain gifts and talents and God gave them to me to be the best person I can be and to have a positive impact on other people.</b>
-> <p><i>Bryan Clay</i></p>
+> <b>Be content with what you are, and wish not change nor dread your last day, nor long for it.</b>
+> <p><i>Marcus Aurelius</i></p>
 
 <br>
