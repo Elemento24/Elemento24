@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At first I missed it, but it was the amazing energy thing that happened during shows, when a lot of people were like Yay Yay Yeah! I missed that for a while. But I don't miss the regular and the business side of that whole thing.</b>
-> <p><i>Bill Kreutzmann</i></p>
+> <b>I was blessed with certain gifts and talents and God gave them to me to be the best person I can be and to have a positive impact on other people.</b>
+> <p><i>Bryan Clay</i></p>
 
 <br>
