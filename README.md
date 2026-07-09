@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nobody has wrestled everybody in the business like I have, especially not Bret Hart.</b>
-> <p><i>Ric Flair</i></p>
+> <b>The artist alone sees spirits. But after he has told of their appearing to him, everybody sees them.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
