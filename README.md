@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be content with what you are, and wish not change nor dread your last day, nor long for it.</b>
-> <p><i>Marcus Aurelius</i></p>
+> <b>I hope this will help new moms not feel alone or desperate, and that there is no shame in their feelings. PPD is out of their control, but the treatment and healing process is not.</b>
+> <p><i>Brooke Shields</i></p>
 
 <br>
