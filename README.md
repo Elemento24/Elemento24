@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wives are young men's mistresses, companions for middle age, and old men's nurses.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>Old age is the most unexpected of all the things that can happen to a man.</b>
+> <p><i>James Thurber</i></p>
 
 <br>
