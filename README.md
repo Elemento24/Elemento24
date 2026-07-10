@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If there's specific resistance to women making movies, I just choose to ignore that as an obstacle for two reasons: I can't change my gender, and I refuse to stop making movies.</b>
-> <p><i>Kathryn Bigelow</i></p>
+> <b>In the 1970s and 1980s there was so little decent fiction for young people, but we're now in a golden age that shows no sign of fading. Philip Pullman, J. K. Rowling, Lemony Snicket are only three of the best known among a good number of equals.</b>
+> <p><i>David Mitchell</i></p>
 
 <br>
