@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like to produce albums. I hate producing albums, as a matter of fact, because I'm an obsessed mixer and I can't leave it alone.</b>
-> <p><i>David Friedman</i></p>
+> <b>No woman should ever be quite accurate about her age. It looks so calculating.</b>
+> <p><i>Oscar Wilde</i></p>
 
 <br>
