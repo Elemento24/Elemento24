@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's nobody in the business strong enough to scare me.</b>
-> <p><i>Tupac Shakur</i></p>
+> <b>I am a horrible visual artist. I can't fix a car, sew, knit, cook, etc. Statistically, there is more I don't do than do.</b>
+> <p><i>Carrie Brownstein</i></p>
 
 <br>
