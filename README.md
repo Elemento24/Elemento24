@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Enjoying success requires the ability to adapt. Only by being open to change will you have a true opportunity to get the most from your talent.</b>
-> <p><i>Nolan Ryan</i></p>
+> <b>The politicians always told us that the Cold War stand-off could only change by way of nuclear war. None of them believed that such systemic change was possible.</b>
+> <p><i>Lech Walesa</i></p>
 
 <br>
