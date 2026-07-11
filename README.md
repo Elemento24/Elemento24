@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is ironic that the one thing that all religions recognize as separating us from our creator, our very self-consciousness, is also the one thing that divides us from our fellow creatures. It was a bitter birthday present from evolution.</b>
-> <p><i>Annie Dillard</i></p>
+> <b>My heart has been heavy and I have deliberated within my own conscience, knowing that my decision should not come out of my initial emotion of anger toward the President for such reckless behavior, but should be based on the facts.</b>
+> <p><i>Blanche Lincoln</i></p>
 
 <br>
