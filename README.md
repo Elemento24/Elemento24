@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Italian men do appreciate beautiful women. They're not afraid of the beauty, which is nice.</b>
-> <p><i>Eva Herzigova</i></p>
+> <b>As a kid, I kind of spent my life being amazed by being tricked. I love being tricked. I still love it today.</b>
+> <p><i>Daniel Craig</i></p>
 
 <br>
