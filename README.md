@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No woman should ever be quite accurate about her age. It looks so calculating.</b>
-> <p><i>Oscar Wilde</i></p>
+> <b>Enjoying success requires the ability to adapt. Only by being open to change will you have a true opportunity to get the most from your talent.</b>
+> <p><i>Nolan Ryan</i></p>
 
 <br>
