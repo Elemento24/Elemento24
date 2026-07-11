@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The same sort of thing happened in my dispute with the National Trust book: Follies: A National Trust Guide, which implied that the only pleasure you can get from Folly architecture is by calling the architect mad, and by laughing at the architecture.</b>
-> <p><i>Ian Hamilton Finlay</i></p>
+> <b>Italian men do appreciate beautiful women. They're not afraid of the beauty, which is nice.</b>
+> <p><i>Eva Herzigova</i></p>
 
 <br>
