@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When grace is joined with wrinkles, it is adorable. There is an unspeakable dawn in happy old age.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>There's nobody in the business strong enough to scare me.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
