@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The politicians always told us that the Cold War stand-off could only change by way of nuclear war. None of them believed that such systemic change was possible.</b>
-> <p><i>Lech Walesa</i></p>
+> <b>It is ironic that the one thing that all religions recognize as separating us from our creator, our very self-consciousness, is also the one thing that divides us from our fellow creatures. It was a bitter birthday present from evolution.</b>
+> <p><i>Annie Dillard</i></p>
 
 <br>
