@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My heart has been heavy and I have deliberated within my own conscience, knowing that my decision should not come out of my initial emotion of anger toward the President for such reckless behavior, but should be based on the facts.</b>
-> <p><i>Blanche Lincoln</i></p>
+> <b>When I go to the clinic next and sit with a tube in my arm and watch the poison go in, I'm in an attitude of abject passivity. It doesn't feel like fighting at all it just feels like submitting.</b>
+> <p><i>Christopher Hitchens</i></p>
 
 <br>
