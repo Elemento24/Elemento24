@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If architecture had nothing to do with art, it would be astonishingly easy to build houses, but the architect's task - his most difficult task - is always that of selecting.</b>
-> <p><i>Arne Jacobsen</i></p>
+> <b>He was afflicted by the thought that where Beauty was, nothing ever ran quite straight, which no doubt, was why so many people looked on it as immoral.</b>
+> <p><i>John Galsworthy</i></p>
 
 <br>
