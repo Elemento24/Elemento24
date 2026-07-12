@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a horrible visual artist. I can't fix a car, sew, knit, cook, etc. Statistically, there is more I don't do than do.</b>
-> <p><i>Carrie Brownstein</i></p>
+> <b>Politics is not the art of the possible. It consists in choosing between the disastrous and the unpalatable.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
