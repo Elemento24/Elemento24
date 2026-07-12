@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Very often a change of self is needed more than a change of scene.</b>
-> <p><i>A. C. Benson</i></p>
+> <b>When love is at its best, one loves so much that he cannot forget.</b>
+> <p><i>Helen Hunt Jackson</i></p>
 
 <br>
