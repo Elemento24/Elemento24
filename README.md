@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is not the art of the possible. It consists in choosing between the disastrous and the unpalatable.</b>
-> <p><i>John Kenneth Galbraith</i></p>
+> <b>Paul Farmer has helped to build amazing health care system in one of the poorest areas of Haiti. He founded Partners in Health, which serves the destitute and the sick in many parts of the world from Haiti to Boston and from Russia to Peru.</b>
+> <p><i>Tracy Kidder</i></p>
 
 <br>
