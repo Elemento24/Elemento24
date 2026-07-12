@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you read back in the Bible, the letter of the apostle Paul to the church of Thessalonia, he said that in the latter days before the end of the age that the Earth would be caught up in what he called the birth pangs of a new order.</b>
-> <p><i>Pat Robertson</i></p>
+> <b>If architecture had nothing to do with art, it would be astonishingly easy to build houses, but the architect's task - his most difficult task - is always that of selecting.</b>
+> <p><i>Arne Jacobsen</i></p>
 
 <br>
