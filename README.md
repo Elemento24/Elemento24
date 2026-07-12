@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My business is the enforcement of the tax laws and the integrity of the tax code and making sure that trustees of charitable giving are true trustees.</b>
-> <p><i>Chuck Grassley</i></p>
+> <b>Driving with one foot on the accelerator and the other on the brake is likely to get you nowhere, but certainly will burn out vital parts of your car. Similarly, cutting taxes on the middle class, but increasing them on the 'rich' is likely to result in an economic burnout.</b>
+> <p><i>Terry Savage</i></p>
 
 <br>
