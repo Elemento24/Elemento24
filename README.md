@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The minute you try to talk business with him he takes the attitude that he is a gentleman and a scholar, and the moment you try to approach him on the level of his moral integrity he starts to talk business.</b>
-> <p><i>Raymond Chandler</i></p>
+> <b>Suits are looked at more now as a business thing which is kind of a shame. If you're not wearing it just for work, you should try and trick it up a bit.</b>
+> <p><i>Daniel Craig</i></p>
 
 <br>
