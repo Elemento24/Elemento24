@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When love is at its best, one loves so much that he cannot forget.</b>
-> <p><i>Helen Hunt Jackson</i></p>
+> <b>Where children are, there is the golden age.</b>
+> <p><i>Novalis</i></p>
 
 <br>
