@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The age of chivalry is past. Bores have succeeded to dragons.</b>
-> <p><i>Charles Dickens</i></p>
+> <b>The Word of fire burns today On the lips of our prophets in an evil age.</b>
+> <p><i>Margaret Walker</i></p>
 
 <br>
