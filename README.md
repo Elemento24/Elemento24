@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is nothing in socialism that a little age or a little money will not cure.</b>
-> <p><i>Will Durant</i></p>
+> <b>I hope to bring much more attention to important issues and change for issues and practices that are harming animals.</b>
+> <p><i>Kesha</i></p>
 
 <br>
