@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Where children are, there is the golden age.</b>
-> <p><i>Novalis</i></p>
+> <b>In times of great stress or adversity, it's always best to keep busy, to plow your anger and your energy into something positive.</b>
+> <p><i>Lee Iacocca</i></p>
 
 <br>
