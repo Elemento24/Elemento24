@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never knew any Jews until I got into show business. I've found them to be real smart and good workers.</b>
-> <p><i>Loretta Lynn</i></p>
+> <b>The age of chivalry is past. Bores have succeeded to dragons.</b>
+> <p><i>Charles Dickens</i></p>
 
 <br>
