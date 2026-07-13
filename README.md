@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In times of great stress or adversity, it's always best to keep busy, to plow your anger and your energy into something positive.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>In New York, you've got Donald Trump, Woody Allen, a crack addict and a regular Joe, and they're all on the same subway car.</b>
+> <p><i>Ethan Hawke</i></p>
 
 <br>
