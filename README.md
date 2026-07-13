@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>More and more couples are having this negotiation or discussion, but I'm still amazed at the number who aren't and where the cultural norm sort of kicks in and they just assume that mom's got to be the one who stays home, not dad.</b>
-> <p><i>James Levine</i></p>
+> <b>I never knew any Jews until I got into show business. I've found them to be real smart and good workers.</b>
+> <p><i>Loretta Lynn</i></p>
 
 <br>
