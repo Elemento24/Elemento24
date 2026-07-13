@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In New York, you've got Donald Trump, Woody Allen, a crack addict and a regular Joe, and they're all on the same subway car.</b>
-> <p><i>Ethan Hawke</i></p>
+> <b>Truth is, I cut my hair for freedom, not for beauty.</b>
+> <p><i>Chrisette Michele</i></p>
 
 <br>
