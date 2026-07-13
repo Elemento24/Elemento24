@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Scholarship was one thing, drudgery another. I very soon concluded that nothing would induce me to read, let alone make notes on, hundreds and hundreds of very, very, very boring books.</b>
-> <p><i>Simon Raven</i></p>
+> <b>More and more couples are having this negotiation or discussion, but I'm still amazed at the number who aren't and where the cultural norm sort of kicks in and they just assume that mom's got to be the one who stays home, not dad.</b>
+> <p><i>James Levine</i></p>
 
 <br>
