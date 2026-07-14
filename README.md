@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the beginning and at the end of love, the two lovers are embarrassed to find themselves alone.</b>
-> <p><i>Jean de la Bruyere</i></p>
+> <b>I get to do the most amazing things. We call it Host in Peril quite often, because people love to see me risk my life or be in danger.</b>
+> <p><i>Rick Mercer</i></p>
 
 <br>
