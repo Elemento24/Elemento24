@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A beautiful bouquet or a long-lasting flowering plant is a traditional gift for women, but I have recommended that both men and women keep fresh flowers in the home for their beauty, fragrance, and the lift they give our spirits.</b>
-> <p><i>Andrew Weil</i></p>
+> <b>People got insights into what was bothering them, but they hardly did a damn thing to change.</b>
+> <p><i>Albert Ellis</i></p>
 
 <br>
