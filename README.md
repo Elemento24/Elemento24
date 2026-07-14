@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any form of art is a form of power it has impact, it can affect change - it can not only move us, it makes us move.</b>
-> <p><i>Ossie Davis</i></p>
+> <b>One must learn, if one is to see the beauty in Japan, to like an extraordinarily restrained and delicate loveliness.</b>
+> <p><i>Miriam Beard</i></p>
 
 <br>
