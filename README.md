@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Word of fire burns today On the lips of our prophets in an evil age.</b>
-> <p><i>Margaret Walker</i></p>
+> <b>No one should be left to suffer alone.</b>
+> <p><i>Daisaku Ikeda</i></p>
 
 <br>
