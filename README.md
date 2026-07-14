@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People don't associate red hair, pale skin, and freckles with beauty.</b>
-> <p><i>Shirley Manson</i></p>
+> <b>Any form of art is a form of power it has impact, it can affect change - it can not only move us, it makes us move.</b>
+> <p><i>Ossie Davis</i></p>
 
 <br>
