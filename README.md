@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was apprehensive. I feared every time I talked about poetry, it would be filtered through the lens of race, sex, and age.</b>
-> <p><i>Rita Dove</i></p>
+> <b>At the beginning and at the end of love, the two lovers are embarrassed to find themselves alone.</b>
+> <p><i>Jean de la Bruyere</i></p>
 
 <br>
