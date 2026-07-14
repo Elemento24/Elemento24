@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything will change. The only question is growing up or decaying.</b>
-> <p><i>Nikki Giovanni</i></p>
+> <b>I was apprehensive. I feared every time I talked about poetry, it would be filtered through the lens of race, sex, and age.</b>
+> <p><i>Rita Dove</i></p>
 
 <br>
