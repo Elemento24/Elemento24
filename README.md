@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Wigs have always been a part of my life and have become a staple accessory in my closet. I can remember being a little girl and hearing all the commotion in my house from my mom, aunts and grandmother when picking out their wigs for the day. It was such a good time for them and part of their everyday beauty routine.</b>
-> <p><i>Sherri Shepherd</i></p>
+> <b>I'm crazy about my father, he's an amazing man, a real adventurer. He took us with him to travel all over the world. We were in places that were so remote, that white people hardly ever reach them.</b>
+> <p><i>Peta Wilson</i></p>
 
 <br>
