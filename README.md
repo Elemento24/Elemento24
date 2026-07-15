@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The ignorant mind, with its infinite afflictions, passions, and evils, is rooted in the three poisons. Greed, anger, and delusion.</b>
-> <p><i>Bodhidharma</i></p>
+> <b>I am careful not to confuse excellence with perfection. Excellence I can reach for perfection is God's business.</b>
+> <p><i>Michael J. Fox</i></p>
 
 <br>
