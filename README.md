@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That attitude does not exist so much today, but in those days there was a very sharp distinction between basic physics and applied physics. Columbia did not deal with applied physics.</b>
-> <p><i>Gordon Gould</i></p>
+> <b>Bruce Lee was very famous. I watched his movies and he is amazing. He is a martial arts master, his philosophy, his movement, both physically and mentally, were very strong.</b>
+> <p><i>Jet Li</i></p>
 
 <br>
