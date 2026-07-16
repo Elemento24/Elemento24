@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was at drama school, I wanted to change the world, and thought I had some great wisdom to impart to people about humanity. Now that I'm older, I know enough to realise that I know nothing at all.</b>
-> <p><i>Michael Sheen</i></p>
+> <b>None are so old as those who have outlived enthusiasm.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
