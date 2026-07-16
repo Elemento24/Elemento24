@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I'm in town on Sundays, I sometimes go down to the Central Bar in the East Village to watch English football. But my natural inclination now is to get in the car with my wife and kids and get out of town.</b>
-> <p><i>Joe Scarborough</i></p>
+> <b>What the imagination seizes as beauty must be truth.</b>
+> <p><i>John Keats</i></p>
 
 <br>
