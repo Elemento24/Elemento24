@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Dear motorist on the information superhighway. I'm sorry I do not have a car.</b>
-> <p><i>Eric San</i></p>
+> <b>Man cannot live by incompetence alone.</b>
+> <p><i>Charlotte Whitton</i></p>
 
 <br>
