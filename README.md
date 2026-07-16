@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of all the home remedies, a good wife is best.</b>
-> <p><i>Kin Hubbard</i></p>
+> <b>When I'm in town on Sundays, I sometimes go down to the Central Bar in the East Village to watch English football. But my natural inclination now is to get in the car with my wife and kids and get out of town.</b>
+> <p><i>Joe Scarborough</i></p>
 
 <br>
