@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am careful not to confuse excellence with perfection. Excellence I can reach for perfection is God's business.</b>
-> <p><i>Michael J. Fox</i></p>
+> <b>Of all the home remedies, a good wife is best.</b>
+> <p><i>Kin Hubbard</i></p>
 
 <br>
