@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Love of beauty is taste. The creation of beauty is art.</b>
-> <p><i>Ralph Waldo Emerson</i></p>
+> <b>Forbidden pleasures alone are loved immoderately when lawful, they do not excite desire.</b>
+> <p><i>Quintilian</i></p>
 
 <br>
