@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>None are so old as those who have outlived enthusiasm.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>Dear motorist on the information superhighway. I'm sorry I do not have a car.</b>
+> <p><i>Eric San</i></p>
 
 <br>
