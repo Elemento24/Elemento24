@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Toleration is the best religion.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>One already feels like an anachronism, writing novels in the age of what-ever-this-is-the-age-of, but touring to promote them feels doubly anachronistic. The marketplace is showing an increasing intolerance for the time-honored practice of printing information on paper and shipping it around the country.</b>
+> <p><i>Lev Grossman</i></p>
 
 <br>
