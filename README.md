@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Forbidden pleasures alone are loved immoderately when lawful, they do not excite desire.</b>
-> <p><i>Quintilian</i></p>
+> <b>No architect troubled to design houses that suited people who were to live in them, because that would have meant building a whole range of different houses. It was far cheaper and, above all, timesaving to make them identical.</b>
+> <p><i>Michael Ende</i></p>
 
 <br>
