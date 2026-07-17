@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a destiny which makes us brothers none goes his way alone. All that we send into the lives of others comes back into our own.</b>
-> <p><i>Edwin Markham</i></p>
+> <b>A good government may, indeed, redress the grievances of an injured people but a strong people can alone build up a great nation.</b>
+> <p><i>Thomas Francis Meagher</i></p>
 
 <br>
