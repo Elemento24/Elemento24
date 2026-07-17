@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Land really is the best art.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>There is a destiny which makes us brothers none goes his way alone. All that we send into the lives of others comes back into our own.</b>
+> <p><i>Edwin Markham</i></p>
 
 <br>
