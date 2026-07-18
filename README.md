@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The first trip I remember taking was on the train from Virginia up to New York City, watching the summertime countryside rolling past the window. They used white linen tablecloths in the dining car in those days, and real silver. I love trains to this day. Maybe that was the beginning of my fixation with leisurely modes of travel.</b>
-> <p><i>Billy Campbell</i></p>
+> <b>I was turning 20 during my first record. Those decade birthdays always kind of cause me, it seems, to reflect, look back, and then look forward. I just was closing this period of my life where I was living in a car and scrambling my whole life to then signing a six-record deal with Atlantic.</b>
+> <p><i>Jewel</i></p>
 
 <br>
