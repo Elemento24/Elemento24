@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm the lead singer of the Beach Boys and an ambassador of this amazing music that touched a generation.</b>
-> <p><i>Mike Love</i></p>
+> <b>The Border Ballads, for instance, and the Robin Hood Ballads, clearly suppose a state of society which is nothing but a very circumscribed and not very important heroic age.</b>
+> <p><i>Lascelles Abercrombie</i></p>
 
 <br>
