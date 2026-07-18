@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's my adventure, my trip, my journey, and I guess my attitude is, let the chips fall where they may.</b>
-> <p><i>Leonard Nimoy</i></p>
+> <b>We're all entitled to opinions about how art institutions should behave, and entitled to voicing those opinions through whatever means available to us. We're also allowed to change or modify our opinions.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
