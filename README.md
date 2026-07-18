@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no business in America that would be prevented from taking results into account when making personnel decisions.</b>
-> <p><i>Michael Bloomberg</i></p>
+> <b>Flirting is the gentle art of making a man feel pleased with himself.</b>
+> <p><i>Helen Rowland</i></p>
 
 <br>
