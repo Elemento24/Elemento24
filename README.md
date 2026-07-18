@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For two thousand years, the Church has guided the development of music, carefully legislating to fuse artistic talent and aesthetic beauty with the demands of the Faith.</b>
-> <p><i>Richard Morris</i></p>
+> <b>I think it's my adventure, my trip, my journey, and I guess my attitude is, let the chips fall where they may.</b>
+> <p><i>Leonard Nimoy</i></p>
 
 <br>
