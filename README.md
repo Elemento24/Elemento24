@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My notion of a wife at 40 is that a man should be able to change her, like a bank note, for two 20s.</b>
-> <p><i>Warren Beatty</i></p>
+> <b>My dad was a journalist. He was in Rwanda right after the genocide. In Berlin when the wall came down. He was always disappearing and coming back with amazing stories. So telling stories for a living made sense to me.</b>
+> <p><i>Patrick J. Adams</i></p>
 
 <br>
