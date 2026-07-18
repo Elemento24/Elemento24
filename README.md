@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best minds are not in government. If any were, business would steal them away.</b>
-> <p><i>Ronald Reagan</i></p>
+> <b>In business for yourself, not by yourself.</b>
+> <p><i>William James</i></p>
 
 <br>
