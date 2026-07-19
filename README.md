@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Blessed is he who has found his work let him ask no other blessedness.</b>
-> <p><i>Thomas Carlyle</i></p>
+> <b>The movies are the only business where you can go out front and applaud yourself.</b>
+> <p><i>Will Rogers</i></p>
 
 <br>
