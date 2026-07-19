@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think what makes our marriage work amid all the glare is that my husband is my best friend. He inspires everything in my life and enables me to do the best that I can. I want to hang out with him more than anyone.</b>
-> <p><i>Faith Hill</i></p>
+> <b>As soon as I began to earn what might be called fairly large sums, I bought a car and began to explore the country around New York.</b>
+> <p><i>Kate Smith</i></p>
 
 <br>
