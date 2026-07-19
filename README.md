@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm trying to change the culture in New York City that's hard enough!</b>
-> <p><i>Michael Bloomberg</i></p>
+> <b>Blessed is he who has found his work let him ask no other blessedness.</b>
+> <p><i>Thomas Carlyle</i></p>
 
 <br>
