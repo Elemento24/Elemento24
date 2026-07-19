@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm probably the only person who goes to work and says 'Wow, it's really nice here and sweet,' even in the competitive movie business.</b>
-> <p><i>Harvey Weinstein</i></p>
+> <b>When you create art, the world has to wait.</b>
+> <p><i>Will Smith</i></p>
 
 <br>
