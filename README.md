@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know the first real thing about the dating game. I don't know how to talk to a specific person and connect. I just think you have to go to person by person and do the best you can with people in general.</b>
-> <p><i>Jason Schwartzman</i></p>
+> <b>We are living in the machine age. For the first time in history the comedian has been compelled to supply himself with jokes and comedy material to compete with the machine. Whether he knows it or not, the comedian is on a treadmill to oblivion.</b>
+> <p><i>Fred Allen</i></p>
 
 <br>
