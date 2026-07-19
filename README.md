@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Human memory is a marvelous but fallacious instrument. The memories which lie within us are not carved in stone not only do they tend to become erased as the years go by, but often they change, or even increase by incorporating extraneous features.</b>
-> <p><i>Primo Levi</i></p>
+> <b>Today in America, we are trying to prepare students for a high tech world of constant change, but we are doing so by putting them through a school system designed in the early 20th Century that has not seen substantial change in 30 years.</b>
+> <p><i>Janet Napolitano</i></p>
 
 <br>
