@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We are living in the machine age. For the first time in history the comedian has been compelled to supply himself with jokes and comedy material to compete with the machine. Whether he knows it or not, the comedian is on a treadmill to oblivion.</b>
-> <p><i>Fred Allen</i></p>
+> <b>Human memory is a marvelous but fallacious instrument. The memories which lie within us are not carved in stone not only do they tend to become erased as the years go by, but often they change, or even increase by incorporating extraneous features.</b>
+> <p><i>Primo Levi</i></p>
 
 <br>
