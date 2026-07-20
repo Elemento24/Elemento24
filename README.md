@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Who would dare assign to art the sterile function of imitating nature?</b>
-> <p><i>Charles Baudelaire</i></p>
+> <b>Beauty, more than bitterness, makes the heart break.</b>
+> <p><i>Sara Teasdale</i></p>
 
 <br>
