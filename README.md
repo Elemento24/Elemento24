@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We like to think about how smart we are. But I think talent as a writer is hard-wired in, it's all there, at least the basic elements of it. You can't change it any more than you can choose whether to be right handed or left handed.</b>
-> <p><i>Stephen King</i></p>
+> <b>I think there's a suspicion in the South of people putting on airs. You see it in most successful Southern politicians, but you also see it in someone like Richard Petty, who may be a multimillionaire stock car driver, but he's also beloved because he has a nice self-deprecatory way about him.</b>
+> <p><i>John Shelton Reed</i></p>
 
 <br>
