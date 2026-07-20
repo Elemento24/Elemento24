@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I tend not to wear accessories. I'm not one of those gals with a drawerful of amazing jewelry. I don't even have my ears pierced! But I have one bracelet that never comes off my wrist.</b>
-> <p><i>Rachael Taylor</i></p>
+> <b>No, I regret nothing, all I regret is having been born, dying is such a long tiresome business I always found.</b>
+> <p><i>Samuel Beckett</i></p>
 
 <br>
