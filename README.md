@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nature scarcely ever gives us the very best for that we must have recourse to art.</b>
-> <p><i>Baltasar Gracian</i></p>
+> <b>We like to think about how smart we are. But I think talent as a writer is hard-wired in, it's all there, at least the basic elements of it. You can't change it any more than you can choose whether to be right handed or left handed.</b>
+> <p><i>Stephen King</i></p>
 
 <br>
