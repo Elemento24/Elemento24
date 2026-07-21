@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>From 18 to 22, I was alone, living in L.A. with a bunch of friends, partying.</b>
-> <p><i>Heath Ledger</i></p>
+> <b>The best thing about acting is that I get to lose myself in another character and actually get paid for it... It's a great outlet. I'm not really sure who I am - it seems I change every day.</b>
+> <p><i>Leonardo DiCaprio</i></p>
 
 <br>
