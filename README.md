@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing about acting is that I get to lose myself in another character and actually get paid for it... It's a great outlet. I'm not really sure who I am - it seems I change every day.</b>
-> <p><i>Leonardo DiCaprio</i></p>
+> <b>I'm just glad I was able to return to some of that innocence and beauty I had as a child when I started my own family, and my children brought me back some of that spirit.</b>
+> <p><i>Angelina Jolie</i></p>
 
 <br>
