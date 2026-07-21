@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There's one more thing I want to say. It's a touchy subject. Black beauty. Black sensuality. We live in a culture where the beauty of black people isn't always as celebrated as other types. I'd like to help change that if I can!</b>
-> <p><i>Jody Watley</i></p>
+> <b>From 18 to 22, I was alone, living in L.A. with a bunch of friends, partying.</b>
+> <p><i>Heath Ledger</i></p>
 
 <br>
