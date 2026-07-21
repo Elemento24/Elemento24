@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I look away at car crashes, and I know people who look away at car crashes, because it makes us uncomfortable to watch other people in pain.</b>
-> <p><i>John Mayer</i></p>
+> <b>If we do not permit the earth to produce beauty and joy, it will in the end not produce food, either.</b>
+> <p><i>Joseph Wood Krutch</i></p>
 
 <br>
