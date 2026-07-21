@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you cannot work with love but only with distaste, it is better that you should leave your work.</b>
-> <p><i>Khalil Gibran</i></p>
+> <b>Picture yourself vividly as winning, and that alone will contribute immeasurably to success.</b>
+> <p><i>Harry Emerson Fosdick</i></p>
 
 <br>
