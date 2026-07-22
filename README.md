@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Woman's at best a contradiction still.</b>
-> <p><i>Alexander Pope</i></p>
+> <b>Beauty is but the sensible image of the Infinite. Like truth and justice it lives within us like virtue and the moral law it is a companion of the soul.</b>
+> <p><i>George Bancroft</i></p>
 
 <br>
