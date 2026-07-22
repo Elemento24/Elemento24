@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Michelle Pfeiffer hasn't been finding a lot of work recently because she doesn't like what a woman her age is offered. That's a real double standard. You get Sean Connery, who gets older and older, still playing opposite young ladies, but it doesn't work the other way around.</b>
-> <p><i>Denzel Washington</i></p>
+> <b>I respect the astute and rigorously unsentimental David Horowitz as one of America's most original and courageous political analysts. He has the true 1960s spirit - audacious and irreverent, yet passionately engaged and committed to social change.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
