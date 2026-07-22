@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Stevie Ray Vaughan was very intense. Maybe that's what caught everybody's attention. As a player, he didn't do anything amazing.</b>
-> <p><i>Ritchie Blackmore</i></p>
+> <b>Aside from my work, in my everyday private life, I'm not a very adventureous person. I don't look for change.</b>
+> <p><i>Namie Amuro</i></p>
 
 <br>
