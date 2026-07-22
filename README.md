@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is but the sensible image of the Infinite. Like truth and justice it lives within us like virtue and the moral law it is a companion of the soul.</b>
-> <p><i>George Bancroft</i></p>
+> <b>Stevie Ray Vaughan was very intense. Maybe that's what caught everybody's attention. As a player, he didn't do anything amazing.</b>
+> <p><i>Ritchie Blackmore</i></p>
 
 <br>
