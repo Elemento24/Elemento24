@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I respect the astute and rigorously unsentimental David Horowitz as one of America's most original and courageous political analysts. He has the true 1960s spirit - audacious and irreverent, yet passionately engaged and committed to social change.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>I'm generally quite an angry person, and I like to channel my anger toward something creative.</b>
+> <p><i>Sharmeen Obaid-Chinoy</i></p>
 
 <br>
