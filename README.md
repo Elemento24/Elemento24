@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Aside from my work, in my everyday private life, I'm not a very adventureous person. I don't look for change.</b>
-> <p><i>Namie Amuro</i></p>
+> <b>The jewelry business is a very, very tough business - tougher than the computer business. You truly have to understand how to take care of your customers.</b>
+> <p><i>Guy Kawasaki</i></p>
 
 <br>
