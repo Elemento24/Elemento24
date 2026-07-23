@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>As soon as I get my car I think I'll be going to the cinema more. Since I don't go very often, there are no films that are a must see at the moment. I usually wait till they come out on DVD.</b>
-> <p><i>Tom Felton</i></p>
+> <b>Genius always gives its best at first prudence, at last.</b>
+> <p><i>Lucius Annaeus Seneca</i></p>
 
 <br>
