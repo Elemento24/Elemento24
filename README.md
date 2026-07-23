@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A healthy attitude is contagious but don't wait to catch it from others. Be a carrier.</b>
-> <p><i>Tom Stoppard</i></p>
+> <b>I left science, then I went into art, but I approach things very analytically. I choose to pursue both art and architecture as completely separate fields rather than merging them.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
