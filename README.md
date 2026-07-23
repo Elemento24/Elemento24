@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is impossible to exaggerate the wide, and widening, gulf between the American attitude on the Iraq war and the view from our friends across the Atlantic.</b>
-> <p><i>Nick Clooney</i></p>
+> <b>My sister, she's amazing. She sort of inspired me to take this journey to Latin America.</b>
+> <p><i>Jenna Bush</i></p>
 
 <br>
