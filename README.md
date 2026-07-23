@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Genius always gives its best at first prudence, at last.</b>
-> <p><i>Lucius Annaeus Seneca</i></p>
+> <b>A healthy attitude is contagious but don't wait to catch it from others. Be a carrier.</b>
+> <p><i>Tom Stoppard</i></p>
 
 <br>
