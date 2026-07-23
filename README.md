@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>She gave up beauty in her tender youth, gave all her hope and joy and pleasant ways she covered up her eyes lest they should gaze on vanity, and chose the bitter truth.</b>
-> <p><i>Christina Rossetti</i></p>
+> <b>Is there no Latin word for Tea? Upon my soul, if I had known that I would have let the vulgar stuff alone.</b>
+> <p><i>Hilaire Belloc</i></p>
 
 <br>
