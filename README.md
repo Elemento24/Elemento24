@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The absence of flaw in beauty is itself a flaw.</b>
-> <p><i>Havelock Ellis</i></p>
+> <b>In seeking wisdom thou art wise in imagining that thou hast attained it - thou art a fool.</b>
+> <p><i>Lord Chesterfield</i></p>
 
 <br>
