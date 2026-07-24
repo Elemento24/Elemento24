@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best thing we can do if we want the Russians to let us be Americans is to let the Russians be Russian.</b>
-> <p><i>George F. Kennan</i></p>
+> <b>The absence of flaw in beauty is itself a flaw.</b>
+> <p><i>Havelock Ellis</i></p>
 
 <br>
