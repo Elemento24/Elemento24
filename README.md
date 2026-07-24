@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not as angry as I used to be. But I can get in touch with that anger pretty quickly if I feel my space is being invaded or somebody is not treating me with the respect that I think I want.</b>
-> <p><i>Samuel L. Jackson</i></p>
+> <b>Beauty and brains, pleasure and usability - they should go hand in hand.</b>
+> <p><i>Donald Norman</i></p>
 
 <br>
