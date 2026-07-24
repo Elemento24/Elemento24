@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In seeking wisdom thou art wise in imagining that thou hast attained it - thou art a fool.</b>
-> <p><i>Lord Chesterfield</i></p>
+> <b>To not be modest about it, you'll find that with only a couple of exceptions, most of the musicians that I've worked with have done their best work by far with me.</b>
+> <p><i>David Bowie</i></p>
 
 <br>
