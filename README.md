@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To not be modest about it, you'll find that with only a couple of exceptions, most of the musicians that I've worked with have done their best work by far with me.</b>
-> <p><i>David Bowie</i></p>
+> <b>I'm not as angry as I used to be. But I can get in touch with that anger pretty quickly if I feel my space is being invaded or somebody is not treating me with the respect that I think I want.</b>
+> <p><i>Samuel L. Jackson</i></p>
 
 <br>
