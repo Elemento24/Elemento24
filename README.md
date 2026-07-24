@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is not just physical.</b>
-> <p><i>Halle Berry</i></p>
+> <b>Finishing food is about the tiny touches. In the last seconds you can change everything.</b>
+> <p><i>Mario Batali</i></p>
 
 <br>
