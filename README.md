@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A painstaking course in qualitative and quantitative analysis by John Wing gave me an appreciation of the need for, and beauty of, accurate measurement.</b>
-> <p><i>Paul D. Boyer</i></p>
+> <b>Experience is the best teacher of all. And for that, there are no guarantees that one will become an artist. Only the journey matters.</b>
+> <p><i>Harry Callahan</i></p>
 
 <br>
