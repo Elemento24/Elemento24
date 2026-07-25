@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art allows people a way to dream their way out of their struggle.</b>
-> <p><i>Russell Simmons</i></p>
+> <b>The time you spend alone with God will transform your character and increase your devotion. Then your integrity and godly behavior in an unbelieving world will make others long to know the Lord.</b>
+> <p><i>Charles Stanley</i></p>
 
 <br>
