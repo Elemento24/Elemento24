@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.</b>
-> <p><i>Joel Osteen</i></p>
+> <b>Now we're in the midst of not just advocating for change, not just calling for change - we're doing the grinding, sometimes frustrating work of delivering change - inch by inch, day by day.</b>
+> <p><i>Barack Obama</i></p>
 
 <br>
