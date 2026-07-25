@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All my fans tell me what a glamorous life I have, but I tell them how hard I work and how many nights I spend alone with my dogs, eating chicken pot pie in my bedroom.</b>
-> <p><i>Shannen Doherty</i></p>
+> <b>Memories are like mulligatawny soup in a cheap restaurant. It is best not to stir them.</b>
+> <p><i>P. G. Wodehouse</i></p>
 
 <br>
