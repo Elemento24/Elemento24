@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Experience is the best teacher of all. And for that, there are no guarantees that one will become an artist. Only the journey matters.</b>
-> <p><i>Harry Callahan</i></p>
+> <b>Art allows people a way to dream their way out of their struggle.</b>
+> <p><i>Russell Simmons</i></p>
 
 <br>
