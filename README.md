@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I live by the philosophy that beauty starts from within, and I make a conscious effort to fill my body with nutrients through the food I eat.</b>
-> <p><i>Miranda Kerr</i></p>
+> <b>The New York art world readily proves people wrong. Just when folks say that things stink and flibbertigibbet critics wish the worst on us all because we're not pure enough, good omens appear.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
