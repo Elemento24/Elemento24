@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Many art-worlders have an if-you-say-so approach to art: Everyone is so scared of missing out on the next hot artist that it's never clear whether people are liking work because they like it or because other people do. Everyone is keeping up with the Joneses, and there are more Joneses than ever.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.</b>
+> <p><i>Joel Osteen</i></p>
 
 <br>
