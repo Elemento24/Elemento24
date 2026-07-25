@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All I watch is the Food Network. I took a cheesemaking class a few weeks ago, and I told my family and friends to only get me kitchen stuff on my birthday. I'm into every kind of cookbook and anything by Anthony Bourdain. I'd love to own a restaurant if I could find the right chef.</b>
-> <p><i>Jesse McCartney</i></p>
+> <b>A painstaking course in qualitative and quantitative analysis by John Wing gave me an appreciation of the need for, and beauty of, accurate measurement.</b>
+> <p><i>Paul D. Boyer</i></p>
 
 <br>
