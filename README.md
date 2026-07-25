@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The New York art world readily proves people wrong. Just when folks say that things stink and flibbertigibbet critics wish the worst on us all because we're not pure enough, good omens appear.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>All my fans tell me what a glamorous life I have, but I tell them how hard I work and how many nights I spend alone with my dogs, eating chicken pot pie in my bedroom.</b>
+> <p><i>Shannen Doherty</i></p>
 
 <br>
