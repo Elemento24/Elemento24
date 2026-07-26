@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are two way of establishing a reputation, one to be praised by honest people and the other to be accused by rogues. It is best, however, to secure the first one, because it will always be accompanied by the latter.</b>
-> <p><i>Charles Caleb Colton</i></p>
+> <b>The people who make art their business are mostly imposters.</b>
+> <p><i>Pablo Picasso</i></p>
 
 <br>
