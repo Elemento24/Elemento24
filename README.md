@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've developed into quite a swan. I'm one of those people that will probably look better and better as I get older until I drop dead of beauty.</b>
-> <p><i>Rufus Wainwright</i></p>
+> <b>There are a lot of female artists my age around at the moment, but they're all American and blonde and blue-eyed and smiley. I'm totally the opposite of that. I want to show a bit more attitude and I have an opinion.</b>
+> <p><i>Samantha Mumba</i></p>
 
 <br>
