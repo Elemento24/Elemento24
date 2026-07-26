@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anybody who really knows about the TV business knows that it would be impossible to just march in one day and say to your colleagues and bosses, 'Oh yes, I'm hosting my own show.'</b>
-> <p><i>Andy Cohen</i></p>
+> <b>We Americans are the best informed people on earth as to the events of the last twenty-four hours we are the not the best informed as the events of the last sixty centuries.</b>
+> <p><i>Will Durant</i></p>
 
 <br>
