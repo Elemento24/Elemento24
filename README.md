@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the bait which with delight allures man to enlarge his kind.</b>
-> <p><i>Socrates</i></p>
+> <b>There are two way of establishing a reputation, one to be praised by honest people and the other to be accused by rogues. It is best, however, to secure the first one, because it will always be accompanied by the latter.</b>
+> <p><i>Charles Caleb Colton</i></p>
 
 <br>
