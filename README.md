@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Thinking well to be wise: planning well, wiser: doing well wisest and best of all.</b>
-> <p><i>Malcolm Forbes</i></p>
+> <b>I'm generally quite an angry person, and I like to channel my anger toward something creative.</b>
+> <p><i>Sharmeen Obaid-Chinoy</i></p>
 
 <br>
