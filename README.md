@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We Americans are the best informed people on earth as to the events of the last twenty-four hours we are the not the best informed as the events of the last sixty centuries.</b>
-> <p><i>Will Durant</i></p>
+> <b>I do believe very much in the idea of unexpected or 'convulsive' beauty - beauty in the service of liberty.</b>
+> <p><i>Jeff Vandermeer</i></p>
 
 <br>
