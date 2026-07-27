@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A small group of thoughtful people could change the world. Indeed, it's the only thing that ever has.</b>
-> <p><i>Margaret Mead</i></p>
+> <b>Christians should be ready for a change because Jesus was the greatest changer in history.</b>
+> <p><i>Ralph Abernathy</i></p>
 
 <br>
