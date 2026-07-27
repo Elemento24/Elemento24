@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Both my husband and I give a lot of ourselves in what we do because that is our public lives but in my private life, I have an intrinsic right to be left alone.</b>
-> <p><i>Ashley Judd</i></p>
+> <b>When thou art at Rome, do as they do at Rome.</b>
+> <p><i>Miguel de Cervantes</i></p>
 
 <br>
