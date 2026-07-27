@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Christians should be ready for a change because Jesus was the greatest changer in history.</b>
-> <p><i>Ralph Abernathy</i></p>
+> <b>An excuse becomes an obstacle in your journey to success when it is made in place of your best effort or when it is used as the object of the blame.</b>
+> <p><i>Bo Bennett</i></p>
 
 <br>
