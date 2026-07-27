@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An excuse becomes an obstacle in your journey to success when it is made in place of your best effort or when it is used as the object of the blame.</b>
-> <p><i>Bo Bennett</i></p>
+> <b>Willingness to change is a strength, even if it means plunging part of the company into total confusion for a while.</b>
+> <p><i>Jack Welch</i></p>
 
 <br>
