@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are a lot of female artists my age around at the moment, but they're all American and blonde and blue-eyed and smiley. I'm totally the opposite of that. I want to show a bit more attitude and I have an opinion.</b>
-> <p><i>Samantha Mumba</i></p>
+> <b>A small group of thoughtful people could change the world. Indeed, it's the only thing that ever has.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
