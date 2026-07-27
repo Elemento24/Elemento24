@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The voice of the intelligence is drowned out by the roar of fear. It is ignored by the voice of desire. It is contradicted by the voice of shame. It is biased by hate and extinguished by anger. Most of all it is silenced by ignorance.</b>
-> <p><i>Karl A. Menninger</i></p>
+> <b>Rare is the union of beauty and purity.</b>
+> <p><i>Juvenal</i></p>
 
 <br>
