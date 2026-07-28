@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Rare is the union of beauty and purity.</b>
-> <p><i>Juvenal</i></p>
+> <b>Especially in the car ride to and from gym. I find myself spacing out a lot, just visualizing what the Olympics would be like and just having such great role models.</b>
+> <p><i>Aly Raisman</i></p>
 
 <br>
