@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My hope is that out of all the anger and seeming hostility that we hear in some of today's music will come some sort of coalition that will become politically involved.</b>
-> <p><i>Roberta Flack</i></p>
+> <b>A budget tells us what we can't afford, but it doesn't keep us from buying it.</b>
+> <p><i>William Feather</i></p>
 
 <br>
