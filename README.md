@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Alone in the Dark was too much an action creature movie than a horror creature movie.</b>
-> <p><i>Uwe Boll</i></p>
+> <b>There must be a law against forcing children to perform at an early age. Children should have a wonderful childhood. They should not be given too much responsibility.</b>
+> <p><i>Maria Callas</i></p>
 
 <br>
