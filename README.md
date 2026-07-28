@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Especially in the car ride to and from gym. I find myself spacing out a lot, just visualizing what the Olympics would be like and just having such great role models.</b>
-> <p><i>Aly Raisman</i></p>
+> <b>My hope is that out of all the anger and seeming hostility that we hear in some of today's music will come some sort of coalition that will become politically involved.</b>
+> <p><i>Roberta Flack</i></p>
 
 <br>
