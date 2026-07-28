@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There must be a law against forcing children to perform at an early age. Children should have a wonderful childhood. They should not be given too much responsibility.</b>
-> <p><i>Maria Callas</i></p>
+> <b>It wasn't a secret that I was gay. I'd come out to my parents during my junior year of high school, on the day that I also wrecked the family car.</b>
+> <p><i>Mary Cheney</i></p>
 
 <br>
