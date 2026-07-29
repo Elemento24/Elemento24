@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I walk into a kids' store, and it's amazing, the types of instruments - little squeaky things, rattling things, spinning tops.</b>
-> <p><i>Evelyn Glennie</i></p>
+> <b>I was always a singer. But I was always focused on being an actor as my trade. Music I do just for me. The movie business is very difficult but the music business is just impossible.</b>
+> <p><i>Jeremy Renner</i></p>
 
 <br>
