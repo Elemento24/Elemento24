@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You shouldn't be in the music business if you're posing.</b>
-> <p><i>Rod Stewart</i></p>
+> <b>So I did in fact spend two and a half years in the Middlesbrough car park practising skills. But if you spend four or five or six hours a day practising, you get better.</b>
+> <p><i>Craig Johnston</i></p>
 
 <br>
