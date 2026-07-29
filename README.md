@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For what Harley Street specialist has time to understand the body, let alone the mind or both in combination, when he is a slave to thirteen thousand a year?</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>I have to struggle to change people's perceptions of me. I grew very frustrated with the perception that I'm this shy, retiring, inhibited aristocratic creature when I'm absolutely not like that at all. I think I'm much more outgoing and exuberant than my image.</b>
+> <p><i>Helena Bonham Carter</i></p>
 
 <br>
