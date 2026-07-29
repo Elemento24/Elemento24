@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was always a singer. But I was always focused on being an actor as my trade. Music I do just for me. The movie business is very difficult but the music business is just impossible.</b>
-> <p><i>Jeremy Renner</i></p>
+> <b>If you want to be the best, you have to do things that other people aren't willing to do.</b>
+> <p><i>Michael Phelps</i></p>
 
 <br>
