@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the precept by which I have lived: Prepare for the worst expect the best and take what comes.</b>
-> <p><i>Hannah Arendt</i></p>
+> <b>Glasgow's not a media center. When you're there, when you're hanging about, you feel quite detached from musical movements or fashions or anything like that. You do feel quite alone, in a good way.</b>
+> <p><i>Alex Kapranos</i></p>
 
 <br>
