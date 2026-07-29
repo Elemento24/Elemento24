@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you want to be the best, you have to do things that other people aren't willing to do.</b>
-> <p><i>Michael Phelps</i></p>
+> <b>This is the precept by which I have lived: Prepare for the worst expect the best and take what comes.</b>
+> <p><i>Hannah Arendt</i></p>
 
 <br>
