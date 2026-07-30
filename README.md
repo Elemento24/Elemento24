@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Any architectural project we do takes at least four or five years, so increasingly there is a discrepancy between the acceleration of culture and the continuing slowness of architecture.</b>
-> <p><i>Rem Koolhaas</i></p>
+> <b>The idea of avant-garde art is a very suspicious thing to me, the idea that poetry is new and it keeps being new the way Chevrolets every year are new.</b>
+> <p><i>Robert Morgan</i></p>
 
 <br>
