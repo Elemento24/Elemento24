@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Global political conditions make a direct American intervention difficult, but President Reagan's messianic and visceral attitude toward the Nicaraguan revolution could mean it will happen as an act of desperation.</b>
-> <p><i>Tomas Borge</i></p>
+> <b>Beauty is not something you can count on. Usually, when people say you are beautiful, it is when there is a harmony between the inside and the outside.</b>
+> <p><i>Emmanuelle Beart</i></p>
 
 <br>
