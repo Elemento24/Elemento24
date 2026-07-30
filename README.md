@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Loving a child doesn't mean giving in to all his whims to love him is to bring out the best in him, to teach him to love what is difficult.</b>
-> <p><i>Nadia Boulanger</i></p>
+> <b>As we look forward to freedom, the shining city on the hill and the best days of America lying ahead, it is the men and women in uniform who protect, defend and make us proud to whom we should look and give thanks every night.</b>
+> <p><i>Robin Hayes</i></p>
 
 <br>
