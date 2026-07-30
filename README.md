@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We require from buildings two kinds of goodness: first, the doing their practical duty well: then that they be graceful and pleasing in doing it.</b>
-> <p><i>John Ruskin</i></p>
+> <b>Loving a child doesn't mean giving in to all his whims to love him is to bring out the best in him, to teach him to love what is difficult.</b>
+> <p><i>Nadia Boulanger</i></p>
 
 <br>
