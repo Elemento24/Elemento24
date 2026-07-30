@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is not something you can count on. Usually, when people say you are beautiful, it is when there is a harmony between the inside and the outside.</b>
-> <p><i>Emmanuelle Beart</i></p>
+> <b>Men make history and not the other way around. In periods where there is no leadership, society stands still. Progress occurs when courageous, skillful leaders seize the opportunity to change things for the better.</b>
+> <p><i>Harry S. Truman</i></p>
 
 <br>
