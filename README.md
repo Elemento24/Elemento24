@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So much of what is best in us is bound up in our love of family, that it remains the measure of our stability because it measures our sense of loyalty. All other pacts of love or fear derive from it and are modeled upon it.</b>
-> <p><i>Haniel Long</i></p>
+> <b>My heart is so light that it's amazing. I get to play all this grief, all this loss, all this disaster and chaos. It's hysterically funny. I am very light.</b>
+> <p><i>Linda Hamilton</i></p>
 
 <br>
