@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We can best help you to prevent war not by repeating your words and following your methods but by finding new words and creating new methods.</b>
-> <p><i>Virginia Woolf</i></p>
+> <b>So much of what is best in us is bound up in our love of family, that it remains the measure of our stability because it measures our sense of loyalty. All other pacts of love or fear derive from it and are modeled upon it.</b>
+> <p><i>Haniel Long</i></p>
 
 <br>
