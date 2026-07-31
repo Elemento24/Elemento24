@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You have to visualize a second or two ahead of your car what line you are taking, what you are going to do, before you get there because it comes too fast.</b>
-> <p><i>Emerson Fittipaldi</i></p>
+> <b>Iraq is just a symbol of the attitude of western democracies to the rest of the world.</b>
+> <p><i>Harold Pinter</i></p>
 
 <br>
