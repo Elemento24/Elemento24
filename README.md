@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Listen, in England people are already writing their memoirs at the age of 23.</b>
-> <p><i>Rupert Everett</i></p>
+> <b>I cannot live under pressures from patrons, let alone paint.</b>
+> <p><i>Michelangelo</i></p>
 
 <br>
