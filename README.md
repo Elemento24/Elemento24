@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cannot stand the people who get wonderful starts in show business and who abuse it. Lindsay Lohan and Charlie Sheen, for example, although there are plenty of others, too. They are the most blessed people in the world, and they don't appreciate it.</b>
-> <p><i>Betty White</i></p>
+> <b>Now that women are jockeys, baseball umpires, atomic scientists, and business executives, maybe someday they can master parallel parking.</b>
+> <p><i>Bill Vaughan</i></p>
 
 <br>
