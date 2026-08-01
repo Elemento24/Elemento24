@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Modern bodybuilding is ritual, religion, sport, art, and science, awash in Western chemistry and mathematics. Defying nature, it surpasses it.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>Nothing can stop the man with the right mental attitude from achieving his goal nothing on earth can help the man with the wrong mental attitude.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
