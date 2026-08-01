@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It can be hard in this business, especially when you're very young, to figure out who you can and can't trust.</b>
-> <p><i>Christina Aguilera</i></p>
+> <b>The best security for civilization is the dwelling, and upon properly appointed and becoming dwellings depends, more than anything else, the improvement of mankind.</b>
+> <p><i>Benjamin Disraeli</i></p>
 
 <br>
