@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is in true beauty, as in courage, something which narrow souls cannot dare to admire.</b>
-> <p><i>William Congreve</i></p>
+> <b>Modern bodybuilding is ritual, religion, sport, art, and science, awash in Western chemistry and mathematics. Defying nature, it surpasses it.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
