@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Education is the best provision for old age.</b>
-> <p><i>Aristotle</i></p>
+> <b>You don't have to carry a designer bag that costs more than a car to look cool.</b>
+> <p><i>Kesha</i></p>
 
 <br>
