@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You cannot change your destination overnight, but you can change your direction overnight.</b>
-> <p><i>Jim Rohn</i></p>
+> <b>Being a father at a later age is different from when I had my other two daughters when I was in my 20s and 30s. If you're in your 60s and you're with the kid every day, you're dealing with the mind of a child, so it opens up that childishness in you again.</b>
+> <p><i>Martin Scorsese</i></p>
 
 <br>
