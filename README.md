@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Filth and old age, I'm sure you will agree, are powerful wardens upon chastity.</b>
-> <p><i>Geoffrey Chaucer</i></p>
+> <b>Beauty is but a flower, which wrinkles will devour.</b>
+> <p><i>Thomas Nash</i></p>
 
 <br>
