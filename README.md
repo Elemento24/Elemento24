@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Patton was living in the Dark Ages. Soldiers were peasants to him. I didn't like that attitude.</b>
-> <p><i>Bill Mauldin</i></p>
+> <b>Filth and old age, I'm sure you will agree, are powerful wardens upon chastity.</b>
+> <p><i>Geoffrey Chaucer</i></p>
 
 <br>
