@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Brain power improves by brain use, just as our bodily strength grows with exercise. And there is no doubt that a large proportion of the female population, from school days to late middle age, now have very complicated lives indeed.</b>
-> <p><i>A. N. Wilson</i></p>
+> <b>No, nothing has changed in my life at all, and nothing would change if I had millions.</b>
+> <p><i>Kinky Friedman</i></p>
 
 <br>
