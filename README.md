@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The image is where you have dinner at night, who you're seeing. It's what car you drive and how you dress. People in the industry sell that, and it creates a dream. There's nothing else.</b>
-> <p><i>Elle Macpherson</i></p>
+> <b>We live in a wonderful world that is full of beauty, charm and adventure. There is no end to the adventures that we can have if only we seek them with our eyes open.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
