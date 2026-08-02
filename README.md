@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is but a flower, which wrinkles will devour.</b>
-> <p><i>Thomas Nash</i></p>
+> <b>My 'fear' is my substance, and probably the best part of me.</b>
+> <p><i>Franz Kafka</i></p>
 
 <br>
