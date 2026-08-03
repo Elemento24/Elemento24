@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no substitute for accurate knowledge. Know yourself, know your business, know your men.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>Art is the stored honey of the human soul, gathered on wings of misery and travail.</b>
+> <p><i>Theodore Dreiser</i></p>
 
 <br>
