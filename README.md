@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is what I asked for, and in this day and age that's what actually goes on. But what hurts me the most is that I work just as hard as any other actress around my age, like Scarlett Johansson, but I just don't get the opportunities that they get because people are so distracted by the mess that I created in my life.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>I loved photography and everybody said it was a crazy thing to do because in those days nobody made it into the film business. I mean, unless you were related to somebody there was no way in.</b>
+> <p><i>George Lucas</i></p>
 
 <br>
