@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I loved photography and everybody said it was a crazy thing to do because in those days nobody made it into the film business. I mean, unless you were related to somebody there was no way in.</b>
-> <p><i>George Lucas</i></p>
+> <b>I was always very grateful to 'em and am grateful to 'em now. I went back a couple of years ago and did their 20th anniversary show. But the longer I stayed on Hee Haw, the worse things got for me musically.</b>
+> <p><i>Buck Owens</i></p>
 
 <br>
