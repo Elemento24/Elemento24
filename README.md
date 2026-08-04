@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think we'll be in pretty good shape. We've got the same car we ran in all the speedway races since 2001, and it's been a real good car for us. It's led every race we've been in.</b>
-> <p><i>Sterling Marlin</i></p>
+> <b>I really enjoy being single again. I spent a lot of time in a relationship and the nearer we came to the end, the more difficult it got. You don't see things clearly as long as you're still involved.</b>
+> <p><i>Dido Armstrong</i></p>
 
 <br>
