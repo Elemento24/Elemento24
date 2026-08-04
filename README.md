@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of it is when you can just show up and hit the notes.</b>
-> <p><i>John Lone</i></p>
+> <b>I was encouraged to hear that GM has made great progress on the hydrogen car.</b>
+> <p><i>Albert Wynn</i></p>
 
 <br>
