@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I really enjoy being single again. I spent a lot of time in a relationship and the nearer we came to the end, the more difficult it got. You don't see things clearly as long as you're still involved.</b>
-> <p><i>Dido Armstrong</i></p>
+> <b>Science shows us truth and beauty and fills each day with a fresh wonder of the exquisite order which governs our world.</b>
+> <p><i>Polykarp Kusch</i></p>
 
 <br>
