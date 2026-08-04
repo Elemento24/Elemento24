@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future.</b>
-> <p><i>Dale Turner</i></p>
+> <b>The time you feel lonely is the time you most need to be by yourself.</b>
+> <p><i>Doug Coupland</i></p>
 
 <br>
