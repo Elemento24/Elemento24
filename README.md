@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The time you feel lonely is the time you most need to be by yourself.</b>
-> <p><i>Doug Coupland</i></p>
+> <b>It's a sad fact about our culture that a poet can earn much more money writing or talking about his art than he can by practicing it.</b>
+> <p><i>W. H. Auden</i></p>
 
 <br>
