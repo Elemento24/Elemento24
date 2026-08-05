@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Marriage is an act of will that signifies and involves a mutual gift, which unites the spouses and binds them to their eventual souls, with whom they make up a sole family - a domestic church.</b>
-> <p><i>Pope John Paul II</i></p>
+> <b>So for a year I spent all my time hiding from Jack Charlton in the car park practising my skills.</b>
+> <p><i>Craig Johnston</i></p>
 
 <br>
