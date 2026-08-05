@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you dream of something worth doing and then simply go to work on it and don't think anything of personalities, or emotional conflicts, or of money, or of family distractions it is amazing how quickly you get through those 5,000 steps.</b>
-> <p><i>Edwin Land</i></p>
+> <b>It's a good thing that beauty is only skin deep, or I'd be rotten to the core.</b>
+> <p><i>Phyllis Diller</i></p>
 
 <br>
