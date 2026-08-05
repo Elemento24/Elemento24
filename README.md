@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fairest and best adorned is she Whose clothing is humility.</b>
-> <p><i>James Montgomery</i></p>
+> <b>Acting advice is a bit like your parents teaching you how to drive a car. You know they're right, but you still kind of want them to shut up a bit.</b>
+> <p><i>Max Irons</i></p>
 
 <br>
