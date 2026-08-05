@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Desperation is the perfume of the young actor. It's so satisfying to have gotten rid of it. If you keep smelling it, it can drive you crazy. In this business a lot of people go nuts, go eccentric, even end up dead from it. Not my plan.</b>
-> <p><i>Uma Thurman</i></p>
+> <b>If you dream of something worth doing and then simply go to work on it and don't think anything of personalities, or emotional conflicts, or of money, or of family distractions it is amazing how quickly you get through those 5,000 steps.</b>
+> <p><i>Edwin Land</i></p>
 
 <br>
