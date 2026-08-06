@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Successful crimes alone are justified.</b>
-> <p><i>John Dryden</i></p>
+> <b>I mean, language fascinates me anyway, and different words have different energies and you can change the whole drive of a sentence.</b>
+> <p><i>Alan Rickman</i></p>
 
 <br>
