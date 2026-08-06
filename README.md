@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To love beauty is to see light.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>I have a car but it's not important.</b>
+> <p><i>Eric Cantona</i></p>
 
 <br>
