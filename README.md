@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A good painting to me has always been like a friend. It keeps me company, comforts and inspires.</b>
-> <p><i>Hedy Lamarr</i></p>
+> <b>People can undergo a sudden change of thinking and loyalties under threat of death or intense social pressure and isolation from friends and family.</b>
+> <p><i>Keith Henson</i></p>
 
 <br>
