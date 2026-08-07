@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People can undergo a sudden change of thinking and loyalties under threat of death or intense social pressure and isolation from friends and family.</b>
-> <p><i>Keith Henson</i></p>
+> <b>Anger dwells only in the bosom of fools.</b>
+> <p><i>Albert Einstein</i></p>
 
 <br>
