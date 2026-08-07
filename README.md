@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being successful at a very young age gave me the confidence and the capability to try out other things.</b>
-> <p><i>Joshua Lederberg</i></p>
+> <b>I always believe that to be the best, you have to smell like the best, dress like the best, act like the best. When you throw your trash in the garbage can, it has to be better than anybody else who ever threw trash in the garbage can.</b>
+> <p><i>Lil Wayne</i></p>
 
 <br>
