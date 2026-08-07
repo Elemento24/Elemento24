@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Another principle is, the deepest affections of our hearts gather around some human form in which are incarnated the living thoughts and ideas of the passing age.</b>
-> <p><i>Matthew Simpson</i></p>
+> <b>That's your best friend and your worst enemy - your own brain.</b>
+> <p><i>Fred Durst</i></p>
 
 <br>
