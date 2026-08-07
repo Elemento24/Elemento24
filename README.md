@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I choose films for their artistic value. I don't need a mansion or a Jaguar. When I leave this Earth, I won't take any money with me. All I will leave behind will be my art.</b>
-> <p><i>Brad Renfro</i></p>
+> <b>After all these years, it's still amazing what Obama is allowed to get away with. He says low gas prices in 2009 were caused by a terrible economy, but then claims that the lower number of illegal aliens crossing the border is because of his border policies, not the same lousy economy.</b>
+> <p><i>Howie Carr</i></p>
 
 <br>
