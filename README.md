@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be perceived as a guy who played his best in all facets, not just scoring. A guy who loved challenges.</b>
-> <p><i>Michael Jordan</i></p>
+> <b>With fame there is a crosswire between intensity and intimacy. You have decoy intimacy, but you are also very much alone.</b>
+> <p><i>Mike Myers</i></p>
 
 <br>
