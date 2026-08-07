@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With fame there is a crosswire between intensity and intimacy. You have decoy intimacy, but you are also very much alone.</b>
-> <p><i>Mike Myers</i></p>
+> <b>Now I see the secret of making the best person: it is to grow in the open air and to eat and sleep with the earth.</b>
+> <p><i>Walt Whitman</i></p>
 
 <br>
