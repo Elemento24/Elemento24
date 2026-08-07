@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With reality TV, sometimes it's amazing chemistry and you get these gems that turn out to be everything you hoped, and the camera loves them and they just blossom on the show. And then sometimes it's not all you envision.</b>
-> <p><i>Alison Sweeney</i></p>
+> <b>I don't know that I have any role models now that are fixed. Definitely my mom - she's the coolest. She's worked really hard her whole life and I just think she's got a great attitude. Moms just know so much it's so silly.</b>
+> <p><i>Larisa Oleynik</i></p>
 
 <br>
