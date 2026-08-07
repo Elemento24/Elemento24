@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know that I have any role models now that are fixed. Definitely my mom - she's the coolest. She's worked really hard her whole life and I just think she's got a great attitude. Moms just know so much it's so silly.</b>
-> <p><i>Larisa Oleynik</i></p>
+> <b>I want to be perceived as a guy who played his best in all facets, not just scoring. A guy who loved challenges.</b>
+> <p><i>Michael Jordan</i></p>
 
 <br>
