@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The love of beauty in its multiple forms is the noblest gift of the human cerebrum.</b>
-> <p><i>Alexis Carrel</i></p>
+> <b>A transfer of money should never be involved in this profound situation. Although illness is profound, too, but medicine's a business today. It's a business.</b>
+> <p><i>Jack Kevorkian</i></p>
 
 <br>
