@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the time, 1980, people regarded actresses involved with production with a certain amount of fear, resentment and anger.</b>
-> <p><i>Jacqueline Bisset</i></p>
+> <b>The highest art is always the most religious, and the greatest artist is always a devout person.</b>
+> <p><i>Abraham Lincoln</i></p>
 
 <br>
