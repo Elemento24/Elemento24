@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In any architecture, there is an equity between the pragmatic function and the symbolic function.</b>
-> <p><i>Michael Graves</i></p>
+> <b>I mean, certainly writing, painting, photography, dance, architecture, there is an aspect of almost every art form that is useful and that merges into film in some way.</b>
+> <p><i>Sydney Pollack</i></p>
 
 <br>
