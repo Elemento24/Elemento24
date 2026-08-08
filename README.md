@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The highest art is always the most religious, and the greatest artist is always a devout person.</b>
-> <p><i>Abraham Lincoln</i></p>
+> <b>Falling in love is the best way to kill your heart because then it's not yours anymore. It's laid in a coffin, waiting to be cremated.</b>
+> <p><i>Ville Valo</i></p>
 
 <br>
