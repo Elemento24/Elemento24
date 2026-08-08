@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>James Finch is exactly what I'm looking for, as far as getting back into the race car to have fun.</b>
-> <p><i>Kurt Busch</i></p>
+> <b>Art does not reproduce what we see rather, it makes us see.</b>
+> <p><i>Paul Klee</i></p>
 
 <br>
