@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, certainly writing, painting, photography, dance, architecture, there is an aspect of almost every art form that is useful and that merges into film in some way.</b>
-> <p><i>Sydney Pollack</i></p>
+> <b>The art world can be very intimidating because it's just so vast. You talk to people who are really clued in to all the young artists and coming into it you're never going to be able to catch up immediately, even though there's pressure to.</b>
+> <p><i>Daniel Radcliffe</i></p>
 
 <br>
