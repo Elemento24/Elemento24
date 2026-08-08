@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best days I have are usually days where I'm out in the woods and something happens, like I see an amazing animal like a fox, or I get a glimpse of a wild pig or something that I never see. Or crazy things happen.</b>
-> <p><i>Amy Ray</i></p>
+> <b>Being told about the effects of climate change is an appeal to our reason and to our desire to bring about change. But to see that Africans are the hardest hit by climate change, even though they generate almost no greenhouse gas, is a glaring injustice, which also triggers anger and outrage over those who seek to ignore it.</b>
+> <p><i>Sigmar Gabriel</i></p>
 
 <br>
