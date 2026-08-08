@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you're a basketball player and you don't stop and take pictures with your fans, you can have an amazing game and everyone still loves you.</b>
-> <p><i>Kim Kardashian</i></p>
+> <b>In any architecture, there is an equity between the pragmatic function and the symbolic function.</b>
+> <p><i>Michael Graves</i></p>
 
 <br>
