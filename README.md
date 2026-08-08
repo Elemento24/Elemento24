@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By making a comeback, I'm changing the attitude of people toward me. If I'd known that people would react so enthusiastically, I'd have done it years ago.</b>
-> <p><i>Mark Spitz</i></p>
+> <b>This is the curse of our age, even the strangest aberrations are no cure for boredom.</b>
+> <p><i>Stendhal</i></p>
 
 <br>
