@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art does not reproduce what we see rather, it makes us see.</b>
-> <p><i>Paul Klee</i></p>
+> <b>There is something in the pang of change More than the heart can bear, Unhappiness remembering happiness.</b>
+> <p><i>Euripedes</i></p>
 
 <br>
