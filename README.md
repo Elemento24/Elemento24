@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Being told about the effects of climate change is an appeal to our reason and to our desire to bring about change. But to see that Africans are the hardest hit by climate change, even though they generate almost no greenhouse gas, is a glaring injustice, which also triggers anger and outrage over those who seek to ignore it.</b>
-> <p><i>Sigmar Gabriel</i></p>
+> <b>Liturgy is like a strong tree whose beauty is derived from the continuous renewal of its leaves, but whose strength comes from the old trunk, with solid roots in the ground.</b>
+> <p><i>Pope Paul VI</i></p>
 
 <br>
