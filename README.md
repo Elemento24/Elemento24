@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is the curse of our age, even the strangest aberrations are no cure for boredom.</b>
-> <p><i>Stendhal</i></p>
+> <b>I used to have this Mercedes, a dark blue 450SLC, which was the most beautiful car. I'd like to have another unusual, beautiful car.</b>
+> <p><i>Andrew Davies</i></p>
 
 <br>
