@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to have this Mercedes, a dark blue 450SLC, which was the most beautiful car. I'd like to have another unusual, beautiful car.</b>
-> <p><i>Andrew Davies</i></p>
+> <b>I have been overcome by the beauty and richness of our life together, those early mornings setting out, those evenings gleaming with rivers and lakes below us, still holding the last light.</b>
+> <p><i>Anne Morrow Lindbergh</i></p>
 
 <br>
