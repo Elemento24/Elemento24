@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Americans different in some maybe thoughts or emphasis still have the same ideas. They want a government that lets them be free, that leaves them alone, that doesn't interrupt and interfere with every aspect of their life, that lets them go to work and keep more of what they've worked hard to have.</b>
-> <p><i>Mike Huckabee</i></p>
+> <b>Whoever thinks that he alone has speech, or possesses speech or mind above others, when unfolded such men are seen to be empty.</b>
+> <p><i>Sophocles</i></p>
 
 <br>
