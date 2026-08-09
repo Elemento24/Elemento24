@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only a mediocre person is always at his best.</b>
-> <p><i>W. Somerset Maugham</i></p>
+> <b>The nature of motion capture is only going to work for certain films. It's not going to put any other type of movies out of business.</b>
+> <p><i>Tom Hanks</i></p>
 
 <br>
