@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A moment comes, which comes but rarely in history, when we step out from the old to the new when an age ends and when the soul of a nation long suppressed finds utterance.</b>
-> <p><i>Jawaharlal Nehru</i></p>
+> <b>Just as we reject racism, sexism, ageism, and heterosexism, we reject speciesism. The species of a sentient being is no more reason to deny the protection of this basic right than race, sex, age, or sexual orientation is a reason to deny membership in the human moral community to other humans.</b>
+> <p><i>Gary L. Francione</i></p>
 
 <br>
