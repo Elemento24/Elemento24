@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The nature of motion capture is only going to work for certain films. It's not going to put any other type of movies out of business.</b>
-> <p><i>Tom Hanks</i></p>
+> <b>The belief in a supernatural source of evil is not necessary men alone are quite capable of every wickedness.</b>
+> <p><i>Joseph Conrad</i></p>
 
 <br>
