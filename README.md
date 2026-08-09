@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The artist is nothing without the gift, but the gift is nothing without work.</b>
-> <p><i>Emile Zola</i></p>
+> <b>I feel like I have as good a shot as anybody out there and I have gotten close in the past, so why not have the attitude that I can come out and play great tennis and maybe even win this tournament.</b>
+> <p><i>Michael Chang</i></p>
 
 <br>
