@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm always amazed at anyone's interest in what I have to say.</b>
-> <p><i>Orlando Bloom</i></p>
+> <b>A series of rumors about my attitude, as well as derogatory remarks about myself and my family showed me that the personal resentment of the Detroit general manager toward me would make it impossible for me to continue playing hockey in Detroit.</b>
+> <p><i>Ted Lindsay</i></p>
 
 <br>
