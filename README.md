@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The time that people aren't expecting what's going to happen, I find that's the best time to really cause the damage that needs to be done.</b>
-> <p><i>Marilyn Manson</i></p>
+> <b>Is it not by love alone that we succeed in penetrating to the very essence of being?</b>
+> <p><i>Igor Stravinsky</i></p>
 
 <br>
