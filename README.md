@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The belief in a supernatural source of evil is not necessary men alone are quite capable of every wickedness.</b>
-> <p><i>Joseph Conrad</i></p>
+> <b>The time that people aren't expecting what's going to happen, I find that's the best time to really cause the damage that needs to be done.</b>
+> <p><i>Marilyn Manson</i></p>
 
 <br>
