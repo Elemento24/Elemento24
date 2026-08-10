@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>On one level, nothing's really changed in my life. I still drive my daughter in the car pool on Monday. But it's impossible not to be aware of this rush of attention it's impossible not to be seduced by it once you've entered into it, seduced by being unhappy when the attention wanes.</b>
-> <p><i>Michael Tolkin</i></p>
+> <b>Be sure what you want and be sure about yourself. Fashion is not just beauty, it's about good attitude. You have to believe in yourself and be strong.</b>
+> <p><i>Adriana Lima</i></p>
 
 <br>
