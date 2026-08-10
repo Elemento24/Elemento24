@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Be sure what you want and be sure about yourself. Fashion is not just beauty, it's about good attitude. You have to believe in yourself and be strong.</b>
-> <p><i>Adriana Lima</i></p>
+> <b>Money is not the motivating force. It's nice to have money, but I don't live high. What I enjoy is running the business.</b>
+> <p><i>Rupert Murdoch</i></p>
 
 <br>
