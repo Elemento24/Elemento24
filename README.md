@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our judgments judge us, and nothing reveals us, exposes our weaknesses, more ingeniously than the attitude of pronouncing upon our fellows.</b>
-> <p><i>Paul Valery</i></p>
+> <b>In art or architecture your project is only done when you say it's done. If you want to rip it apart at the eleventh hour and start all over again, you never finish. I was one of those crazy creatures.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
