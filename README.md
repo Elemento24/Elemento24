@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You do have to do business with and to try to influence people you don't agree with, or find disagreeable, so it's important to stress that balance.</b>
-> <p><i>William Hague</i></p>
+> <b>Our judgments judge us, and nothing reveals us, exposes our weaknesses, more ingeniously than the attitude of pronouncing upon our fellows.</b>
+> <p><i>Paul Valery</i></p>
 
 <br>
