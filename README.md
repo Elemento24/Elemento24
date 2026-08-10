@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In art or architecture your project is only done when you say it's done. If you want to rip it apart at the eleventh hour and start all over again, you never finish. I was one of those crazy creatures.</b>
-> <p><i>Maya Lin</i></p>
+> <b>There's nobody in the business strong enough to scare me.</b>
+> <p><i>Tupac Shakur</i></p>
 
 <br>
