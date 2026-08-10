@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I used to go down every year for the remembrance of Elvis' birthday. Memphis State College invited me to sit in the auditorium and speak to the people for one of those Elvis days.</b>
-> <p><i>Otis Blackwell</i></p>
+> <b>I rate Morrissey as one of the best lyricists in Britain. For me, he's up there with Bryan Ferry.</b>
+> <p><i>David Bowie</i></p>
 
 <br>
