@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My favorite designer is Christian Lacroix, not just because his clothes are amazing and I love them, but because he's so nice. When I did his fashion show, he was the first one to arrive there and he helped everyone.</b>
-> <p><i>Adriana Lima</i></p>
+> <b>I recorded a song called, I Fall to Pieces, and I was in a car wreck. Now I'm worried because I have a brand-new record, and it's called Crazy!</b>
+> <p><i>Patsy Cline</i></p>
 
 <br>
