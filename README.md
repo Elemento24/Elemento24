@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I rate Morrissey as one of the best lyricists in Britain. For me, he's up there with Bryan Ferry.</b>
-> <p><i>David Bowie</i></p>
+> <b>My favorite designer is Christian Lacroix, not just because his clothes are amazing and I love them, but because he's so nice. When I did his fashion show, he was the first one to arrive there and he helped everyone.</b>
+> <p><i>Adriana Lima</i></p>
 
 <br>
