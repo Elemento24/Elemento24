@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception, it is a prevailing attitude.</b>
-> <p><i>Colin Powell</i></p>
+> <b>You do have to do business with and to try to influence people you don't agree with, or find disagreeable, so it's important to stress that balance.</b>
+> <p><i>William Hague</i></p>
 
 <br>
