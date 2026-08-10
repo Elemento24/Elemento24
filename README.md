@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I recorded a song called, I Fall to Pieces, and I was in a car wreck. Now I'm worried because I have a brand-new record, and it's called Crazy!</b>
-> <p><i>Patsy Cline</i></p>
+> <b>I have always felt that a woman has the right to treat the subject of her age with ambiguity until, perhaps, she passes into the realm of over ninety. Then it is better she be candid with herself and with the world.</b>
+> <p><i>Carl Sandburg</i></p>
 
 <br>
