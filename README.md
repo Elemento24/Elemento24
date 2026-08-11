@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm very manipulative towards directors. My theory is that everyone on the set is directing the film, we're all receiving art messages from the universe on how we should do the film.</b>
-> <p><i>Jeff Bridges</i></p>
+> <b>How old would you be if you didn't know how old you are?</b>
+> <p><i>Satchel Paige</i></p>
 
 <br>
