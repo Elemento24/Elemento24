@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We first fought... in the name of religion, then Communism, and now in the name of drugs and terrorism. Our excuses for global domination always change.</b>
-> <p><i>Serj Tankian</i></p>
+> <b>Passion is universal humanity. Without it religion, history, romance and art would be useless.</b>
+> <p><i>Honore de Balzac</i></p>
 
 <br>
