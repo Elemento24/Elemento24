@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.</b>
-> <p><i>Paul Getty</i></p>
+> <b>I believe that I often bring out the best in somebody's talents.</b>
+> <p><i>David Bowie</i></p>
 
 <br>
