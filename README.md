@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think the best thing for you to do is just live your life. Live a life that's worth living, one where you do what you want to do, pursue your passions. That way, if you meet someone, they'll be joining a life that's already really good.</b>
-> <p><i>Dan Savage</i></p>
+> <b>What has happened is that to some degree they have taken an attitude where they don't listen to demos of diverse subject matters. They're looking for demos like the record the guy on the left just did.</b>
+> <p><i>Grandmaster Flash</i></p>
 
 <br>
