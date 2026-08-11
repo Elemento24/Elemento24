@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was very happy sitting alone at a dining room table, writing a script.</b>
-> <p><i>Conrad Hall</i></p>
+> <b>We first fought... in the name of religion, then Communism, and now in the name of drugs and terrorism. Our excuses for global domination always change.</b>
+> <p><i>Serj Tankian</i></p>
 
 <br>
