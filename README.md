@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What has happened is that to some degree they have taken an attitude where they don't listen to demos of diverse subject matters. They're looking for demos like the record the guy on the left just did.</b>
-> <p><i>Grandmaster Flash</i></p>
+> <b>I'm very manipulative towards directors. My theory is that everyone on the set is directing the film, we're all receiving art messages from the universe on how we should do the film.</b>
+> <p><i>Jeff Bridges</i></p>
 
 <br>
