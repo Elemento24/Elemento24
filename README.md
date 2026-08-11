@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am rediscovering the whole sexual dimension of life at the age of 86, really. And that also means discovering the feminine. So the whole of this dimension, which I had been seeking for a very long time, is now sort of opening itself up to me.</b>
-> <p><i>Bede Griffiths</i></p>
+> <b>The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.</b>
+> <p><i>Paul Getty</i></p>
 
 <br>
