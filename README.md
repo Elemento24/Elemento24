@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Maybe I'm old-fashioned. But I remember the beauty and thrill of being moved by Broadway musicals - particularly the endings of shows.</b>
-> <p><i>Marvin Hamlisch</i></p>
+> <b>I would rather be adorned by beauty of character than jewels. Jewels are the gift of fortune, while character comes from within.</b>
+> <p><i>Plautus</i></p>
 
 <br>
