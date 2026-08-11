@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the age of the individual's liquidation, the question of individuality must be raised anew.</b>
-> <p><i>Theodor Adorno</i></p>
+> <b>I was very happy sitting alone at a dining room table, writing a script.</b>
+> <p><i>Conrad Hall</i></p>
 
 <br>
