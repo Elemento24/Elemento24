@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Passion is universal humanity. Without it religion, history, romance and art would be useless.</b>
-> <p><i>Honore de Balzac</i></p>
+> <b>It's important to fall in love with someone you don't want to change.</b>
+> <p><i>Jessica Simpson</i></p>
 
 <br>
