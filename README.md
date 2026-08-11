@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would rather be adorned by beauty of character than jewels. Jewels are the gift of fortune, while character comes from within.</b>
-> <p><i>Plautus</i></p>
+> <b>I think the best thing for you to do is just live your life. Live a life that's worth living, one where you do what you want to do, pursue your passions. That way, if you meet someone, they'll be joining a life that's already really good.</b>
+> <p><i>Dan Savage</i></p>
 
 <br>
