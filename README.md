@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother asked me what I wanted for my birthday, so I said I wanted to read poetry with her.</b>
-> <p><i>Guy Johnson</i></p>
+> <b>Go for a business that any idiot can run - because sooner or later, any idiot probably is going to run it.</b>
+> <p><i>Peter Lynch</i></p>
 
 <br>
