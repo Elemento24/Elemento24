@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Fuhrer alone is the present and future German reality and its law. Learn to know ever more deeply: from now on every single thing demands decision, and every action responsibility.</b>
-> <p><i>Martin Heidegger</i></p>
+> <b>Simplicity and repose are the qualities that measure the true value of any work of art.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
