@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Simplicity and repose are the qualities that measure the true value of any work of art.</b>
-> <p><i>Frank Lloyd Wright</i></p>
+> <b>Most executives, many scientists, and almost all business school graduates believe that if you analyze data, this will give you new ideas. Unfortunately, this belief is totally wrong. The mind can only see what it is prepared to see.</b>
+> <p><i>Edward de Bono</i></p>
 
 <br>
