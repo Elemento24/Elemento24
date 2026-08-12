@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Acting advice is a bit like your parents teaching you how to drive a car. You know they're right, but you still kind of want them to shut up a bit.</b>
-> <p><i>Max Irons</i></p>
+> <b>There's a lot of people out there who go through hard times, and they feel alone. They feel like nobody is there. But I'm in the same boat.</b>
+> <p><i>Brandy Norwood</i></p>
 
 <br>
