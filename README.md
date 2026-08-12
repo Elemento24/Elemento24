@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People see you as an object, not as a person, and they project a set of expectations onto you. People who don't have it think beauty is a blessing, but actually it sets you apart.</b>
-> <p><i>Candice Bergen</i></p>
+> <b>I am auditioning again - getting back to theatre would be amazing.</b>
+> <p><i>Harry Melling</i></p>
 
 <br>
