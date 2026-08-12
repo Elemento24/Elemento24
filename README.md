@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's the conundrum of cartoon stripping, as opposed to political cartoons. When your anger is the driving force of your drawing hand, failure follows. The anger is OK, but it has to serve the interests of the heart, frankly.</b>
-> <p><i>Berkeley Breathed</i></p>
+> <b>My mother asked me what I wanted for my birthday, so I said I wanted to read poetry with her.</b>
+> <p><i>Guy Johnson</i></p>
 
 <br>
