@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I gave my beauty and my youth to men. I am going to give my wisdom and experience to animals.</b>
-> <p><i>Brigitte Bardot</i></p>
+> <b>That's the conundrum of cartoon stripping, as opposed to political cartoons. When your anger is the driving force of your drawing hand, failure follows. The anger is OK, but it has to serve the interests of the heart, frankly.</b>
+> <p><i>Berkeley Breathed</i></p>
 
 <br>
