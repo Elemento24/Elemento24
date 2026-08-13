@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I think talent as a writer is hard-wired in, it's all there, at least the basic elements of it. You can't change it any more than you can choose whether to be right handed or left handed.</b>
-> <p><i>Stephen King</i></p>
+> <b>When art dresses in worn-out material it is most easily recognized as art.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
