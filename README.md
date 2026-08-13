@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always get bored with my hair. That's why I would always change it throughout my career.</b>
-> <p><i>Janet Jackson</i></p>
+> <b>I have two ideas for novels at the moment, neither of them all that conventional, but I'm not ready to choose between them yet, let alone settle down to the process of writing.</b>
+> <p><i>Jonathan Coe</i></p>
 
 <br>
