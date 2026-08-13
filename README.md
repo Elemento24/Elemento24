@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Yet what you need is not marches, demonstrations, rallies or wide associations, all of them are important. What you need is direct action. The sooner people understand that, the sooner we'll begin to change things.</b>
-> <p><i>Arthur Scargill</i></p>
+> <b>But I think talent as a writer is hard-wired in, it's all there, at least the basic elements of it. You can't change it any more than you can choose whether to be right handed or left handed.</b>
+> <p><i>Stephen King</i></p>
 
 <br>
