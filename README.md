@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I live alone, with cats, books, pictures, fresh vegetables to cook, the garden, the hens to feed.</b>
-> <p><i>Jeanette Winterson</i></p>
+> <b>Most of us start out with a positive attitude and a plan to do our best.</b>
+> <p><i>Marilu Henner</i></p>
 
 <br>
