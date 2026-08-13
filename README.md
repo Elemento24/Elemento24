@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have two ideas for novels at the moment, neither of them all that conventional, but I'm not ready to choose between them yet, let alone settle down to the process of writing.</b>
-> <p><i>Jonathan Coe</i></p>
+> <b>Yet what you need is not marches, demonstrations, rallies or wide associations, all of them are important. What you need is direct action. The sooner people understand that, the sooner we'll begin to change things.</b>
+> <p><i>Arthur Scargill</i></p>
 
 <br>
