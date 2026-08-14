@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is shallow people who think beauty is frivolous or excessive. If you are bringing beauty and god, you are enriching the country. Rice feeds the body, books feed the mind, beauty feeds the soul. It is one thing I can really be proud of and stand tall in the world.</b>
-> <p><i>Imelda Marcos</i></p>
+> <b>The best smell in the world is that man that you love.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
