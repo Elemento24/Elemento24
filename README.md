@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a type-2 diabetic, and they took me off medication simply because I ate right and exercised. Diabetes is not like a cancer, where you go in for chemo and radiation. You can change a lot through a basic changing of habits.</b>
-> <p><i>Sherri Shepherd</i></p>
+> <b>I'm not a rock star. Sure I am, to a certain extent because of the situation, but when kids ask me how it feels to be a rock star, I say leave me alone, I'm not a rock star. I'm not in it for the fame, I'm in it because I like to play.</b>
+> <p><i>Eddie Van Halen</i></p>
 
 <br>
