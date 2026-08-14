@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just as a cautious businessman avoids investing all his capital in one concern, so wisdom would probably admonish us also not to anticipate all our happiness from one quarter alone.</b>
-> <p><i>Sigmund Freud</i></p>
+> <b>Far from creating a new formalism, what these can yield is something far transcending surface values since they not only embody form as beauty, but also form in which intuitions or ideas or conjectures have taken visible substance.</b>
+> <p><i>Max Bill</i></p>
 
 <br>
