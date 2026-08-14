@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In every country and every age, the priest had been hostile to Liberty.</b>
-> <p><i>Thomas Jefferson</i></p>
+> <b>I think everybody can agree that you can hear a certain song and it will put you in a certain mood, and that's just the beauty of music and I am so inspired by that.</b>
+> <p><i>Shaun White</i></p>
 
 <br>
