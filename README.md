@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If being an attractive woman got you attention for directing, then the entire 'best director' category would be comprised of models. To me, that is just the most ludicrous connection that you could make.</b>
-> <p><i>Diablo Cody</i></p>
+> <b>People and squirrels are very different. Most people will not argue that. But I find that there is one situation in which they're very similar. And that is: when I am driving towards them in my car. Then they're kind of hard to tell apart - especially if the human is kind of hairy.</b>
+> <p><i>Demetri Martin</i></p>
 
 <br>
