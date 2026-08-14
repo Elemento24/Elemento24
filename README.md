@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best smell in the world is that man that you love.</b>
-> <p><i>Jennifer Aniston</i></p>
+> <b>I've got a wife, four kids, a business, and a baseball career.</b>
+> <p><i>Curt Schilling</i></p>
 
 <br>
