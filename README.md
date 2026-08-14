@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In art the best is good enough.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>In every country and every age, the priest had been hostile to Liberty.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
