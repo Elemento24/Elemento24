@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My love of fine art increased - the more of it I saw, the more of it I wanted to see.</b>
-> <p><i>Paul Getty</i></p>
+> <b>Every year of my life I grow more convinced that it is wisest and best to fix our attention on the beautiful and the good, and dwell as little as possible on the evil and the false.</b>
+> <p><i>Richard Cecil</i></p>
 
 <br>
