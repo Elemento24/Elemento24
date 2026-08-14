@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Camping is nature's way of promoting the motel business.</b>
-> <p><i>Dave Barry</i></p>
+> <b>Just as a cautious businessman avoids investing all his capital in one concern, so wisdom would probably admonish us also not to anticipate all our happiness from one quarter alone.</b>
+> <p><i>Sigmund Freud</i></p>
 
 <br>
