@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every Body has so good an Opinion of their own Understanding as to think their own way the best.</b>
-> <p><i>Mary Astell</i></p>
+> <b>If being an attractive woman got you attention for directing, then the entire 'best director' category would be comprised of models. To me, that is just the most ludicrous connection that you could make.</b>
+> <p><i>Diablo Cody</i></p>
 
 <br>
