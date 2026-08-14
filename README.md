@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The attitude is we live and let live. This is actually an amazing change in values in a rather short time and it's an example of freedom from religion.</b>
-> <p><i>Tom Wolfe</i></p>
+> <b>My love of fine art increased - the more of it I saw, the more of it I wanted to see.</b>
+> <p><i>Paul Getty</i></p>
 
 <br>
