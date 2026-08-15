@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was away from the front lines for a while this spring, living with other troops, and considerable fighting took place while I was gone. When I got ready to return to my old friends at the front I wondered if I would sense any change in them.</b>
-> <p><i>Ernie Pyle</i></p>
+> <b>I would warn you that I do not attribute to nature either beauty or deformity, order or confusion. Only in relation to our imagination can things be called beautiful or ugly, well-ordered or confused.</b>
+> <p><i>Baruch Spinoza</i></p>
 
 <br>
