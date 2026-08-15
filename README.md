@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We hire people who want to make the best things in the world.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>Our most intimate friend is not he to whom we show the worst, but the best of our nature.</b>
+> <p><i>Nathaniel Hawthorne</i></p>
 
 <br>
