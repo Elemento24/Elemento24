@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Democracy is the art and science of running the circus from the monkey cage.</b>
-> <p><i>H. L. Mencken</i></p>
+> <b>I'm only wanted by directors for the image I give off, and it makes me angry. I always wanted to be an actor and not a beauty pageant winner.</b>
+> <p><i>Jude Law</i></p>
 
 <br>
