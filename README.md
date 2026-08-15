@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Procrastination is the art of keeping up with yesterday.</b>
-> <p><i>Don Marquis</i></p>
+> <b>A day spent without the sight or sound of beauty, the contemplation of mystery, or the search of truth or perfection is a poverty-stricken day and a succession of such days is fatal to human life.</b>
+> <p><i>Lewis Mumford</i></p>
 
 <br>
