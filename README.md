@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To keep the heart unwrinkled, to be hopeful, kindly, cheerful, reverent - that is to triumph over old age.</b>
-> <p><i>Thomas Bailey Aldrich</i></p>
+> <b>The reality is sobering: in the United States one in three girls will become pregnant before age 20, totaling more than 750,000 girls per year.</b>
+> <p><i>Jane Fonda</i></p>
 
 <br>
