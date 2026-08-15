@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If GM had kept up with technology like the computer industry has, we would all be driving $25 cars that got 1,000 MPG.</b>
-> <p><i>Bill Gates</i></p>
+> <b>Old age and sickness bring out the essential characteristics of a man.</b>
+> <p><i>Felix Frankfurter</i></p>
 
 <br>
