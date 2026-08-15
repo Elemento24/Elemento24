@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A budget tells us what we can't afford, but it doesn't keep us from buying it.</b>
-> <p><i>William Feather</i></p>
+> <b>Having a clear faith, based on the creed of the church is often labeled today as fundamentalism. Whereas relativism, which is letting oneself be tossed and swept along by every wind of teaching, look like the only attitude acceptable to today's standards.</b>
+> <p><i>Joseph Ratzinger</i></p>
 
 <br>
