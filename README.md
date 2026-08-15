@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age and sickness bring out the essential characteristics of a man.</b>
-> <p><i>Felix Frankfurter</i></p>
+> <b>To keep the heart unwrinkled, to be hopeful, kindly, cheerful, reverent - that is to triumph over old age.</b>
+> <p><i>Thomas Bailey Aldrich</i></p>
 
 <br>
