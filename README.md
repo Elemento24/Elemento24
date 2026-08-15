@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Success comes when people act together failure tends to happen alone.</b>
-> <p><i>Deepak Chopra</i></p>
+> <b>We hire people who want to make the best things in the world.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
