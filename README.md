@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.</b>
-> <p><i>Henri Bergson</i></p>
+> <b>A budget tells us what we can't afford, but it doesn't keep us from buying it.</b>
+> <p><i>William Feather</i></p>
 
 <br>
