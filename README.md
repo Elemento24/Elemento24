@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Our most intimate friend is not he to whom we show the worst, but the best of our nature.</b>
-> <p><i>Nathaniel Hawthorne</i></p>
+> <b>One travels more usefully when alone, because he reflects more.</b>
+> <p><i>Thomas Jefferson</i></p>
 
 <br>
