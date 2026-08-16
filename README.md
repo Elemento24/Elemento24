@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can have a laugh in Los Angeles, or you can weep in Los Angeles, depending on your attitude towards it.</b>
-> <p><i>Miranda Richardson</i></p>
+> <b>The terror of the atom age is not the violence of the new power but the speed of man's adjustment to it, the speed of his acceptance.</b>
+> <p><i>E. B. White</i></p>
 
 <br>
