@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every night, half an hour before curtain up, the bells of St. Malachy's, the Actors' Chapel on New York's 49th Street, peal the tune of 'There's No Business Like Show Business.' If you walk the streets of the theatre district before a show and see the vast, enthusiastic lines it sounds like a calling: there is certainly no place like Broadway.</b>
-> <p><i>Dan Stevens</i></p>
+> <b>Let us change our traditional attitude to the construction of programs. Instead of imagining that our main task is to instruct a computer what to do, let us concentrate rather on explaining to human beings what we want a computer to do.</b>
+> <p><i>Donald Knuth</i></p>
 
 <br>
