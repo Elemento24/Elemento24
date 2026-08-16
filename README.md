@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For time and the world do not stand still. Change is the law of life. And those who look only to the past or the present are certain to miss the future.</b>
-> <p><i>John F. Kennedy</i></p>
+> <b>No, there is literally nothing on the business side that I wouldn't sacrifice in a heartbeat to have an extra couple of hours' writing. Nothing.</b>
+> <p><i>J. K. Rowling</i></p>
 
 <br>
