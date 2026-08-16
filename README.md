@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What I learned is that in business you must make decisions based on facts, not react with your heart.</b>
-> <p><i>Mario Andretti</i></p>
+> <b>The automobile, both a cause and an effect of this decentralization, is ideally suited for our vast landscape and our generally confused and contrary commuting patterns.</b>
+> <p><i>Brock Yates</i></p>
 
 <br>
