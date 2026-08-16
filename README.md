@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think people feel threatened by homosexuality. The problem isn't about gay people, the problem is about the attitude towards gay people. People think that all gays are Hannibal Lecters. But gay people are sons and daughters, politicians and doctors, American heroes and daughters of American heroes.</b>
-> <p><i>Hollis Stacy</i></p>
+> <b>For time and the world do not stand still. Change is the law of life. And those who look only to the past or the present are certain to miss the future.</b>
+> <p><i>John F. Kennedy</i></p>
 
 <br>
