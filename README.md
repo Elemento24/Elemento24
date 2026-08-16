@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people say it might be good for your career to die and then come back again. I have died many ways, car crashes, motorcycle crashes, etc. But, I am still alive.</b>
-> <p><i>Mark-Paul Gosselaar</i></p>
+> <b>I've seen so many people in this business that made a fortune. They get old and broke and can't make any money. I tell you something... no one's going to play a benefit for Jimmy Dean.</b>
+> <p><i>Jimmy Dean</i></p>
 
 <br>
