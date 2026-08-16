@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The terror of the atom age is not the violence of the new power but the speed of man's adjustment to it, the speed of his acceptance.</b>
-> <p><i>E. B. White</i></p>
+> <b>What I learned is that in business you must make decisions based on facts, not react with your heart.</b>
+> <p><i>Mario Andretti</i></p>
 
 <br>
