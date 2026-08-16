@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There was just this amazing individuality. It's just a whole different world of optimism and fearlessness, women taking off their bras and dancing around naked, and a political hopefulness and involvement.</b>
-> <p><i>Jill Clayburgh</i></p>
+> <b>Study until twenty-five, investigation until forty, profession until sixty, at which age I would have him retired on a double allowance.</b>
+> <p><i>Thomas Moore</i></p>
 
 <br>
