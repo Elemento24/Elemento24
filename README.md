@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your thoughts and emotions are yours alone.</b>
-> <p><i>John Buchanan Robinson</i></p>
+> <b>Failure is not fatal, but failure to change might be.</b>
+> <p><i>John Wooden</i></p>
 
 <br>
