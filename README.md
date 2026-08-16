@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are signs that the age of petroleum has passed its zenith. Adjusted for inflation, a barrel of crude oil now sells for three times its long-run average. The large western oil companies, which cartellised the industry for much of the 20th century, are now selling more oil than they find, and are thus in the throes of liquidation.</b>
-> <p><i>James Buchan</i></p>
+> <b>You can have a laugh in Los Angeles, or you can weep in Los Angeles, depending on your attitude towards it.</b>
+> <p><i>Miranda Richardson</i></p>
 
 <br>
