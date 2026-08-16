@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've seen so many people in this business that made a fortune. They get old and broke and can't make any money. I tell you something... no one's going to play a benefit for Jimmy Dean.</b>
-> <p><i>Jimmy Dean</i></p>
+> <b>There are signs that the age of petroleum has passed its zenith. Adjusted for inflation, a barrel of crude oil now sells for three times its long-run average. The large western oil companies, which cartellised the industry for much of the 20th century, are now selling more oil than they find, and are thus in the throes of liquidation.</b>
+> <p><i>James Buchan</i></p>
 
 <br>
