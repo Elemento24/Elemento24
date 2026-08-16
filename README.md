@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No, there is literally nothing on the business side that I wouldn't sacrifice in a heartbeat to have an extra couple of hours' writing. Nothing.</b>
-> <p><i>J. K. Rowling</i></p>
+> <b>Your life is yours and yours alone. Rise up and live it.</b>
+> <p><i>Terry Goodkind</i></p>
 
 <br>
