@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Failure is not fatal, but failure to change might be.</b>
-> <p><i>John Wooden</i></p>
+> <b>There was just this amazing individuality. It's just a whole different world of optimism and fearlessness, women taking off their bras and dancing around naked, and a political hopefulness and involvement.</b>
+> <p><i>Jill Clayburgh</i></p>
 
 <br>
