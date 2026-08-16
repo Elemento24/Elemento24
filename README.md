@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter what business you're in, you can't run in place or someone will pass you by. It doesn't matter how many games you've won.</b>
-> <p><i>Jim Valvano</i></p>
+> <b>I think people feel threatened by homosexuality. The problem isn't about gay people, the problem is about the attitude towards gay people. People think that all gays are Hannibal Lecters. But gay people are sons and daughters, politicians and doctors, American heroes and daughters of American heroes.</b>
+> <p><i>Hollis Stacy</i></p>
 
 <br>
