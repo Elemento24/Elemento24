@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of all the home remedies, a good wife is best.</b>
-> <p><i>Kin Hubbard</i></p>
+> <b>It is a sobering thought that when Mozart was my age, he had been dead for two years.</b>
+> <p><i>Tom Lehrer</i></p>
 
 <br>
