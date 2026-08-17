@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Too many Christians have a commitment of convenience. They'll stay faithful as long as it's safe and doesn't involve risk, rejection, or criticism. Instead of standing alone in the face of challenge or temptation, they check to see which way their friends are going.</b>
-> <p><i>Charles Stanley</i></p>
+> <b>I'm a workaholic. Before long I'm traveling on my nervous energy alone. This is incredibly exhausting.</b>
+> <p><i>Eva Gabor</i></p>
 
 <br>
