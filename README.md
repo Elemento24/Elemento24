@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had been offered a Hollywood contract before my 18th birthday. It gave me the spark I needed.</b>
-> <p><i>Gene Tierney</i></p>
+> <b>I owe much to mother. She had an expert's understanding, but also approached art emotionally.</b>
+> <p><i>David Rockefeller</i></p>
 
 <br>
