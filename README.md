@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is pretty amazing. My parents, who came from Nicaragua to the U.S. - who would have thought that they would have American kids on the Olympic team? I think that's the epitome of the Olympic dream.</b>
-> <p><i>Diana Lopez</i></p>
+> <b>I am interested in a lot of things - not just show business and my passion for animals. I try to keep current in what's going on in the world. I do mental exercises. I don't have any trouble memorizing lines because of the crossword puzzles I do every day to keep my mind a little limber. I don't sit and vegetate.</b>
+> <p><i>Betty White</i></p>
 
 <br>
