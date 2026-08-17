@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I owe much to mother. She had an expert's understanding, but also approached art emotionally.</b>
-> <p><i>David Rockefeller</i></p>
+> <b>People must insist on the right to say no, to be alone, to stand out from the herd. Creative artists can say all this in their own way and in their own field, by hard, rigorous work.</b>
+> <p><i>Tahar Ben Jelloun</i></p>
 
 <br>
