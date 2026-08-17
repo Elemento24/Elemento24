@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At this present time, matter is still the best way to think of architecture, but I'm not so sure for very long. The computer is radicalizing the way we think about our world.</b>
-> <p><i>Ben Nicholson</i></p>
+> <b>The best executive is one who has sense enough to pick good people to do what he wants done, and self-restraint enough to keep from meddling with them while they do it.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
