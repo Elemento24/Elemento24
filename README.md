@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best executive is one who has sense enough to pick good people to do what he wants done, and self-restraint enough to keep from meddling with them while they do it.</b>
-> <p><i>Theodore Roosevelt</i></p>
+> <b>A man is a fool if he drinks before he reaches the age of 50, and a fool if he doesn't afterward.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
