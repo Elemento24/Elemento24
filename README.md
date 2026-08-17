@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've always wanted to be the best in the world as a baseball player, so when I started to think about opening a business, it was with that mindset.</b>
-> <p><i>Curt Schilling</i></p>
+> <b>I cried when I found out I was a finalist, I kind of went limp when they called my name. I felt like my spirit jumped out of my body, and I was just flesh - it was just amazing.</b>
+> <p><i>Naima Adedapo</i></p>
 
 <br>
