@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am interested in a lot of things - not just show business and my passion for animals. I try to keep current in what's going on in the world. I do mental exercises. I don't have any trouble memorizing lines because of the crossword puzzles I do every day to keep my mind a little limber. I don't sit and vegetate.</b>
-> <p><i>Betty White</i></p>
+> <b>In the history of the world, no one has ever washed a rented car.</b>
+> <p><i>Lawrence Summers</i></p>
 
 <br>
