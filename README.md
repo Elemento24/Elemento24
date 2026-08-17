@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't need plastic in my body to validate me as a woman.</b>
-> <p><i>Courtney Love</i></p>
+> <b>I had been offered a Hollywood contract before my 18th birthday. It gave me the spark I needed.</b>
+> <p><i>Gene Tierney</i></p>
 
 <br>
