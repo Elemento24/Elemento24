@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Shock, confusion, fear, anger, grief, and defiance. On Sept. 11, 2001, and for the three days following the worst terrorist attack on U.S. soil, President George W. Bush led with raw emotion that reflected the public's whipsawing stages of acceptance.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>I don't need plastic in my body to validate me as a woman.</b>
+> <p><i>Courtney Love</i></p>
 
 <br>
