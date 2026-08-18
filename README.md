@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>By plucking her petals, you do not gather the beauty of the flower.</b>
-> <p><i>Rabindranath Tagore</i></p>
+> <b>Drawing is like making an expressive gesture with the advantage of permanence.</b>
+> <p><i>Henri Matisse</i></p>
 
 <br>
