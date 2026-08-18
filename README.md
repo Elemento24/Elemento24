@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>So if you're a robot and you're living on this planet, you can do things that you can't do in real life - things that you wished you could do: like fly like have a car that flies like have furniture that is alive.</b>
-> <p><i>William Joyce</i></p>
+> <b>That's what happens nowadays with people working on computers. They can so easily fix things with their mouse and take out all the, 'Oh, somebody coughed in the background we need to take that out' - or somebody hit a bad note. Those are all the best moments.</b>
+> <p><i>Jack White</i></p>
 
 <br>
