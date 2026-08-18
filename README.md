@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All non-incumbent campaigns promise hope and change, but Obama took the promise to a new level of absurdity. He suggested that a vote for him would literally transform the Earth.</b>
-> <p><i>John Podhoretz</i></p>
+> <b>For a long time now I have tried simply to write the best I can. Sometimes I have good luck and write better than I can.</b>
+> <p><i>Ernest Hemingway</i></p>
 
 <br>
