@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When I was trying to impress Kate I was trying to cook these amazing fancy dinners and what would happen was I would burn something, something would overspill, something would catch on fire and she would be sitting in the background trying to help, and basically taking control of the whole situation, so I was quite glad she was there at the time.</b>
-> <p><i>Prince William</i></p>
+> <b>So if you're a robot and you're living on this planet, you can do things that you can't do in real life - things that you wished you could do: like fly like have a car that flies like have furniture that is alive.</b>
+> <p><i>William Joyce</i></p>
 
 <br>
