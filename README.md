@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think guitar is the best thing in the world.</b>
-> <p><i>Shaun White</i></p>
+> <b>Goals provide the energy source that powers our lives. One of the best ways we can get the most from the energy we have is to focus it. That is what goals can do for us concentrate our energy.</b>
+> <p><i>Denis Waitley</i></p>
 
 <br>
