@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every age needs men who will redeem the time by living with a vision of the things that are to be.</b>
-> <p><i>Adlai E. Stevenson</i></p>
+> <b>I remember that all of a sudden, the car felt like I couldn't control it. It was absolutely the most horrifying experience. We rolled over, off the freeway. I think there was something wrong with the car.</b>
+> <p><i>Tracey Gold</i></p>
 
 <br>
