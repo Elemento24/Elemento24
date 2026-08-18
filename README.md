@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I drank a lot when I was a teenager and I don't drink any more, because that's when I thought, you know, I'm gonna end up a car wreck.</b>
-> <p><i>Kristin Davis</i></p>
+> <b>I think guitar is the best thing in the world.</b>
+> <p><i>Shaun White</i></p>
 
 <br>
