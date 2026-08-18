@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I never thought a basketball shoe would be named after a woman, let alone me.</b>
-> <p><i>Sheryl Swoopes</i></p>
+> <b>All non-incumbent campaigns promise hope and change, but Obama took the promise to a new level of absurdity. He suggested that a vote for him would literally transform the Earth.</b>
+> <p><i>John Podhoretz</i></p>
 
 <br>
