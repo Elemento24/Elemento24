@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You may choose your words like a connoisseur, And polish it up with art, But the word that sways, and stirs, and stays, Is the word that comes from the heart.</b>
-> <p><i>Ella Wheeler Wilcox</i></p>
+> <b>I was planning to go into architecture. But when I arrived, architecture was filled up. Acting was right next to it, so I signed up for acting instead.</b>
+> <p><i>Gilbert K. Chesterton</i></p>
 
 <br>
