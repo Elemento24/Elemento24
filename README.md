@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was planning to go into architecture. But when I arrived, architecture was filled up. Acting was right next to it, so I signed up for acting instead.</b>
-> <p><i>Gilbert K. Chesterton</i></p>
+> <b>Sometimes I have these fantasies of just moving to a foreign country and coming back with a full head of hair. Or not even come back! Make a new life there with hair... Change my name, just see what happens.</b>
+> <p><i>Larry David</i></p>
 
 <br>
