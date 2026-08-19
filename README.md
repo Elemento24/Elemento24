@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No matter what business you're in, you can't run in place or someone will pass you by. It doesn't matter how many games you've won.</b>
-> <p><i>Jim Valvano</i></p>
+> <b>Confidence is something you're born with. I know I had loads of it even at the age of 15.</b>
+> <p><i>Hedy Lamarr</i></p>
 
 <br>
