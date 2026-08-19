@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is art really the priesthood that demands the pure in heart who belong to it wholly?</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>A well regulated militia, composed of the body of the people, trained in arms, is the best most natural defense of a free country.</b>
+> <p><i>James Madison</i></p>
 
 <br>
