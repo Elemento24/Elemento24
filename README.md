@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A thing is right when it tends to preserve the integrity, stability and beauty of the biotic community. It is wrong when it tends otherwise.</b>
-> <p><i>Aldo Leopold</i></p>
+> <b>Compassion alone stands apart from the continuous traffic between good and evil proceeding within us.</b>
+> <p><i>Eric Hoffer</i></p>
 
 <br>
