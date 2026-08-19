@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I need to do things on my own, need to be left alone.</b>
-> <p><i>Henry Rollins</i></p>
+> <b>Meditation is all about the pursuit of nothingness. It's like the ultimate rest. It's better than the best sleep you've ever had. It's a quieting of the mind. It sharpens everything, especially your appreciation of your surroundings. It keeps life fresh.</b>
+> <p><i>Hugh Jackman</i></p>
 
 <br>
