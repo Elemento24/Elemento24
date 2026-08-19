@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best books for a man are not always those which the wise recommend, but often those which meet the peculiar wants, the natural thirst of his mind, and therefore awaken interest and rivet thought.</b>
-> <p><i>William Ellery Channing</i></p>
+> <b>Nobody minded what you did in bed or what you said about God, a very civilized attitude in 1948.</b>
+> <p><i>Simon Raven</i></p>
 
 <br>
