@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The main business of religions is to purify, control, and restrain that excessive and exclusive taste for well-being which men acquire in times of equality.</b>
-> <p><i>Alexis de Tocqueville</i></p>
+> <b>Nothing surpasses the beauty and elegance of a bad idea.</b>
+> <p><i>Craig Bruce</i></p>
 
 <br>
