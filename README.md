@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And then there's all these other creeps that surround your band and suck off you like leeches and try to manipulate you and your business. You have to watch like a hawk. I'm always ready to fight. I see it very much as a battle.</b>
-> <p><i>Shirley Manson</i></p>
+> <b>Human beings do not live in the objective world alone, nor alone in the world of social activity as ordinarily understood, but are very much at the mercy of the particular language which has become the medium of expression for their society.</b>
+> <p><i>Edward Sapir</i></p>
 
 <br>
