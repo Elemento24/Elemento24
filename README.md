@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Meditation is all about the pursuit of nothingness. It's like the ultimate rest. It's better than the best sleep you've ever had. It's a quieting of the mind. It sharpens everything, especially your appreciation of your surroundings. It keeps life fresh.</b>
-> <p><i>Hugh Jackman</i></p>
+> <b>I was going to be an architect. I graduated with a degree in architecture and I had a scholarship to go back to Princeton and get my Masters in architecture. I'd done theatricals in college, but I'd done them because it was fun.</b>
+> <p><i>James Stewart</i></p>
 
 <br>
