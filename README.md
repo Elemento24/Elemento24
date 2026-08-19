@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A well regulated militia, composed of the body of the people, trained in arms, is the best most natural defense of a free country.</b>
-> <p><i>James Madison</i></p>
+> <b>The main business of religions is to purify, control, and restrain that excessive and exclusive taste for well-being which men acquire in times of equality.</b>
+> <p><i>Alexis de Tocqueville</i></p>
 
 <br>
