@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was going to be an architect. I graduated with a degree in architecture and I had a scholarship to go back to Princeton and get my Masters in architecture. I'd done theatricals in college, but I'd done them because it was fun.</b>
-> <p><i>James Stewart</i></p>
+> <b>When I was old enough to go to movies alone, I got to see 'Frankenstein' and 'Dracula' on the big screen. I just fell in love with them.</b>
+> <p><i>George A. Romero</i></p>
 
 <br>
