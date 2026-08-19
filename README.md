@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Nothing surpasses the beauty and elegance of a bad idea.</b>
-> <p><i>Craig Bruce</i></p>
+> <b>Art is the unceasing effort to compete with the beauty of flowers - and never succeeding.</b>
+> <p><i>Gian Carlo Menotti</i></p>
 
 <br>
