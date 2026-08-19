@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is my belief that we all have the need to feel special. It is this need that can bring out the best in us, yet the worst in us.</b>
-> <p><i>Janet Jackson</i></p>
+> <b>And then there's all these other creeps that surround your band and suck off you like leeches and try to manipulate you and your business. You have to watch like a hawk. I'm always ready to fight. I see it very much as a battle.</b>
+> <p><i>Shirley Manson</i></p>
 
 <br>
