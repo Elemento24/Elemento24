@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Confidence is something you're born with. I know I had loads of it even at the age of 15.</b>
-> <p><i>Hedy Lamarr</i></p>
+> <b>The best books for a man are not always those which the wise recommend, but often those which meet the peculiar wants, the natural thirst of his mind, and therefore awaken interest and rivet thought.</b>
+> <p><i>William Ellery Channing</i></p>
 
 <br>
