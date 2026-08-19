@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But curb thou the high spirit in thy breast, for gentle ways are best, and keep aloof from sharp contentions.</b>
-> <p><i>Homer</i></p>
+> <b>I wrote and produced millions and millions of selling records, so my publishing company alone was worth millions of dollars. I didn't have to work anymore in life because when the rappers started sampling... I'm the most sampled artist in history.</b>
+> <p><i>Rick James</i></p>
 
 <br>
