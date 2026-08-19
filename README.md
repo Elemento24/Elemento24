@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Compassion alone stands apart from the continuous traffic between good and evil proceeding within us.</b>
-> <p><i>Eric Hoffer</i></p>
+> <b>I need to do things on my own, need to be left alone.</b>
+> <p><i>Henry Rollins</i></p>
 
 <br>
