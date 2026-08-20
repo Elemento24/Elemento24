@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Some people think my father was a spy, because of working for that government agency in Vietnam, but he can't find his car keys, much less keep a national secret.</b>
-> <p><i>Lauren Graham</i></p>
+> <b>The racing driver's mind has to have the ability to have amazing anticipation, coordination, and reflex. Because of the speed the car goes.</b>
+> <p><i>Emerson Fittipaldi</i></p>
 
 <br>
