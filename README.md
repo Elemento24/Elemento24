@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The racing driver's mind has to have the ability to have amazing anticipation, coordination, and reflex. Because of the speed the car goes.</b>
-> <p><i>Emerson Fittipaldi</i></p>
+> <b>No face which we can give to a matter will stead us so well at last as the truth. This alone wears well.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
