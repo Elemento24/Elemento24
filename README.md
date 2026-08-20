@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can love more than one person in your life, but things will be different. There'll be a different dynamic. Needs and desires change.</b>
-> <p><i>Francesca Annis</i></p>
+> <b>I still think that movies are amazing I respect actors and directors.</b>
+> <p><i>Joaquin Phoenix</i></p>
 
 <br>
