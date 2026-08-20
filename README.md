@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man who has never gone to school may steal from a freight car but if he has a university education, he may steal the whole railroad.</b>
-> <p><i>Theodore Roosevelt</i></p>
+> <b>Americans have so far put up with inequality because they felt they could change their status. They didn't mind others being rich, as long as they had a path to move up as well. The American Dream is all about social mobility in a sense - the idea that anyone can make it.</b>
+> <p><i>Fareed Zakaria</i></p>
 
 <br>
