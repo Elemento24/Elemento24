@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, for 300 years it's been kind of the same. There are restaurants in New Orleans that the menu hasn't changed in 125 years, so how is one going to change or evolve the food?</b>
-> <p><i>Emeril Lagasse</i></p>
+> <b>The best way to deal with that is to live in a fully conscious, compassionate, loving way. Don't wait until you're on your deathbed to recognize that this is the only way to live.</b>
+> <p><i>Morrie Schwartz</i></p>
 
 <br>
