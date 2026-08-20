@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To stand up on a stage alone with an acoustic guitar requires bravery bordering on heroism. Bordering on insanity.</b>
-> <p><i>Richard Thompson</i></p>
+> <b>The bare recollection of anger kindles anger.</b>
+> <p><i>Publilius Syrus</i></p>
 
 <br>
