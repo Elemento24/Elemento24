@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I still think that movies are amazing I respect actors and directors.</b>
-> <p><i>Joaquin Phoenix</i></p>
+> <b>A man who has never gone to school may steal from a freight car but if he has a university education, he may steal the whole railroad.</b>
+> <p><i>Theodore Roosevelt</i></p>
 
 <br>
