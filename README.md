@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A major advantage of age is learning to accept people without passing judgment.</b>
-> <p><i>Liz Carpenter</i></p>
+> <b>To give pain is the tyranny to make happy, the true empire of beauty.</b>
+> <p><i>Samuel Butler</i></p>
 
 <br>
