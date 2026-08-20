@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best player I ever played with was Dennis Johnson.</b>
-> <p><i>Larry Bird</i></p>
+> <b>Southern California, they have been amazing. They're totally with us.</b>
+> <p><i>Chita Rivera</i></p>
 
 <br>
