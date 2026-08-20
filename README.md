@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Americans have so far put up with inequality because they felt they could change their status. They didn't mind others being rich, as long as they had a path to move up as well. The American Dream is all about social mobility in a sense - the idea that anyone can make it.</b>
-> <p><i>Fareed Zakaria</i></p>
+> <b>The business of the advertiser is to see that we go about our business with some magic spell or tune or slogan throbbing quietly in the background of our minds.</b>
+> <p><i>Marshall McLuhan</i></p>
 
 <br>
