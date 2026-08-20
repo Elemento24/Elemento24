@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The short words are best, and the old words are the best of all.</b>
-> <p><i>Winston Churchill</i></p>
+> <b>I must be more sensible and realize that at my age, illusions are hardly permitted and they will always destroy me.</b>
+> <p><i>Paul Cezanne</i></p>
 
 <br>
