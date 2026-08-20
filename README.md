@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The thing that lies at the foundation of positive change, the way I see it, is service to a fellow human being.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>You know, for 300 years it's been kind of the same. There are restaurants in New Orleans that the menu hasn't changed in 125 years, so how is one going to change or evolve the food?</b>
+> <p><i>Emeril Lagasse</i></p>
 
 <br>
