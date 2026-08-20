@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every three days on average, I am alone on stage, facing the public.</b>
-> <p><i>Placido Domingo</i></p>
+> <b>I don't have any beauty shop memories. I remember the barber shop.</b>
+> <p><i>Jenifer Lewis</i></p>
 
 <br>
