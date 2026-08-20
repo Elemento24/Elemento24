@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I must be more sensible and realize that at my age, illusions are hardly permitted and they will always destroy me.</b>
-> <p><i>Paul Cezanne</i></p>
+> <b>Some people think my father was a spy, because of working for that government agency in Vietnam, but he can't find his car keys, much less keep a national secret.</b>
+> <p><i>Lauren Graham</i></p>
 
 <br>
