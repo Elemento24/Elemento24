@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most works of art, like most wines, ought to be consumed in the district of their fabrication.</b>
-> <p><i>Simone Weil</i></p>
+> <b>I think that clearly it has an influence, to be coming of age during the punk rock era, to come from a difficult and sporadically violent background, to have been in and out of such chaos, I think it actually helps. But I don't know for sure.</b>
+> <p><i>Craig Ferguson</i></p>
 
 <br>
