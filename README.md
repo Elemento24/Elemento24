@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My beauty icons are women whose images are self-created.</b>
-> <p><i>Dita Von Teese</i></p>
+> <b>Now, I'm not saying I'm fashionable, but there are sociological interests that matter to me, things that are theoretical, political, intellectual and also concerned with vanity and beauty that we all think about but that I try to mix up and translate into fashion.</b>
+> <p><i>Miuccia Prada</i></p>
 
 <br>
