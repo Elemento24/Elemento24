@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everything that has ever been called folk art has always reflected domination.</b>
-> <p><i>Theodor Adorno</i></p>
+> <b>Beauty is the promise of happiness.</b>
+> <p><i>Edmund Burke</i></p>
 
 <br>
