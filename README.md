@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Austin sounds a little bit like Aston Martin, which is the type of car James Bond would drive.</b>
-> <p><i>Mike Myers</i></p>
+> <b>Amidst all the clutter, beyond all the obstacles, aside from all the static, are the goals set. Put your head down, do the best job possible, let the flak pass, and work towards those goals.</b>
+> <p><i>Donald Rumsfeld</i></p>
 
 <br>
