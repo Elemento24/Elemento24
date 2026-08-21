@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Amidst all the clutter, beyond all the obstacles, aside from all the static, are the goals set. Put your head down, do the best job possible, let the flak pass, and work towards those goals.</b>
-> <p><i>Donald Rumsfeld</i></p>
+> <b>The beauty of jazz is that it's malleable. People are addressing it to suit their own personalities.</b>
+> <p><i>Pat Metheny</i></p>
 
 <br>
