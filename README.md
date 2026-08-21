@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty of jazz is that it's malleable. People are addressing it to suit their own personalities.</b>
-> <p><i>Pat Metheny</i></p>
+> <b>Definition of Statistics: The science of producing unreliable facts from reliable figures.</b>
+> <p><i>Evan Esar</i></p>
 
 <br>
