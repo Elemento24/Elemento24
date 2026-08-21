@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is dangerous. It is one of the attractions: when it ceases to be dangerous you don't want it.</b>
-> <p><i>Duke Ellington</i></p>
+> <b>You want to balance the budget in this country? We change the salary structure for Congress and the President. Every year they don't balance the budget, we don't pay them.</b>
+> <p><i>Daniel Keys Moran</i></p>
 
 <br>
