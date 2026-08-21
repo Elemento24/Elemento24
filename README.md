@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And Shanghai is amazing. I'm a fan of science fiction so when you're there in the night with all the lights and all this modernity, it's like a set in a movie.</b>
-> <p><i>Berenice Marlohe</i></p>
+> <b>Art is dangerous. It is one of the attractions: when it ceases to be dangerous you don't want it.</b>
+> <p><i>Duke Ellington</i></p>
 
 <br>
