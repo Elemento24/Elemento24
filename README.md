@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My mother is an amazing woman. Not only did she manage the entire household, she noticed a gift in each of her kids and instilled confidence in all of us that that gift would take us wherever we wanted to go.</b>
-> <p><i>Barbara Corcoran</i></p>
+> <b>If we want to secure the best jobs in the future, we must make America the best place in the world to do business.</b>
+> <p><i>Jim DeMint</i></p>
 
 <br>
