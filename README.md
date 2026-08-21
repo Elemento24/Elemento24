@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second.</b>
-> <p><i>Jeff Bezos</i></p>
+> <b>My mother is an amazing woman. Not only did she manage the entire household, she noticed a gift in each of her kids and instilled confidence in all of us that that gift would take us wherever we wanted to go.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
