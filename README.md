@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always carry lip balm and lipstick. Lipstick is a very important beauty product because I find that lips are the most beautiful feature of anyone's face.</b>
-> <p><i>Fan Binbing</i></p>
+> <b>Everything that has ever been called folk art has always reflected domination.</b>
+> <p><i>Theodor Adorno</i></p>
 
 <br>
