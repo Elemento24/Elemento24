@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Testing oneself is best when done alone.</b>
-> <p><i>Jimmy Carter</i></p>
+> <b>But those musics do not address the larger kind of architecture in time that classical music does, whatever each one of us knows that classical music must mean.</b>
+> <p><i>Michael Tilson Thomas</i></p>
 
 <br>
