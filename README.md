@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But those musics do not address the larger kind of architecture in time that classical music does, whatever each one of us knows that classical music must mean.</b>
-> <p><i>Michael Tilson Thomas</i></p>
+> <b>I always carry lip balm and lipstick. Lipstick is a very important beauty product because I find that lips are the most beautiful feature of anyone's face.</b>
+> <p><i>Fan Binbing</i></p>
 
 <br>
