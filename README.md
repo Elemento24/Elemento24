@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You come into the world alone and you go out of the world alone yet it seems to me you are more alone while living than even going and coming.</b>
-> <p><i>Emily Carr</i></p>
+> <b>The CIA is made up of boys whose families sent them to Princeton but wouldn't let them into the family brokerage business.</b>
+> <p><i>Lyndon B. Johnson</i></p>
 
 <br>
