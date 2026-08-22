@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I remember going for the first time to a place called The Roxy in New York because you can see people breakdancing there. That's the only reason I went! It's amazing, kids are still doing that.</b>
-> <p><i>Chris Frantz</i></p>
+> <b>Art is always criticized and always an outsider gets the blame.</b>
+> <p><i>Ville Valo</i></p>
 
 <br>
