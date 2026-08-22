@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Even in decline, a virtuous man increases the beauty of his behavior. A burning stick, though turned to the ground, has its flame drawn upwards.</b>
-> <p><i>Saskya Pandita</i></p>
+> <b>In the first 50 years of the filibuster, it was used only 35 times. But the last Congress alone had 112 cloture motions filed, plus threats of more. This is the tyranny of the minority.</b>
+> <p><i>Peter Fenn</i></p>
 
 <br>
