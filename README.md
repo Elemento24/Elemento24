@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the first 50 years of the filibuster, it was used only 35 times. But the last Congress alone had 112 cloture motions filed, plus threats of more. This is the tyranny of the minority.</b>
-> <p><i>Peter Fenn</i></p>
+> <b>To live is to change, and to be perfect is to have changed often.</b>
+> <p><i>John Henry Newman</i></p>
 
 <br>
