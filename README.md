@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have worked very hard on being aware of my childhood but moving forward and not letting it bring me down emotionally. That is a hard thing - especially when you have children of your own and you remember what happened to you at that age.</b>
-> <p><i>Samantha Morton</i></p>
+> <b>I have a new little stray dog that I've had for about a month now. His name is Mikey Mohawk - he's this little terrier with a natural Mohawk. My friend found him hit by a car on Pico Boulevard.</b>
+> <p><i>Krysten Ritter</i></p>
 
 <br>
