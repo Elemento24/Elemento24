@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Just because you put higher-octane gasoline in your car doesn't mean you can break the speed limit. The speed limit's still 65.</b>
-> <p><i>Neil Sheehan</i></p>
+> <b>I have worked very hard on being aware of my childhood but moving forward and not letting it bring me down emotionally. That is a hard thing - especially when you have children of your own and you remember what happened to you at that age.</b>
+> <p><i>Samantha Morton</i></p>
 
 <br>
