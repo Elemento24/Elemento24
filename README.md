@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is always criticized and always an outsider gets the blame.</b>
-> <p><i>Ville Valo</i></p>
+> <b>Just because you put higher-octane gasoline in your car doesn't mean you can break the speed limit. The speed limit's still 65.</b>
+> <p><i>Neil Sheehan</i></p>
 
 <br>
