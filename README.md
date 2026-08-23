@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't believe in the after life, although I am bringing a change of underwear.</b>
-> <p><i>Woody Allen</i></p>
+> <b>That government is best which governs least.</b>
+> <p><i>Henry David Thoreau</i></p>
 
 <br>
