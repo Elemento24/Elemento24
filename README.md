@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Once you take yourself too seriously the art will suffer.</b>
-> <p><i>Maynard James Keenan</i></p>
+> <b>I was always reading those beauty magazines and wanting to become this unattainable thing.</b>
+> <p><i>Jennifer Aniston</i></p>
 
 <br>
