@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no end of craving. Hence contentment alone is the best way to happiness. Therefore, acquire contentment.</b>
-> <p><i>Sivananda</i></p>
+> <b>Look, demanding somebody do anything in this day and age is not going to fly.</b>
+> <p><i>John Mayer</i></p>
 
 <br>
