@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do some of my best thinking while pulling weeds.</b>
-> <p><i>Martha Smith</i></p>
+> <b>My dad was working abroad, in Iraq, and he was a doctor. We used to go and visit him, in Baghdad, off and on. For the first ten years of my life, we used to go backwards and forwards to Baghdad, so that was quite amazing. I spent a lot of time traveling around the Middle East.</b>
+> <p><i>Andy Serkis</i></p>
 
 <br>
