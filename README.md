@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Voice-acting, on the fun meter, is off the scale. You show up, you don't have to be all primped up, or dressed up. And you get to work with some amazing people, and goof off for four hours.</b>
-> <p><i>Jason Marsden</i></p>
+> <b>I like the desert for short periods of time, from inside a car, with the windows rolled up, and the doors locked. I prefer beach resorts with room service.</b>
+> <p><i>Anne Lamott</i></p>
 
 <br>
