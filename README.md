@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Look, demanding somebody do anything in this day and age is not going to fly.</b>
-> <p><i>John Mayer</i></p>
+> <b>Only the wisest and stupidest of men never change.</b>
+> <p><i>Confucius</i></p>
 
 <br>
