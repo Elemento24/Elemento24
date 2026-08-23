@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Only the wisest and stupidest of men never change.</b>
-> <p><i>Confucius</i></p>
+> <b>An artist is never ahead of his time but most people are far behind theirs.</b>
+> <p><i>Edgard Varese</i></p>
 
 <br>
