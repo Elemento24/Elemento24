@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't know how many thoughts we have a second, but it's quite an amazing number, and just to pin down the appropriate sequence of those, all you really need is a pencil and a piece of paper.</b>
-> <p><i>Robert Wyatt</i></p>
+> <b>A day spent without the sight or sound of beauty, the contemplation of mystery, or the search of truth or perfection is a poverty-stricken day and a succession of such days is fatal to human life.</b>
+> <p><i>Lewis Mumford</i></p>
 
 <br>
