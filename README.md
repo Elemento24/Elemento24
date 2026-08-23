@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think as a Canadian hockey player, you go through it in your mind so many times, being able to stand on that blue line and hear your national anthem play and being a gold medal champion, you dream of that. And then to be able to accomplish that and actually win a gold medal and represent your country its an amazing feeling.</b>
-> <p><i>Sidney Crosby</i></p>
+> <b>Voice-acting, on the fun meter, is off the scale. You show up, you don't have to be all primped up, or dressed up. And you get to work with some amazing people, and goof off for four hours.</b>
+> <p><i>Jason Marsden</i></p>
 
 <br>
