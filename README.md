@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That government is best which governs least.</b>
-> <p><i>Henry David Thoreau</i></p>
+> <b>I'm either going to go completely mental, completely bankrupt, or have the best success of my life.</b>
+> <p><i>Katy Perry</i></p>
 
 <br>
