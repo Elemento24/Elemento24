@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I always said punk was an attitude. It was never about having a Mohican haircut or wearing a ripped T-shirt. It was all about destruction, and the creative potential within that.</b>
-> <p><i>Malcolm Mclaren</i></p>
+> <b>Let your Discourse with Men of Business be Short and Comprehensive.</b>
+> <p><i>George Washington</i></p>
 
 <br>
