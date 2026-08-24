@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In Paris, one is always reminded of being a foreigner. If you park your car wrong, it is not the fact that it's on the sidewalk that matters, but the fact that you speak with an accent.</b>
-> <p><i>Roman Polanski</i></p>
+> <b>I think women should start to embrace their age. What's the alternative to getting older? You die. I can't change the day I was born. But I can take care of my skin, my body, my mind, and try to live my life and be happy.</b>
+> <p><i>Olivia Munn</i></p>
 
 <br>
