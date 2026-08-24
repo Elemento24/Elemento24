@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People of art should never get married and have children, because it's a selfish experience.</b>
-> <p><i>Mikhail Baryshnikov</i></p>
+> <b>I always said punk was an attitude. It was never about having a Mohican haircut or wearing a ripped T-shirt. It was all about destruction, and the creative potential within that.</b>
+> <p><i>Malcolm Mclaren</i></p>
 
 <br>
