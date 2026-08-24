@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't like being in houses alone.</b>
-> <p><i>Martin Scorsese</i></p>
+> <b>Make the best use of what is in your power, and take the rest as it happens.</b>
+> <p><i>Epictetus</i></p>
 
 <br>
