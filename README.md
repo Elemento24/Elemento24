@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>They are amazing kids so we let them make decisions but also have discipline.</b>
-> <p><i>Kelly Preston</i></p>
+> <b>The purely agitational attitude is not good enough for a detailed consideration of a subject.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
