@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We submit to the majority because we have to. But we are not compelled to call our attitude of subjection a posture of respect.</b>
-> <p><i>Ambrose Bierce</i></p>
+> <b>I don't like being in houses alone.</b>
+> <p><i>Martin Scorsese</i></p>
 
 <br>
