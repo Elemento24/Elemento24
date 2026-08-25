@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Probably only an art-worlder like me could assign deeper meaning to something as simple and silly as Tebowing. But, to us, anytime people repeat a stance or a little dance, alone or together, we see that it can mean something. Imagistic and unspoken language is our thing.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>The main dangers in this life are the people who want to change everything... or nothing.</b>
+> <p><i>Nancy Astor</i></p>
 
 <br>
