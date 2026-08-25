@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best of seers is he who guesses well.</b>
-> <p><i>Euripides</i></p>
+> <b>Age does not matter if the matter does not age.</b>
+> <p><i>Jean Paul</i></p>
 
 <br>
