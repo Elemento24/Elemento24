@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Form your life humanly, and you have done enough: but you will never reach the height of art and the depth of science without something divine.</b>
-> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
+> <b>I think I don't regret a single 'excess' of my responsive youth - I only regret, in my chilled age, certain occasions and possibilities I didn't embrace.</b>
+> <p><i>Henry James</i></p>
 
 <br>
