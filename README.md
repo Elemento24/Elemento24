@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Sayles could pull a performance out of a dog. I'm serious. He was just amazing. The world could fall apart and he remained on neutral.</b>
-> <p><i>Elizabeth Pena</i></p>
+> <b>Age should not have its face lifted, but it should rather teach the world to admire wrinkles as the etchings of experience and the firm line of character.</b>
+> <p><i>Clarence Day</i></p>
 
 <br>
