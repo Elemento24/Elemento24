@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You always get a special kick on opening day, no matter how many you go through. You look forward to it like a birthday party when you're a kid. You think something wonderful is going to happen.</b>
-> <p><i>Joe DiMaggio</i></p>
+> <b>You must take personal responsibility. You cannot change the circumstances, the seasons, or the wind, but you can change yourself. That is something you have charge of.</b>
+> <p><i>Jim Rohn</i></p>
 
 <br>
