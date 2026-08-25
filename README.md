@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When Maurice touched a keyboard, it was like something from a movie, magical. He would always give you something from a movie, and you'd go, what did you just play... immediately inspirational writings, amazing. That's what we're going to miss.</b>
-> <p><i>Robin Gibb</i></p>
+> <b>Probably only an art-worlder like me could assign deeper meaning to something as simple and silly as Tebowing. But, to us, anytime people repeat a stance or a little dance, alone or together, we see that it can mean something. Imagistic and unspoken language is our thing.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
