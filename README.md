@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I had an amazing experience working with great people. I had a great family, a typical family with drama in certain areas, and that's pretty much everywhere in everyone's life.</b>
-> <p><i>Tina Yothers</i></p>
+> <b>The only business of the head in the world is to bow a ceaseless obeisance to the heart.</b>
+> <p><i>William Butler Yeats</i></p>
 
 <br>
