@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think I don't regret a single 'excess' of my responsive youth - I only regret, in my chilled age, certain occasions and possibilities I didn't embrace.</b>
-> <p><i>Henry James</i></p>
+> <b>Politics is not the art of the possible. It consists in choosing between the disastrous and the unpalatable.</b>
+> <p><i>John Kenneth Galbraith</i></p>
 
 <br>
