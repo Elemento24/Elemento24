@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is not the art of the possible. It consists in choosing between the disastrous and the unpalatable.</b>
-> <p><i>John Kenneth Galbraith</i></p>
+> <b>I had an amazing experience working with great people. I had a great family, a typical family with drama in certain areas, and that's pretty much everywhere in everyone's life.</b>
+> <p><i>Tina Yothers</i></p>
 
 <br>
