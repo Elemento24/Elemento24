@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You must take personal responsibility. You cannot change the circumstances, the seasons, or the wind, but you can change yourself. That is something you have charge of.</b>
-> <p><i>Jim Rohn</i></p>
+> <b>Buyers decide in the first eight seconds of seeing a home if they're interested in buying it. Get out of your car, walk in their shoes and see what they see within the first eight seconds.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
