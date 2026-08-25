@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is it that love does to a woman? Without she only sleeps with it alone, she lives.</b>
-> <p><i>Ovid</i></p>
+> <b>Art is science made clear.</b>
+> <p><i>Wilson Mizner</i></p>
 
 <br>
