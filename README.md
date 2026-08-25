@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age does not matter if the matter does not age.</b>
-> <p><i>Jean Paul</i></p>
+> <b>What is it that love does to a woman? Without she only sleeps with it alone, she lives.</b>
+> <p><i>Ovid</i></p>
 
 <br>
