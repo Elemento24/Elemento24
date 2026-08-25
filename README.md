@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age should not have its face lifted, but it should rather teach the world to admire wrinkles as the etchings of experience and the firm line of character.</b>
-> <p><i>Clarence Day</i></p>
+> <b>Form your life humanly, and you have done enough: but you will never reach the height of art and the depth of science without something divine.</b>
+> <p><i>Karl Wilhelm Friedrich Schlegel</i></p>
 
 <br>
