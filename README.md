@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Freedom is not an ideal, it is not even a protection, if it means nothing more than freedom to stagnate, to live without dreams, to have no greater aim than a second car and another television set.</b>
-> <p><i>Adlai Stevenson</i></p>
+> <b>I was well motivated. What I wanted to do was work for myself. I had twenty two jobs before I started my business at the age of twenty three and I didn't want one more boss telling me what to do. So I was motivated simply because I didn't want a boss.</b>
+> <p><i>Barbara Corcoran</i></p>
 
 <br>
