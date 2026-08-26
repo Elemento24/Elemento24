@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We do not look in our great cities for our best morality.</b>
-> <p><i>Jane Austen</i></p>
+> <b>All is connected... no one thing can change by itself.</b>
+> <p><i>Paul Hawken</i></p>
 
 <br>
