@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Croatia is an amazing place.</b>
-> <p><i>Jean Reno</i></p>
+> <b>That's what I love from metal, and that's what I love from hip-hop. That's what I love from any music that's hard, that's got an edge to it-The attitude in it.</b>
+> <p><i>Kid Rock</i></p>
 
 <br>
