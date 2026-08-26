@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My fastest time in high school was a 4:29 mile. I think cross-country has something to do with my longevity in my business. When you're in an eight-mile race, you never give up.</b>
-> <p><i>Alice Cooper</i></p>
+> <b>Your premium brand had better be delivering something special, or it's not going to get the business.</b>
+> <p><i>Warren Buffett</i></p>
 
 <br>
