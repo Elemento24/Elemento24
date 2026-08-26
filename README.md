@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The main dangers in this life are the people who want to change everything... or nothing.</b>
-> <p><i>Nancy Astor</i></p>
+> <b>Change of fashion is the tax levied by the industry of the poor on the vanity of the rich.</b>
+> <p><i>Nicolas Chamfort</i></p>
 
 <br>
