@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've tried everything other than jumping out of a plane, but nothing gives you an adrenaline rush like racing a car.</b>
-> <p><i>Nigel Mansell</i></p>
+> <b>It's like, it's kind of like if you ever had a car and it was a bit of a clunker but you love it, that's my show. It's a bit of a clunker but I know where everything is and I like it.</b>
+> <p><i>Craig Ferguson</i></p>
 
 <br>
