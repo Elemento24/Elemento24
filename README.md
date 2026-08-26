@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When marrying, ask yourself this question: Do you believe that you will be able to converse well with this person into your old age? Everything else in marriage is transitory.</b>
-> <p><i>Friedrich Nietzsche</i></p>
+> <b>Freedom is not an ideal, it is not even a protection, if it means nothing more than freedom to stagnate, to live without dreams, to have no greater aim than a second car and another television set.</b>
+> <p><i>Adlai Stevenson</i></p>
 
 <br>
