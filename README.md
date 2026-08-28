@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Comfort in expressing your emotions will allow you to share the best of yourself with others, but not being able to control your emotions will reveal your worst.</b>
-> <p><i>Bryant H. McGill</i></p>
+> <b>It is the spirit of the age to believe that any fact, no matter how suspect, is superior to any imaginative exercise, no matter how true.</b>
+> <p><i>Gore Vidal</i></p>
 
 <br>
