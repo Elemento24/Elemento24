@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the spirit of the age to believe that any fact, no matter how suspect, is superior to any imaginative exercise, no matter how true.</b>
-> <p><i>Gore Vidal</i></p>
+> <b>Today osteoporosis affects more than 75 million people in the United States, Europe and Japan and causes more than 2.3 million fractures in the USA and Europe alone.</b>
+> <p><i>Gro Harlem Brundtland</i></p>
 
 <br>
