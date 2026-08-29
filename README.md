@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today osteoporosis affects more than 75 million people in the United States, Europe and Japan and causes more than 2.3 million fractures in the USA and Europe alone.</b>
-> <p><i>Gro Harlem Brundtland</i></p>
+> <b>The rules of navigation never navigated a ship. The rules of architecture never built a house.</b>
+> <p><i>Thomas Reid</i></p>
 
 <br>
