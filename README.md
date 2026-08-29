@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The rules of navigation never navigated a ship. The rules of architecture never built a house.</b>
-> <p><i>Thomas Reid</i></p>
+> <b>You just never know when you're living in a golden age.</b>
+> <p><i>Alexander Payne</i></p>
 
 <br>
