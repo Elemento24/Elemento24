@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Man has a limited biological capacity for change. When this capacity is overwhelmed, the capacity is in future shock.</b>
-> <p><i>Alvin Toffler</i></p>
+> <b>The majority of men meet with failure because of their lack of persistence in creating new plans to take the place of those which fail.</b>
+> <p><i>Napoleon Hill</i></p>
 
 <br>
