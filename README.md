@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you don't understand the details of your business you are going to fail.</b>
-> <p><i>Jeff Bezos</i></p>
+> <b>Heat cannot be separated from fire, or beauty from The Eternal.</b>
+> <p><i>Dante Alighieri</i></p>
 
 <br>
