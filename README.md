@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My second husband believed I had such a fickle attitude to friendship that each Friday he would update the list of my 'Top Ten' friends in the manner of a Top Of The Pops chart countdown.</b>
-> <p><i>Julie Burchill</i></p>
+> <b>If you don't understand the details of your business you are going to fail.</b>
+> <p><i>Jeff Bezos</i></p>
 
 <br>
