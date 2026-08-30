@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Heat cannot be separated from fire, or beauty from The Eternal.</b>
-> <p><i>Dante Alighieri</i></p>
+> <b>Nature scarcely ever gives us the very best for that we must have recourse to art.</b>
+> <p><i>Baltasar Gracian</i></p>
 
 <br>
