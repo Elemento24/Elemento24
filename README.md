@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>After about the first Millennium, Italy was the cradle of Romanesque architecture, which spread throughout Europe, much of it extending the structural daring with minimal visual elaboration.</b>
-> <p><i>Harry Seidler</i></p>
+> <b>If you are a writer you locate yourself behind a wall of silence and no matter what you are doing, driving a car or walking or doing housework you can still be writing, because you have that space.</b>
+> <p><i>Joyce Carol Oates</i></p>
 
 <br>
