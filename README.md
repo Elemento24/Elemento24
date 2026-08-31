@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>At the moment of childbirth, every woman has the same aura of isolation, as though she were abandoned, alone.</b>
-> <p><i>Boris Pasternak</i></p>
+> <b>Going to a concert is so overwhelming and the energy is amazing.</b>
+> <p><i>Victoria Justice</i></p>
 
 <br>
