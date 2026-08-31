@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The majority of men meet with failure because of their lack of persistence in creating new plans to take the place of those which fail.</b>
-> <p><i>Napoleon Hill</i></p>
+> <b>After about the first Millennium, Italy was the cradle of Romanesque architecture, which spread throughout Europe, much of it extending the structural daring with minimal visual elaboration.</b>
+> <p><i>Harry Seidler</i></p>
 
 <br>
