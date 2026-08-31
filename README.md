@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you are a writer you locate yourself behind a wall of silence and no matter what you are doing, driving a car or walking or doing housework you can still be writing, because you have that space.</b>
-> <p><i>Joyce Carol Oates</i></p>
+> <b>At the moment of childbirth, every woman has the same aura of isolation, as though she were abandoned, alone.</b>
+> <p><i>Boris Pasternak</i></p>
 
 <br>
