@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Anger is one of the sinews of the soul.</b>
-> <p><i>Thomas Fuller</i></p>
+> <b>To an engineer, good enough means perfect. With an artist, there's no such thing as perfect.</b>
+> <p><i>Alexander Calder</i></p>
 
 <br>
