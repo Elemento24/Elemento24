@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Going to a concert is so overwhelming and the energy is amazing.</b>
-> <p><i>Victoria Justice</i></p>
+> <b>Anger is one of the sinews of the soul.</b>
+> <p><i>Thomas Fuller</i></p>
 
 <br>
