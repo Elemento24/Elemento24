@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's amazing how I can just ramble on for hours, isn't it? And so unentertaining or uninteresting. But I can ramble on for hours. It's a sort of terrible gift, isn't it?</b>
-> <p><i>Graham Norton</i></p>
+> <b>The overall physical demand that Iraq has is pretty amazing. It's 130 degrees, and the soldiers are carrying about 100 pounds of extra gear. It's a pretty rigorous schedule and routine for them.</b>
+> <p><i>Joe Nichols</i></p>
 
 <br>
