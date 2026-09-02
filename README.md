@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The human foot is a masterpiece of engineering and a work of art.</b>
-> <p><i>Leonardo da Vinci</i></p>
+> <b>It's amazing how I can just ramble on for hours, isn't it? And so unentertaining or uninteresting. But I can ramble on for hours. It's a sort of terrible gift, isn't it?</b>
+> <p><i>Graham Norton</i></p>
 
 <br>
