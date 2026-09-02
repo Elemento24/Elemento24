@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Luckily, my husband is my business partner as well as my life partner, so I never had to do the heavy lifting alone, literally or figuratively.</b>
-> <p><i>Josie Maran</i></p>
+> <b>I have such an extreme attitude about work, where I can just completely be derelict of my responsibilities and then when I am not derelict, I am completely indulged in it. I swing pretty wildly from the two extremes.</b>
+> <p><i>Geddy Lee</i></p>
 
 <br>
