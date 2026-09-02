@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have such an extreme attitude about work, where I can just completely be derelict of my responsibilities and then when I am not derelict, I am completely indulged in it. I swing pretty wildly from the two extremes.</b>
-> <p><i>Geddy Lee</i></p>
+> <b>To have some idea what it's like, stand in the outside lane of a motorway, get your mate to drive his car at you at 95 mph and wait until he's 12 yards away, before you decide which way to jump.</b>
+> <p><i>Geoffrey Boycott</i></p>
 
 <br>
