@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To have some idea what it's like, stand in the outside lane of a motorway, get your mate to drive his car at you at 95 mph and wait until he's 12 yards away, before you decide which way to jump.</b>
-> <p><i>Geoffrey Boycott</i></p>
+> <b>The human foot is a masterpiece of engineering and a work of art.</b>
+> <p><i>Leonardo da Vinci</i></p>
 
 <br>
