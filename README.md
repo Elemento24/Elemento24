@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age is far more than white hair, wrinkles, the feeling that it is too late and the game finished, that the stage belongs to the rising generations. The true evil is not the weakening of the body, but the indifference of the soul.</b>
-> <p><i>Andre Maurois</i></p>
+> <b>I think Damien Hirst is hilarious. And I think he's a true artist. He's not hilarious first I think he is a real artist, and I also think he's got an amazing sense of humor.</b>
+> <p><i>Jemima Kirke</i></p>
 
 <br>
