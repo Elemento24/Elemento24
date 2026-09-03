@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>White shall not neutralize the black, nor good compensate bad in man, absolve him so: life's business being just the terrible choice.</b>
-> <p><i>Robert Browning</i></p>
+> <b>After all is said that can be said upon the liquor traffic, its influence is degrading upon the individual, the family, politics and business, and upon everything that you touch in this old world.</b>
+> <p><i>Billy Sunday</i></p>
 
 <br>
