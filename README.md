@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The magic kit we developed with Idea Village is an extraordinary success in 40,000 stores across America. The TV commercial we shot for it has produced amazing results - unbelievable.</b>
-> <p><i>Criss Angel</i></p>
+> <b>I can't wait to be that age and hanging out with a bunch of people hanging out all day playing golf and going to the beach, all my own age. We'd be laughing and having a good time and getting loopy on our prescription drugs. Driving golf carts around. I can't wait.</b>
+> <p><i>Cameron Diaz</i></p>
 
 <br>
