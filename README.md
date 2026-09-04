@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Consider the momentous event in architecture when the wall parted and the column became.</b>
-> <p><i>Louis Kahn</i></p>
+> <b>I think for business reasons, fiscal reasons, I think these cable networks can take greater risks and I think with a risk comes better programming. And I think USA has got an amazing identity to it now that is clearly defined with its 'Characters welcome' tag.</b>
+> <p><i>Tim DeKay</i></p>
 
 <br>
