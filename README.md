@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm 36 and if I met a woman of my own age and married her, I'd also be marrying her former life, her past. It might be OK for some people - I don't want to judge it or anything - but it's not for me. It would destroy my creativity.</b>
-> <p><i>Henry Rollins</i></p>
+> <b>I grew up in Texas, and people love their American-made muscle cars there. I grew up around people who loved cars and took care of cars and my dad's a big car nut, so I learned a little bit about cars - how to love them, most importantly. I think that from the time I could remember, I've always envisioned myself in a vintage muscle car.</b>
+> <p><i>Amber Heard</i></p>
 
 <br>
