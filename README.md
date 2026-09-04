@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The art of acting consists in keeping people from coughing.</b>
-> <p><i>Benjamin Franklin</i></p>
+> <b>When it becomes more difficult to suffer than to change... you will change.</b>
+> <p><i>Robert Anthony</i></p>
 
 <br>
