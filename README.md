@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When it becomes more difficult to suffer than to change... you will change.</b>
-> <p><i>Robert Anthony</i></p>
+> <b>Consider the momentous event in architecture when the wall parted and the column became.</b>
+> <p><i>Louis Kahn</i></p>
 
 <br>
