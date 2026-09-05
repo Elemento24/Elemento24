@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only way to get the best of an argument is to avoid it.</b>
-> <p><i>Dale Carnegie</i></p>
+> <b>The education of women is the best way to save the environment.</b>
+> <p><i>E. O. Wilson</i></p>
 
 <br>
