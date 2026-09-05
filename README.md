@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What is sure is that technological change is accelerating in all directions and, like children playing in a fountain, consumers are reveling in the experience.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Sleeping is no mean art: for its sake one must stay awake all day.</b>
+> <p><i>Friedrich Nietzsche</i></p>
 
 <br>
