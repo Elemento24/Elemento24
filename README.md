@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The beauty we love is very silent. It smiles softly to itself, but never speaks.</b>
-> <p><i>Richard Le Gallienne</i></p>
+> <b>I've been able to go on and have a successful career on Broadway and certainly the last five years in Las Vegas have been amazing.</b>
+> <p><i>David Cassidy</i></p>
 
 <br>
