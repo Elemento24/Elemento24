@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I've been able to go on and have a successful career on Broadway and certainly the last five years in Las Vegas have been amazing.</b>
-> <p><i>David Cassidy</i></p>
+> <b>Grow old with me! The best is yet to be.</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
