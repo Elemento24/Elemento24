@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I like the idea of accessibility, coming from a lower-middle-class background myself, I feel like beauty and products should be accessible to all women over the world.</b>
-> <p><i>Diane Kruger</i></p>
+> <b>I think women like Ferraris. A Ferrari is everybody's car.</b>
+> <p><i>Tim Allen</i></p>
 
 <br>
