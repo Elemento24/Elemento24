@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think women like Ferraris. A Ferrari is everybody's car.</b>
-> <p><i>Tim Allen</i></p>
+> <b>Artists to my mind are the real architects of change, and not the political legislators who implement change after the fact.</b>
+> <p><i>William S. Burroughs</i></p>
 
 <br>
