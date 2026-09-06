@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty will be convulsive or will not be at all.</b>
-> <p><i>Andre Breton</i></p>
+> <b>I love fast cars... and to go too fast in them.</b>
+> <p><i>Lara Flynn Boyle</i></p>
 
 <br>
