@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love fast cars... and to go too fast in them.</b>
-> <p><i>Lara Flynn Boyle</i></p>
+> <b>The most basic question is not what is best, but who shall decide what is best.</b>
+> <p><i>Thomas Sowell</i></p>
 
 <br>
