@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With 'The Host,' I think the actors could be really big names. That would be cool. I'd love to see Robert Redford put on a beard and be Jeb he would be amazing... Matt Damon has some very Jared-esque qualities, and then Casey Affleck as Ian and Ben Affleck as Kyle. Imagine the interplay.</b>
-> <p><i>Stephenie Meyer</i></p>
+> <b>North Americans as a whole need to embrace having clothes altered to their body. I hear it all the time: why do the Europeans always look so good? They have a relationship with their tailor and spend the time and money to make their clothes look their best.</b>
+> <p><i>Michael Kors</i></p>
 
 <br>
