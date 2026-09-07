@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All significant truths are private truths. As they become public they cease to become truths they become facts, or at best, part of the public character or at worst, catchwords.</b>
-> <p><i>T. S. Eliot</i></p>
+> <b>With 'The Host,' I think the actors could be really big names. That would be cool. I'd love to see Robert Redford put on a beard and be Jeb he would be amazing... Matt Damon has some very Jared-esque qualities, and then Casey Affleck as Ian and Ben Affleck as Kyle. Imagine the interplay.</b>
+> <p><i>Stephenie Meyer</i></p>
 
 <br>
