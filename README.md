@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love fast cars... and to go too fast in them.</b>
-> <p><i>Lara Flynn Boyle</i></p>
+> <b>In the information age, you don't teach philosophy as they did after feudalism. You perform it. If Aristotle were alive today he'd have a talk show.</b>
+> <p><i>Timothy Leary</i></p>
 
 <br>
