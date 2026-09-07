@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most of these people who are celebrities now don't do anything to deserve it, so by that fact alone, I don't want to be one.</b>
-> <p><i>will.i.am</i></p>
+> <b>All significant truths are private truths. As they become public they cease to become truths they become facts, or at best, part of the public character or at worst, catchwords.</b>
+> <p><i>T. S. Eliot</i></p>
 
 <br>
