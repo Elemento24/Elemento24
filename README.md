@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The year most of my high school friends and I got our driver's permits, the coolest thing one could do was stand outside after school and twirl one's car keys like a lifeguard whistle. That jingling sound meant freedom and power.</b>
-> <p><i>Sloane Crosley</i></p>
+> <b>It's been a fascinating thing because we didn't really know how to write when we started South Park at all. It's been like, we've just sort of grown up a bit and it's amazing to just see how, if you take Butters and Cartman and put them in any scene, it works.</b>
+> <p><i>Trey Parker</i></p>
 
 <br>
