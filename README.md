@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In the information age, you don't teach philosophy as they did after feudalism. You perform it. If Aristotle were alive today he'd have a talk show.</b>
-> <p><i>Timothy Leary</i></p>
+> <b>The desire to hit a big home run is dominating the music business.</b>
+> <p><i>Billy Corgan</i></p>
 
 <br>
