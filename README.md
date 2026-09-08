@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I didn't want to go out and change anything. I just wanted to make the music that was part of my background, which was rock and blues and hip-hop.</b>
-> <p><i>Kid Rock</i></p>
+> <b>To change a habit, make a conscious decision, then act out the new behavior.</b>
+> <p><i>Maxwell Maltz</i></p>
 
 <br>
