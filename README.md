@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The desire to hit a big home run is dominating the music business.</b>
-> <p><i>Billy Corgan</i></p>
+> <b>I didn't want to go out and change anything. I just wanted to make the music that was part of my background, which was rock and blues and hip-hop.</b>
+> <p><i>Kid Rock</i></p>
 
 <br>
