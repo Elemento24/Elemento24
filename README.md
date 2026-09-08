@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If you go on stage with the wrong attitude, or something in your performance is off, you can lose an audience in the first minute. That first minute is crucial.</b>
-> <p><i>Allan Carr</i></p>
+> <b>Today I see beauty everywhere I go, in every face I see, in every single soul.</b>
+> <p><i>Kevyn Aucoin</i></p>
 
 <br>
