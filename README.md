@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Today I see beauty everywhere I go, in every face I see, in every single soul.</b>
-> <p><i>Kevyn Aucoin</i></p>
+> <b>I think the amazing thing about gospel music is that not only does it lift up the death and resurrection of our Lord, which is consistent with the Gospel, but it is uniquely communicated depending upon the generation.</b>
+> <p><i>T. D. Jakes</i></p>
 
 <br>
