@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The Internet is the Viagra of big business.</b>
-> <p><i>Jack Welch</i></p>
+> <b>I'm not a kid anymore. And I'm excited for all the amazing things to come.</b>
+> <p><i>Paris Hilton</i></p>
 
 <br>
