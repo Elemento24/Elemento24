@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>God is not on the side of the big battalions, but on the side of those who shoot best.</b>
-> <p><i>Voltaire</i></p>
+> <b>The Internet is the Viagra of big business.</b>
+> <p><i>Jack Welch</i></p>
 
 <br>
