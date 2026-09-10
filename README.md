@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I often buy myself presents. Sometimes I will spend $100,000 in one day in a posh boutique.</b>
-> <p><i>Celine Dion</i></p>
+> <b>Only idiots refuse to change their minds.</b>
+> <p><i>Brigitte Bardot</i></p>
 
 <br>
