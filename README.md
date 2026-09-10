@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm not a kid anymore. And I'm excited for all the amazing things to come.</b>
-> <p><i>Paris Hilton</i></p>
+> <b>Although born in a prosperous realm, we did not believe that its boundaries should limit our knowledge, and that the lore of the East should alone enlighten us.</b>
+> <p><i>Charles de Secondat</i></p>
 
 <br>
