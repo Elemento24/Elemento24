@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A woman my age is not supposed to be attractive or sexually appealing. I just get kinda tired of that.</b>
-> <p><i>Kathleen Turner</i></p>
+> <b>I often buy myself presents. Sometimes I will spend $100,000 in one day in a posh boutique.</b>
+> <p><i>Celine Dion</i></p>
 
 <br>
