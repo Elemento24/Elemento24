@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Every business and every product has risks. You can't get around it.</b>
-> <p><i>Lee Iacocca</i></p>
+> <b>I was terribly shy when I was growing up, I really wasn't confident with other people and I think I was always afraid of up or not being this very cool, amazing person that I wanted to be.</b>
+> <p><i>Emily Mortimer</i></p>
 
 <br>
