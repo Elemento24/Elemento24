@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I understand Tea Partyers' anger with the system, but they are in way over their heads and often racially motivated, and I can't be part of that.</b>
-> <p><i>Zach Galifianakis</i></p>
+> <b>I think you can't really escape any kind of spiritual education as a child, whether it's New Age or Judaism or Buddhism or whatever it is. You can't escape it, even if you completely disagree with it, you still have it as a foundation that you base things off of.</b>
+> <p><i>Jack White</i></p>
 
 <br>
