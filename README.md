@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think you can't really escape any kind of spiritual education as a child, whether it's New Age or Judaism or Buddhism or whatever it is. You can't escape it, even if you completely disagree with it, you still have it as a foundation that you base things off of.</b>
-> <p><i>Jack White</i></p>
+> <b>The best way in the world to deceive believers is to cloak a message in religious language and declare that it conveys some new insight from God.</b>
+> <p><i>Charles Stanley</i></p>
 
 <br>
