@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is no end of craving. Hence contentment alone is the best way to happiness. Therefore, acquire contentment.</b>
-> <p><i>Sivananda</i></p>
+> <b>It takes a lot of courage to release the familiar and seemingly secure, to embrace the new. But there is no real security in what is no longer meaningful. There is more security in the adventurous and exciting, for in movement there is life, and in change there is power.</b>
+> <p><i>Alan Cohen</i></p>
 
 <br>
