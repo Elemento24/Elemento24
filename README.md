@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For the moment I prefer to be a beautiful woman of my age than try desperately to look 30.</b>
-> <p><i>Demi Moore</i></p>
+> <b>A political prisoner is someone who is out fighting for his or her people's rights and freedom and is imprisoned for that alone.</b>
+> <p><i>Leonard Peltier</i></p>
 
 <br>
