@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Traveling to Russia and Germany and being able to see the world at a young age was really cool for me, and I really liked that.</b>
-> <p><i>Mia Wasikowska</i></p>
+> <b>If you saw a dog going to be crushed under a car, wouldn't you help him?</b>
+> <p><i>Oskar Schindler</i></p>
 
 <br>
