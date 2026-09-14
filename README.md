@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I guess lyrically they're similar because they're talking about escaping the kind of misery that likes company. 'The Last One Alive,' for me, is very simple. It's just about alienation, really, that causes anger.</b>
-> <p><i>Jon Crosby</i></p>
+> <b>Inside every working anarchy, there's an Old Boy Network.</b>
+> <p><i>Mitchell Kapor</i></p>
 
 <br>
