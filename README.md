@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I own stock, and I also insure my car with Geico.</b>
-> <p><i>Ernie Banks</i></p>
+> <b>Excellence is an art won by training and habituation. We do not act rightly because we have virtue or excellence, but we rather have those because we have acted rightly. We are what we repeatedly do. Excellence, then, is not an act but a habit.</b>
+> <p><i>Aristotle</i></p>
 
 <br>
