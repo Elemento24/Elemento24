@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We neither laugh alone, nor weep alone, why then should we pray alone?</b>
-> <p><i>Anna Letitia Barbauld</i></p>
+> <b>I own stock, and I also insure my car with Geico.</b>
+> <p><i>Ernie Banks</i></p>
 
 <br>
