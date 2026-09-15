@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I find that a man is as old as his work. If his work keeps him from moving forward, he will look forward with the work.</b>
-> <p><i>William Ernest Hocking</i></p>
+> <b>Whoever marries the spirit of this age will find himself a widower in the next.</b>
+> <p><i>William Ralph Inge</i></p>
 
 <br>
