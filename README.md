@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's my firm conviction that when Uncle Sam calls, by God we go, and we do the best that we can.</b>
-> <p><i>R. Lee Ermey</i></p>
+> <b>I know that my grandfather is 92 years old. And he has seen this country evolve in amazing ways. He looks at South Carolina and he says, wow, what an amazing state that we have the blessing to live within because of the evolution.</b>
+> <p><i>Tim Scott</i></p>
 
 <br>
