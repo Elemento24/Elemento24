@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I was very happy sitting alone at a dining room table, writing a script.</b>
-> <p><i>Conrad Hall</i></p>
+> <b>Design in art, is a recognition of the relation between various things, various elements in the creative flux. You can't invent a design. You recognize it, in the fourth dimension. That is, with your blood and your bones, as well as with your eyes.</b>
+> <p><i>David Herbert Lawrence</i></p>
 
 <br>
