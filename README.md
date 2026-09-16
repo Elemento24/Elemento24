@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Design in art, is a recognition of the relation between various things, various elements in the creative flux. You can't invent a design. You recognize it, in the fourth dimension. That is, with your blood and your bones, as well as with your eyes.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>I'm definitely doing better. I never realized that I would get the support that I've gotten from everybody - from my fans, to people that I've idolized my whole life. So it's overwhelming, it's amazing and I believe that everything happens for a reason so I'm in a really good place right now.</b>
+> <p><i>Pia Toscano</i></p>
 
 <br>
