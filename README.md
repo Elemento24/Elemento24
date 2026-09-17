@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Warmth isn't what minimalists are thought to have.</b>
-> <p><i>Maya Lin</i></p>
+> <b>The only rich person is a person who is rich in spirit. I have no money deposit. I have only beauty deposit.</b>
+> <p><i>Imelda Marcos</i></p>
 
 <br>
