@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'd still like to see 'Survivor' minus the planned show-biz parts. That would be the purest form of show business - I want to see someone so hungry that they eat somebody else's foot.</b>
-> <p><i>Albert Brooks</i></p>
+> <b>Warmth isn't what minimalists are thought to have.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
