@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The only rich person is a person who is rich in spirit. I have no money deposit. I have only beauty deposit.</b>
-> <p><i>Imelda Marcos</i></p>
+> <b>I'm very comfortable with how I look. I always have been. I think I look pretty good. There's nothing I want to change. I'm pretty happy with what I've got.</b>
+> <p><i>Avril Lavigne</i></p>
 
 <br>
