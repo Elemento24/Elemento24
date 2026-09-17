@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The statistics on sanity are that one out of every four Americans is suffering from some form of mental illness. Think of your three best friends. If they're okay, then it's you.</b>
-> <p><i>Rita Mae Brown</i></p>
+> <b>I strongly believe that missionaries make better products. They care more. For a missionary, it's not just about the business. There has to be a business, and the business has to make sense, but that's not why you do it. You do it because you have something meaningful that motivates you.</b>
+> <p><i>Jeff Bezos</i></p>
 
 <br>
