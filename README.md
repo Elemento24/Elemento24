@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Montana and I had a chemistry that was unbelievable. When I first came into the league he told me I added five years to his career, and I just think we complimented each other very well and were able to do some amazing things out on the football field.</b>
-> <p><i>Jerry Rice</i></p>
+> <b>Almost all institutions own a lot more art than they can ever show, much of it revealing for its timeliness, genius, or sheer weirdness.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
