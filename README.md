@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Almost all institutions own a lot more art than they can ever show, much of it revealing for its timeliness, genius, or sheer weirdness.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>The truth sets you free. It's a very liberating thing, when you say this is who I am warts and all and then you can just get on with life. It's amazing.</b>
+> <p><i>Geri Halliwell</i></p>
 
 <br>
