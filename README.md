@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best doctor is the one you run to and can't find.</b>
-> <p><i>Denis Diderot</i></p>
+> <b>Montana and I had a chemistry that was unbelievable. When I first came into the league he told me I added five years to his career, and I just think we complimented each other very well and were able to do some amazing things out on the football field.</b>
+> <p><i>Jerry Rice</i></p>
 
 <br>
