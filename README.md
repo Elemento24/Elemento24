@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My play Safe Sex was picked apart because critics thought it was untrue. It was a play in which no one had AIDS, but the characters talked about how it was going to change their lives.</b>
-> <p><i>Harvey Fierstein</i></p>
+> <b>I am especially grateful that I have been able to keep my own style over the decades, in spite of the many changes that have taken place in the world of fashion and in its business.</b>
+> <p><i>Valentino Garavani</i></p>
 
 <br>
