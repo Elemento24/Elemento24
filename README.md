@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To say that a work of art is good, but incomprehensible to the majority of men, is the same as saying of some kind of food that it is very good but that most people can't eat it.</b>
-> <p><i>Leo Tolstoy</i></p>
+> <b>Whether it's 18 years old or 40 years old, we think we know what's going on. But if you're lucky enough to continue the journey, its amazing how we keep learning how much we didn't know.</b>
+> <p><i>Joe Namath</i></p>
 
 <br>
