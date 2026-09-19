@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To see a player dunk in women's college basketball is just amazing. It's great to see that the game has reached that level now.</b>
-> <p><i>Holly Johnson</i></p>
+> <b>My play Safe Sex was picked apart because critics thought it was untrue. It was a play in which no one had AIDS, but the characters talked about how it was going to change their lives.</b>
+> <p><i>Harvey Fierstein</i></p>
 
 <br>
