@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Absolute truth belongs to Thee alone.</b>
-> <p><i>Gotthold Ephraim Lessing</i></p>
+> <b>I'm glad about what's happening to the music business. This last crop of people we had in the 90s, who are going away now, they didn't like music. They didn't trust musicians. They wanted something else from it.</b>
+> <p><i>James Taylor</i></p>
 
 <br>
