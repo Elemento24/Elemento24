@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whether it's 18 years old or 40 years old, we think we know what's going on. But if you're lucky enough to continue the journey, its amazing how we keep learning how much we didn't know.</b>
-> <p><i>Joe Namath</i></p>
+> <b>To see a player dunk in women's college basketball is just amazing. It's great to see that the game has reached that level now.</b>
+> <p><i>Holly Johnson</i></p>
 
 <br>
