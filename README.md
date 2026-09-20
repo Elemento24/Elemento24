@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to be alone and work until the day my heads hits the drawing table and I'm dead. Kaput. I feel very much like I want to be with my brother and sister again. They're nowhere. I know they're nowhere and they don't exist, but if nowhere means that's where they are, that's where I want to be.</b>
-> <p><i>Maurice Sendak</i></p>
+> <b>Living in an age of advertisement, we are perpetually disillusioned. The perfect life is spread before us every day, but it changes and withers at a touch.</b>
+> <p><i>J. B. Priestley</i></p>
 
 <br>
