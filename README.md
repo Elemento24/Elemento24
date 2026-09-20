@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I'm glad about what's happening to the music business. This last crop of people we had in the 90s, who are going away now, they didn't like music. They didn't trust musicians. They wanted something else from it.</b>
-> <p><i>James Taylor</i></p>
+> <b>Art is always and everywhere the secret confession, and at the same time the immortal movement of its time.</b>
+> <p><i>Karl Marx</i></p>
 
 <br>
