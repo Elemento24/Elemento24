@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best artist has that thought alone Which is contained within the marble shell The sculptor's hand can only break the spell To free the figures slumbering in the stone.</b>
-> <p><i>Michelangelo</i></p>
+> <b>When someone asks if you'd like cake or pie, why not say you want cake and pie?</b>
+> <p><i>Lisa Loeb</i></p>
 
 <br>
