@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Living in an age of advertisement, we are perpetually disillusioned. The perfect life is spread before us every day, but it changes and withers at a touch.</b>
-> <p><i>J. B. Priestley</i></p>
+> <b>It seems to me that any sensible person must see that violence does not change the world and if it does, then only temporarily.</b>
+> <p><i>Martin Scorsese</i></p>
 
 <br>
