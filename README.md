@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It seems to me that any sensible person must see that violence does not change the world and if it does, then only temporarily.</b>
-> <p><i>Martin Scorsese</i></p>
+> <b>You are going in one second the length of a football field. That means you brain is receiving information from your body what the car is doing physically, bumping, balance, performance.</b>
+> <p><i>Emerson Fittipaldi</i></p>
 
 <br>
