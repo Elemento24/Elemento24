@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean, I don't think I'm alone when I look at the homeless person or the bum or the psychotic or the drunk or the drug addict or the criminal and see their baby pictures in my mind's eye. You don't think they were cute like every other baby?</b>
-> <p><i>Dustin Hoffman</i></p>
+> <b>But the person who scored well on an SAT will not necessarily be the best doctor or the best lawyer or the best businessman. These tests do not measure character, leadership, creativity, perseverance.</b>
+> <p><i>William Julius Wilson</i></p>
 
 <br>
