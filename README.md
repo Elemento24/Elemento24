@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But the person who scored well on an SAT will not necessarily be the best doctor or the best lawyer or the best businessman. These tests do not measure character, leadership, creativity, perseverance.</b>
-> <p><i>William Julius Wilson</i></p>
+> <b>If I am a cup maker, I'm interested in making the best cup I possibly can. My effort goes into that cup, not what people think about it.</b>
+> <p><i>Denzel Washington</i></p>
 
 <br>
