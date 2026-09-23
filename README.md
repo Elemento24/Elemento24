@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I want to put a ding in the universe.</b>
-> <p><i>Steve Jobs</i></p>
+> <b>I love to collect modern art.</b>
+> <p><i>Maria Sharapova</i></p>
 
 <br>
