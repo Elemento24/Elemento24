@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't play pyrotechnic scales. I play about frustration, patience, anger. Music is an extension of my soul.</b>
-> <p><i>Dick Dale</i></p>
+> <b>I want to put a ding in the universe.</b>
+> <p><i>Steve Jobs</i></p>
 
 <br>
