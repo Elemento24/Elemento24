@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The concept of two people living together for 25 years without a serious dispute suggests a lack of spirit only to be admired in sheep.</b>
-> <p><i>A. P. Herbert</i></p>
+> <b>My next adventure will be being in a car with Mischa at the wheel.</b>
+> <p><i>Rachel Bilson</i></p>
 
 <br>
