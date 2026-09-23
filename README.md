@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is very tricky because it's what you do for yourself. It's much harder for me to make those works than the monuments or the architecture.</b>
-> <p><i>Maya Lin</i></p>
+> <b>I don't play pyrotechnic scales. I play about frustration, patience, anger. Music is an extension of my soul.</b>
+> <p><i>Dick Dale</i></p>
 
 <br>
