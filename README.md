@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>This is what I asked for, and in this day and age that's what actually goes on. But what hurts me the most is that I work just as hard as any other actress around my age, like Scarlett Johansson, but I just don't get the opportunities that they get because people are so distracted by the mess that I created in my life.</b>
-> <p><i>Lindsay Lohan</i></p>
+> <b>The concept of two people living together for 25 years without a serious dispute suggests a lack of spirit only to be admired in sheep.</b>
+> <p><i>A. P. Herbert</i></p>
 
 <br>
