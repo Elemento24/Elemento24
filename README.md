@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My next adventure will be being in a car with Mischa at the wheel.</b>
-> <p><i>Rachel Bilson</i></p>
+> <b>Art is very tricky because it's what you do for yourself. It's much harder for me to make those works than the monuments or the architecture.</b>
+> <p><i>Maya Lin</i></p>
 
 <br>
