@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My house is my refuge, an emotional piece of architecture, not a cold piece of convenience.</b>
-> <p><i>Luis Barragan</i></p>
+> <b>Your purpose is to make your audience see what you saw, hear what you heard, feel what you felt. Relevant detail, couched in concrete, colorful language, is the best way to recreate the incident as it happened and to picture it for the audience.</b>
+> <p><i>Dale Carnegie</i></p>
 
 <br>
