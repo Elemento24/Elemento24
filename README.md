@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Your purpose is to make your audience see what you saw, hear what you heard, feel what you felt. Relevant detail, couched in concrete, colorful language, is the best way to recreate the incident as it happened and to picture it for the audience.</b>
-> <p><i>Dale Carnegie</i></p>
+> <b>Good humor is one of the best articles of dress one can wear in society.</b>
+> <p><i>William Makepeace Thackeray</i></p>
 
 <br>
