@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is so much good in the worst of us, and so much bad in the best of us, that it ill behaves any of us to find fault with the rest of us.</b>
-> <p><i>James Truslow Adams</i></p>
+> <b>My attitude on skis is different now. I have learned to put less pressure on myself and on the edges of my skis when I'm racing, to be keep myself more under control.</b>
+> <p><i>Hermann Maier</i></p>
 
 <br>
