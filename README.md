@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best people renounce all for one goal, the eternal fame of mortals but most people stuff themselves like cattle.</b>
-> <p><i>Heraclitus</i></p>
+> <b>There is so much good in the worst of us, and so much bad in the best of us, that it ill behaves any of us to find fault with the rest of us.</b>
+> <p><i>James Truslow Adams</i></p>
 
 <br>
