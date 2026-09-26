@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think a certain amount of anger has been a fuel of mine, if you want - but also some sort of sadness, and plain mischief, of course.</b>
-> <p><i>Siouxsie Sioux</i></p>
+> <b>Surely these women won't lose any more of their beauty and charm by putting a ballot in a ballot box once a year than they are likely to lose standing in foundries or laundries all year round. There is no harder contest than the contest for bread, let me tell you that.</b>
+> <p><i>Rose Schneiderman</i></p>
 
 <br>
