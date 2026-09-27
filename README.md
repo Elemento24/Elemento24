@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think Jersey stands alone, and because I'm from Jersey, I never make fun of where people are from. I'll make fun of what they look like, but I'll never make fun of where they are from. Jersey is special.</b>
-> <p><i>Jeff Ross</i></p>
+> <b>If a site is done with pleasure and a fun attitude, it's a great way to communicate with your fans.</b>
+> <p><i>Christopher Lambert</i></p>
 
 <br>
