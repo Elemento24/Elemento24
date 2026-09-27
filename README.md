@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If I had done what I was programmed to do, I would now be sitting in a car factory looking at the sizes of wheels, or wondering how to get credit to start a new factory in Russia.</b>
-> <p><i>Jean Pigozzi</i></p>
+> <b>To be in a situation where you have no rights whatsoever is something I wish everybody could experience. People's attitudes would change. It would be a better place.</b>
+> <p><i>Tommy Chong</i></p>
 
 <br>
