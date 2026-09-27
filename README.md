@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Accidents happen, whether they're car accidents, friendly fire, drug overdoses. Accidents happen, and they're tragic. It's like a bomb that goes off and pieces of shrapnel rip into the flesh of the family. It's the families that need the compassion, because everywhere they walk, every day, someone reminds them of their loss.</b>
-> <p><i>James Belushi</i></p>
+> <b>If I had done what I was programmed to do, I would now be sitting in a car factory looking at the sizes of wheels, or wondering how to get credit to start a new factory in Russia.</b>
+> <p><i>Jean Pigozzi</i></p>
 
 <br>
