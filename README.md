@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hope everyone that is reading this is having a really good day. And if you are not, just know that in every new minute that passes you have an opportunity to change that.</b>
-> <p><i>Gillian Anderson</i></p>
+> <b>I have worked very hard on being aware of my childhood but moving forward and not letting it bring me down emotionally. That is a hard thing - especially when you have children of your own and you remember what happened to you at that age.</b>
+> <p><i>Samantha Morton</i></p>
 
 <br>
