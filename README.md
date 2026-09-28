@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Everybody knows about Pearl Harbor. The thing that really fascinated me is that through this tragedy there was this amazing American heroism.</b>
-> <p><i>Michael Bay</i></p>
+> <b>I hope everyone that is reading this is having a really good day. And if you are not, just know that in every new minute that passes you have an opportunity to change that.</b>
+> <p><i>Gillian Anderson</i></p>
 
 <br>
