@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Perhaps the best motivation for going to Mars is political. It is obvious that no single nation currently has either the will or the resources to do it alone, but a consortium of nations and space agencies could achieve it within 20 years.</b>
-> <p><i>Paul Davies</i></p>
+> <b>It is art that makes life, makes interest, makes importance and I know of no substitute whatever for the force and beauty of its process.</b>
+> <p><i>Max Eastman</i></p>
 
 <br>
