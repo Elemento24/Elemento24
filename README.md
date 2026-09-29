@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are no college courses to build up self-esteem or high school or elementary school. If you don't get those values at a early age, nurtured in your home, you don't get them.</b>
-> <p><i>T. D. Jakes</i></p>
+> <b>In youth we learn in age we understand.</b>
+> <p><i>Marie von Ebner-Eschenbach</i></p>
 
 <br>
