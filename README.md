@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Writing is a solitary occupation. Family, friends, and society are the natural enemies of the writer. He must be alone, uninterrupted, and slightly savage if he is to sustain and complete an undertaking.</b>
-> <p><i>Jessamyn West</i></p>
+> <b>The greatest thing about doing this movie was that Chris and I both were involved in folk music in the '60s. I had a group, but I don't think it was at the same level as Chris, because he's an amazing musician.</b>
+> <p><i>Eugene Levy</i></p>
 
 <br>
