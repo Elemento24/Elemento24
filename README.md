@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I think it's hard, the fact that there's a certain age that we can't have kids anymore.</b>
-> <p><i>Courteney Cox</i></p>
+> <b>I love watching amazing actors and actresses that you can't take your eyes off of because everything they are doing - even if it is just twiddling their thumbs or scratching their eye - it's just interesting.</b>
+> <p><i>Sara Paxton</i></p>
 
 <br>
