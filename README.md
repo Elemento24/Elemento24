@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love watching amazing actors and actresses that you can't take your eyes off of because everything they are doing - even if it is just twiddling their thumbs or scratching their eye - it's just interesting.</b>
-> <p><i>Sara Paxton</i></p>
+> <b>Writing is a solitary occupation. Family, friends, and society are the natural enemies of the writer. He must be alone, uninterrupted, and slightly savage if he is to sustain and complete an undertaking.</b>
+> <p><i>Jessamyn West</i></p>
 
 <br>
