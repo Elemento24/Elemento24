@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The greatest thing about doing this movie was that Chris and I both were involved in folk music in the '60s. I had a group, but I don't think it was at the same level as Chris, because he's an amazing musician.</b>
-> <p><i>Eugene Levy</i></p>
+> <b>Family trips to Yellowstone and to what are now national parks in Southern Utah, driving the primitive roads and cars of that day, were real adventures.</b>
+> <p><i>Paul D. Boyer</i></p>
 
 <br>
