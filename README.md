@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am a grandmother now, and that means age is creeping on, creeping on.</b>
-> <p><i>Lillie Langtry</i></p>
+> <b>The easiest and simplest thing that any one can do to make their car safer, more gas efficient, whatever - check the tire pressure.</b>
+> <p><i>Richard Hammond</i></p>
 
 <br>
