@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The easiest and simplest thing that any one can do to make their car safer, more gas efficient, whatever - check the tire pressure.</b>
-> <p><i>Richard Hammond</i></p>
+> <b>I just change with the times. I really don't have a say in what's going on. Music was here before me.</b>
+> <p><i>Snoop Dogg</i></p>
 
 <br>
