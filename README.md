@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I hate the actor and audience business. An author should be in among the crowd, kicking their shins or cheering them on to some mischief or merriment.</b>
-> <p><i>David Herbert Lawrence</i></p>
+> <b>It is art that makes life, makes interest, makes importance and I know of no substitute whatever for the force and beauty of its process.</b>
+> <p><i>Max Eastman</i></p>
 
 <br>
