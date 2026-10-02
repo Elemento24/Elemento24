@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Close elections tend to break toward the challenger because undecided voters - having held out so long against the incumbent - are by nature looking for change.</b>
-> <p><i>Ron Fournier</i></p>
+> <b>I would rather be a beggar and single than a queen and married.</b>
+> <p><i>Elizabeth I</i></p>
 
 <br>
