@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is a fundamental shift that social media necessitates in business today - the need to transition from 'Me First' to 'We First' thinking.</b>
-> <p><i>Simon Mainwaring</i></p>
+> <b>Thank you for leaving us alone but giving us enough attention to boost our egos.</b>
+> <p><i>Mick Jagger</i></p>
 
 <br>
