@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I would rather be a beggar and single than a queen and married.</b>
-> <p><i>Elizabeth I</i></p>
+> <b>My car and my adding machine understand nothing: they are not in that line of business.</b>
+> <p><i>John Searle</i></p>
 
 <br>
