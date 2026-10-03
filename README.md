@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My car and my adding machine understand nothing: they are not in that line of business.</b>
-> <p><i>John Searle</i></p>
+> <b>It's amazing how a competitive nature can turn a negative into something positive.</b>
+> <p><i>Barry Mann</i></p>
 
 <br>
