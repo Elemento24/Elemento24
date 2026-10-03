@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Old age adds to the respect due to virtue, but it takes nothing from the contempt inspired by vice it whitens only the hair.</b>
-> <p><i>Ira Gershwin</i></p>
+> <b>There is a fundamental shift that social media necessitates in business today - the need to transition from 'Me First' to 'We First' thinking.</b>
+> <p><i>Simon Mainwaring</i></p>
 
 <br>
