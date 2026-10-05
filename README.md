@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I search for surprise in my architecture. A work of art should cause the emotion of newness.</b>
-> <p><i>Oscar Niemeyer</i></p>
+> <b>I don't believe the most successful people are the ones who got the best grades, got into the best schools, or made the most money.</b>
+> <p><i>Ben Stein</i></p>
 
 <br>
