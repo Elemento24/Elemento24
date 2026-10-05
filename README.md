@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If death meant just leaving the stage long enough to change costume and come back as a new character, would you slow down? Or speed up?</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>I search for surprise in my architecture. A work of art should cause the emotion of newness.</b>
+> <p><i>Oscar Niemeyer</i></p>
 
 <br>
