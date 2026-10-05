@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No memory is ever alone it's at the end of a trail of memories, a dozen trails that each have their own associations.</b>
-> <p><i>Louis L'Amour</i></p>
+> <b>If death meant just leaving the stage long enough to change costume and come back as a new character, would you slow down? Or speed up?</b>
+> <p><i>Chuck Palahniuk</i></p>
 
 <br>
