@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>One thing is sure. We have to do something. We have to do the best we know how at the moment... If it doesn't turn out right, we can modify it as we go along.</b>
-> <p><i>Franklin D. Roosevelt</i></p>
+> <b>Instead of being presented with stereotypes by age, sex, color, class, or religion, children must have the opportunity to learn that within each range, some people are loathsome and some are delightful.</b>
+> <p><i>Margaret Mead</i></p>
 
 <br>
