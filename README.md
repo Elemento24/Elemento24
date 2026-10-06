@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There is little difference in people, but that little difference makes a big difference. The little difference is attitude. The big difference is whether it is positive or negative.</b>
-> <p><i>W. Clement Stone</i></p>
+> <b>The first mistake of art is to assume that it's serious.</b>
+> <p><i>Lester Bangs</i></p>
 
 <br>
