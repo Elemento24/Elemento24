@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You cannot control what happens to you, but you can control your attitude toward what happens to you, and in that, you will be mastering change rather than allowing it to master you.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>Prayer does not change God, but it changes him who prays.</b>
+> <p><i>Soren Kierkegaard</i></p>
 
 <br>
