@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The business of America is business.</b>
-> <p><i>Calvin Coolidge</i></p>
+> <b>I love vintage shopping, I think it's really fun. And I love the feeling of finding the most amazing piece for less.</b>
+> <p><i>Emma Roberts</i></p>
 
 <br>
