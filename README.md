@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I mean Buckingham Palace has never hired a professional public relations outfit let alone a Madison Avenue type and they would throw up their hands in horror at the very idea.</b>
-> <p><i>Anthony Holden</i></p>
+> <b>If you're into architecture and you're from the West, everything is hors d'oeuvres for working to rebuild the Temple. Ultimately you're led there. You can't escape it.</b>
+> <p><i>Ben Nicholson</i></p>
 
 <br>
