@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best things in life are unexpected - because there were no expectations.</b>
-> <p><i>Eli Khamarov</i></p>
+> <b>Making checklists of things you're looking for in a person is the numero uno thing you can do to guarantee you'll be alone forever.</b>
+> <p><i>Joseph Gordon-Levitt</i></p>
 
 <br>
