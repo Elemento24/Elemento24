@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If death meant just leaving the stage long enough to change costume and come back as a new character, would you slow down? Or speed up?</b>
-> <p><i>Chuck Palahniuk</i></p>
+> <b>The best argument I know for an immortal life is the existence of a man who deserves one.</b>
+> <p><i>William James</i></p>
 
 <br>
