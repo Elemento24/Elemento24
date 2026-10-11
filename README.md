@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>American youth attributes much more importance to arriving at driver's license age than at voting age.</b>
+> <b>Our Age of Anxiety is, in great part, the result of trying to do today's job with yesterday's tools and yesterday's concepts.</b>
 > <p><i>Marshall McLuhan</i></p>
 
 <br>
