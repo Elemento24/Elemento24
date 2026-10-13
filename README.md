@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Inner beauty should be the most important part of improving one's self.</b>
-> <p><i>Priscilla Presley</i></p>
+> <b>I just need to know that I did the very best I could and that I was true to myself.</b>
+> <p><i>Lenny Kravitz</i></p>
 
 <br>
