@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just need to know that I did the very best I could and that I was true to myself.</b>
-> <p><i>Lenny Kravitz</i></p>
+> <b>Usually when people are sad, they don't do anything. They just cry over their condition. But when they get angry, they bring about a change.</b>
+> <p><i>James Russell Lowell</i></p>
 
 <br>
