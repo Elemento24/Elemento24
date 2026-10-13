@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Usually when people are sad, they don't do anything. They just cry over their condition. But when they get angry, they bring about a change.</b>
-> <p><i>James Russell Lowell</i></p>
+> <b>A paparazzo once jumped out of a car and started running backward with me. I slowed down out of courtesy because she started drifting into the street. I reached out my hand and moved her back so she didn't get hit by a bus.</b>
+> <p><i>Sean Astin</i></p>
 
 <br>
