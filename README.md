@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To go to the Oscars for 'Moneyball' - that was pretty amazing.</b>
-> <p><i>Chris Pratt</i></p>
+> <b>If I want to be alone, some place I can write, I can read, I can pray, I can cry, I can do whatever I want - I go to the bathroom.</b>
+> <p><i>Alicia Keys</i></p>
 
 <br>
