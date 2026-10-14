@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is amazing how the public steadfastly refuse to attend the third day of a match when so often the last day produces the best and most exciting cricket.</b>
-> <p><i>Frank Woolley</i></p>
+> <b>Maybe we can show government how to operate better as a result of better architecture. Eventually, I think Chicago will be the most beautiful great city left in the world.</b>
+> <p><i>Frank Lloyd Wright</i></p>
 
 <br>
