@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pursuit of beauty is much more dangerous nonsense than the pursuit of truth or goodness, because it affords a stronger temptation to the ego.</b>
-> <p><i>Northrop Frye</i></p>
+> <b>My 'fear' is my substance, and probably the best part of me.</b>
+> <p><i>Franz Kafka</i></p>
 
 <br>
