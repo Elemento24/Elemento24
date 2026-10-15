@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In America, we no longer have an institutionalized, organized way of calling business to task - of taking them to account for what they've done - and this is especially true in the cultural realm.</b>
-> <p><i>Thomas Frank</i></p>
+> <b>If we must have a tyrant, let him at least be a gentleman who has been bred to the business, and let us fall by the axe and not by the butcher's cleaver.</b>
+> <p><i>Lord Byron</i></p>
 
 <br>
