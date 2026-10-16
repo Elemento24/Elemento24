@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I am 54 and age is slowly writing itself on my face.</b>
-> <p><i>Arthur Smith</i></p>
+> <b>Doing all we can to combat climate change comes with numerous benefits, from reducing pollution and associated health care costs to strengthening and diversifying the economy by shifting to renewable energy, among other measures.</b>
+> <p><i>David Suzuki</i></p>
 
 <br>
