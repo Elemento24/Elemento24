@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I have a right to my anger, and I don't want anybody telling me I shouldn't be, that it's not nice to be, and that something's wrong with me because I get angry.</b>
-> <p><i>Maxine Waters</i></p>
+> <b>I envy the sensibility in Europe, appreciating beauty in women as they age. I'm going to go that way. I might dye my gray hair for a bit, but beyond that the buck stops. I'm not having any work done.</b>
+> <p><i>Rachel Bilson</i></p>
 
 <br>
