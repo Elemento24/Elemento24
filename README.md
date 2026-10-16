@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If we must have a tyrant, let him at least be a gentleman who has been bred to the business, and let us fall by the axe and not by the butcher's cleaver.</b>
-> <p><i>Lord Byron</i></p>
+> <b>It's better to be unhappy alone than unhappy with someone - so far.</b>
+> <p><i>Marilyn Monroe</i></p>
 
 <br>
