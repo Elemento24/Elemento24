@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My inspiration was my mom. She's a great cook, and she still cooks, and we still banter back and forth about cooking. Growing up in a mostly Portuguese community, food was important and the family table was extremely important. At a very young age I understood that.</b>
-> <p><i>Emeril Lagasse</i></p>
+> <b>The most important loan to pay is your student loan. It's more important than your mortgage, car and credit card payments. You cannot discharge student loan debt in the majority of cases.</b>
+> <p><i>Suze Orman</i></p>
 
 <br>
