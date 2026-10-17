@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I envy the sensibility in Europe, appreciating beauty in women as they age. I'm going to go that way. I might dye my gray hair for a bit, but beyond that the buck stops. I'm not having any work done.</b>
-> <p><i>Rachel Bilson</i></p>
+> <b>You cannot control what happens to you, but you can control your attitude toward what happens to you, and in that, you will be mastering change rather than allowing it to master you.</b>
+> <p><i>Brian Tracy</i></p>
 
 <br>
