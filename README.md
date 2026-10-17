@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>All business proceeds on beliefs, or judgements of probabilities, and not on certainties.</b>
-> <p><i>Charles W. Eliot</i></p>
+> <b>The purely agitational attitude is not good enough for a detailed consideration of a subject.</b>
+> <p><i>Jawaharlal Nehru</i></p>
 
 <br>
