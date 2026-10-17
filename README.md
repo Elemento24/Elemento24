@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The purely agitational attitude is not good enough for a detailed consideration of a subject.</b>
-> <p><i>Jawaharlal Nehru</i></p>
+> <b>The enemy of art is the absence of limitations.</b>
+> <p><i>Orson Welles</i></p>
 
 <br>
