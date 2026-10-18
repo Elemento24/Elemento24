@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not like I'm sitting at home coming up with some secret beauty plan.</b>
-> <p><i>Lara Stone</i></p>
+> <b>I do not see any beauty in self-restraint.</b>
+> <p><i>Mary MacLane</i></p>
 
 <br>
