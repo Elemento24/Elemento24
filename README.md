@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I do not see any beauty in self-restraint.</b>
-> <p><i>Mary MacLane</i></p>
+> <b>Organisations are now confronted with two sources of change: the traditional type that is initiated and managed and external changes over which no one has control.</b>
+> <p><i>Margaret J. Wheatley</i></p>
 
 <br>
