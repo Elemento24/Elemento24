@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Develop an attitude of gratitude, and give thanks for everything that happens to you, knowing that every step forward is a step toward achieving something bigger and better than your current situation.</b>
-> <p><i>Brian Tracy</i></p>
+> <b>Willingness to change is a strength, even if it means plunging part of the company into total confusion for a while.</b>
+> <p><i>Jack Welch</i></p>
 
 <br>
