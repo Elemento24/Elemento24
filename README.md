@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The class distinctions proper to a democratic society are not those of rank or money, still less, as is apt to happen when these are abandoned, of race, but of age.</b>
-> <p><i>W. H. Auden</i></p>
+> <b>Maybe one day the world will change, that we'll be in a luxurious position of being able to debate whether or not it's inherently wrong to eat animals, but the question doesn't matter right now.</b>
+> <p><i>Jonathan Safran Foer</i></p>
 
 <br>
