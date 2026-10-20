@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Resistance is thought transformed into feeling. Change the thought that creates the resistance, and there is no more resistance.</b>
-> <p><i>Robert Conklin</i></p>
+> <b>I got amazing training both with Theatre Sports... back in Edmonton, Alberta - I can't give those people enough credit - and the daytime drama I did. Incredible training, both of them.</b>
+> <p><i>Nathan Fillion</i></p>
 
 <br>
