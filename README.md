@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I got amazing training both with Theatre Sports... back in Edmonton, Alberta - I can't give those people enough credit - and the daytime drama I did. Incredible training, both of them.</b>
-> <p><i>Nathan Fillion</i></p>
+> <b>I'm not trying to stump anybody... it's the beauty of the language that I'm interested in.</b>
+> <p><i>Buddy Holly</i></p>
 
 <br>
