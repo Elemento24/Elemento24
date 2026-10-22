@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Accept business only at a price permitting thoroughness. Then do a thorough job, regardless of cost to us.</b>
-> <p><i>Arthur C. Nielsen</i></p>
+> <b>There are actually quite high profile British TV star cameos in it that you probably wouldn't even notice, that the British wouldn't even notice, let alone the American audience.</b>
+> <p><i>Simon Pegg</i></p>
 
 <br>
