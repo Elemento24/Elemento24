@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>There are actually quite high profile British TV star cameos in it that you probably wouldn't even notice, that the British wouldn't even notice, let alone the American audience.</b>
-> <p><i>Simon Pegg</i></p>
+> <b>The pattern of a newspaperman's life is like the plot of 'Black Beauty.' Sometimes he finds a kind master who gives him a dry stall and an occasional bran mash in the form of a Christmas bonus, sometimes he falls into the hands of a mean owner who drives him in spite of spavins and expects him to live on potato peelings.</b>
+> <p><i>A. J. Liebling</i></p>
 
 <br>
