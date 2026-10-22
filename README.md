@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Men are like wine - some turn to vinegar, but the best improve with age.</b>
-> <p><i>Pope John XXIII</i></p>
+> <b>But I also like to shower my parents with presents. I bought them a beautiful car and a house.</b>
+> <p><i>Eva Herzigova</i></p>
 
 <br>
