@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But I also like to shower my parents with presents. I bought them a beautiful car and a house.</b>
-> <p><i>Eva Herzigova</i></p>
+> <b>Let me alone: I have yet my legs and one arm. Tell the surgeon to make haste and his instruments. I know I must lose my right arm, so the sooner it's off the better.</b>
+> <p><i>Horatio Nelson</i></p>
 
 <br>
