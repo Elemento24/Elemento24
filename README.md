@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty is the first test: there is no permanent place in the world for ugly mathematics.</b>
-> <p><i>Godfrey Harold Hardy</i></p>
+> <b>Age for me is just a number.</b>
+> <p><i>Haile Gebrselassie</i></p>
 
 <br>
