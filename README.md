@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The pattern of a newspaperman's life is like the plot of 'Black Beauty.' Sometimes he finds a kind master who gives him a dry stall and an occasional bran mash in the form of a Christmas bonus, sometimes he falls into the hands of a mean owner who drives him in spite of spavins and expects him to live on potato peelings.</b>
-> <p><i>A. J. Liebling</i></p>
+> <b>I always knew that St. Jude was an amazing organization but meeting the kids and seeing how the hospital works first hand was truly beautiful. It doesn't feel like a regular hospital all dreary and sad. It's a colorful, beautiful, comfortable, fun place to live and the energy is wonderful.</b>
+> <p><i>Ariana Grande</i></p>
 
 <br>
