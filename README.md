@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Age for me is just a number.</b>
-> <p><i>Haile Gebrselassie</i></p>
+> <b>What the imagination seizes as beauty must be truth.</b>
+> <p><i>John Keats</i></p>
 
 <br>
