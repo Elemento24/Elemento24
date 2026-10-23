@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is not to be expected that human nature will change in a day.</b>
-> <p><i>Frank B. Kellogg</i></p>
+> <b>Beauty is the first test: there is no permanent place in the world for ugly mathematics.</b>
+> <p><i>Godfrey Harold Hardy</i></p>
 
 <br>
