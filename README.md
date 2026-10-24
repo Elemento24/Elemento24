@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I believe that history has shape, order, and meaning that exceptional men, as much as economic forces, produce change and that passe abstractions like beauty, nobility, and greatness have a shifting but continuing validity.</b>
-> <p><i>Camille Paglia</i></p>
+> <b>When I am working on a problem, I never think about beauty but when I have finished, if the solution is not beautiful, I know it is wrong.</b>
+> <p><i>R. Buckminster Fuller</i></p>
 
 <br>
