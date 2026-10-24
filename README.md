@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What the imagination seizes as beauty must be truth.</b>
-> <p><i>John Keats</i></p>
+> <b>I believe that history has shape, order, and meaning that exceptional men, as much as economic forces, produce change and that passe abstractions like beauty, nobility, and greatness have a shifting but continuing validity.</b>
+> <p><i>Camille Paglia</i></p>
 
 <br>
