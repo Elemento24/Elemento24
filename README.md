@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Politics is the art of preventing people from busying themselves with what is their own business.</b>
-> <p><i>Paul Valery</i></p>
+> <b>The smart thing in the art world is to have one good idea and never have another.</b>
+> <p><i>Brian Eno</i></p>
 
 <br>
