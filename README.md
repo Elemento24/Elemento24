@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It is the artist's business to create sunshine when the sun fails.</b>
-> <p><i>Romain Rolland</i></p>
+> <b>We have got to change our ethics and our financial system and our whole way of understanding the world. It has to be a world in which people live rather than die a sustainable world. It could be great.</b>
+> <p><i>Vivienne Westwood</i></p>
 
 <br>
