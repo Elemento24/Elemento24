@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have got to change our ethics and our financial system and our whole way of understanding the world. It has to be a world in which people live rather than die a sustainable world. It could be great.</b>
-> <p><i>Vivienne Westwood</i></p>
+> <b>Politics is the art of preventing people from busying themselves with what is their own business.</b>
+> <p><i>Paul Valery</i></p>
 
 <br>
