@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Thirty was so strange for me. I've really had to come to terms with the fact that I am now a walking and talking adult.</b>
-> <p><i>C. S. Lewis</i></p>
+> <b>The bold adventurer succeeds the best.</b>
+> <p><i>Ovid</i></p>
 
 <br>
