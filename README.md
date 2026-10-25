@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>A man that studieth revenge keeps his own wounds green.</b>
-> <p><i>Francis Bacon</i></p>
+> <b>It is the artist's business to create sunshine when the sun fails.</b>
+> <p><i>Romain Rolland</i></p>
 
 <br>
