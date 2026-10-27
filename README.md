@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The best men of the best epochs are simply those who make the fewest blunders and commit the fewest sins.</b>
-> <p><i>Thomas Huxley</i></p>
+> <b>No person will make a great business who wants to do it all himself or get all the credit.</b>
+> <p><i>Andrew Carnegie</i></p>
 
 <br>
