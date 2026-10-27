@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No person will make a great business who wants to do it all himself or get all the credit.</b>
-> <p><i>Andrew Carnegie</i></p>
+> <b>From 18 to 22, I was alone, living in L.A. with a bunch of friends, partying.</b>
+> <p><i>Heath Ledger</i></p>
 
 <br>
