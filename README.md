@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Justice cannot be for one side alone, but must be for both.</b>
-> <p><i>Eleanor Roosevelt</i></p>
+> <b>If the world could remain within a frame like a painting on the wall, I think we'd see the beauty then and stand staring in awe.</b>
+> <p><i>Conor Oberst</i></p>
 
 <br>
