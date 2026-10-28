@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>If the world could remain within a frame like a painting on the wall, I think we'd see the beauty then and stand staring in awe.</b>
-> <p><i>Conor Oberst</i></p>
+> <b>Next to acquiring good friends, the best acquisition is that of good books.</b>
+> <p><i>Charles Caleb Colton</i></p>
 
 <br>
