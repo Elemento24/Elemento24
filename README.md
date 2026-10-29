@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Loneliness expresses the pain of being alone and solitude expresses the glory of being alone.</b>
-> <p><i>Paul Tillich</i></p>
+> <b>You know, every family and every business in California knows what it means to go through tough times.</b>
+> <p><i>Carly Fiorina</i></p>
 
 <br>
