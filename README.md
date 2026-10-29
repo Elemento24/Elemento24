@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>It's not the normal way to look at things but I experienced death at a really young age and because of that it's been part of my mental landscape that death is really very possible.</b>
-> <p><i>Cate Blanchett</i></p>
+> <b>There is danger in reckless change, but greater danger in blind conservatism.</b>
+> <p><i>Henry George</i></p>
 
 <br>
