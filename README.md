@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To share our stories is not only a worthwhile endeavor for the storyteller, but for those who hear our stories and feel less alone because of it.</b>
-> <p><i>Joyce Maynard</i></p>
+> <b>The biggest problem with every art is by the use of appearance to create a loftier reality.</b>
+> <p><i>Johann Wolfgang von Goethe</i></p>
 
 <br>
