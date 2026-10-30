@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You know, every family and every business in California knows what it means to go through tough times.</b>
-> <p><i>Carly Fiorina</i></p>
+> <b>You can survive with anger, but you can't live with it forever.</b>
+> <p><i>Ariel Dorfman</i></p>
 
 <br>
