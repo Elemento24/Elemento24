@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>But my most favourite pursuit, after my daily exertions at the Foundry, was Astronomy. There were frequently clear nights when the glorious objects in the Heavens were seen in most attractive beauty and brilliancy.</b>
-> <p><i>James Nasmyth</i></p>
+> <b>To share our stories is not only a worthwhile endeavor for the storyteller, but for those who hear our stories and feel less alone because of it.</b>
+> <p><i>Joyce Maynard</i></p>
 
 <br>
