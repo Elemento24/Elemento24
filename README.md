@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The biggest problem with every art is by the use of appearance to create a loftier reality.</b>
-> <p><i>Johann Wolfgang von Goethe</i></p>
+> <b>My father instilled in me the attitude of prevailing. If there's a challenge, go for it. If there's a wall to break down, break it down.</b>
+> <p><i>Donny Osmond</i></p>
 
 <br>
