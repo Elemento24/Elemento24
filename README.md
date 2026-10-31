@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is nothing but the expression of our dream the more we surrender to it the closer we get to the inner truth of things, our dream-life, the true life that scorns questions and does not see them.</b>
-> <p><i>Franz Marc</i></p>
+> <b>Not to say people shouldn't get rich from art. I adore the alchemy wherein artists who cast a complex spell make rich people give them their money. (Just writing it makes me cackle.) But too many artists have been making money without magic.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
