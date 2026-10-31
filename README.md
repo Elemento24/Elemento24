@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Not to say people shouldn't get rich from art. I adore the alchemy wherein artists who cast a complex spell make rich people give them their money. (Just writing it makes me cackle.) But too many artists have been making money without magic.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>An artist never really finishes his work, he merely abandons it.</b>
+> <p><i>Paul Valery</i></p>
 
 <br>
