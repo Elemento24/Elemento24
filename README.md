@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My father instilled in me the attitude of prevailing. If there's a challenge, go for it. If there's a wall to break down, break it down.</b>
-> <p><i>Donny Osmond</i></p>
+> <b>I'm often called an old-fashioned modernist. But the modernists had the absurd idea that architecture could heal the world. That's impossible. And today nobody expects architects to have these grand visions any more.</b>
+> <p><i>Thom Mayne</i></p>
 
 <br>
