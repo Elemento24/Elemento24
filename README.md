@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>An artist never really finishes his work, he merely abandons it.</b>
-> <p><i>Paul Valery</i></p>
+> <b>In youth we learn in age we understand.</b>
+> <p><i>Marie von Ebner-Eschenbach</i></p>
 
 <br>
