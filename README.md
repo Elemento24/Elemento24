@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>In youth we learn in age we understand.</b>
-> <p><i>Marie von Ebner-Eschenbach</i></p>
+> <b>Beauty, the eternal Spouse of the Wisdom of God and Angel of his Presence thru' all creation.</b>
+> <p><i>Robert Bridges</i></p>
 
 <br>
