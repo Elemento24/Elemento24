@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beauty, the eternal Spouse of the Wisdom of God and Angel of his Presence thru' all creation.</b>
-> <p><i>Robert Bridges</i></p>
+> <b>That attitude does not exist so much today, but in those days there was a very sharp distinction between basic physics and applied physics. Columbia did not deal with applied physics.</b>
+> <p><i>Gordon Gould</i></p>
 
 <br>
