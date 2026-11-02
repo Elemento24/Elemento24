@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Of life's two chief prizes, beauty and truth, I found the first in a loving heart and the second in a laborer's hand.</b>
-> <p><i>Khalil Gibran</i></p>
+> <b>I don't think there's any artist of any value who doesn't doubt what they're doing.</b>
+> <p><i>Francis Ford Coppola</i></p>
 
 <br>
