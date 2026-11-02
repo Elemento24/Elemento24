@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I don't think there's any artist of any value who doesn't doubt what they're doing.</b>
-> <p><i>Francis Ford Coppola</i></p>
+> <b>If a man's character is to be abused there's nobody like a relative to do the business.</b>
+> <p><i>Alexander Pope</i></p>
 
 <br>
