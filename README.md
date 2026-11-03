@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Art is not living. It is the use of living.</b>
-> <p><i>Audre Lorde</i></p>
+> <b>As you know from school, it's when you have not prepared for the test that you have the fear of failing. And if you have prepared, even if you fail, you've done your best.</b>
+> <p><i>Alice Walker</i></p>
 
 <br>
