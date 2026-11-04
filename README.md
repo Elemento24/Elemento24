@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I love my government not least for the extent to which it leaves me alone.</b>
-> <p><i>John Updike</i></p>
+> <b>A horse is a thing of beauty... none will tire of looking at him as long as he displays himself in his splendor.</b>
+> <p><i>Xenophon</i></p>
 
 <br>
