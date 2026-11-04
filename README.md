@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Working on the 'Ice Age' movies, I'm really proud to be in them.</b>
-> <p><i>Seann William Scott</i></p>
+> <b>That's your best friend and your worst enemy - your own brain.</b>
+> <p><i>Fred Durst</i></p>
 
 <br>
