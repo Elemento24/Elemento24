@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>That's your best friend and your worst enemy - your own brain.</b>
-> <p><i>Fred Durst</i></p>
+> <b>I love my government not least for the extent to which it leaves me alone.</b>
+> <p><i>John Updike</i></p>
 
 <br>
