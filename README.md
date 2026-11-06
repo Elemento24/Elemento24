@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>For an actor, you're rejected eight or ten times a day. All you've got to sell is yourself. You're not selling products, they're not turning down a car, they're turning you down. Most people can't handle that. Most people are essentially not set up that way.</b>
-> <p><i>Barry Corbin</i></p>
+> <b>Liquid architecture. It's like jazz - you improvise, you work together, you play off each other, you make something, they make something. And I think it's a way of - for me, it's a way of trying to understand the city, and what might happen in the city.</b>
+> <p><i>Frank Gehry</i></p>
 
 <br>
