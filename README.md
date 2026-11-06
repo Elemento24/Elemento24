@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Liquid architecture. It's like jazz - you improvise, you work together, you play off each other, you make something, they make something. And I think it's a way of - for me, it's a way of trying to understand the city, and what might happen in the city.</b>
-> <p><i>Frank Gehry</i></p>
+> <b>Is it sufficient that you have learned to drive the car, or shall we look and see what is under the hood? Most people go through life without ever knowing.</b>
+> <p><i>June Singer</i></p>
 
 <br>
