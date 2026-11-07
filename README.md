@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Is it sufficient that you have learned to drive the car, or shall we look and see what is under the hood? Most people go through life without ever knowing.</b>
-> <p><i>June Singer</i></p>
+> <b>When love is at its best, one loves so much that he cannot forget.</b>
+> <p><i>Helen Hunt Jackson</i></p>
 
 <br>
