@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The price of success is hard work, dedication to the job at hand, and the determination that whether we win or lose, we have applied the best of ourselves to the task at hand.</b>
-> <p><i>Vince Lombardi</i></p>
+> <b>When I go outside of L.A., no matter where it is, really anywhere I go, people will be stopping me or taking pictures or whatever it is. And it's great. It's amazing. I'm just lucky.</b>
+> <p><i>Michael Welch</i></p>
 
 <br>
