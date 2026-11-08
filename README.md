@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Most small business owners are not particularly sophisticated business people. That's not a criticism they're passionate about cutting hair or cooking food, and that's why they got in the business, not because they have an MBA.</b>
-> <p><i>Andrew Mason</i></p>
+> <b>In the information age, you don't teach philosophy as they did after feudalism. You perform it. If Aristotle were alive today he'd have a talk show.</b>
+> <p><i>Timothy Leary</i></p>
 
 <br>
