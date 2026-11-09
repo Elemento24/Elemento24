@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Guys want a 500 horsepower car. I'd rather have one horsepower - in a horse. That's macho. You go to pick up your date and you show up on a horse.</b>
-> <p><i>Bryan Callen</i></p>
+> <b>Why has not anyone seen that fossils alone gave birth to a theory about the formation of the earth, that without them, no one would have ever dreamed that there were successive epochs in the formation of the globe.</b>
+> <p><i>Georges Cuvier</i></p>
 
 <br>
