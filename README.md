@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Diplomacy is the art of saying 'Nice doggie' until you can find a rock.</b>
-> <p><i>Will Rogers</i></p>
+> <b>Poverty is uncomfortable but nine times out of ten the best thing that can happen to a young man is to be tossed overboard and compelled to sink or swim.</b>
+> <p><i>James A. Garfield</i></p>
 
 <br>
