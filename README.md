@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You don't have a lot of time you have to get it right. It's amazing how they create these episodes in such a short amount of time. They lavish a lot of care and money on each episode, and they just look terrific.</b>
-> <p><i>Margot Kidder</i></p>
+> <b>I sing both in my shower and in my car, mostly in my car, because I have this weird thing - whenever I'm singing to the radio - my friends kind of hate it - but I pick out the harmonies in my head, and I'm singing the harmonies to the tracks and I'm jamming it out.</b>
+> <p><i>Paul McDonald</i></p>
 
 <br>
