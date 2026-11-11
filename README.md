@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>You can survive with anger, but you can't live with it forever.</b>
-> <p><i>Ariel Dorfman</i></p>
+> <b>You don't have a lot of time you have to get it right. It's amazing how they create these episodes in such a short amount of time. They lavish a lot of care and money on each episode, and they just look terrific.</b>
+> <p><i>Margot Kidder</i></p>
 
 <br>
