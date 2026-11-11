@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I just want to go in with the right attitude and from Day 1 make a difference.</b>
-> <p><i>Freddy Adu</i></p>
+> <b>You can survive with anger, but you can't live with it forever.</b>
+> <p><i>Ariel Dorfman</i></p>
 
 <br>
