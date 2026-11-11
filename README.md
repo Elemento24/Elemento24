@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I sing both in my shower and in my car, mostly in my car, because I have this weird thing - whenever I'm singing to the radio - my friends kind of hate it - but I pick out the harmonies in my head, and I'm singing the harmonies to the tracks and I'm jamming it out.</b>
-> <p><i>Paul McDonald</i></p>
+> <b>I finally faced the fact that it isn't a crime not having friends. Being alone means you have fewer problems.</b>
+> <p><i>Whitney Houston</i></p>
 
 <br>
