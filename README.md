@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To me, nothing in the art world is neutral. The idea of 'disinterest' strikes me as boring, dishonest, dubious, and uninteresting.</b>
-> <p><i>Jerry Saltz</i></p>
+> <b>Making money is art and working is art and good business is the best art.</b>
+> <p><i>Andy Warhol</i></p>
 
 <br>
