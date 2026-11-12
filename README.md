@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The cat could very well be man's best friend but would never stoop to admitting it.</b>
-> <p><i>Doug Larson</i></p>
+> <b>To me, nothing in the art world is neutral. The idea of 'disinterest' strikes me as boring, dishonest, dubious, and uninteresting.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
