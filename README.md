@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Making money is art and working is art and good business is the best art.</b>
-> <p><i>Andy Warhol</i></p>
+> <b>Inside every working anarchy, there's an Old Boy Network.</b>
+> <p><i>Mitchell Kapor</i></p>
 
 <br>
