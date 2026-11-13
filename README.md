@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>He that would be angry and sin not, must not be angry with anything but sin.</b>
-> <p><i>John Ruskin</i></p>
+> <b>Rhetoric is the art of ruling the minds of men.</b>
+> <p><i>Plato</i></p>
 
 <br>
