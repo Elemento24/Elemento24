@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Us investigators who went out into the field were faced on occasion with a lot of anger, by people saying why has it taken you five or six year to come and see me?</b>
-> <p><i>Tony Greig</i></p>
+> <b>Some people work hard in this business and become really popular, really big stars but they never receive an award from within the business. Somehow, when your colleagues and friends believe in you to the point of handing you an award it means so much more.</b>
+> <p><i>Sharon Stone</i></p>
 
 <br>
