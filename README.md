@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The seated lotus postures are an amazing way to go into meditation, or simply just to take a moment to ground oneself.</b>
-> <p><i>Christy Turlington</i></p>
+> <b>You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?</b>
+> <p><i>W. Clement Stone</i></p>
 
 <br>
