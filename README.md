@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>No architecture is so haughty as that which is simple.</b>
-> <p><i>John Ruskin</i></p>
+> <b>A revised schedule is to business what a new season is to an athlete or a new canvas to an artist.</b>
+> <p><i>Norman Ralph Augustine</i></p>
 
 <br>
