@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>And I find - I'm 63, and my capacity to be by myself and just spend time by myself hasn't diminished any. That's the necessary part of being a writer, you better like being alone.</b>
-> <p><i>John Irving</i></p>
+> <b>No one ever said on their deathbed, 'Gee, I wish I had spent more time alone with my computer'.</b>
+> <p><i>Danielle Berry</i></p>
 
 <br>
