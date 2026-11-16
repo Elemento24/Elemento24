@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Unless there is meaningful change in Syria and an end to the crackdown, President Assad and those around him will find themselves isolated internationally and discredited within Syria.</b>
-> <p><i>William Hague</i></p>
+> <b>Beauty, like truth, is relative to the time when one lives and to the individual who can grasp it. The expression of beauty is in direct ratio to the power of conception the artist has acquired.</b>
+> <p><i>Gustave Courbet</i></p>
 
 <br>
