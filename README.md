@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>American Idol transcends age, gender, ethnicity, everything.</b>
-> <p><i>Carrie Underwood</i></p>
+> <b>After you're older, two things are possibly more important than any others: health and money.</b>
+> <p><i>Helen Gurley Brown</i></p>
 
 <br>
