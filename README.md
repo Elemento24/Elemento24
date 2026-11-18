@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>The foundation of empire is art and science. Remove them or degrade them, and the empire is no more. Empire follows art and not vice versa as Englishmen suppose.</b>
-> <p><i>William Blake</i></p>
+> <b>Where children are, there is the golden age.</b>
+> <p><i>Novalis</i></p>
 
 <br>
