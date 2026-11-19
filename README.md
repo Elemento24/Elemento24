@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Whether one agrees or disagrees with the tactics of the Occupy Wall Street movement, it's easy to understand the inspiration for its anger as well as its impatience.</b>
-> <p><i>Eric Alterman</i></p>
+> <b>When you have confidence, you can have a lot of fun. And when you have fun, you can do amazing things.</b>
+> <p><i>Joe Namath</i></p>
 
 <br>
