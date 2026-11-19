@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>When you have confidence, you can have a lot of fun. And when you have fun, you can do amazing things.</b>
-> <p><i>Joe Namath</i></p>
+> <b>The older generation had greater respect for land than science. But we live in an age when science, more than soil, has become the provider of growth and abundance. Living just on the land creates loneliness in an age of globality.</b>
+> <p><i>Shimon Peres</i></p>
 
 <br>
