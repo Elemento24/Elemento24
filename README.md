@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>What would be ugly in a garden constitutes beauty in a mountain.</b>
-> <p><i>Victor Hugo</i></p>
+> <b>I was so happy that it filmed in New York not only because it's an amazing city, but also because a lot of people across the world somehow started to think about New York as a dangerous place to be and envisioned it as some war zone after that happened.</b>
+> <p><i>Alicia Witt</i></p>
 
 <br>
