@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Beyonce is the most amazing woman in the world.</b>
-> <p><i>Chris O'Dowd</i></p>
+> <b>Words can be said in bitterness and anger, and often there seems to be an element of truth in the nastiness. And words don't go away, they just echo around.</b>
+> <p><i>Jane Goodall</i></p>
 
 <br>
