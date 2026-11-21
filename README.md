@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>I cannot live under pressures from patrons, let alone paint.</b>
-> <p><i>Michelangelo</i></p>
+> <b>Beyonce is the most amazing woman in the world.</b>
+> <p><i>Chris O'Dowd</i></p>
 
 <br>
