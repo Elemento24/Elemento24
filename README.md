@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Words can be said in bitterness and anger, and often there seems to be an element of truth in the nastiness. And words don't go away, they just echo around.</b>
-> <p><i>Jane Goodall</i></p>
+> <b>The townspeople outside the reservations had a very superior attitude toward Indians, which was kind of funny, because they weren't very wealthy they were on the fringes of society themselves.</b>
+> <p><i>James Welch</i></p>
 
 <br>
