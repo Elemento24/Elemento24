@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>To drive an F1 car you have to be a little mad. On the morning of a race there's a mix of excitement and fear. If it's a wet track, then it's worse as you're not in control most of the time, which is the thing all drivers fear the most.</b>
-> <p><i>Jenson Button</i></p>
+> <b>When museums are built these days, architects, directors, and trustees seem most concerned about social space: places to have parties, eat dinner, wine-and-dine donors. Sure, these are important these days - museums have to bring in money - but they gobble up space and push the art itself far away from the entrance.</b>
+> <p><i>Jerry Saltz</i></p>
 
 <br>
