@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>With love, you should go ahead and take the risk of getting hurt because love is an amazing feeling.</b>
-> <p><i>Britney Spears</i></p>
+> <b>I left my job in the fall, and now I can set my life up around writing instead of squeezing writing into my day it's amazing to have that time, and I feel very lucky.</b>
+> <p><i>Karen Thompson Walker</i></p>
 
 <br>
