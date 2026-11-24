@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>People are always looking for the single magic bullet that will totally change everything. There is no single magic bullet.</b>
-> <p><i>Temple Grandin</i></p>
+> <b>Fail I alone, in words and deeds? Why, all men strive and who succeeds?</b>
+> <p><i>Robert Browning</i></p>
 
 <br>
