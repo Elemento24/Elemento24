@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Fail I alone, in words and deeds? Why, all men strive and who succeeds?</b>
-> <p><i>Robert Browning</i></p>
+> <b>My public image is so low-key, but I get to travel the world and still have an audience and it's really amazing. I don't take that for granted.</b>
+> <p><i>K. D. Lang</i></p>
 
 <br>
