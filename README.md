@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>My public image is so low-key, but I get to travel the world and still have an audience and it's really amazing. I don't take that for granted.</b>
-> <p><i>K. D. Lang</i></p>
+> <b>If any man claims the Negro should be content... let him say he would willingly change the color of his skin and go to live in the Negro section of a large city. Then and only then has he a right to such a claim.</b>
+> <p><i>Robert Kennedy</i></p>
 
 <br>
