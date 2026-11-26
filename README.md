@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Poetry a criticism of life under the conditions fixed for such a criticism by the laws of poetic truth and poetic beauty.</b>
-> <p><i>Matthew Arnold</i></p>
+> <b>'Chasing Amy' was an amazing role, but then after that, I went and did 'Big Daddy' and you're the girlfriend or you're the best friend. I wasn't getting the Nicole Kidman roles.</b>
+> <p><i>Joey Lauren Adams</i></p>
 
 <br>
