@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Independent film is almost nonexistent right now, because all the distributers that used to love to put out these little art films are all out of business right now, because it costs so much to open a movie.</b>
-> <p><i>Ron Perlman</i></p>
+> <b>The finest works of art are precious, among other reasons, because they make it possible for us to know, if only imperfectly and for a little while, what it actually feels like to think subtly and feel nobly.</b>
+> <p><i>Aldous Huxley</i></p>
 
 <br>
