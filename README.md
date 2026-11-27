@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>Half a century ago, the amazing courage of Rosa Parks, the visionary leadership of Martin Luther King, and the inspirational actions of the civil rights movement led politicians to write equality into the law and make real the promise of America for all her citizens.</b>
-> <p><i>David Cameron</i></p>
+> <b>Independent film is almost nonexistent right now, because all the distributers that used to love to put out these little art films are all out of business right now, because it costs so much to open a movie.</b>
+> <p><i>Ron Perlman</i></p>
 
 <br>
