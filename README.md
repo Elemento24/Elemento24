@@ -50,7 +50,7 @@ Please help yourself with a quote before you go. Check back at the top of the ho
 <br>
 <br>
 
-> <b>We have an uncanny ability to make birds do what we want them to do. In Blood Simple there's a shot from the bumper of a car and it's going up this road and a huge flock of birds takes off at the perfect moment.</b>
-> <p><i>Joel Coen</i></p>
+> <b>It's pretty cool to be able to hang out with the President and have the race-winning car on the South Lawn.</b>
+> <p><i>Buddy Rice</i></p>
 
 <br>
